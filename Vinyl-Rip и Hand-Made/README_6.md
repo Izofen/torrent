@@ -1,4 +1,230 @@
 ﻿
+###  Публикация: 1 514 465
+
+Metallica - Дискография (20 releases) (1983-2023) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Heavy/Thrash Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Metallica — американская метал-группа, образованная в 1981 году, в Лос-Анджелесе.
+Вместе с такими группами как Slayer, Megadeth и Anthrax входит в «большую четвёрку трэш-метала».1983 - Kill 'Em All
+1984 - Ride the Lightning
+1986 - Master of Puppets
+1988 - ...And Justice for AllЖанр: Heavy/Thrash MetalПродолжительность: 39:54:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0864958871EF26E3FB7C6FD9ADC485A3A91DA6E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 501 310
+
+Nirvana - Легенды Зарубежного Рока  2001  Unofficial Release [FLAC 2.0|48 24|image +.cue|MC-Rip] <Rock, Grunge>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 About A Girl
+A2 Aneurysm
+A3 Come As You Are
+A4 Frances Farmer Will Have Her Revenge On Seattle    Читать дальше...    Жанр: Rock, GrungeПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:433A63E1A14CD5E775E84F316C7F90EB5D3348DA
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 497 397
+
+VA - Любимой Женщине 3. Сборник медленных композиций  1997  Unofficial Release [FLAC 2.0|48 24|image +.cue|MC-Rip] <Pop, Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. Donna Lewis - I love You Always Forewer
+02. Eric Clapton - Change The World
+03. Alanis Morissette - Head Over Feet    Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D2164BE1D2527B0E031CC974F3F52A392329077D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 482 784
+
+Rudolf Dasek - Dialogues  1979  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Free Jazz, Contemporary Jazz>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 The Enchanted Mill
+A2 If You Wish
+A3 Return
+A4 He s Coming    Читать дальше...    Жанр: Free Jazz, Contemporary JazzПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C0A8860950B8B00202F9E8DCB7B0A1BF801CC830
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 435 126
+
+VA - Песни из телефильма   Тайна Снежной Королевы    1987  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Soundtrack, Pop, Children s>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 О. Ефремов - Песня Сказочника   Однажды В Старой Дании...  
+A2 С. Степченко - Песенка Герды   Когда Повзрослеешь...  
+A3 А. Фрейндлих - Песня Снежной Королевы   Все Равно...  
+A4 С. Степченко - Песенка Герды   Где Же Сказка?      Читать дальше...    Жанр: Soundtrack, Pop, Children sПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:24A0FBCB5E793F3264906C901880BEE5661A2C23
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 431 813
+
+Урия Хип - Ансамбль «Урия Хип» | Uriah Heep - Innocent Victim  1980  1977 [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Hard Rock, Classic Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Keep On Ridin  = Я Снова В Пути
+A2 Flyin  High = Летаю Высоко
+A3 Roller = Легкомысленная
+A4 Free N  Easy = Свободно И Легко    Читать дальше...    Жанр: Hard Rock, Classic RockПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B332C759FFC0F1C225F42B8BC2FC01E6B3C80480
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 400 234
+
+Peter Frampton - Frampton Comes Alive!  1976  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Something s Happening
+A2 Doobie Wah
+A3 Show Me The Way
+A4 It s A Plain Shame    Читать дальше...    Жанр: Rock & Roll, Pop RockПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1A392C26F32F76170AE5A2889CED2F8F19E0F3A5
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 396 520
+
+Lift - Lift  1977  Russian text on labels [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Art Rock, Krautrock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Wasser Und Wein
+A2 ...Fallt Der Erste Reif
+A3 Und Es Schuf Der Mensch Die Erde
+A4 Jeden Abend    Читать дальше...    Жанр: Art Rock, KrautrockПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:95D3BCDADD3CAACA5CA9B3EB783667458A8E77B5
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 380 696
+
+Frank Sinatra - Some Nice Things I ve Missed  1974  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. You Turned My World Around
+Kaempfert, Rehbein, Carnes, Ellingson
+A2. Sweet Caroline
+Diamond    Читать дальше...    Жанр: Jazz, Easy ListeningПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2D96B1159D7CBF242F59C47AC06928BA6D7CF77F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 380 462
 
 Frank Sinatra - My Way  1969 1971  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Jazz, Big Band>
@@ -1758,231 +1984,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:2DCC71031D99D59963D0DC92C96B3C895D0D8313
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 171 308
-
-VA - XXXL Европейский 5  2000  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Electronic, Eurobeat>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. Modern Talking - Win The Race
-02. Modjo - Chillin 
-03. Billy More - Come On And Do It    Читать дальше...    Жанр: Electronic, EurobeatПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13452A78F5566CADF54DF1ED2A537EA91F320E4E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 164 020
-
-Pink Floyd - Wish You Were Here  2016  1975 [DSD2.0|5,64MHz 1bit|tracks|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Shine On You Crazy Diamond  1 - 5   13:28 
-02. Welcome To The Machine  7:36 
-03. Have A Cigar  5:10 
-04. Wish You Were Here  5:39     Читать дальше...    Жанр: RockПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4ACA3DF70C50ECF5949B642CB3C139DAE637F1F2
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 433
-
-VA - Disco Dancer  1982  [WavPack|Lossless|192 32|image + .cue|Vinyl-Rip] <Electronic, Pop, Folk>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. I Am A Disco Dancer  7:51 
-02. Jimmy Jimmy Jimmy Aaja  3:04 
-03. Auva Auva Koi Yahan Nache  5:24 
-04. Ae Oh Aa Zara Mudke  5:47     Читать дальше...    Жанр: Electronic, Pop, FolkПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06678C415C0BDC563133136F80E01F0A86208190
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 155 532
-
-Комиссар - Наше Время Пришло  1991  [DSD2.0|5,64MHz 1bit|image+.cue|Tape-Rip] <Pop, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Студия ПИТОН представляет!
-02. Ты уйдешь
-03. Наше время пришло
-04. Всё изменится    Читать дальше...    Жанр: Pop, DiscoПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:52D0D4FE2F4827D8FEE13632FA89D2B2CB82B891
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 152 547
-
-VA - Марк Минков - Парад Планет  1983  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-А1 Алла Пугачева - Если звёзды молчат
-А2 Алла Пугачева - На дороге ожидания
-А3 Яак Йоала - Из памяти уходят имена
-А4 Алла Пугачева - Не отрекаются любя    Читать дальше...    Жанр: Pop Rock, Classic RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AEF68BEEF591E17BF984C46C9DC63AE19769CAB5
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 150 975
-
-George Harrison - Somewhere In England  1981  [FLAC 2.0|192 24|image+.cue|Vinyl-Ri] <Pop Rock, Classic Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Blood From A Clone
-A2 Unconsciousness Rules
-A3 Life Itself
-A4 All Those Years Ago    Читать дальше...    Жанр: Pop Rock, Classic RockПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 150 247
-
-VA - Песни На Стихи Андрея Вознесенского  1981  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Николай Гнатюк - Танец На Барабане
-A2 Ольга Пирак - Два Стрижа
-A3 Петер Тилс - Белый Шиповник
-A4 Яак Йоала - Подберу Музыку    Читать дальше...    Жанр: Pop, RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 141 810
-
-Miguel Ramos Мигель Рамос - Organo Hammond Орган Хаммонд  1976,1977  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Jazz, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Урожай
-A2 Снова Один
-A3 Тема Любви
-A4 Сын Моего Отца    Читать дальше...    Жанр: Jazz, Pop
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D93D07164B63F6BE4D6F61FF25AC285031D7E03
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 131 738
-
-Toto Cutugno - L Italiano  1983  1984, Jugoton[FLAC|24 192|image + .cue|Vinyl-Rip]<Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. L Italiano  3:58 
-A2. Solo Noi  4:04 
-A3. Soli  4:04 
-A4. Donna, Donna Mia  3:01     Читать дальше...    Производство: Jugoton - LSY 10026Жанр: PopПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:45463F8CF9286D4B7030D44C00B3B0DC00164888
 ```
 
 <div id="header" align="center">

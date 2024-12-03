@@ -1,4 +1,252 @@
 ﻿
+###  Публикация: 796 601
+
+Electric Light Orchestra - Face The Music  1975   [FLAC 2.0 24 192|image  Vinyl-Rip ]<Progressive Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Fire On High  5:32 
+A2. Waterfall  4:12 
+A3. Evil Woman  4:35 
+A4. Nightrider  4:24     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BBC27298539BD13BA590413321F9BF24795A404D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 796 584
+
+Eruption - Leave A Light  1979  [FLAC 2.0 24 192|traks Vinil-Rip ]<Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Leave A Light  I ll Keep A Light In My Window  6:45
+2. Sweet Side 3:50
+3. Up And Away 3:10
+4. Left Me In The Rain 3:55
+Сторона 2
+1. Valley Of The Dolls 4:35
+2. One Way Ticket 3:35
+3. Hey There Lonely Girl 3:25
+4. No Good Searchin  4:28    Читать дальше...    Жанр: DiscoПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B35E73D61900F5B929186546421C39096AB1F1F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 795 718
+
+Государственный симфонический оркестр СССР  дирижер Евгений Светланов  - Н. Римский-Корсаков - Шехеразада  симфоническая сюита по 1001 ночи, соч
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Море и корабль Синдбада  10:40
+2. Рассказ царевича Календера  11:38
+Сторона 2
+1. Царевич и царевна  11:02
+2. Багдадский праздник и корабль, разбивающийся о скалу с медным всадником  11:20Жанр: ClassicalПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:642DF0C7A6B26DF6C1CC35C162EE7822F6A515E6
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 795 044
+
+The Who - It s Hard  1982   [FLAC 2.0 24 192|image  Vinyl-Rip ]<Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Athena  3:49 
+A2. It s Your Turn  3:41 
+A3. Cooks County  3:50 
+A4. It s Hard  3:47     Читать дальше...    Жанр: Hard RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57AC978D6E1368640A97A44485C38DC0D957C652
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 793 368
+
+Electric Light Orchestra - Secret Messages  1983   [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Progressive Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Secret Messages  4:45 
+A2. Loser Gone Wild  5:24 
+A3. Bluebird  4:09 
+A4. Take Me On And On  5:01     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A7075669EA4FE93F57AACE74FEA887A0CB7036F7
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 789 786
+
+Junior Wells  Chicago Blues Band With Buddy Guy - Hoodoo Man Blues  1965  Reissue [FLAC 2.0 24 192|tracks+.cue  Vinyl-Rip ]<Blues, Chicago
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side1:
+01. Snatch It Back And Hold It  2:57 
+02. Ships On The Ocean  4:10 
+03. Good Morning Schoolgirl  3:58 
+04. Hound Dog  2:11 
+05. In The Wee Wee Hours  3:52 
+06. Hey Lawdy Mama  3:14 
+Side2:
+01. Hoodoo Man Blues  2:09 
+02. Early In The Morning  4:51     Читать дальше...    Жанр: Blues, Chicago Blues, Harmonica BluesПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9ACC9FFD8A120254DD272881491774DF82BF607A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 789 598
+
+Scorpions - 2 Альбома  1977-1993  [FLAC 2.0 24 192] image + .cue,  Vinyl-Rip <Hard Rock><Hard Rock, Heavy Metal>
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Hard Rock, Heavy MetalПродолжительность: 01:37:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E77FA18272F09C8F7AC35C06949DC6B5FE99606
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 783 781
+
+Тухманов - По волне моей памяти  1976  [FLAC 2.0 24 192|traks Vinil-Rip ]<ArtRock, Schlager>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1 сторона
+1. Я мысленно вхожу в Ваш кабинет  М. Волошин  М. Бади   Арсенал    5:04
+2. Из сафо  VII век до н.э.  , перевод В. Вересаева  Наталья Капустина  Вокальная группа  Современник    5:17
+3. Из вагантов  XI - XIII вв.  , перевод Л. Гинзбурга  Игорь Иванов   Надежда    3:02
+4. Приглашение к путешествию  Ш. Бодлер , перевод И. Озеровой  А. Барыкин   Самоцветы    4:05
+5. Доброй ночи  П. Б. Шелли  М. Бади   Арсенал    3:45
+2 сторона
+1. По волне моей памяти  Н. Гильен , перевод И. Тыняновой  В. Андрианов   Лейся , песня    3:45
+2. Сентиментальная прогулка  П. Верлен , перевод А. Эфрон  С. Беликов   Аракс    3:57
+3. Сердце моё , сердце  И. В. Гёте , перевод В. Левика  А. Лерман  Вокальная группа  Добры молодцы    3:58    Читать дальше...    Жанр: ArtRock, SchlagerПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3C1ED3739AAD88257D9482A2DC2525664EF9AF68
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 781 909
+
+Pink Floyd - Delicate Sound Of Thunder  2 LP   1988  [FLAC 2.0 24 192|traks Vinil-Rip ]<Progressive & Art Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Shine on You Crazy Diamond  11:46
+2. Learning to Fly 5:34
+3. Yet Another Movie & Round and Around 7:20
+Сторона 2
+1. Sorrow 9:54
+2. The Dogs of War 7:12
+3. On the Turning Away 7:56
+Сторона 3
+1. One Of These Days 6:14    Читать дальше...    Жанр: Progressive & Art RockПродолжительность: 01:37:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1BD4DEFB6EB1687BA4A15514A3D0CD7F0060A206
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 778 284
 
 Varios - Колокольные звоны Псково-Печорского монастыря  1981  [[FLAC 2.0 24 96|traks Vinil-Rip ]]<Church bells Russian Falc>
@@ -2031,284 +2279,6 @@ B5.  Queen Of Hearts  Remix   :: 04:14Жанр: Synth-pop, EurodanceФормат
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:1B2F744B98DD788789CB7E2ADEBEA497D0710362
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 704 359
-
-Bad Boys Blue - To Blue Horizons  1994  Greece [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-To Blue Horizons  с англ. К синим горизонтам  - десятый студийный альбом немецкой евродиско-группы Bad Boys Blue, вышедший в 1994 году. Диск включает в себя два хита группы - «Go Go  Love Overload » и «Luv 4 U». В США была издана версия этого альбома с изменённым плей-листом - были добавлены две композиции  они вошли, как бонус композиции, в следующий альбом группы - Bang Bang Bang  - «Don’t Be So Shy» и «Family Beat». Также был изменён порядок композиций в альбоме. Композиция «Say You’ll Be Mine» в исполнении Эндрю Томаса, им же были исполнены рэп-партии в «Luv 4 U», «Take A Chance» и «Grand Illusion».A1.  Luv 4 U  Radio Mix   :: 03:50
-A2.  Go Go  Love Overload   :: 03:47
-A3.  Take A Chance  :: 04:00
-A4.  Is It You  :: 03:27
-A5.  What Else  Radio Mix   :: 03:14
-A6.  Grand Illusion  :: 03:43
-B1.  Prove Your Love  :: 03:26
-B2.  One More Kiss  :: 03:36
-B3.  It Was Only Love  :: 03:43
-B4.  Say You ll Be Mine  :: 03:46    Читать дальше...    Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0AAE4EE337668AF9C301EEC7484E610CFBD8C1A1
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 703 987
-
-Bad Boys Blue - The Fifth  1989  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Пятый, юбилейный альбом  The Fifth  полностью оправдал все те авансы, что были выданы группе после выхода в 1988-м  My Blue World , став в итоге его своеобразным логическим продолжением. И если музыкальная стилистика новой долгоиграющей пластинки кёльнской троицы каких-то особых сюрпризов нам не преподнесла, то вот состав группы всё же претерпел некоторые изменения. Вместо покинувшего коллектив в 1988 году амбициозного ямайца Тревора Тэйлора, решившего отныне целиком сконцентрироваться только лишь на своей любимой музыке рэгги, новым участником трио становится уроженец небольшого английского городка Grimsby - Тревор Баннистер  Trevor Bannister .A1.  Lady In Black  :: 03:48
-A2.  Someone To Love  :: 03:06
-A3.  A Train To Nowhere  :: 03:55
-A4.  I m Not A Fool  :: 03:51
-A5.  No Regrets  :: 04:46
-B1.  Where Are You Now  :: 03:40
-B2.  Fly Away  :: 03:47
-B3.  Love Me Or Leave Me  :: 03:55
-B4.  Show Me The Way  :: 03:56
-B5.  A Train To Nowhere  Train Mix   :: 04:00Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EFCB1082EB80A3DB03B19436B1D92C9F9A6F0B0B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 703 962
-
-Bad Boys Blue - Love Is No Crime  1987  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Love Is No Crime  с англ. Любовь не преступление  - третий студийный альбом немецкой диско-группы Bad Boys Blue, вышедший в 1987 году. Содержит такой хит группы, как «Come Back And Stay». Композиции «Gimme Gimme Your Lovin   Little Lady », «Victim Of Your Love», «Charlene», «Inside Of Me», «Why  Misty Eyes » и «Kiss You All Over, Baby  New Version » в исполнении Тревора Тэйлора. Высшая позиция в чартах - Финляндия, 12 место.A1.  Come Back And Stay  :: 07:36
-A2.  If You Call On Me  :: 03:33
-A3.  Victim Of Your Love  :: 04:31
-A4.  Love Is No Crime  :: 03:36
-A5.  Gimme Gimme Your Lovin   Little Lady   :: 03:51
-B1.  I Remember Mary  :: 04:58
-B2.  Charlene  :: 04:27
-B3.  Inside Of Me  :: 04:36
-B4.  Why  Misty Eyes   :: 04:58
-B5.  Kiss You All Over, Baby  New Version   :: 04:13Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:88E683308C8D7B906BE9721CBB8D790168F9AAE9
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 703 946
-
-Bad Boys Blue - Heartbeat  1986  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Heartbeat  с англ. Сердцебиение  - второй студийный альбом немецкой диско-группы Bad Boys Blue, вышедший в 1986 году. Heartbeat включает в себя два международных хита - «I Wanna Hear Your Heartbeat  Sunday Girl » и «Kisses And Tears  My One And Only ». Oбе песни добрались соответственно до 22 и 14 места в Германии, а также 26 и 21 в Швейцарии. На альбоме, кроме типичных для группы песен, были два кавера: Love Really Hurts Without You   оригинал - Billy Ocean  и  Baby I Love You   оригинал - Phil Spector A1.  I Wanna Hear Your Heartbeat  Sunday Girl   :: 04:06
-A2.  Mon Amie  :: 04:41
-A3.  One Night In Heaven  :: 04:56
-A4.  Baby I Love You  :: 04:01
-A5.  Kisses And Tears  My One And Only   :: 03:59
-B1.  Rainy Friday  :: 05:16
-B2.  Lady Blue  :: 04:28
-B3.  Love Really Hurts Without You  :: 03:49
-B4.  Blue Moon  :: 04:47
-B5.  Dance The Night Away  :: 04:19Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1544FD183576E0275A73D0449DD2B597142126EB
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 703 915
-
-Bad Boys Blue - My Blue World  1988  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-My Blue World  с англ. Мой грустный мир - используется игра слов, blue - синий, грустный  - четвёртый альбом немецкой евродиско-группы Bad Boys Blue, вышедший в 1988 году. My Blue World содержит три хита группы - «A World Without You  Michelle », «Don’t Walk Away, Susanne» и «Lovers In The Sand». Композиции «Bad Reputation» и «Love Don’t Come Easy» - в исполнении Тревора Тэйлора.A1.  A World Without You  Michelle   Radio Edit   :: 03:39
-A2.  Don t Leave Me Now  :: 06:16
-A3.  Bad Reputation  :: 03:40
-A4.  Don t Walk Away Suzanne  :: 03:52
-A5.  Love Don t Come Easy  :: 03:44
-B1.  Lovers In The Sand  :: 03:49
-B2.  Till The End Of Time  :: 04:24
-B3.  Lonely Weekend  :: 03:41
-B4.  Rain In My Heart  :: 04:25
-B5.  A World Without You  Michelle   Classical Mix   :: 03:30Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D574882AAF65CE888B358BA7D34CB70F1D605AE8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 703 640
-
-Bad Boys Blue ‎- House Of Silence  1991  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-House Of Silence  с англ. Дом тишины  - седьмой альбом немецкой евродиско-группы Bad Boys Blue, вышедший в 1991 году. House Of Silence содержит один из главных хитов группы - «House Of Silence». В композициях «Dancing With The Bad Boys» и «Tell It Everybody» рэп-партии в исполнении Эндрю Томаса. Высшая позиция - в чартах в Финляндии, 5 место.A1.  House Of Silence  :: 03:58
-A2.  Under The Boardwalk  :: 03:34
-A3.  Train At Midnight  :: 03:31
-A4.  Baby Blue  :: 03:47
-A5.  Dancing With The Bad Boys  :: 04:19
-B1.  Deep In My Emotion  :: 03:48
-B2.  Tell It Everybody  :: 03:20
-B3.  Gimme Back My Love  :: 04:01
-B4.  When Our Love Was Young  :: 03:46
-B5.  House Of Silence  Haunted House Mix   :: 04:13Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EBD667399AB68077A4D01FC759CAADD5B8074F05
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 703 534
-
-Malcolm McLaren & the Bootzilla Orchestra - Waltz Darling  1989  Holland [FLAC 2.0 24 96|Image  Vinyl-Rip ]<Modern Classical, Downtempo, Eur
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Малькольм Макларен больше всего известен как менеджер группы Sex Pistols, которая стала знаковым событием в истории панк-рока. После распада Sex Pistols Макларен стал менеджером Adam and the Ants. Почти сразу он поссорился с лидером группы Адамом Антом и вместе с новой солисткой Аннабеллой Льюин и музыкантами Adam and the Ants создал нью-вэйв-группу Bow Wow Wow. Группа прославилась оригинальным вкраплением ритмичных африканских мотивов в электронную рок-музыку и скандалом, который вызвало появление обнажённой четырнадцатилетней солистки на обложке альбома See Jungle! Без имени Малькольма Макларена современная музыкальная сцена была бы иной. Скандальный генератор арт-проектов, которые всегда шокировали общественность и предвосхищали эпоху, гениальнейший продюсер и циничнейший музыкант, эпатажный стилист и fashion-дизайнер и легенда богемного олимпа...A1.  House Of The Blue Danube  An Instrumental   :: 04:49
-A2.  Something s Jumpin  In Your Shirt  :: 04:53
-A3.  Waltz Darling  :: 04:26
-A4.  Shall We Dance  :: 04:42
-B1.  Deep In Vogue  :: 03:55
-B2.  Call A Wave  :: 04:21
-B3.  Algernon s Simply Awfully Good At Algebra  :: 04:02
-B4.  I Like You In Velvet  :: 05:17Жанр: Modern Classical, Downtempo, Euro HouseФормат: Vinyl, LP, AlbumПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 702 939
-
-Carlos Peron  ex-Yello  - Gold For Iron  1989  Germany [FLAC 2.0 24 96|Image  Vinyl-Rip ]<Synth-pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Карлос Перон начинал писать музыку вместе с группой Yello, которую оставил ради самостоятельной карьеры в 1984-м. Многие меломаны считают, что именно он стал основоположником  фирменного  звучания Yello.
-Так-же, в качестве продюсера принимал участие в таких проектах, как AMX 40, Dark Ruler, Wolfsheim. Кроме этого известен написанием музыки для разного рода эротических шоу и представлений.A1.Motorman :: 03:50
-A2.Afro Infernal :: 03:49
-A3.We-U-Wee-Ah!  D.W.E.i.i.G.  :: 04:03
-A4.Los Alamos :: 03:56
-A5.Be With You :: 04:17
-B1.The Spanish Fly :: 03:39
-B2.Matin Indien :: 04:52
-B3.The Catherina Ho :: 04:56
-B4.Espace Ouvert :: 04:27
-B5.The Sketch :: 01:43    Читать дальше...    Жанр: Synth-popФормат: Vinyl, LP, AlbumПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:115C178CA2B24E572861C725E773EB3FBFEA0A1A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 702 789
-
-Alison Moyet - The Minutes  2013  EU [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop, Synth-pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Элисон Мойe  англ. Alison Moyet, полное имя - Дженевьeва Элисон Джейн Мойe, Genevieve Alison Jane Moyet; род. 18 июня 1961, Биллерикей, Эссекс, Восточная Англия, Великобритания  - британская вокалистка, выступавшая в 1980-х годах с Винсом Кларком в синтипоп-группе Yazoo. После ухода из Yazoo Мойе начала успешную сольную карьеру: десять её альбомов входили в UK Albums Chart; дебютный Alf  1984  и сборник Singles  1995  возглавляли чарты. В 2008 году дуэт Yazoo воссоединился для кратковременных гастролей по Европе в поддержку перевыпущенных записей группы.A1.Horizon Flame :: 03:38
-A2.Changeling :: 02:58
-A3.When I Was Your Girl :: 03:39
-A4.Apple Kisses :: 03:33
-A5.Right As Rain :: 03:07
-A6.Remind Yourself :: 03:51
-B1.Love Reign Supreme :: 03:46
-B2.A Place To Stay :: 04:04
-B3.Filigree :: 03:44
-B4.All Signs Of Life :: 03:55    Читать дальше...    Жанр: Pop, Synth-popФормат: 180 gram RED Heavyweight vinyl, LP, AlbumПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DBA094E7F91CCBF573B19EF66C9059DC38176E3F
 ```
 
 <div id="header" align="center">

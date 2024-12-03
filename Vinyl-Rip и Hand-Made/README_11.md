@@ -1,4 +1,282 @@
 ﻿
+###  Публикация: 704 359
+
+Bad Boys Blue - To Blue Horizons  1994  Greece [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+To Blue Horizons  с англ. К синим горизонтам  - десятый студийный альбом немецкой евродиско-группы Bad Boys Blue, вышедший в 1994 году. Диск включает в себя два хита группы - «Go Go  Love Overload » и «Luv 4 U». В США была издана версия этого альбома с изменённым плей-листом - были добавлены две композиции  они вошли, как бонус композиции, в следующий альбом группы - Bang Bang Bang  - «Don’t Be So Shy» и «Family Beat». Также был изменён порядок композиций в альбоме. Композиция «Say You’ll Be Mine» в исполнении Эндрю Томаса, им же были исполнены рэп-партии в «Luv 4 U», «Take A Chance» и «Grand Illusion».A1.  Luv 4 U  Radio Mix   :: 03:50
+A2.  Go Go  Love Overload   :: 03:47
+A3.  Take A Chance  :: 04:00
+A4.  Is It You  :: 03:27
+A5.  What Else  Radio Mix   :: 03:14
+A6.  Grand Illusion  :: 03:43
+B1.  Prove Your Love  :: 03:26
+B2.  One More Kiss  :: 03:36
+B3.  It Was Only Love  :: 03:43
+B4.  Say You ll Be Mine  :: 03:46    Читать дальше...    Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0AAE4EE337668AF9C301EEC7484E610CFBD8C1A1
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 703 987
+
+Bad Boys Blue - The Fifth  1989  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Пятый, юбилейный альбом  The Fifth  полностью оправдал все те авансы, что были выданы группе после выхода в 1988-м  My Blue World , став в итоге его своеобразным логическим продолжением. И если музыкальная стилистика новой долгоиграющей пластинки кёльнской троицы каких-то особых сюрпризов нам не преподнесла, то вот состав группы всё же претерпел некоторые изменения. Вместо покинувшего коллектив в 1988 году амбициозного ямайца Тревора Тэйлора, решившего отныне целиком сконцентрироваться только лишь на своей любимой музыке рэгги, новым участником трио становится уроженец небольшого английского городка Grimsby - Тревор Баннистер  Trevor Bannister .A1.  Lady In Black  :: 03:48
+A2.  Someone To Love  :: 03:06
+A3.  A Train To Nowhere  :: 03:55
+A4.  I m Not A Fool  :: 03:51
+A5.  No Regrets  :: 04:46
+B1.  Where Are You Now  :: 03:40
+B2.  Fly Away  :: 03:47
+B3.  Love Me Or Leave Me  :: 03:55
+B4.  Show Me The Way  :: 03:56
+B5.  A Train To Nowhere  Train Mix   :: 04:00Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EFCB1082EB80A3DB03B19436B1D92C9F9A6F0B0B
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 703 962
+
+Bad Boys Blue - Love Is No Crime  1987  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Love Is No Crime  с англ. Любовь не преступление  - третий студийный альбом немецкой диско-группы Bad Boys Blue, вышедший в 1987 году. Содержит такой хит группы, как «Come Back And Stay». Композиции «Gimme Gimme Your Lovin   Little Lady », «Victim Of Your Love», «Charlene», «Inside Of Me», «Why  Misty Eyes » и «Kiss You All Over, Baby  New Version » в исполнении Тревора Тэйлора. Высшая позиция в чартах - Финляндия, 12 место.A1.  Come Back And Stay  :: 07:36
+A2.  If You Call On Me  :: 03:33
+A3.  Victim Of Your Love  :: 04:31
+A4.  Love Is No Crime  :: 03:36
+A5.  Gimme Gimme Your Lovin   Little Lady   :: 03:51
+B1.  I Remember Mary  :: 04:58
+B2.  Charlene  :: 04:27
+B3.  Inside Of Me  :: 04:36
+B4.  Why  Misty Eyes   :: 04:58
+B5.  Kiss You All Over, Baby  New Version   :: 04:13Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:88E683308C8D7B906BE9721CBB8D790168F9AAE9
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 703 946
+
+Bad Boys Blue - Heartbeat  1986  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Heartbeat  с англ. Сердцебиение  - второй студийный альбом немецкой диско-группы Bad Boys Blue, вышедший в 1986 году. Heartbeat включает в себя два международных хита - «I Wanna Hear Your Heartbeat  Sunday Girl » и «Kisses And Tears  My One And Only ». Oбе песни добрались соответственно до 22 и 14 места в Германии, а также 26 и 21 в Швейцарии. На альбоме, кроме типичных для группы песен, были два кавера: Love Really Hurts Without You   оригинал - Billy Ocean  и  Baby I Love You   оригинал - Phil Spector A1.  I Wanna Hear Your Heartbeat  Sunday Girl   :: 04:06
+A2.  Mon Amie  :: 04:41
+A3.  One Night In Heaven  :: 04:56
+A4.  Baby I Love You  :: 04:01
+A5.  Kisses And Tears  My One And Only   :: 03:59
+B1.  Rainy Friday  :: 05:16
+B2.  Lady Blue  :: 04:28
+B3.  Love Really Hurts Without You  :: 03:49
+B4.  Blue Moon  :: 04:47
+B5.  Dance The Night Away  :: 04:19Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1544FD183576E0275A73D0449DD2B597142126EB
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 703 915
+
+Bad Boys Blue - My Blue World  1988  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+My Blue World  с англ. Мой грустный мир - используется игра слов, blue - синий, грустный  - четвёртый альбом немецкой евродиско-группы Bad Boys Blue, вышедший в 1988 году. My Blue World содержит три хита группы - «A World Without You  Michelle », «Don’t Walk Away, Susanne» и «Lovers In The Sand». Композиции «Bad Reputation» и «Love Don’t Come Easy» - в исполнении Тревора Тэйлора.A1.  A World Without You  Michelle   Radio Edit   :: 03:39
+A2.  Don t Leave Me Now  :: 06:16
+A3.  Bad Reputation  :: 03:40
+A4.  Don t Walk Away Suzanne  :: 03:52
+A5.  Love Don t Come Easy  :: 03:44
+B1.  Lovers In The Sand  :: 03:49
+B2.  Till The End Of Time  :: 04:24
+B3.  Lonely Weekend  :: 03:41
+B4.  Rain In My Heart  :: 04:25
+B5.  A World Without You  Michelle   Classical Mix   :: 03:30Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D574882AAF65CE888B358BA7D34CB70F1D605AE8
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 703 640
+
+Bad Boys Blue ‎- House Of Silence  1991  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+House Of Silence  с англ. Дом тишины  - седьмой альбом немецкой евродиско-группы Bad Boys Blue, вышедший в 1991 году. House Of Silence содержит один из главных хитов группы - «House Of Silence». В композициях «Dancing With The Bad Boys» и «Tell It Everybody» рэп-партии в исполнении Эндрю Томаса. Высшая позиция - в чартах в Финляндии, 5 место.A1.  House Of Silence  :: 03:58
+A2.  Under The Boardwalk  :: 03:34
+A3.  Train At Midnight  :: 03:31
+A4.  Baby Blue  :: 03:47
+A5.  Dancing With The Bad Boys  :: 04:19
+B1.  Deep In My Emotion  :: 03:48
+B2.  Tell It Everybody  :: 03:20
+B3.  Gimme Back My Love  :: 04:01
+B4.  When Our Love Was Young  :: 03:46
+B5.  House Of Silence  Haunted House Mix   :: 04:13Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EBD667399AB68077A4D01FC759CAADD5B8074F05
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 703 534
+
+Malcolm McLaren & the Bootzilla Orchestra - Waltz Darling  1989  Holland [FLAC 2.0 24 96|Image  Vinyl-Rip ]<Modern Classical, Downtempo, Eur
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Малькольм Макларен больше всего известен как менеджер группы Sex Pistols, которая стала знаковым событием в истории панк-рока. После распада Sex Pistols Макларен стал менеджером Adam and the Ants. Почти сразу он поссорился с лидером группы Адамом Антом и вместе с новой солисткой Аннабеллой Льюин и музыкантами Adam and the Ants создал нью-вэйв-группу Bow Wow Wow. Группа прославилась оригинальным вкраплением ритмичных африканских мотивов в электронную рок-музыку и скандалом, который вызвало появление обнажённой четырнадцатилетней солистки на обложке альбома See Jungle! Без имени Малькольма Макларена современная музыкальная сцена была бы иной. Скандальный генератор арт-проектов, которые всегда шокировали общественность и предвосхищали эпоху, гениальнейший продюсер и циничнейший музыкант, эпатажный стилист и fashion-дизайнер и легенда богемного олимпа...A1.  House Of The Blue Danube  An Instrumental   :: 04:49
+A2.  Something s Jumpin  In Your Shirt  :: 04:53
+A3.  Waltz Darling  :: 04:26
+A4.  Shall We Dance  :: 04:42
+B1.  Deep In Vogue  :: 03:55
+B2.  Call A Wave  :: 04:21
+B3.  Algernon s Simply Awfully Good At Algebra  :: 04:02
+B4.  I Like You In Velvet  :: 05:17Жанр: Modern Classical, Downtempo, Euro HouseФормат: Vinyl, LP, AlbumПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 702 939
+
+Carlos Peron  ex-Yello  - Gold For Iron  1989  Germany [FLAC 2.0 24 96|Image  Vinyl-Rip ]<Synth-pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Карлос Перон начинал писать музыку вместе с группой Yello, которую оставил ради самостоятельной карьеры в 1984-м. Многие меломаны считают, что именно он стал основоположником  фирменного  звучания Yello.
+Так-же, в качестве продюсера принимал участие в таких проектах, как AMX 40, Dark Ruler, Wolfsheim. Кроме этого известен написанием музыки для разного рода эротических шоу и представлений.A1.Motorman :: 03:50
+A2.Afro Infernal :: 03:49
+A3.We-U-Wee-Ah!  D.W.E.i.i.G.  :: 04:03
+A4.Los Alamos :: 03:56
+A5.Be With You :: 04:17
+B1.The Spanish Fly :: 03:39
+B2.Matin Indien :: 04:52
+B3.The Catherina Ho :: 04:56
+B4.Espace Ouvert :: 04:27
+B5.The Sketch :: 01:43    Читать дальше...    Жанр: Synth-popФормат: Vinyl, LP, AlbumПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:115C178CA2B24E572861C725E773EB3FBFEA0A1A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 702 789
+
+Alison Moyet - The Minutes  2013  EU [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop, Synth-pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Элисон Мойe  англ. Alison Moyet, полное имя - Дженевьeва Элисон Джейн Мойe, Genevieve Alison Jane Moyet; род. 18 июня 1961, Биллерикей, Эссекс, Восточная Англия, Великобритания  - британская вокалистка, выступавшая в 1980-х годах с Винсом Кларком в синтипоп-группе Yazoo. После ухода из Yazoo Мойе начала успешную сольную карьеру: десять её альбомов входили в UK Albums Chart; дебютный Alf  1984  и сборник Singles  1995  возглавляли чарты. В 2008 году дуэт Yazoo воссоединился для кратковременных гастролей по Европе в поддержку перевыпущенных записей группы.A1.Horizon Flame :: 03:38
+A2.Changeling :: 02:58
+A3.When I Was Your Girl :: 03:39
+A4.Apple Kisses :: 03:33
+A5.Right As Rain :: 03:07
+A6.Remind Yourself :: 03:51
+B1.Love Reign Supreme :: 03:46
+B2.A Place To Stay :: 04:04
+B3.Filigree :: 03:44
+B4.All Signs Of Life :: 03:55    Читать дальше...    Жанр: Pop, Synth-popФормат: 180 gram RED Heavyweight vinyl, LP, AlbumПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DBA094E7F91CCBF573B19EF66C9059DC38176E3F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 702 389
 
 Хвост & Аукцыон - Чайник вина  1992  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Рок   Авангард>
@@ -2078,268 +2356,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:A9C454CEFDB60A3078935197D71FBFD61D67AE49
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 662 402
-
-Santa Esmeralda 2 - The House Of The Rising Sun  1978   Japan  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Disco, Funk>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. The House Of The Rising Sun + Quasimodo Suite
-02. Dance You Down Tonight
-03. Nothing Elsa Matters
-04. Hey! GipЖанр: Disco, FunkПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB796933E640E783E07B4F131D47B3A0BE8BE32E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 662 389
-
-F.R. David - 2 Альбома  1982,1983   Japan  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-F.R. David  Elli Robert Fitoussi David  - французский певец тунисского происхождения. Музыкальную карьеру начал в конце 60-х, как вокалист участвовал в различных французских группах, наиболее известная из которых King Of Hearts.
-В 1982 году записал одну из самых известных своих песен - Words, кторая вошла в дебютный одноимённый альбом 1982-го года.
-Пик популярности F. R. David пришёлся на 80-е годы, после 1987-го он 20 лет не выпускал альбомов, пока в 2007 году не вышел диск The Wheel.01. This Time I Have To Win
-02. Girl
-03. Dream Away
-04. Liberty
-05. Long Distance Flight
-06. I Need You
-07. Stay
-08. Feedback Delay
-09. Is It Magic
-10. Good Times    Читать дальше...    Жанр: PopПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:382EE2380966A55CD7FA478149FEAD23214D5FF4
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 661 981
-
-A La Carte - 2 Альбома  1980,1981  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A La Carte - немецкая диско-группа, образованная в 1978 году супружеской парой Тони Хендрик и Карин Хартман, работавшими продюсерами в корпорации Hansa International.
-Состав трио менялся с завидным постоянством, в результате за время существования коллектива в нем успело поучавствовать шесть исполнительниц.
-Примечательно, что аранжировки песен в представленых альбомах сделаны Майклом Крету  Michael Cretu , плюс он даже поиграл на клавишных, а на бас гитаре - Manfred  Thiessy  Thiers.01. Viva Torero
-02. Morning Songbird
-03. Cubatao
-04. In The Summer Sun Of Greece
-05. Try A Little Tenderness
-06. Wanted  Jean Le Voleur 
-07. You Get Me On The Run
-08. Have You Forgotten  Wolga Song 
-09. River Blue
-10. Dong Dong Diki Diki DongЖанр: DiscoПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E2CA2898B8D959286E24BF1E440A25BFD0A6D8B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 661 611
-
-Amy Winehouse - Lioness: Hidden Treasures  2011   [FLAC 2.0 24 192|image  Vinyl-Rip ]<Jazz, Jazz-vocal, Soul>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Our Day Will Come
-02. Between The Cheats
-03. Tears Dry - Original Version
-04. Will You Still Love Me
-05. Like Smoke
-06. Valerie - Dap Kings Band Version
-07. The Girl from Ipanema
-08. Halftime
-09. Wake Me Up Alone
-10. Best Friends    Читать дальше...    Жанр: Jazz, Jazz-vocal, SoulПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:52DB0A20EFC4D1D2DBCC13BA2AB8FED88929671A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 661 552
-
-Silent Circle - No.1  1986  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Touch In The Night
-02. Sib Dab Dua
-03. Dreams
-04. Hide Away - Man Is Comin !
-05. Shy Girl
-06. Stop The Rain In The Night
-07. For You
-08. Give Me Time
-09. Moonlight Affair
-10. Anywhere Tonight    Читать дальше...    Жанр: PopПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0FE9C88DB8D0B1460ABC50B18DD740AE7508ACE
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 661 199
-
-Abba - 7 Альбомов  1975-1981   Polar-Disco mate, Japan  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Оцифровка японских винилов Великого Квартета.
-Автор оцифровки - неизвестен  источник bazar 
-Аппарат - неизвестен
-Код класса состояния винила - неизвестен    Читать дальше...    Жанр: PopПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3F46A3A0C00943AFC55E458B73EAFF845F873126
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 660 774
-
-Ricchi E Poveri - 2 Альбома  1983,1985  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop, Italo-Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Dimmi Quando
-02. Buonanotte Fiorellino
-03. L  Anno Che Verra
-04. Scende La Pioggia
-05. Come Vorrei
-06. Samarcanda
-07. La Luce Dell  Est
-08. Azzurro
-09. Casa Mia
-10. Cosa SeiЖанр: Pop, Italo-PopПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40016EF33FC134702DFCA2EF96466166F49B3EB8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 660 735
-
-Vaya Con Dios - Night Owls  1990  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop, Pop-Jazz>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Pop, Pop-JazzПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA3F0249265CBB61A1FF2B0A8C30AB9302B5DC7F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 660 300
-
-Yello - 9 Альбомов  1980-2009   [FLAC 2.0 24 192|image  Vinyl-Rip ]<Electronic, Synthpop>
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-LP1
-01. The Expert
-02. You Better Hide
-03. Out Of Dawn
-04. Bostich  Reflected 
-05. Till Tomorrow
-06. Tangier Blue
-07. Part Love
-08. Friday Smile
-LP2    Читать дальше...    Жанр: Electronic, SynthpopПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70C72CE76E8D472A3E0DF6FABE68619A5D7715A2
 ```
 
 <div id="header" align="center">

@@ -1,4 +1,26 @@
 ﻿
+###  Публикация: 1 684 561
+
+Need for Speed: Underground 2  2004  [Ru En]  1.2  Repack Decepticon
+Win Старые Игры
+Racing
+
+###  Подробнее
+
+Need for Speed: Underground 2 - это аркадный гоночный симулятор серии Need for Speed, разработанный и выпущенный Electronic Arts в 2004 году, является продолжением Need for Speed:Underground.В игре вы можете свободно перемещаться на автомобиле по городу Бэйвью. Управление достаточно простое, город легко можно выучить, не смотря на его большой размер. Вскоре можно     Читать дальше...    Тип издания: RepackРазработчик: EA Canada, PocketeersЖанр: Racing, SimulatorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2DC07E7106EA1E8CC8FB5D6C2AFE7B618B514898
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/vZ7YT4B/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 683 663
 
 Need for Speed: Underground  2003  [Ru En]  1.4.0  Repack Decepticon
@@ -1732,28 +1754,6 @@ Action (TPS)
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/Rjzxtw2/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 618 784
-
-Baldur's Gate Trilogy + Neverwinter Nights (2022) [Ru] (1.0) Repack/Mod AGKanevchev
-Win Старые Игры
-AddOn DLC Mod для Игр
-
-###  Подробнее
-
-Baldur’s Gate Trilogy (сокращ. BGT) - мод для Baldur's Gate II , который объединяет в одной игре все ее основные части: Baldur's Gate I, Tales of The Sword Coast, Baldur's Gate II, Throne of Bhaal, - позволяя пройти всю игру "на одном дыхании" (конечно, переход из Теней Амна в Трон Баала происходит с помощью импорта сохраненного персонажа или игры, но это (   Читать дальше...   )Тип издания: Repack/ModРазработчик: BiowareЖанр: RPGЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:28F90B7914117E58399C50F985C24694A66B1E3F
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/QCt9hwv/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

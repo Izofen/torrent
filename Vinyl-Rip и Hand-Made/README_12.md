@@ -1,4 +1,266 @@
 ﻿
+###  Публикация: 662 402
+
+Santa Esmeralda 2 - The House Of The Rising Sun  1978   Japan  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Disco, Funk>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. The House Of The Rising Sun + Quasimodo Suite
+02. Dance You Down Tonight
+03. Nothing Elsa Matters
+04. Hey! GipЖанр: Disco, FunkПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB796933E640E783E07B4F131D47B3A0BE8BE32E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 662 389
+
+F.R. David - 2 Альбома  1982,1983   Japan  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+F.R. David  Elli Robert Fitoussi David  - французский певец тунисского происхождения. Музыкальную карьеру начал в конце 60-х, как вокалист участвовал в различных французских группах, наиболее известная из которых King Of Hearts.
+В 1982 году записал одну из самых известных своих песен - Words, кторая вошла в дебютный одноимённый альбом 1982-го года.
+Пик популярности F. R. David пришёлся на 80-е годы, после 1987-го он 20 лет не выпускал альбомов, пока в 2007 году не вышел диск The Wheel.01. This Time I Have To Win
+02. Girl
+03. Dream Away
+04. Liberty
+05. Long Distance Flight
+06. I Need You
+07. Stay
+08. Feedback Delay
+09. Is It Magic
+10. Good Times    Читать дальше...    Жанр: PopПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:382EE2380966A55CD7FA478149FEAD23214D5FF4
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 661 981
+
+A La Carte - 2 Альбома  1980,1981  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A La Carte - немецкая диско-группа, образованная в 1978 году супружеской парой Тони Хендрик и Карин Хартман, работавшими продюсерами в корпорации Hansa International.
+Состав трио менялся с завидным постоянством, в результате за время существования коллектива в нем успело поучавствовать шесть исполнительниц.
+Примечательно, что аранжировки песен в представленых альбомах сделаны Майклом Крету  Michael Cretu , плюс он даже поиграл на клавишных, а на бас гитаре - Manfred  Thiessy  Thiers.01. Viva Torero
+02. Morning Songbird
+03. Cubatao
+04. In The Summer Sun Of Greece
+05. Try A Little Tenderness
+06. Wanted  Jean Le Voleur 
+07. You Get Me On The Run
+08. Have You Forgotten  Wolga Song 
+09. River Blue
+10. Dong Dong Diki Diki DongЖанр: DiscoПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0E2CA2898B8D959286E24BF1E440A25BFD0A6D8B
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 661 611
+
+Amy Winehouse - Lioness: Hidden Treasures  2011   [FLAC 2.0 24 192|image  Vinyl-Rip ]<Jazz, Jazz-vocal, Soul>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Our Day Will Come
+02. Between The Cheats
+03. Tears Dry - Original Version
+04. Will You Still Love Me
+05. Like Smoke
+06. Valerie - Dap Kings Band Version
+07. The Girl from Ipanema
+08. Halftime
+09. Wake Me Up Alone
+10. Best Friends    Читать дальше...    Жанр: Jazz, Jazz-vocal, SoulПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:52DB0A20EFC4D1D2DBCC13BA2AB8FED88929671A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 661 552
+
+Silent Circle - No.1  1986  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Touch In The Night
+02. Sib Dab Dua
+03. Dreams
+04. Hide Away - Man Is Comin !
+05. Shy Girl
+06. Stop The Rain In The Night
+07. For You
+08. Give Me Time
+09. Moonlight Affair
+10. Anywhere Tonight    Читать дальше...    Жанр: PopПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B0FE9C88DB8D0B1460ABC50B18DD740AE7508ACE
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 661 199
+
+Abba - 7 Альбомов  1975-1981   Polar-Disco mate, Japan  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Оцифровка японских винилов Великого Квартета.
+Автор оцифровки - неизвестен  источник bazar 
+Аппарат - неизвестен
+Код класса состояния винила - неизвестен    Читать дальше...    Жанр: PopПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3F46A3A0C00943AFC55E458B73EAFF845F873126
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 660 774
+
+Ricchi E Poveri - 2 Альбома  1983,1985  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop, Italo-Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Dimmi Quando
+02. Buonanotte Fiorellino
+03. L  Anno Che Verra
+04. Scende La Pioggia
+05. Come Vorrei
+06. Samarcanda
+07. La Luce Dell  Est
+08. Azzurro
+09. Casa Mia
+10. Cosa SeiЖанр: Pop, Italo-PopПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:40016EF33FC134702DFCA2EF96466166F49B3EB8
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 660 735
+
+Vaya Con Dios - Night Owls  1990  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop, Pop-Jazz>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Pop, Pop-JazzПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA3F0249265CBB61A1FF2B0A8C30AB9302B5DC7F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 660 300
+
+Yello - 9 Альбомов  1980-2009   [FLAC 2.0 24 192|image  Vinyl-Rip ]<Electronic, Synthpop>
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+LP1
+01. The Expert
+02. You Better Hide
+03. Out Of Dawn
+04. Bostich  Reflected 
+05. Till Tomorrow
+06. Tangier Blue
+07. Part Love
+08. Friday Smile
+LP2    Читать дальше...    Жанр: Electronic, SynthpopПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70C72CE76E8D472A3E0DF6FABE68619A5D7715A2
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 660 111
 
 Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar   1970   [FLAC 2.0 24 96 | image  Vinyl-Rip ]<Rock Opera>
@@ -2072,261 +2334,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 600 155
-
-The Prodigy - The Fat Of The Land  1997  [FLAC 2.0 24 96 |tracks VinylRip ]<Breakbeat, Big Beat, Dubstep>
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Smack My Bitch Up  05:43 
-L. Howlett, M. Smith,
-N. Miller, K. Thorton,
-T. Randolph
-A2. Breathe  05:36 
-L. Howlett, Keith Flint,
-MaximЖанр: Breakbeat, Big Beat, DubstepПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F99E88650870CE602217B3F436EF4FB6FB9DFCA0
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 599 817
-
-Ария - 3 альбома  1987-1991  [WavPack 2.0 24 192|image + .cue  Vinyl-Rip ]<Hard Rock, Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Прощай, Норфолк! 5:20
-A2. Зомби 4:32
-A3. Антихрист 5:08
-A4. Не Хочешь, Не Верь Мне 4:00
-B1. Кровь За Кровь 7:43
-B2. Бесы 3:22
-B3. Всё, Что Было 5:15
-B4. Следуй За Мной! 4:40Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 514 977
-
-Yehudi Menuhin - Stephane Grappelli - Tea for two  1978   [FLAC 2.0 24 96|image + cue  Vinyl rip ]<Classical, Jazz>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 - Crazy Rhythm – Josef Meyer, Roger Wolfe Kahn [02:49]
-A2 - The Man I Love – George Gershwin [04:41]
-A3 - Tea For Two – Vincent Youmans [03:37]
-A4 - Highgate Village – Stephane Grappelli [04:54]
-A5 - Air On A Shoe String – Max Harris [03:38]
-A6 - A Foggy Day – George Gershwin 03:44]
-
-B1 - Viva Vivaldi – Max Harris [02:22]
-B2 - My Funny Valentine – Richard Rogers [04:05]
-B3 - Limehouse Blues – Philipp Braham [02:53]    Читать дальше...    Жанр: Classical, JazzФормат: Vinyl 12 Продолжительность: 00:45:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B03E31F139E916812BC34C9BC3A4E56AAE5AECC8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 512 571
-
-Mylene Farmer - Vinyl Discography 9LP  2009  [FLAC 2.0 24 96|image+cue  Vinyl rip ]<Pop, Electronic, Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Pop, Electronic, RockФормат: Vinyl  12”Продолжительность: 00:47:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3307AD7B7EC765685D70B1B8349F938A9D834552
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 511 111
-
-Кино - Звезда по Имени Солнце  1989  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Песня без слов  5:08 
-02. Звезда по имени Солнце  3:45 
-03. Невеселая песня  4:21 
-04. Сказка  5:57 
-05. Место для шага вперед  3:41 
-06. Пачка сигарет  4:28 
-07. Стук  3:51 
-08. Печаль  5:32 
-09. Апрель  4:37 Жанр: RockПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D2A34F8BE3782074B118BBA503064F0069B89ACB
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 509 731
-
-Чёрный кофе - Переступи порог  1987  [WavPack 2.0 24 192|image  Vinyl-Rip |iso.wv]<Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-
-01.Переступи порог  Д. Варшавский-Д. Варшавский, М. Каренов  - 4.22
-02.Владимирская русь  Д. Варшавский-А. Шаганов  - 5.18
-03.Жизни рассвет  Д. Варшавский-Д. Варшавский, И. Куприянов  - 3.31
-04.Я ищу...  И. Куприянов-Д. Варшавский, И. Куприянов  - 4.28Жанр: Heavy MetalПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99868B386A03094C93D79C28C52804B3A1DA2AC8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 508 510
-
-Scorpions - Virgin Killer  1976  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Hard Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1
-A1 Pictured Life [03:21]
-A2 Catch Your Train [03:32]
-A3 In Your Park [03:39]
-A4 Backstage Queen [03:10]
-A5 Virigin Killer [03:41]
-
-Side 1
-B1 Hell Cat [02:54]
-B2 Crying Days [04:36]    Читать дальше...    1976Жанр: Hard RockФормат: VinylПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:851D9C62DE90E60B757D8F2364EFF7595E12927E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 500 918
-
-Eric Clapton - Complete Clapton - Boxset 4 vinyl LP  2007  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-C1 - Running on Faith  Unplugged  - [06:15]
-C2 - Motherless Child - [02:58]
-C3 - Change the World - [03:55]
-C4 - My Father s Eyes - [05:22]
-
-D1 - Riding With the King - [04:23]
-D2 - Sweet Home Chicago - [05:16]
-D3 - If I Had Possession Over Judgment Day - [03:26]
-D4 - Ride the River - [04:33]2007   October 9 Жанр: RockПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 500 216
-
-Accept - Kaizoku-Ban  1985   EP  [FLAC 2.0 192 24 |VinylRip] <Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1 - Metal Heart [5:18]
-2 - Screaming for a Love Bite [4:19]
-3 - Up to the Limit [5:00]
-4 - Head Over Heals [5:55]
-5 - Love Child [4:40]
-6 - Living for Tonite [3:51]Жанр: Heavy MetalПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9DD4FA9D046D942D84119C258B8621167DDF96EC
 ```
 
 <div id="header" align="center">

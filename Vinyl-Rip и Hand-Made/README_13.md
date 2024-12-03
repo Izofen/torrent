@@ -1,4 +1,259 @@
 ﻿
+###  Публикация: 600 155
+
+The Prodigy - The Fat Of The Land  1997  [FLAC 2.0 24 96 |tracks VinylRip ]<Breakbeat, Big Beat, Dubstep>
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Smack My Bitch Up  05:43 
+L. Howlett, M. Smith,
+N. Miller, K. Thorton,
+T. Randolph
+A2. Breathe  05:36 
+L. Howlett, Keith Flint,
+MaximЖанр: Breakbeat, Big Beat, DubstepПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F99E88650870CE602217B3F436EF4FB6FB9DFCA0
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 599 817
+
+Ария - 3 альбома  1987-1991  [WavPack 2.0 24 192|image + .cue  Vinyl-Rip ]<Hard Rock, Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Прощай, Норфолк! 5:20
+A2. Зомби 4:32
+A3. Антихрист 5:08
+A4. Не Хочешь, Не Верь Мне 4:00
+B1. Кровь За Кровь 7:43
+B2. Бесы 3:22
+B3. Всё, Что Было 5:15
+B4. Следуй За Мной! 4:40Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 514 977
+
+Yehudi Menuhin - Stephane Grappelli - Tea for two  1978   [FLAC 2.0 24 96|image + cue  Vinyl rip ]<Classical, Jazz>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 - Crazy Rhythm – Josef Meyer, Roger Wolfe Kahn [02:49]
+A2 - The Man I Love – George Gershwin [04:41]
+A3 - Tea For Two – Vincent Youmans [03:37]
+A4 - Highgate Village – Stephane Grappelli [04:54]
+A5 - Air On A Shoe String – Max Harris [03:38]
+A6 - A Foggy Day – George Gershwin 03:44]
+
+B1 - Viva Vivaldi – Max Harris [02:22]
+B2 - My Funny Valentine – Richard Rogers [04:05]
+B3 - Limehouse Blues – Philipp Braham [02:53]    Читать дальше...    Жанр: Classical, JazzФормат: Vinyl 12 Продолжительность: 00:45:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B03E31F139E916812BC34C9BC3A4E56AAE5AECC8
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 512 571
+
+Mylene Farmer - Vinyl Discography 9LP  2009  [FLAC 2.0 24 96|image+cue  Vinyl rip ]<Pop, Electronic, Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Pop, Electronic, RockФормат: Vinyl  12”Продолжительность: 00:47:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3307AD7B7EC765685D70B1B8349F938A9D834552
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 511 111
+
+Кино - Звезда по Имени Солнце  1989  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Песня без слов  5:08 
+02. Звезда по имени Солнце  3:45 
+03. Невеселая песня  4:21 
+04. Сказка  5:57 
+05. Место для шага вперед  3:41 
+06. Пачка сигарет  4:28 
+07. Стук  3:51 
+08. Печаль  5:32 
+09. Апрель  4:37 Жанр: RockПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D2A34F8BE3782074B118BBA503064F0069B89ACB
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 509 731
+
+Чёрный кофе - Переступи порог  1987  [WavPack 2.0 24 192|image  Vinyl-Rip |iso.wv]<Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+
+01.Переступи порог  Д. Варшавский-Д. Варшавский, М. Каренов  - 4.22
+02.Владимирская русь  Д. Варшавский-А. Шаганов  - 5.18
+03.Жизни рассвет  Д. Варшавский-Д. Варшавский, И. Куприянов  - 3.31
+04.Я ищу...  И. Куприянов-Д. Варшавский, И. Куприянов  - 4.28Жанр: Heavy MetalПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99868B386A03094C93D79C28C52804B3A1DA2AC8
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 508 510
+
+Scorpions - Virgin Killer  1976  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1
+A1 Pictured Life [03:21]
+A2 Catch Your Train [03:32]
+A3 In Your Park [03:39]
+A4 Backstage Queen [03:10]
+A5 Virigin Killer [03:41]
+
+Side 1
+B1 Hell Cat [02:54]
+B2 Crying Days [04:36]    Читать дальше...    1976Жанр: Hard RockФормат: VinylПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:851D9C62DE90E60B757D8F2364EFF7595E12927E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 500 918
+
+Eric Clapton - Complete Clapton - Boxset 4 vinyl LP  2007  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+C1 - Running on Faith  Unplugged  - [06:15]
+C2 - Motherless Child - [02:58]
+C3 - Change the World - [03:55]
+C4 - My Father s Eyes - [05:22]
+
+D1 - Riding With the King - [04:23]
+D2 - Sweet Home Chicago - [05:16]
+D3 - If I Had Possession Over Judgment Day - [03:26]
+D4 - Ride the River - [04:33]2007   October 9 Жанр: RockПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 500 216
+
+Accept - Kaizoku-Ban  1985   EP  [FLAC 2.0 192 24 |VinylRip] <Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1 - Metal Heart [5:18]
+2 - Screaming for a Love Bite [4:19]
+3 - Up to the Limit [5:00]
+4 - Head Over Heals [5:55]
+5 - Love Child [4:40]
+6 - Living for Tonite [3:51]Жанр: Heavy MetalПродолжительность: 00:29:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9DD4FA9D046D942D84119C258B8621167DDF96EC
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 494 949
 
 Accept - Stalingrad  2012  2LP [WavPack 2.0 32 96|image  Vinyl-Rip ]<Heavy Metal>

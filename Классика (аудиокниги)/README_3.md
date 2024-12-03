@@ -1604,7 +1604,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/txbs9hK/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Yb2F38r/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1627,7 +1627,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JkNKpjV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/x8DxzTg/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
