@@ -1,4 +1,115 @@
 ﻿
+###  Публикация: 705 380
+
+Black Sabbath - Klipsch Music Center, Noblesville, Indiana Aug 13, 2013  2013  [FLAC 2.0 16 44|Tracks]<Hard Rock, Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. War Pigs [8:59]
+02. Into the Void [7:20]
+03. Under the Sun Every Day Comes and Goes [4:43]
+04. Snowblind [7:11]
+05. Age of Reason [7:48]
+06. Black Sabbath [8:01]
+07. Behind the Wall of Sleep [3:44]
+08. N.I.B. [6:49]
+09. End of the Beginning [8:38]
+10. Fairies Wear Boots [7:14]    Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 01:56:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:148B8B2FD2195B7B9B7BC1C8992154CEDBA73218
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 705 282
+
+Bad Boys Blue - Come Back And Stay  Extended Mix   1987  12   Maxi-Single Germany [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Synth-pop,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Макси-сингл Bad Boys Blue  Come Back and Stay  с альбома  Love Is No Crime  1987 года. Содержит Dance Mix, Audio Classic Mix и инструментальную версию песни.A1.  Come Back And Stay  Dance Mix   :: 07:37
+B1.  Come Back And Stay  Audio Classic Mix   :: 06:52
+B2.  Come Back And Stay  Studio Version - Instrumental Mix   :: 05:51Жанр: Synth-pop, EurodanceФормат: Vinyl, 12 , Maxi-Single, 45 RPMПродолжительность: 00:20:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9FEB6B09E4FD66A833BFBDE8848C183FC696F8E1
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 705 257
+
+Bad Boys Blue - Bad Boys Blue  1986  7  EP DDR [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Synth-pop, Eurodance>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+ГДР-овское  EP 7   45 RPM  издание четырёх треков из 1-го альбома Bad Boys Blue, содержащее версию трека  For Your Love , которая в такой версии больше нигде никогда не выходила, только на этом EP. Вообщем, как говорится - only for fans BBB!A1.  You re A Woman  :: 04:22
+A2.  For Your Love  :: 03:20
+B1.  Pretty Young Girl  :: 03:45
+B2.  Hot Girls - Bad Boys  :: 04:10Жанр: Synth-pop, EurodanceФормат: Vinyl, 7 , EP, 45 RPMПродолжительность: 00:15:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:22EED0D71D4B25EC4073F3E5B1F4414756A5FDBF
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 704 374
+
+Bad Boys Blue - Game Of Love  1990  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Game Of Love  с англ. Игра в любовь  - шестой студийный альбом немецкой евродиско-группы Bad Boys Blue, вышедший в 1990 году. Диск содержит три хита группы - «How I Need You», «Queen Of Hearts» и «Jungle In My Heart». Высшая позиция в чартах - Финляндия, 7 место.A1.  Queen Of Hearts  :: 04:10
+A2.  Jungle In My Heart  :: 03:39
+A3.  I Don t Know Her Name  :: 03:23
+A4.  Jenny, Come Home  :: 03:49
+A5.  Chains Of Love  :: 03:45
+B1.  How I Need You  :: 03:38
+B2.  I Need A Woman  :: 04:13
+B3.  I Don t Wanna Lose You  :: 03:13
+B4.  I Am Your Believer  :: 03:34
+B5.  Queen Of Hearts  Remix   :: 04:14Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, Album, Sonderauflage Sonocord  Special Edition Продолжительность: 00:37:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B2F744B98DD788789CB7E2ADEBEA497D0710362
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 704 359
 
 Bad Boys Blue - To Blue Horizons  1994  Greece [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
@@ -296,7 +407,7 @@ A4. Слепой  1:57     Читать дальше...    Жанр: Рок   А
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/qxWzJsW/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -2229,133 +2340,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:D17C48478FBE2982789BCD16BE921A53BD36BEA3
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 663 385
-
-Saxon - 12 альбомов  1980-2013  13LP [FLAC 2.0 24 192 | image  Vinyl-Rip ]<Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Saxon — английская рок-группа, одна из ярких представителей новой волны британского хэви-металл. Существует с 1977 года.1. Procession
-2. Sacrifice
-3. Made In Belfast
-4. Warriors Of The Road
-5. Guardians Of The Tomb
-6. Stand Up And Fight
-7. Walking The Steel
-8. Night Of The Wolf
-9. Wheels Of Terror
-10. Standing In A QueueЖанр: Heavy MetalПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2CB798E7353228150E176EEF76F2994598A61E81
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 663 249
-
-Fancy - 3 Альбома  1985-1989  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Fancy  Manfred Alois Segieth  - немецкий певец, исполняющий песни в стилях диско и евродиско.
-Популярность пришла к нему в 38 лет. В 1984 году он выпускает свой первый сингл — «Slice Me Nice», далее последовали такие хиты как «Chinese Eyes», «Bolero  Hold Me In Your Arms Again », «Lady Of Ice» и «Flames Of Love». Большинство песен исполнителя спродюсировано Антони Монном, ранее работавшим с Амандой Лир.
-Fancy также известен, как автор песен для других исполнителей, но уже как Tess Of Ric Tess.01. Angel Eyes
-02. A Voice In The Dark
-03. Pure Love
-04. Don t Fight With The Moon
-05. Ways Of Love
-06. Sail Away
-07. Running Man
-08. My Emotional Way
-09. All My Loving
-10. Seven Sins    Читать дальше...    Жанр: DiscoПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6123DE3465F49FC8EF3DE0458EF4EB6A1FA7988
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 662 808
-
-Sade - 5 Альбомов  1984-2010  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Soul, Jazz, Funk>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Sade - всемирно известный британский коллектив в состав которого входят Шаде Аду, Стюарт Мэтьюмен, Пол Спенсер, Денмен и Эндрю Хэйл. Группа носит имя единственной своей вокалистки - Шаде Аду, и часто ассоциируется только с ней. Многократный номинант и четырехкратный лауреат Грэмми и других престижных премий в области звукозаписывающей индустрии.
-Стиль группы сочетает в себе элементы соул, джаза, ритм-н-блюза, фанка и софт-рока. Дебют состоялся в 1984-м году, с этого времени было продано более 23 миллионов альбомов только в США и более 50 миллионов во всем мире.01. The Moon And The Sky
-02. Soldier Of Love
-03. Morning Bird
-04. Babyfather
-05. Long Hard Road
-06. Be That Easy
-07. Bring Me Home
-08. In Another Time
-09. Skin
-10. The Safest PlaceЖанр: Soul, Jazz, FunkПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EF189C10B833C4ABA5CA40AC4A5AA4F4085E5559
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 662 543
-
-V.A. - Metal Ballads - Vol.1,2  1988,1989  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Cinderella – Don t Know What You Got  Till It s Gone 
-02. House Of Lords – Love Don t Lie
-03. Deep Purple – Soldier Of Fortune
-04. Quiet Riot – Don t Wanna Be Your Fool
-05. Darxon – Don t Give Up
-06. Poison – Every Rose Has Its Thorn
-07. Bonfire – You Make Me Feel
-08. Scorpions – Holiday
-09. Kingdom Come – What Love Can Be
-10. Gary Moore – Empty Rooms    Читать дальше...    Жанр: RockПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A9C454CEFDB60A3078935197D71FBFD61D67AE49
 ```
 
 <div id="header" align="center">

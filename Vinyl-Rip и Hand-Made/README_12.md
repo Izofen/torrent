@@ -1,4 +1,131 @@
 ﻿
+###  Публикация: 663 385
+
+Saxon - 12 альбомов  1980-2013  13LP [FLAC 2.0 24 192 | image  Vinyl-Rip ]<Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Saxon — английская рок-группа, одна из ярких представителей новой волны британского хэви-металл. Существует с 1977 года.1. Procession
+2. Sacrifice
+3. Made In Belfast
+4. Warriors Of The Road
+5. Guardians Of The Tomb
+6. Stand Up And Fight
+7. Walking The Steel
+8. Night Of The Wolf
+9. Wheels Of Terror
+10. Standing In A QueueЖанр: Heavy MetalПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2CB798E7353228150E176EEF76F2994598A61E81
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 663 249
+
+Fancy - 3 Альбома  1985-1989  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Fancy  Manfred Alois Segieth  - немецкий певец, исполняющий песни в стилях диско и евродиско.
+Популярность пришла к нему в 38 лет. В 1984 году он выпускает свой первый сингл — «Slice Me Nice», далее последовали такие хиты как «Chinese Eyes», «Bolero  Hold Me In Your Arms Again », «Lady Of Ice» и «Flames Of Love». Большинство песен исполнителя спродюсировано Антони Монном, ранее работавшим с Амандой Лир.
+Fancy также известен, как автор песен для других исполнителей, но уже как Tess Of Ric Tess.01. Angel Eyes
+02. A Voice In The Dark
+03. Pure Love
+04. Don t Fight With The Moon
+05. Ways Of Love
+06. Sail Away
+07. Running Man
+08. My Emotional Way
+09. All My Loving
+10. Seven Sins    Читать дальше...    Жанр: DiscoПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F6123DE3465F49FC8EF3DE0458EF4EB6A1FA7988
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 662 808
+
+Sade - 5 Альбомов  1984-2010  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Soul, Jazz, Funk>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Sade - всемирно известный британский коллектив в состав которого входят Шаде Аду, Стюарт Мэтьюмен, Пол Спенсер, Денмен и Эндрю Хэйл. Группа носит имя единственной своей вокалистки - Шаде Аду, и часто ассоциируется только с ней. Многократный номинант и четырехкратный лауреат Грэмми и других престижных премий в области звукозаписывающей индустрии.
+Стиль группы сочетает в себе элементы соул, джаза, ритм-н-блюза, фанка и софт-рока. Дебют состоялся в 1984-м году, с этого времени было продано более 23 миллионов альбомов только в США и более 50 миллионов во всем мире.01. The Moon And The Sky
+02. Soldier Of Love
+03. Morning Bird
+04. Babyfather
+05. Long Hard Road
+06. Be That Easy
+07. Bring Me Home
+08. In Another Time
+09. Skin
+10. The Safest PlaceЖанр: Soul, Jazz, FunkПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EF189C10B833C4ABA5CA40AC4A5AA4F4085E5559
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 662 543
+
+V.A. - Metal Ballads - Vol.1,2  1988,1989  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Cinderella – Don t Know What You Got  Till It s Gone 
+02. House Of Lords – Love Don t Lie
+03. Deep Purple – Soldier Of Fortune
+04. Quiet Riot – Don t Wanna Be Your Fool
+05. Darxon – Don t Give Up
+06. Poison – Every Rose Has Its Thorn
+07. Bonfire – You Make Me Feel
+08. Scorpions – Holiday
+09. Kingdom Come – What Love Can Be
+10. Gary Moore – Empty Rooms    Читать дальше...    Жанр: RockПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A9C454CEFDB60A3078935197D71FBFD61D67AE49
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 662 402
 
 Santa Esmeralda 2 - The House Of The Rising Sun  1978   Japan  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Disco, Funk>
@@ -2230,110 +2357,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:529269659F8620015C01834221DB0789AD68489F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 600 690
-
-Ария - Магнитоальбом  1989  [FLAC 2.0 24 96|image+.cue  MBRip ]<Hard Rock, Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Что вы сделали с вашей мечтой? 5:18
-02. Раскачаем этот мир 5:54
-03. Раб страха 4:33
-04. Искушение 3:58
-05. Игра с огнём 9:02
-06. Бой продолжается 6:03
-07. Дай жару! 4:24
-08. Улица роз 5:53Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:50E47BB3F14C7D20D010F20289394098C533FAD5
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 600 618
-
-Янка Дягилева - Не Положено  1992  [FLAC 2.0 24 96|image + .cue  Vinyl-Rip ]<Acoustic, Punk>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Мы по колено [01:49]
-02. Только дождь вселенский [00:53]
-03. Под руки в степь [02:09]
-04. Фальшивый крест [01:16]
-05. Деклассированные элементы [03:19]
-06. Особый резон [02:30]
-07. Неволя рукам  регги  [01:53]
-08. На чёрный день [02:24]
-09. Берегись [02:19]
-10. Я повторяю 10 раз и снова [00:51]    Читать дальше...    Жанр: Acoustic, PunkПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59F11D3809F12B11A717AA8B625753B45D77E5AB
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 600 572
-
-Ария - 3 магнитоальбома  1986-1987  [FLAC 2.0 24 48|tracks  MBRip ]<Hard Rock, Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 600 384
-
-The Cranberries - 5 альбомов  1993-1999, 2012  [FLAC 2.0 24 192 |image + .cue, tracks  Vinyl-Rip ]<Alternative Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Alternative RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
 ```
 
 <div id="header" align="center">

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 185 670
+
+Kylie Minogue - Kiss Me Once  2014  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop, Electronic>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Into The Blue  4:08 
+A2. Million Miles  3:28 
+A3. I Was Gonna Cancel  3:32 
+B1. Sexy Love  3:31     Читать дальше...    Жанр: Electronic, Synth-popПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0E11EB57202FECA161229462EE4BAEE05DFBD690
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 185 592
+
+ABBA - Ring Ring  1973  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Vocal, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Ring, Ring 3:05
+A2 Another Town, Another Train 3:12
+A3 Disillusion 3:03
+A4 People Need Love 2:45    Читать дальше...    Жанр: Vocal, PopПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4BA908E30EA0636C0755049A73F492ADDF4F91EC
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 183 813
+
+Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01 Atomic
+ 02 Some Other Place, Some Other Time
+ 03 Star Vision(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5929F34C01947677489C02587F85081084710E76
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 182 168
+
+ABBA - The Visitors  1981  [FLAC |192 24|image + .cue|Vinyl-Rip |Lossless] <Europop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона А
+
+1. The Visitors [5:45]
+2. Head Over Heels [3:48]    Читать дальше...    Жанр: EuropopПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2DCC71031D99D59963D0DC92C96B3C895D0D8313
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 171 308
 
 VA - XXXL Европейский 5  2000  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Electronic, Eurobeat>
@@ -1894,103 +1994,6 @@ A4. Put Your Lovin  On Me  4:09     Читать дальше...    Произв
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:671160F429F85733D0137FC2D38DB2607F583A22
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 072 526
-
-Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar  1970  Иисус Христос  суперзвезда 2LP  1991  [WavPack|192 32|tracks|Vinyl-Rip] <Cl
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Classic RockПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 070 147
-
-The Pretty Reckless - Who You Selling For  2016  [FLAC 2.0|24 192|image|Vinyl-Rip]<Hard Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. The Walls Are Closing In   Hangman  6:37 
- 02. Oh My God  3:25 
- 03. Take Me Down  4:12 
- 04. Prisoner  3:00     Читать дальше...    Жанр: Hard RockПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E2F84DCEC4D9AAF9C2AF781ACBBFEBF5084FE536
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 059 832
-
-Трио Леонида Чижика - Джордж Гершвин: Популярные Мелодии  1978  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Jazz, Post Bop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Лебедь
-02. Не Для Меня
-03. Присмотри За Мной, Мой Пастушок
-04. Будьте Добры    Читать дальше...    Жанр: Jazz, Post BopПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F8FD220B73130F0574CC2BD6F4AE5083DEE0A4B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 059 485
-
-Blood Sweat & Tears - Nuclear Blues  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Fusion, Jazz-Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Agitato
-A2 Nuclear Blues
-A3 Manic Depression
-A4 I ll Drown In My Own Tears    Читать дальше...    Жанр: Fusion, Jazz-RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:870CCC4AEC2CFDDB9256C0A841EED98487B4E19D
 ```
 
 <div id="header" align="center">

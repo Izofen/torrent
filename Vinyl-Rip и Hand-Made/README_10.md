@@ -1,4 +1,110 @@
 ﻿
+###  Публикация: 801 018
+
+Quiet Riot - QR III  1986   [FLAC 2.0 24 192|image  Vinyl-Rip ]<Glam Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Main Attraction  4:44 
+A2. The Wild And The Young  3:40 
+A3. Twilight Hotel  4:37 
+A4. Down And Dirty  3:17     Читать дальше...    Жанр: Glam MetalПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8619B09483285023A9B4DDFAA0EB8077D2D7E125
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 798 239
+
+Генрик Шеринг - Л. Бетховен  Концерт для скрипки с оркестром   1987  [FLAC 2.0 24 192|traks Vinil-Rip ]<Classical>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Allegro Ma Non Troppo  25:22
+Сторона 2
+1. Larghetto. Rondo, Allegro  20:02Жанр: ClassicalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:60B6AC8E01730AFBF2D1C1B0635D232EEF54676C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 797 480
+
+Electric Light Orchestra - A New World Record  1976   [FLAC 2.0 24 192|image  Vinyl-Rip ]<Progressive Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Tightrope  5:05 
+A2. Telephone Line  4:39 
+A3. Rockaria!  3:12 
+A4. Mission A World Record   4:26     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA838D758940C33A349AA194B3023C52A9E5973E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 797 168
+
+Stevie Wonder - Солнце моей жизни  1988  [FLAC 2.0 24 192|traks Vinil-Rip ]<Jazz-Funk, Soul, Funk>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Место под солнцем  A Place In The Sun   2:50
+2. Я не понимаю  I m Wondering   2:54
+3. Я был создан, чтобы любить её  I Was Made To Love Her   2:36
+4. Моя дорогая возлюбленная  My Cherie Amour   2:52
+5. Не знаю, почему я тебя люблю  Don t Know Why I Love You   2:46
+6. Мои сны никогда не сбываются  Never Had A Dream Come True   3:12
+Сторона 2
+1. Я - твой  Signed, Sealed, Delivered I m Yours   2:40
+2. Я никогда не думал, что ты уйдешь летом  Never Dreamed You d Leave In Summer   2:54    Читать дальше...    Жанр: Jazz-Funk, Soul, FunkПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E2E6334FBB479D2081A94AE7C7ACCE071F762F1
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 796 601
 
 Electric Light Orchestra - Face The Music  1975   [FLAC 2.0 24 192|image  Vinyl-Rip ]<Progressive Rock>
@@ -264,7 +370,7 @@ Vinyl-Rip и Hand-Made
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/hmrvDbv/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1936,7 +2042,7 @@ Das Duell Und Der Tod Tybalts  Romeo Beschliet, Mercutios Tod Zu Rachen  - Final
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/vhLmS1D/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -2168,117 +2274,6 @@ B5.  The Broadcast  :: 06:38Жанр: Pop Rock, Synth-popФормат: Vinyl, LP
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:B06E2B07DFEFE98F0E4E3FAB4642A951FBD8E64D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 705 380
-
-Black Sabbath - Klipsch Music Center, Noblesville, Indiana Aug 13, 2013  2013  [FLAC 2.0 16 44|Tracks]<Hard Rock, Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. War Pigs [8:59]
-02. Into the Void [7:20]
-03. Under the Sun Every Day Comes and Goes [4:43]
-04. Snowblind [7:11]
-05. Age of Reason [7:48]
-06. Black Sabbath [8:01]
-07. Behind the Wall of Sleep [3:44]
-08. N.I.B. [6:49]
-09. End of the Beginning [8:38]
-10. Fairies Wear Boots [7:14]    Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 01:56:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:148B8B2FD2195B7B9B7BC1C8992154CEDBA73218
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 705 282
-
-Bad Boys Blue - Come Back And Stay  Extended Mix   1987  12   Maxi-Single Germany [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Synth-pop,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Макси-сингл Bad Boys Blue  Come Back and Stay  с альбома  Love Is No Crime  1987 года. Содержит Dance Mix, Audio Classic Mix и инструментальную версию песни.A1.  Come Back And Stay  Dance Mix   :: 07:37
-B1.  Come Back And Stay  Audio Classic Mix   :: 06:52
-B2.  Come Back And Stay  Studio Version - Instrumental Mix   :: 05:51Жанр: Synth-pop, EurodanceФормат: Vinyl, 12 , Maxi-Single, 45 RPMПродолжительность: 00:20:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9FEB6B09E4FD66A833BFBDE8848C183FC696F8E1
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 705 257
-
-Bad Boys Blue - Bad Boys Blue  1986  7  EP DDR [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Synth-pop, Eurodance>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-ГДР-овское  EP 7   45 RPM  издание четырёх треков из 1-го альбома Bad Boys Blue, содержащее версию трека  For Your Love , которая в такой версии больше нигде никогда не выходила, только на этом EP. Вообщем, как говорится - only for fans BBB!A1.  You re A Woman  :: 04:22
-A2.  For Your Love  :: 03:20
-B1.  Pretty Young Girl  :: 03:45
-B2.  Hot Girls - Bad Boys  :: 04:10Жанр: Synth-pop, EurodanceФормат: Vinyl, 7 , EP, 45 RPMПродолжительность: 00:15:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:22EED0D71D4B25EC4073F3E5B1F4414756A5FDBF
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 704 374
-
-Bad Boys Blue - Game Of Love  1990  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-pop, Eurodance>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Game Of Love  с англ. Игра в любовь  - шестой студийный альбом немецкой евродиско-группы Bad Boys Blue, вышедший в 1990 году. Диск содержит три хита группы - «How I Need You», «Queen Of Hearts» и «Jungle In My Heart». Высшая позиция в чартах - Финляндия, 7 место.A1.  Queen Of Hearts  :: 04:10
-A2.  Jungle In My Heart  :: 03:39
-A3.  I Don t Know Her Name  :: 03:23
-A4.  Jenny, Come Home  :: 03:49
-A5.  Chains Of Love  :: 03:45
-B1.  How I Need You  :: 03:38
-B2.  I Need A Woman  :: 04:13
-B3.  I Don t Wanna Lose You  :: 03:13
-B4.  I Am Your Believer  :: 03:34
-B5.  Queen Of Hearts  Remix   :: 04:14Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, Album, Sonderauflage Sonocord  Special Edition Продолжительность: 00:37:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B2F744B98DD788789CB7E2ADEBEA497D0710362
 ```
 
 <div id="header" align="center">

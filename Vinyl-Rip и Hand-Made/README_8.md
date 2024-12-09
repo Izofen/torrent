@@ -1,4 +1,101 @@
 ﻿
+###  Публикация: 1 072 526
+
+Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar  1970  Иисус Христос  суперзвезда 2LP  1991  [WavPack|192 32|tracks|Vinyl-Rip] <Cl
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Classic RockПродолжительность: 01:27:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 070 147
+
+The Pretty Reckless - Who You Selling For  2016  [FLAC 2.0|24 192|image|Vinyl-Rip]<Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. The Walls Are Closing In   Hangman  6:37 
+ 02. Oh My God  3:25 
+ 03. Take Me Down  4:12 
+ 04. Prisoner  3:00     Читать дальше...    Жанр: Hard RockПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E2F84DCEC4D9AAF9C2AF781ACBBFEBF5084FE536
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/HFvQxsT/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 832
+
+Трио Леонида Чижика - Джордж Гершвин: Популярные Мелодии  1978  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Jazz, Post Bop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Лебедь
+02. Не Для Меня
+03. Присмотри За Мной, Мой Пастушок
+04. Будьте Добры    Читать дальше...    Жанр: Jazz, Post BopПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F8FD220B73130F0574CC2BD6F4AE5083DEE0A4B
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 485
+
+Blood Sweat & Tears - Nuclear Blues  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Fusion, Jazz-Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Agitato
+A2 Nuclear Blues
+A3 Manic Depression
+A4 I ll Drown In My Own Tears    Читать дальше...    Жанр: Fusion, Jazz-RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:870CCC4AEC2CFDDB9256C0A841EED98487B4E19D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 050 497
 
 VA - Рождественские Встречи Аллы Пугачёвой  1991  2EP [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Rock>
@@ -1887,103 +1984,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:D24917008C646FD9D006309704719CF3F8041296
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 977 789
-
-The Alan Parsons Project - The Turn Of A Friendly Card  1980  [FLAC 2.0|96 24|image + .cue|Vinyl-Rip]<Progressive Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. May Be A Price To Pay  5:01 
-A2. Games People Play  4:22 
-A3. Time  5:15 
-A4. I Don t Wanna Go Home  4:51     Читать дальше...    Производство: Arista Records - 203 000-320Жанр: Progressive RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1883993E489AEE3F250B83A177995D57B6A4DB6E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 976 588
-
-David Bowie - Blackstar  2016  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Experimental Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Blackstar  9:59 
-02.  Tis a Pity She Was a Whore  4:52 
-03. Lazarus  6:21 
-04. Sue  Or In a Season of Crime   4:40     Читать дальше...    Жанр: Experimental RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1A0D1536CB877DF34E9B78CC33F9CF7E88B3C7B1
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 976 326
-
-Аквариум - 3 альбома  Белый альбом; Радио Африка; Равноденствие   1987-1988  [FLAC 2.0 24 192] image + .cue  Vinyl-Rip  <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:54:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FFA31EAB72F224F22F2D1DFAE2BD72B3EB085A0F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 975 609
-
-Iron Maiden - The Number Of The Beast  1982  Reissue, 1987, Fame [FLAC 2.0 24 96|image  Vinyl-Rip ]<Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Invaders  3:23 
-A2. Children Of The Damned  4:35 
-A3. The Prisoner  6:02 
-A4. 22.Acacia Avenue  6:36     Читать дальше...    Производство: EMI   Fame - FA 3178Жанр: Heavy MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:672DDC282EB12BDF71CEBA73C1D3783DF4BC4E36
 ```
 
 <div id="header" align="center">
