@@ -1,4 +1,119 @@
 ﻿
+###  Публикация: 809 257
+
+K.B. Caps - Catch Me Now I m Falling  2005  [APE|Lossless]<Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Do You Really Need Me?  maxi mix 
+02. Catch Me Now I m Falling
+03. Julia  maxi mix 
+04. Dancing In The Dark
+05. Angel Of The Dreamland  extended version 
+06. Wait, Baby, Wait
+07. Do You Really Need Me?  original version 
+08. Julia  funk b-mix 
+09. Catch Me Now I m Falling  instrumental 
+10. Dancing In The Dark  crazy version     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA502B0D44C9C79436174333E9FDAFDAEEA09D0A
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/JmBJVqZ/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 789 385
+
+Radiorama - 17 Albums +1 Bootleg+ 12  Compilations + 38 Singles (68 CD)  (1985 - 2008) [MP3| 190 /320 kbps  ]<POP, Disco, Euro House, Italodance>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Жанр: Pop, Disco, Euro House, ItalodanceПродолжительность: 42:56:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2BF2D643E626E8F9D224D20CAB747BD1F348CB5F
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/mRHnw9t/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 760 694
+
+Westlife - The Love Songs  2014  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Unbreakable  Single Remix 
+02. Mandy
+03. Swear It Again  Radio Edit 
+04. Fool Again
+05. The Rose
+06. World of Our Own
+07. My Love  Radio Edit 
+08. More Than Words
+09. What About Now
+10. I Wanna Grow Old with You    Читать дальше...    Жанр: PopПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C752129869E0D1891380842E10E1C33F6446E54
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/2h0GnG4/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 738 846
+
+Fancy - 25th Anniversary Box  1985-1990 5CD Box-Set  Remastered, 2010 4everMUSIC  [FLAC|Lossless]<Italo-Disco, Synth-pop, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01.Colder Than Ice  5:06 
+02.Get Your Kicks  5:32 
+03.L.A.D.Y. O.  4:22 
+04.Slice Me Nice  5:27 
+05.Chinese Eyes  5:50 
+06.Check It Out  6:56 
+07.Blood And Honey  6:14 
+08.In Shock  5:41 
+Bonus Tracks:
+09.L.A.D.Y. O.  Maxi Single Version   5:37     Читать дальше...    Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 06:23:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BAEB07FAFCBA5822F2BE4795BC584AE63999EA75
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/VD2VY77/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 719 668
 
 Bee Gees - The Festival Albums Collection  1965-1967  3CD  2013, Warner Music  [MP3|320 кб с]<Pop-Rock>
@@ -358,6 +473,37 @@ CD 1
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/4V7Wm1X/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 590 871
+
+VA - 40 Jahre Disco - Ilja Richter Prasentiert  2011  14 CD [FLAC|Lossless]<Disco, Pop, Rock>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+CD1:
+01. The Rubettes - Sugar Baby Love  1974  3:28
+02. Leif Garrett - Surfin  USA  1977  2:22
+03. La Bionda - Baby Make Love  1981  3:36
+04. Shakin  Stevens - Marie, Marie  1980  2:44
+05. Darts - Reet Petite  1979  2:53
+06. Georgie Fame & Alan Price - Rosetta  1971  2:46
+07. Cliff Richard - Power To All Our Friends  1973  3:01
+08. Christie - San Bernadino  1970  3:11
+09. Middle Of The Road - Sacramento  A Wonderful Town   1971  2:54    Читать дальше...    Жанр: Disco, Pop, RockПродолжительность: 02:18:55
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/61RMT4m/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

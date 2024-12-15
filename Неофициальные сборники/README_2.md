@@ -1,4 +1,29 @@
 ﻿
+###  Публикация: 1 555 299
+
+VA - Soft Pop Hits  2022  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Adele - Easy On Me
+002. John Legend - All of Me
+003. Justin Bieber - Ghost
+004. Taylor Swift - Lover    Читать дальше...    Жанр: PopПродолжительность: 06:00:47 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DEF02473E8DDD9C14E3BC162BF848C79350F1B95
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/CM1sfNW/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 552 031
 
 Сергей Трофимов - Русские хиты  2022  [MP3|320 Kbps] <Шансон>
@@ -1969,31 +1994,6 @@ VA - ЕвроХит Топ 40 Europa Plus 11.09.2020 [MP3|320 Kbps] <Pop, Dance>
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/vdc70c0/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 407 495
-
-VA - Rock Actually Music  2020  [MP3|320 Kbps] <Rock, Alternative>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. The Dangerous Summer - Starting Over
-002. Red Hot Chili Peppers - This Ticonderoga
-003. War Cloud - Means Of Your Defeat
-004. Sik Oheso - Knee Deep In Dead Shallows    Читать дальше...    Жанр: Rock, AlternativeПродолжительность: 09:15:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C250549237299FF262EC2BF00E2767D23EE7530B
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/pn8QQqY/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

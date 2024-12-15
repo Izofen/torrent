@@ -924,6 +924,31 @@ VA - Лучшие песни Радио DFM за 2023 год  2024  [MP3|320 Kbp
 ---------------------------------------------------------------------------------------------------------------
 
 
+###  Публикация: 1 690 254
+
+VA - Music News vol.329  2024  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Асия feat. Tritia - Жить Тобой  03:05 
+ 002. 24kGoldn - Good Intentions  02:36 
+ 003. Alan Walker feat. Putri Ariani & Peder Elias - Who I Am  03:14 
+ 004. Ale Mora feat. J. Griffie - Let Me Love You  03:25     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 06:34:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:68428B8FB55A15F2B4442138E37316649FCE0609
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/CtpN30k/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 679 669
 
 VA - Record Super Chart 25.11.2023 [MP3|320 Kbps] <Pop, Dance>
@@ -1968,31 +1993,6 @@ VA - The Golden Soul  2022  [MP3|320 Kbps] <Pop, Jazz, RnB, Soul>
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/64z6ST1/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 555 299
-
-VA - Soft Pop Hits  2022  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Adele - Easy On Me
-002. John Legend - All of Me
-003. Justin Bieber - Ghost
-004. Taylor Swift - Lover    Читать дальше...    Жанр: PopПродолжительность: 06:00:47 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DEF02473E8DDD9C14E3BC162BF848C79350F1B95
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/CM1sfNW/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

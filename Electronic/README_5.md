@@ -49,6 +49,56 @@ House, Techno, Electro, Minimal (Lossless)
 ---------------------------------------------------------------------------------------------------------------
 
 
+###  Публикация: 1 240 243
+
+VA - Top 50 Drops Summer  18  2018  [MP3|320 Kbps] <House, Future House, Groove, Jackin, Tech House>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Momentums - Love By You  Original Mix  3:45
+02. Kid Williams - Shimmy Yam, Shimmy Yay  Dub Mix  4:13
+03. Patrick Richmond - I m Losing Control  Original Mix  4:32
+04. Justin Berger - Ohh My  Original Mix  3:44    Читать дальше...    Жанр: House, Future House, Groove, Jackin, Tech HouseПродолжительность: 03:37:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:303DDC3C85CA1D4A385B22C12305B77F48B6002B
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/qscQtW8/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 240 088
+
+VA - Heartwarming Beats - Mood Uplifting & Emotional Tracks  2018  [MP3|320 Kbps] <Balearic, Downtempo>
+Electronic
+Easy listening
+
+###  Подробнее
+
+01. Patrick Williams - In The Breeze  Original Mix 
+ 02. Michael Musco - Longing Something  Original Mix 
+03. Ben Harris - Cryin For You  Original Mix 
+ 04. Eric Bode - Going Home  Original Mix     Читать дальше...    Жанр: Balearic, DowntempoПродолжительность: 01:49:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99291E9403E6A6836F1692C2B626E4A4565FDF37
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/JjjcTCD/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 239 934
 
 VA - Ibiza House  2018  [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -296,6 +346,31 @@ Psybient, Psychill, Psydub (Lossless)
 ---------------------------------------------------------------------------------------------------------------
 
 
+###  Публикация: 1 236 946
+
+VA - Synth Dimension  2013  LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disco>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. Keen K - Free Space Limit  5:24 
+02. Keen K - Illuminate  4:24 
+03. Keen K - Dark Silver Blue  4:49 
+04. Hyboid - Martians Do It Better  5:27     Читать дальше...    Жанр: Electronic, Electro, Synth-pop, DiscoПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:331BBE0FE3784D8AE6B6DBE0D28365EC1F1C4ACC
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/mrKnXVV/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 234 420
 
 VA - Best Trance Summer  2018  [MP3|320 Kbps] <Trance>
@@ -446,6 +521,31 @@ House, Techno, Electro, Minimal (Lossless)
 ---------------------------------------------------------------------------------------------------------------
 
 
+###  Публикация: 1 232 790
+
+VA - Italo Disco: Essential House Music  Compiled and Mixed by Gerti Prenjasi   2018  [MP3|320 Kbps] <Euro-House, Eurodance>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Ken Martina - 1985  Radio Dance Mix 
+02. Casarano - Long Ago  BCR Extended Version 
+03. Tommy Sun - Dance With Me  Italo Radio Mix 
+04. Automat 428 - Silence Is Magic  Radio Mix     Читать дальше...    Жанр: Euro-House, EurodanceПродолжительность: 02:24:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:937D97663A64DBB5F2D0799FBC7DAB6E6A441D34
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/W3VZRcC/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 232 295
 
 VA - Ferry Corsten Presents Corsten s Countdown June  2018  [MP3|320 Kbps] <Trance>
@@ -496,6 +596,31 @@ Trance
 ---------------------------------------------------------------------------------------------------------------
 
 
+###  Публикация: 1 230 833
+
+Yarn - Undiscovered Places  2018  [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
+Electronic
+Easy listening
+
+###  Подробнее
+
+01.Mushroom Valley 10:02
+02.Dreamcatcher 04:28
+03.Cross the Swamp 05:40
+04.Shelter 06:39    Читать дальше...    Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1BFABFA1DD3C752D3A5481FFF2E934A7D68BB66E
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/yQ0BBnK/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 227 068
 
 VA - A State Of Trance  Mixed By Armin van Buuren   2018 2CD [FLAC|Lossless|tracks + .cue] <Trance>
@@ -541,6 +666,31 @@ House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/BccG728/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 225 662
+
+Spencer Brown - Illusion of Perfection  2018  [FLAC|Lossless|tracks] <Progressive House>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Spencer Brown – The Gardens
+02. Spencer Brown – I ll Never
+03. Spencer Brown – Airplane Tekno  feat. Roderick Demmings Jr. 
+04. Spencer Brown – Arps N Crafts    Читать дальше...    Жанр: Progressive HouseПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6584E3F219937940F289B80475FF93C1B9777D9F
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/F6sdP2T/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1839,156 +1989,6 @@ Trance  Lossless
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/4N2VWhF/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 161 904
-
-VA - Anjunabeats Worldwide 07  Mixed by Grum   2017  [FLAC|Lossless|tracks + .cue] <Trance, Progressive Trance, Progressive House>
-Electronic
-Trance  Lossless 
-
-###  Подробнее
-
-01. Grum – Worldwide Intro
-02. Naden – Rivers
-03. Lane 8 – Aba  Yotto Remix   with Kidnap Kid 
-04. Grum – Inflight    Читать дальше...    Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2D18B16E3D238EF0797BFE7C70F3254E7419C518
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/TY4KSWn/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 160 948
-
-Blank & Jones - Relax  Edition Ten   2017  2CD [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, Chillout>
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-01. Give It To Me  with Emma Brammer 
-02. Caliente
-03. Sun Starts Smiling  with Jason Caesar 
-04. Flamingo    Читать дальше...    Жанр: Electronic, Downtempo, Chillout |Продолжительность: 00:54:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:222BE43C7D89B87A6E1CB88AE3E0AD78F39E9437
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/KNMG2Yx/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 157 087
-
-Dean Hurley - Anthology Resource Vol. 1: △△  2017  Twin Peaks [FLAC|Lossless|WEB-DL|tracks] <Ambient, Avantgarde, Experimental, Ethereal>
-Electronic
-Ambient, Experimental, Modern Classical  Lossless 
-
-###  Подробнее
-
-01. Intro Cymbal Wind  01:00 
-02. Night Electricity Theme  02:52 
-03. Electricity I  00:57 
-04. Weighted Room   Choral Swarm  05:31     Читать дальше...    Жанр: Ambient, Avantgarde, Experimental, EtherealПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25796D26F248F78F2F732DDB428443B79E838F31
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/r5RH31q/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 962
-
-VA - Global Player Saint Tropez 2017, Vol.1  2017  [MP3|320 Kbps] <Funky, Club House>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. York – What are we waiting for
-02. Goose Bumps , Jason Caesar – This Life  Funkerman Remix 
-03. HP Vince – Shut Up
-04. Andy B. Jones, Matty Menck – World To Life  Radio Edit     Читать дальше...    Жанр: Funky, Club HouseПродолжительность: 02:46:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7E03C325AB1C4F1243DC8373877FC20E5D9E57C
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/c37fYJg/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 153 071
-
-VA - Precious Lounge Vol.05  2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-Electronic
-Easy listening
-
-###  Подробнее
-
-01.  Elisete & Dr. Drummer - Hot Shot  Eddie Valdez Mix   7:46
-02.  Rey Salinero - High Definition Of Heart  Original Mix   5:15
-03.  Collective Sound Members - Present Tense  Original Mix   4:49
-04.  Proxy Brides - Round  n  Round  Part 2   5:41    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:16:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F5AE2BFA011A652C34D5F0BC0884CE681E3CA8E
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/xf2bQvZ/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 152 870
-
-VA - Deep Chill Night: Relaxing Lounge Moods Selection  2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-Electronic
-Easy listening
-
-###  Подробнее
-
-01.  Giacomo Bondi - One Tone  5:33
-02.  Brass - White Sea  4:55
-03.  Brass - Freedom  4:04
-04.  Alove - Submission To Love  Original Mix   6:05    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:84C454B23A6FDAEB7747823236785FC0A06713B5
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/HFG0nms/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

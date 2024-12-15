@@ -1,4 +1,29 @@
 ﻿
+###  Публикация: 1 269 098
+
+VA - Selfish Desire: Assembly Of Electro House  2018  [MP3|320 Kbps] <Electro House, Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Cally Dj - What You Thinking
+002. Miki Farra - Get Low Now
+003. The Deepshackerz - Sourn
+004. Alfredo Arruti - Macahuitl  Original Mix     Читать дальше...    Жанр: Electro House, Dance, ClubПродолжительность: 08:56:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:765FC0F27364328E43E42F5733AC6DBE521293C1
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/44qGsdj/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 267 527
 
 VA - Hedkandi December Dance Mix  2018  [MP3|320 Kbps] <Dance, Pop, House>
@@ -580,6 +605,31 @@ Electronic  сборники
 ---------------------------------------------------------------------------------------------------------------
 
 
+###  Публикация: 1 231 061
+
+VA - Deep House Collection Vol.174  2018  [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. 7even  GR  - Persefoni   Original Mix 
+002. A. Rassevich - No One Dares   Bruno Motta Remix 
+003. Akcent feat. REEA - Stole My Heart   DJ Tarkan Remix 
+004. Alakin Kirill - EveryBody Make Some Noise  Extended mix     Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:40:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6575AFE2159FEF0FC92A1B8ED6486079E5F494D0
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/HdYKQW3/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 231 059
 
 VA - German Top 100 Single Charts 15.06.2018 [MP3|320 Kbps] <Pop>
@@ -600,6 +650,31 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/L1YcgBm/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 228 716
+
+VA - Vocal Drum & Bass Vol.14  Compiled by Zebyte   2018  [MP3|224-320 Kbps] <Drum & Bass>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Theoretical - Venetian Night [05:15]
+02. Telomic & Notelle - Lies  Ash_Ram Remix  [05:37]
+03. Bcee - Surfacing  Feat. Lucy Kitchen  [05:15]
+04. Blue Marble Feat. Harveys Maker - Dreamers [03:41]    Читать дальше...    Жанр: Drum & BassПродолжительность: 02:13:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A1A50E54987BA40DA8AFCE4307CB2F35603689D4
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/HGvxKq5/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1853,6 +1928,56 @@ Jazz, Blues, Soul  сборники
 ---------------------------------------------------------------------------------------------------------------
 
 
+###  Публикация: 1 152 487
+
+VA - Record Super Chart #495  2017  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.  Yellow Claw - Open  3:31
+02.  Fedde Le Grand vs. Ian Carey - Keep On Rising  Sensation The Final Anthem   4:48
+03.  Dzeko - Fluxland 2017  2:39
+04.  Abel Ramos & Albert Neve - Flat Beat  4:30    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 02:18:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5616BA134DBC5F2F7E49A5DC025FD995451EF006
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/10TZSxY/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 152 380
+
+VA - Melodic Techno Tom II [Compiled by ZeByte]  2017  [MP3|320 Kbps] <Melodic Techno>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Boris Brejcha - Anthurie [07:27]
+02. Gotti & Quardo Rossi - Empire [06:10]
+03. Jamie Xx - Stranger In A Room  Plaka Edit  [06:17]
+04. Mashk - Dad [06:59]    Читать дальше...    Жанр: Melodic TechnoПродолжительность: 03:40:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4546178DF7CA39D61BF1E69C5F2755C0C3A25488
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/smg3vsr/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 151 115
 
 VA - Cosmotronica & Space Disco Vol.3  2017  [MP3|320 Kbps] <Sуthwаve, Deep Hоuse, Dаrksуnth, Retrоwаve>
@@ -1873,131 +1998,6 @@ VA - Cosmotronica & Space Disco Vol.3  2017  [MP3|320 Kbps] <Sуthwаve, Deep H�
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/jWqvD4D/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 149 790
-
-VA - Empire Records - Deep Disco 3  2017  [MP3|256-320 Kbps] <Dance, Deep House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Pouchmi – Oxygen  Original Mix 
-02. Dani Corbalan – Sorry  Original Mix 
-03. Rag’n’Bone Man – Human  Eldar Stuff, Tim Cosmos Remix 
-04. Benny Benassi – Illusion  Alex Trouble Remix     Читать дальше...    Жанр: Dance, Deep HouseПродолжительность: 01:40:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BF3E03257D724C995AAA5280E60D418B8B270A45
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/CtWpJb7/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 149 204
-
-VA - Rock Republic: Solid Album Of Rock  2017  [MP3|192-320 Kbps] <Rock, Hard Rock, Alternative>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-001. Kiss - Forever
-002. Survive This! - Down
-003. The Vision Bleak - Spirits of the Dead
-004. Emerson, Lake & Palmer - I Believe In Father Christmas    Читать дальше...    Жанр: Rock, Hard Rock, AlternativeПродолжительность: 10:04:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:92F2953F52EA05FC6BC46513283F445CF002639D
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/g42RRdJ/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 145 865
-
-Вася Пряников - Самые убойные хиты  2017  [MP3|320 Kbps] <Шансон, поп-шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Гуляй пока гуляется
-02. Блондинки и брюнеточки
-03. Не учи учёного
-04 . Автобан-не космос    Читать дальше...    Жанр: Шансон, поп-шансонПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FD5E4352664471E030042D4BA0EF815EEC493260
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/k1GnjD0/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 145 310
-
-VA - Hot Dance Summer  2017  [MP3|320 Kbps] <Club, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Miley Cyrus - Malibu  Amice Remix 
-02. Burak Yeter - Happy  Vadim Adamov & DMC Remix   Radio Edit 
-03. Nicky Romero & Nervo - Like Home  Stadiumx Remix 
-04. Thrdl! fe feat. Saara - Can t Buy Love    Читать дальше...    Жанр: Club, DanceПродолжительность: 05:37:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3CEF17A26B5FE36DF1BC6474322C31F04EC601BB
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/Wf7dhN1/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 145 204
-
-VA - Empire Records - Trance 9  2017  [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  Adagio Sensus - Easy For You  Frainbreeze Radio Edit   3:53
-02.  Eximinds & Lucid Blue - A Higher Love  Original Mix   5:33
-03.  ReOrder - Across The World  Original Mix   5:41
-04.  Fresh Code - Hands To Heaven  Original Mix   6:33    Читать дальше...    Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 04:00:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4FC10E786122D83C9BFE19053C5226E3DB1DD224
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/ZBwSVqj/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

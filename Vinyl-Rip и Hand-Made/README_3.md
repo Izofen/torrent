@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 708 540
+
+Доктор Шлягер - То, что доктор прописал... (Песни Вячеслава Добрынина) (1990) [FLAC 24/96|Lossless|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1.
+01 - То, что доктор прописал. (М.Рябинин)
+02 - Когда-нибудь. (С.Осиашвили)
+03 - Что скажешь - так и будет. (М.Рябинин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:578F606D274EBC3C8A68FE28723E6589E60F8D63
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 708 539
+
+Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A.
+01 - Homage To The Mountain.
+02 - Rubberbandman.
+03 - Jungle Bill.(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED6FE613E3F711AC15D1E03EE2F017462ABF5828
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 708 538
+
+Bruce Dickinson - Tattooed Millionaire (1990) [FLAC|24/96|image + .cue|Vinyl-Rip] <Rock, Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Son Of A Gun
+02. Tattooed Millionaire
+03. Born In 58
+04. Hell On Wheels(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:526D5202512CDD5C9A5028710A244351862583D0
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 708 500
 
 Darkthrone - Goatlord  1996  Reissue, 2011, Peaceville [FLAC|24 192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
@@ -1913,81 +1988,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:6D59B1DE3FC90C49BC0D5A62FCAC8BDA8BA4AFC8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 830
-
-Marc Bolan & T-Rex - Марк Болан и T-REX  1987  1992 [FLAC 24 192|Lossless|tracks] <Glam Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1.
-01 - Настоящее золото - легкая жизнь. Solid Gold, Lasy Actiont.
-02 - Парень ХХ века. 20th Century Boy.
-03 - Мечта малолеток. Teenage Dream.    Читать дальше...    Жанр: Glam RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4AED9FADE70D26B840E0FDA2D82801A4AB529BE6
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 829
-
-Freddie Mercury & Montserrat Caballe - Barcelona  1988  1992 [FLAC 24 192|Lossless|tracks] <Symphonic Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1.
-01. Barcelona  F.Mercury – Moran  5.38
-02. La Japonaise  F.Mercury – Moran  4.49
-03. The fallen priest  F.Mercury – Moran – Rice  5.45    Читать дальше...    Жанр: Symphonic RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E7F0E7D0C3322396DB1B767644948C5BA0DB9BCC
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 723
-
-Сергей Маврин - Студийные альбомы  20 изданий   1997-2023  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Progressive Heavy M
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-«Маврин»  ранее «Маврик», 1997–2001, и «Сергей Маврин», 2001—2009  — российская хеви-метал-группа, получившая название в честь основателя группы Сергея Маврина, бывшего гитариста группы «Ария». Существовала в течение четверти века: с 1998 по 2023 гг.1997 - Смутное время
-1998 - Скиталец
-2000 - Неформат 1
-2001 - Химический сонЖанр: Progressive Heavy MetalПродолжительность: 17:56:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5153A135BEDCE23ABA17CA1FC06930A9C7B55BAE
 ```
 
 <div id="header" align="center">

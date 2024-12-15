@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 096 808
+
+VA - 69 Hits Winter  2017  [FLAC|Lossless|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+CD1:
+01. Rag N Bone Man - Human
+02. Vianney - Je M En Vais
+03. M Pokora - Belinda    Читать дальше...    Жанр: PopПродолжительность: 03:50:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EB905419AB087B06E196F6BAD75E50A859D94901
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/w4LTqc1/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 095 624
+
+The Spotnicks - The Premium Best Collection  2006  Compilation, 2CD [MP3|320 Kbps] <Surf-Rock, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Инструментальная группа из Швеции, которая была сформирована в 1961 году. Вместе   The Shadows  и  The Ventures  считаются одним из самых известных инструментальных коллективов в 1960-70х годах. Выпустили 42 альбома, продав более 18 миллионов записей. Славились своими  космическими  костюмами на сцене, и  инновационными электронными гитарами.     Читать дальше...    01. Karelia   2:22 
+02. The Rocket Man   2:00 
+03. Space Party   2:31 
+04. Orange Blossom Special   2:19     Читать дальше...    Жанр: Surf-Rock, PopПродолжительность: 02:10:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3D27B7A3D77B162F0A5ADC939272ECB10BDFDCFD
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/HN0bwh4/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 094 044
+
+VA - 10 песен о любви  2004  бесплатное приложение к журналу Yes! [FLAC|Lossless|image + .cue] <Pop, Rock>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+В январе 2003 года журнал YES! обьявил о намерении собрать музыкальную группу с одноименным названием и устроил конкурс под названием  YES! зажигает звёзды!  Всё, что нужно было сделать - это прислать в редакцию фото, аудио- или видеозапись, где были бы  запечатлены таланты . В редакцию пришло n-ое количество записей. После жесткого отбора остались     Читать дальше...    01. Yes! - Ты не знаешь...
+02. Yes! - Передумала
+03. Мумий Тролль - Это по любви  Japanese version 
+04. Smash!! - Freeway    Читать дальше...    Жанр: Pop, RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B219D190C8C41BCB48B100B1ABF625EF98DBAF61
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/Jts6cWK/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 093 836
 
 VA - The Disco Sessions  2017  [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -1522,6 +1597,31 @@ Pop (сборники)
 ---------------------------------------------------------------------------------------------------------------
 
 
+###  Публикация: 914 273
+
+A-ha - Greatest Hits  1999  [FLAC|tracks + .cue]<Pop, New Wave>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Take On Me [03:47]
+02. Cry Wolf [04:08]
+03. Touchy [04:37]
+04. You Are The One  Remix  [03:47]    Читать дальше...    Жанр: Pop, New WaveПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99E22C53AA99AA107EF7B7A31E655A49711512F7
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/pZMGGxD/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 912 270
 
 Tori Kelly - Unbreakable Smile  2015  Target Edition [MP3|320 кб с]<Pop, Soul>
@@ -1905,121 +2005,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/8Nvj20p/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 809 257
-
-K.B. Caps - Catch Me Now I m Falling  2005  [APE|Lossless]<Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Do You Really Need Me?  maxi mix 
-02. Catch Me Now I m Falling
-03. Julia  maxi mix 
-04. Dancing In The Dark
-05. Angel Of The Dreamland  extended version 
-06. Wait, Baby, Wait
-07. Do You Really Need Me?  original version 
-08. Julia  funk b-mix 
-09. Catch Me Now I m Falling  instrumental 
-10. Dancing In The Dark  crazy version     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA502B0D44C9C79436174333E9FDAFDAEEA09D0A
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/JmBJVqZ/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 789 385
-
-Radiorama - 17 Albums +1 Bootleg+ 12  Compilations + 38 Singles (68 CD)  (1985 - 2008) [MP3| 190 /320 kbps  ]<POP, Disco, Euro House, Italodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Жанр: Pop, Disco, Euro House, ItalodanceПродолжительность: 42:56:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2BF2D643E626E8F9D224D20CAB747BD1F348CB5F
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/mRHnw9t/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 760 694
-
-Westlife - The Love Songs  2014  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Unbreakable  Single Remix 
-02. Mandy
-03. Swear It Again  Radio Edit 
-04. Fool Again
-05. The Rose
-06. World of Our Own
-07. My Love  Radio Edit 
-08. More Than Words
-09. What About Now
-10. I Wanna Grow Old with You    Читать дальше...    Жанр: PopПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C752129869E0D1891380842E10E1C33F6446E54
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/2h0GnG4/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 738 846
-
-Fancy - 25th Anniversary Box  1985-1990 5CD Box-Set  Remastered, 2010 4everMUSIC  [FLAC|Lossless]<Italo-Disco, Synth-pop, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01.Colder Than Ice  5:06 
-02.Get Your Kicks  5:32 
-03.L.A.D.Y. O.  4:22 
-04.Slice Me Nice  5:27 
-05.Chinese Eyes  5:50 
-06.Check It Out  6:56 
-07.Blood And Honey  6:14 
-08.In Shock  5:41 
-Bonus Tracks:
-09.L.A.D.Y. O.  Maxi Single Version   5:37     Читать дальше...    Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 06:23:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BAEB07FAFCBA5822F2BE4795BC584AE63999EA75
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/VD2VY77/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

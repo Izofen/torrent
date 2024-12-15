@@ -227,6 +227,31 @@ Pop (сборники)
 ---------------------------------------------------------------------------------------------------------------
 
 
+###  Публикация: 1 229 553
+
+Joe Yellow - The 12   Collection: Part 1 & 2  2009  2CD, Compilation, Limited Edition [MP3|320 Kbps] <Disco, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Lover To Lover  For Sale   Vocal Version   8:14 
+02. Take My Heart  Instrumental Version   3:56 
+03. Recollection  Vocal Version   7:01 
+04. I m Your Lover  Instrumental Version   6:14     Читать дальше...    Жанр: Disco, Euro-DiscoПродолжительность: 02:35:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89164E09B399F32C5B4648C71A84C8A1638F443C
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/n746w1k/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 229 362
 
 VA - Ballermann Sommerparty  2018  2CD [MP3|320 Kbps] <Pop, Schlager>
@@ -1399,6 +1424,31 @@ CD1:
 ---------------------------------------------------------------------------------------------------------------
 
 
+###  Публикация: 1 146 175
+
+VA - Dancefloor Fuller  2017  [MP3|320 Kbps] <Schlager, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Noel Terhorst – Traumpilot 03:27
+02. Wolfgang Lippert – Der Morgensong 03:21
+03. De Lancaster – Wir sind jung, wir sind frei 03:26
+04. Kaboom – Y.M.C.A. Reloaded  Extended  04:31    Читать дальше...    Жанр: Schlager, PopПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:68DEFA6F353849A109A7E88B8993E0B55F351B31
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/1Z15CK8/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 145 104
 
 VA - Русский топ  2001-2005  2CD [FLAC|Lossless|image + .cue] <Pop>
@@ -1444,6 +1494,31 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/kxGtqbW/image.jpg                                                                                                                    " />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 141 029
+
+Munich Machine - Get On The Funk Train  1996  Remaster, 2011, Repertoire Records, Compilation [FLAC|Lossless|image + .cue] <Disco, Electronic>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Get On The Funk Train  15:43 
+02. Love To Love You Baby  2:33 
+03. Trouble Maker  2:47 
+04. Try Me, I Know We Can Make It  3:31     Читать дальше...    Жанр: Disco, ElectronicПродолжительность: 01:04:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CDC5A3F0DD1C1831898B1939BDF9D677A45235C6
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/FbSvWCf/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1919,81 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/6wP11Wy/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 096 808
-
-VA - 69 Hits Winter  2017  [FLAC|Lossless|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD1:
-01. Rag N Bone Man - Human
-02. Vianney - Je M En Vais
-03. M Pokora - Belinda    Читать дальше...    Жанр: PopПродолжительность: 03:50:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EB905419AB087B06E196F6BAD75E50A859D94901
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/w4LTqc1/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 095 624
-
-The Spotnicks - The Premium Best Collection  2006  Compilation, 2CD [MP3|320 Kbps] <Surf-Rock, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Инструментальная группа из Швеции, которая была сформирована в 1961 году. Вместе   The Shadows  и  The Ventures  считаются одним из самых известных инструментальных коллективов в 1960-70х годах. Выпустили 42 альбома, продав более 18 миллионов записей. Славились своими  космическими  костюмами на сцене, и  инновационными электронными гитарами.     Читать дальше...    01. Karelia   2:22 
-02. The Rocket Man   2:00 
-03. Space Party   2:31 
-04. Orange Blossom Special   2:19     Читать дальше...    Жанр: Surf-Rock, PopПродолжительность: 02:10:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D27B7A3D77B162F0A5ADC939272ECB10BDFDCFD
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/HN0bwh4/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 094 044
-
-VA - 10 песен о любви  2004  бесплатное приложение к журналу Yes! [FLAC|Lossless|image + .cue] <Pop, Rock>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-В январе 2003 года журнал YES! обьявил о намерении собрать музыкальную группу с одноименным названием и устроил конкурс под названием  YES! зажигает звёзды!  Всё, что нужно было сделать - это прислать в редакцию фото, аудио- или видеозапись, где были бы  запечатлены таланты . В редакцию пришло n-ое количество записей. После жесткого отбора остались     Читать дальше...    01. Yes! - Ты не знаешь...
-02. Yes! - Передумала
-03. Мумий Тролль - Это по любви  Japanese version 
-04. Smash!! - Freeway    Читать дальше...    Жанр: Pop, RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B219D190C8C41BCB48B100B1ABF625EF98DBAF61
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/Jts6cWK/image.jpg                                                                                                                    " />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
