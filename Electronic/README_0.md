@@ -1,4 +1,179 @@
 ﻿
+###  Публикация: 1 766 005
+
+VA - Redux Presents: The Finest Selection (Mixed by DJ Jayel) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Petereese - Redrasoew (Extended Mix) (06:32)
+02. Cj Mover - 1st In Space (Extended Mix) (07:05)
+03. Lele Palmieri - Supernatural (Extended Mix) (07:01)
+04. Stnx - Remedy (Extended Mix) (06:32)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:38:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:61C3486B6BFA3C268CE46BF4CD106151A093AB09
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/6DkMN21/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 765 914
+
+Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Mysteries (2024) [MP3|320 Kbps] <Downtempo, House, Ambient>
+Electronic
+Downtempo, Trip-Hop, Lounge (Lossless)
+
+###  Подробнее
+
+01 - Röyksopp - Waking Up From A Thousand Year Slumber [00:06:57]
+02 - Röyksopp - Slow Fade  R [00:01:32]
+03 - Alison Goldfrapp - We Enter  State Of Awareness [00:03:30]
+04 - Röyksopp - The Uxtáca Bridge [00:05:21](   Читать дальше...   )Жанр: Downtempo, House, AmbientПродолжительность: 02:19:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E7D490D74DF3CEFFF6F6B50C726B202D488EA81C
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/9rdX4df/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 765 900
+
+VA - Feel The Burn Body Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. D'Mixmasters - Too Much (Fitness Version 128 Bpm 32 Count) (4:00)
+02. DJ Space'c - Both (Fitness Version 128 Bpm 32 Count) (3:45)
+03. D'Mixmasters - Rock My Body (Fitness Version 128 Bpm 32 Count) (4:00)
+04. Kangaroo - Red Flags (Fitness Version 128 Bpm 32 Count) (4:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0597CAC5E4B904AFCC458E2EA29D165A25DC7BA7
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/6n2b0Zs/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 765 800
+
+VA - Ibiza Winter 2025 (Dance Snowflakes From The Heart) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Jaques Le Noir - Intentions (Radio Edit) (03:37)
+02. Francesco Diaz & All Purple - Hometown (02:49)
+03. Zulu Natives - In My Dreams (02:55)
+04. Mayson & Noise - Day Go By (02:41)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A5371DCE845B2FD9004975F508507C0073B27583
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/gTs9FJW/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 765 797
+
+VA - The Remixes Chapter 1 (2024) [MP3|320 Kbps] <House, Progressive House>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. K Loveski & Gorkiz - Echos of Eons (Greenage Remix) [06:57]
+02. Andre Moret - Waltz of the Dew (Subandrio Remix) [07:56]
+03. Mind Echoes - Cold Forest (Dowden Remix) [07:23]
+04. Fel C - Suspension (Evegrem Remix) [07:04](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9414A5C40B617F50CC8C6FDFFDBCD157C05F81EE
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/zXQpzbB/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 765 724
+
+VA - Best Gym & Fitness Music 2024 [FLAC|Lossless|WEB-DL|tracks] <Techno>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. ALVSTOR - Lets Go (3:07)
+02. KAYNARD - Ethnica (2:35)
+03. NEAMARTI - Vibe Sound (3:06)
+04. El Ram - Petrunko 2024 (2:13)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BDA5155279D4E697917F128FBCBB884559530612
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/93nqkG6/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 765 715
+
+VA - Love Lounge, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+Electronic
+Downtempo, Trip-Hop, Lounge (Lossless)
+
+###  Подробнее
+
+01 - Bes & Meret, Roberto Sol, Karmaloft - Trip to Agadir (04:03)
+ 02 - Living Room - A Wonderful Day (03:06)
+ 03 - Weber & Weber - Stepping Out (04:55)
+ 04 - Belma - Lost (Original Version) (05:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:886B6FFBEFE267B4E29C6318530C9927F46B5AC9
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/j4hwn1h/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 765 552
 
 VA - Black Hole Trance Music 12-24 (2024) [MP3|320 Kbps] <Trance>
@@ -18,7 +193,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZNmSnmT/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZNmSnmT/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,7 +218,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FH7WQkB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FH7WQkB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,7 +243,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/QCF2g4q/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/QCF2g4q/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,7 +268,7 @@ Radioshow, Live Mixes
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/DCYM42K/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/DCYM42K/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,7 +293,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mtDmFjn/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mtDmFjn/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,7 +318,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/fH5Py1F/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/fH5Py1F/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,7 +343,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FKN8Rp6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FKN8Rp6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,7 +368,104 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/NCPmswj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/NCPmswj/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 765 234
+
+VA - Best Vocal Trance 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Elgfrothi - Believe (Vocal Mix) (05:35)
+02. Andy Newtz & Olya Gram - Take Me To The Stars (Gayax Remix) (05:52)
+03. Masaru Hinaiji & Kayumai - We Will Shine (Pink Pig Remix) (08:36)
+04. Iberian & Poetry Maiden - Hideaway (Mehran Vedadi Remix) (07:48)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AFBB5D058AE49E3D5566BCDE6E1B5BE4F4CCA424
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/1QrJMMr/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 765 148
+
+VA - The Winter Chillout Collection: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Electronic
+Downtempo, Trip-Hop, Lounge (Lossless)
+
+###  Подробнее
+
+01. Digby Jones - Dinner (2:07)
+02. Michael E - Andiamo (Original Mix) (4:42)
+03. Gary B - Rainy Day in the City (1:51)
+04. Ljay - Let Me Chill (3:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C1DF5A3AF66022D8205366B2262AA30C8B477C24
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/Tg2kb2w/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 765 043
+
+VA - Elliptical Sun Recordings 2024 (2024) [MP3|320 Kbps] <Trance, Progressive>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Brych (BR) & Isaac Blum - Push Me Away (extended mix) (07:36)
+02. GÆO & Low Contrast - Earth (extended mix) (06:25)
+03. Johan De Kock & Elsuane - Embrace (extended mix) (07:32)
+04. John Grand - Metanoia (extended mix) (06:39)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:07:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:68413736F93024ED5C72522DBD50EEB03488684E
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/F7842x3/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 765 023
+
+Clarky - Forever In Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Trance, Scouse House>
+Electronic
+Trance (Lossless)
+
+###  Подробнее
+
+01. Clarky - Forever In Love (6:22)Жанр: Trance, Pop Trance, Scouse HouseПродолжительность: 00:06:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1AFCBD7D6140CD4FC9FA31122C8128B55E8194F4
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/0rzN7Xm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,7 +490,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZgR3Wv7/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZgR3Wv7/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,7 +515,7 @@ IDM (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Gp2qQ0n/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Gp2qQ0n/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,7 +540,7 @@ Ambient, Experimental, Modern Classical (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/G5H5jJb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/G5H5jJb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,7 +565,7 @@ Synthpop, New Wave (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/DYgLw5p/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/DYgLw5p/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,7 +590,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MsyCrBm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MsyCrBm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,7 +615,57 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/10WhhFr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/10WhhFr/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 764 691
+
+VA - Redux Selection Vol. 12 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Dan Cooper - Tipping State (Thomas Lloyd Extended Remix) [5:28]
+02. Mark Hide - Into The Ocean (Emir Guven Extended Remix) [6:30]
+03. Comacode - Vision (Extended Mix) [6:06]
+04. Matthew Dreamer - Remember (Extended Mix) [5:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:16:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0F3A1A4A9C65BAC58235CA0F53655411901FBBEC
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/4sbBRZd/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 764 686
+
+VA - Winter Chillout Lounge 2024 - Smooth Lounge Sounds for the Cold Season [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Electronic
+Downtempo, Trip-Hop, Lounge (Lossless)
+
+###  Подробнее
+
+01. Airstream - Glow (Smooth Ride Mix) (4:26)
+02. Jazzy James Jr. - Autumn Lover (Lazy Tones Mix) (4:20)
+03. Cafe Americaine - In My Dreams (Dreamwave Mix) (4:16)
+04. Frank Borell - You Are Gone (Break Me Mix) (4:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D043590DF910D82DD9741B7A8945B3B013544590
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/ZzH4f5k/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,7 +690,7 @@ IDM (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/c1bkSbC/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/c1bkSbC/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,7 +715,7 @@ IDM (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/G9xnQ4Y/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/G9xnQ4Y/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,7 +740,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/6Wg6JWj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/6Wg6JWj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,7 +765,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HN7gkTD/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HN7gkTD/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,7 +790,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/C9MZGHC/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/C9MZGHC/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,7 +815,7 @@ Techno, Electro, Minimal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/1Zf00N5/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/1Zf00N5/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,7 +840,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/qWMnGwH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/qWMnGwH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,7 +865,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4S4h9CM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4S4h9CM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,7 +890,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/R7Th7gr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/R7Th7gr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,7 +915,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/TWHhtcG/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/TWHhtcG/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,7 +939,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Cz6ZVBQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Cz6ZVBQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,7 +964,7 @@ Markus Schulz (Recorded Live from Stereo in Montreal - October 13 2024)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4psjhxy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4psjhxy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,7 +989,82 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/93cKF9K/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/93cKF9K/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 764 265
+
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Cristiano Cento & Panico - Smooth Criminal (Panico Extended Remix) (05:24)
+02. Francesco Castelli, Paolo Lofrè & Alicia Wilkson - Bang Bang (Radio Edit) (04:03)
+03. Shock Mama - Let's Party (Euro Mix) (05:23)
+04. Fabio Pazzaglia, RaFF T & Gabriel - Summer Jam (Radio Edit) (03:13)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:05:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:094EB9626B85C6BAE54DE8CED399F7C6A79B6CB1
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/2PpzGH2/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 764 259
+
+VA - Anjunadeep The Yearbook 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. CRi - Dark In This Room (Original Mix) (04:12)
+02. Qrion - Miyanosawa (Extended Mix) (05:42)
+03. Steven Weston & Ormella - Give Me Something (Extended Mix) (06:11)
+04. Romain Garcia - Digital Diva (Extended Mix) (06:15)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:59:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:279D2E7980A59C4C4CB7EC2EB97BE9DBE91EE11F
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/D1fR0fB/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 764 230
+
+VA - Armin van Buuren - A State Of Trance 1202 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Electronic
+Radioshow, Live Mixes
+
+###  Подробнее
+
+01. Above & Beyond – Chasing Highs
+02. Simon Gregory – Finding Faith (nümind Remix)
+03. UUFO – Ignite (U In My Mind)
+04. AVIRA ft. Azyla – DisconnectedЖанр: Trance, Progressive, ElectronicПродолжительность: 02:01:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED56F9E9336E505AFA2FCB20180CB23536BE2B7A
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/kqn6Smq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,7 +1089,7 @@ CD1:
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/znQq9Tr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/znQq9Tr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,7 +1114,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PwysFDp/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PwysFDp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -742,7 +1139,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hBss1Dj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hBss1Dj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -767,7 +1164,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/XCN8qkD/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/XCN8qkD/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -792,7 +1189,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/BGf14g6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/BGf14g6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -817,7 +1214,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/5ThHt7P/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/5ThHt7P/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -842,7 +1239,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/bBKY568/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/bBKY568/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -867,7 +1264,7 @@ Radioshow, Live Mixes
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/fH0Q48z/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/fH0Q48z/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -892,7 +1289,7 @@ Industrial, EBM, Dark Electro (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vD8Xz7s/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vD8Xz7s/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -917,7 +1314,7 @@ Synthpop, New Wave (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/h7J7D46/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/h7J7D46/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -939,7 +1336,7 @@ Radioshow, Live Mixes
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vjp2D2g/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vjp2D2g/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -964,7 +1361,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PDPQ7kv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PDPQ7kv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -989,7 +1386,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vvR3Tbn/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vvR3Tbn/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1014,7 +1411,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/d5pycXq/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/d5pycXq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1039,7 +1436,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/42Dn9D1/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/42Dn9D1/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1064,7 +1461,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/tHjWRjP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/tHjWRjP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1089,7 +1486,7 @@ Synthpop, New Wave (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/M1z7cWF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/M1z7cWF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1114,7 +1511,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MNLfJzc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MNLfJzc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1139,7 +1536,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/51n0mP8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/51n0mP8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1164,7 +1561,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/8b5pVvB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/8b5pVvB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1189,7 +1586,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/b680CgN/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/b680CgN/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1214,7 +1611,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/qYkcbB0/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/qYkcbB0/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1239,7 +1636,7 @@ Radioshow, Live Mixes
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SrXTW4f/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SrXTW4f/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1264,7 +1661,7 @@ Hardstyle, Jumpstyle, Hardcore (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/dgd9M6B/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/dgd9M6B/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1289,7 +1686,7 @@ Radioshow, Live Mixes
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/CQSCRgh/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/CQSCRgh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1314,7 +1711,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/7JGLpgw/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/7JGLpgw/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1339,7 +1736,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ThSD8n3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ThSD8n3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1364,7 +1761,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/DK1dDZc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/DK1dDZc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1389,7 +1786,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Qd5RvWN/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Qd5RvWN/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1414,7 +1811,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/CVvXG0m/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/CVvXG0m/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1439,7 +1836,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/pvz5QVP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/pvz5QVP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1464,7 +1861,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/QK0M5zk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/QK0M5zk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1489,7 +1886,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RH0QrrP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RH0QrrP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1514,7 +1911,7 @@ Radioshow, Live Mixes
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/V34jxgP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/V34jxgP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1539,7 +1936,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/K5g2txv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/K5g2txv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1564,7 +1961,7 @@ Downtempo, Trip-Hop, Lounge (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Tv56s9x/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Tv56s9x/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1589,403 +1986,7 @@ Trance
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/c8yYSgw/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 762 491
-
-VA - The Best Of Suanda Base 2024 (2024) [MP3|320 Kbps] <Trance>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Michael Milov - The Life We Knew (Extended Mix) [3:48]
-02. Adip Kiyoi - November (Extended Mix) [4:53]
-03. Michael Milov - Pilgrim (Extended Mix) [4:39]
-04. Mind-X & Tatana - Infusion (Extended Mix) [7:05](   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B753DC7E0A87B56289571B98EC77F825A20BBFCB
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/WprkzgY/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 762 465
-
-VA - Soothing Sounds: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-Electronic
-Downtempo, Trip-Hop, Lounge (Lossless)
-
-###  Подробнее
-
-01. Peter Pearson - A Special Time (Original Mix) (3:29)
-02. Michael E - After the Storm (Original Mix) (5:57)
-03. Marga Sol - Calma (5:28)
-04. Sole Spirit - Chillin' on Planet Venus (2:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:64A6DE55E4DAE70D5145A0067C98543F35B2392D
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/gMthwC2/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 762 306
-
-Sheep on Drugs - From A to H and Back Again (1994) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Punk, Techno>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. From A to H and Back Again (6:50)
-02. Cathode Ray (4:34)
-03. Motorbike (New) (3:05)
-04. Drug Music (More or Less) (5:15)(   Читать дальше...   )Жанр: Electronic, Rock, Punk, TechnoПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFB39BA7EEF85F8577F9CA1A57EDC2309DF393F5
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/qnztykF/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 762 271
-
-Electric Youth - Innerworld (2014) 10th Anniversary Edition, 2024, Electric Youth Music[FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Before Life [00:02:11]
-02. Runaway [00:03:40]
-03. WeAreTheYouth [00:03:12]
-04. Innocence [00:03:54](   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:10:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4484ECA5375C603EAA5745B14CCF158ABC575CEE
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/2nJ5b26/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 762 115
-
-VA - Top 20 Progressive House (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Sinova - Beacon (Extended Mix) (06:14)
-02. Jacoob - Neura (Extended Mix) (06:41)
-03. Sinova & Ocien - If You Find Me (Extended Mix) (05:56)
-04. Tuew & Eds Dead - Success (Extended Mix) (06:45)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:11:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F3ADDC243420FF33A7CEDA504AC26D6A3600D29
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/V9KxXXx/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 892
-
-VA - We Love Dance 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. DJ Combo, Maureen Sky Jones & DJ Nicolas - Last Night The Dj Saved My Life (02:16)
-02. Deep Emotion - Everything (03:01)
-03. Teknova - On the Dancefloor (02:11)
-04. JLUIS - About U (02:49)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7162765236F4C4BBE6530CD3666344CB38A2B28B
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/PWyxGBs/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 794
-
-VA - Sunset Dreamer (Lounge & Chill out Sessions), Vol. 1 - 4 (2024)
-Electronic
-Downtempo, Trip-Hop, Lounge (Lossless)
-
-###  Подробнее
-
-Жанр: Chillout, Balearic, DowntempoПродолжительность: 09:18:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B3E29F5D1C793242EBD052B2A59D9E94C011F03
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/H7wxd6N/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 776
-
-Ferry Corsten - Connect (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Ferry Corsten & Tom Westy - Back To Life (Extended Mix) [5:33]
-02. Ferry Corsten - Connect (Extended Mix) [5:35]
-03. Ferry Corsten feat. Chris Howard - Where The Mountains Grow (Extended Mix) [6:30]
-04. Ferry Corsten feat. MERYLL - Chain Reaction (Extended Mix) [5:11](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:28:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E597D24E6829B6DB58C2E7A9F29576E7CFB4B2B6
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/nP834fZ/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 770
-
-VA - Nothing But... Trancetopia Vol. 21 (2024) [MP3|320 Kbps] <Trance>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Chris Rebirth - Darkness (Original Mix) [7:44]
-02. Pete.M - Hydrogen (Original Mix) [7:18]
-03. GutterGizmo - Laune (Extended Mix) [7:02]
-04. Kvaii - Iridescent (POINoir Intro Remix) [4:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1E623F5D8FB2553C4044CCD96D7E4358F5E083DD
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/ncCJctZ/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 767
-
-VA - Armin van Buuren - A State Of Trance 1200 (Vinyl Special) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-Electronic
-Radioshow, Live Mixes
-
-###  Подробнее
-
-01. Synergy – Hello Strings
-02. Probspot – Blueberry
-03. Filterheadz – Yimanya
-04. St. John vs. Locust – Mind Circles (Perry O’Neil Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E7B4D8199374CC7A2A4FCF4F95DDDC016B1258F2
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/2y652d2/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 737
-
-RetroVision - More Bass More Good, ADE, Netherlands (2024-10-18) [MP3|320 Kbps] <Bass House, Big Room>
-Electronic
-Radioshow, Live Mixes
-
-###  Подробнее
-
-01. RetroVision - ID
-02. Skrillex & Mr. Oizo ft. Missy Elliott - RATATA w/RetroVision - ID
-03. Benny Benassi pres. The Biz - Satisfaction w/Dog Blood - Break Law (ID Remix)
-04. RetroVision - Take Me Higher w/Gotye ft. Kimbra - Somebody That I Used To Know (Acappella) w/RetroVision & Seth Hills - Bass w/Katy Perry ft. Snoop Dogg - California Gurls (Acappella)Жанр: Bass House, Big RoomПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E2821C7D8D316A03D63DE7790E10685180F770BF
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/vkwpmnr/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 710
-
-VA - Autumn Collection 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. Asida Aya - Don't Give Up (Original Mix) [6:17]
-02. Edvard Hunger - My Life (Original Mix) [6:22]
-03. Edvard Hunger - Together (Original Mix) [8:04]
-04. Dimas Mixon - Road To Cosmos (Original Mix) [9:35](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:23:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:03FEECABAE2812A88C9E48B4F5FB9AE67888D01C
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/HY2NS7h/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 677
-
-Space 92 - Live @ Drumcode, Awakenings, Gashouder, ADE, Netherlands (2024-10-17) [MP3|320 Kbps] <Techno>
-Electronic
-Radioshow, Live Mixes
-
-###  Подробнее
-
-01. Space 92 - Robot
-02. Jose Bonetto - Within
-03. Layton Giordani - New Generation (Space 92 Remix)
-04. TimiR & Franco Smith - Nasty(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5F3725B69BD73F9CE694520DE58859CF5D00FBB2
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/FwtmnN6/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 659
-
-HI-LO & Space 92 - Mixmag Crane Sessions, Amsterdam Dance Event, Netherlands (2023-10-19) [MP3|320 Kbps] <Techno>
-Electronic
-Radioshow, Live Mixes
-
-###  Подробнее
-
-01. HI-LO & Space 92 vs. The Prodigy - Genesis vs. Smack My Bitch Up (HI-LO Mashup)
-02. NG Rezonance & Jason Nawty - Madame (Space 92 Edit) w/Daft Punk - Technologic (Space 92 Edit)
-03. Creeds vs. Peggy Gou vs. HI-LO & Space 92 - Push Up vs. (It Goes Like) Nanana vs. Mercury (Oliver Heldens Mashup)
-04. HI-LO & Space 92 - ORION(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:27:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1DB4F1D322E1873C554B3878C26456A090AB71A5
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/J7V0BKX/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 642
-
-Sultan + Shepard - Circle In Time: The Trilogy (2024) [MP3|320 Kbps] <EDM, Progressive House>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. Murmur [00:04:15]
-02. I'll Be Here [00:04:52]
-03. Back Through You [00:05:19]
-04. Cloud Lifter [00:04:22](   Читать дальше...   )Жанр: EDM, Progressive HouseПродолжительность: 3 CD, 03:55:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF8525970B3D3B20EB4E4CFAA46F1405143B48F8
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/NWDNDpX/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 761 639
-
-Frank Walker - Live @ Mainstage, Veld Music Festival, Canada (2024-08-03) [MP3|320 Kbps] <Dance, Electro Pop, Mashup>
-Electronic
-Radioshow, Live Mixes
-
-###  Подробнее
-
-01. Frank Walker & Ella Henderson vs. DubVision - I Go Dancing vs. P.R.O.G.2 (Frank Walker Intro Edit)
-02. Teddy Swims & Tiësto vs. Breathe Carolina & Ryos & SGNLS & Faybl - Lose Control vs. Novocaine
-03. Becky Hill & Chase & Status & Tiësto vs. Fred Again.. & Baby Keem vs. Sentinel - Disconnect vs. leavemealone vs. Get (   Читать дальше...   )Жанр: Dance, Electro Pop, MashupПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7A6B687456E88FCFFE38BAE4D84670B0A3511E5E
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/Stpg4C0/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/c8yYSgw/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

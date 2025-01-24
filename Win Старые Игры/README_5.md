@@ -1,4 +1,158 @@
 ﻿
+###  Публикация: 1 301 486
+
+SiN  1998  [En]  1.13b dlc  License GOG [Gold]
+Win Старые Игры
+Action  FPS 
+
+###  Подробнее
+
+Если директор SinTEK Industries распространяет таблетки, изменяющие ДНК, – значит, пора пересмотреть законы морали. Если все та же коварная женщина-биохимик собирается захватить мир при помощи армии мутантов, – значит, пора переписать золотое правило нравственности. Вы – полковник Джон Блэйд, начальник самого известного частного охранного агентства Фрипорта. Элексис     Читать дальше...    Тип издания: LicenseРазработчик: Ritual EntertainmentЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:54BCACB0FB9E1D111C7DB6F68BDF0234B1ADB543
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/7ydzSyZ/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 301 387
+
+Star Wars: Battlefront  2004  [En]  1.3.7.4  License GOG
+Win Старые Игры
+Action  FPS 
+
+###  Подробнее
+
+Потрясающий шутер во вселенной Звездных Войн. Захватывающие массовые баталии по сети и три режима одиночной игры: Сражение, Завоевание Галактики и Исторических компании, содержавших все знаменитые битвы I-IV эпизодов кинофильма. Динамические действия среди ландшафтов родного Татуина и Набу, а также на 8 других планетах. Обзор от первого и третьего лица, управление     Читать дальше...    Тип издания: LicenseРазработчик: Pandemic StudiosЖанр: Action  Shooter , 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:02C8F8641FA3BEFD88243B0BF74E9A0E592D0826
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/kh5CXH0/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 301 121
+
+Command & Conquer: Red Alert 3  2008  [Ru Multi]  1.12  License PROPHET
+Win Старые Игры
+Strategy  RTS TBS Grand 
+
+###  Подробнее
+
+Red Alert 3 - Uprising представляет собой глобальное дополнение оригинальной игры, состоящее из нескольких кампаний для индивидуального прохождения. Сюжет Command & Conquer Red Alert 3: Uprising повествует о событиях, случившихся после окончания мировой войны.Тип издания: LicenseРазработчик: EA Los AngelesЖанр: Strategy  Real-time , 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:51F22865475845F2ED46B2F040B88AF99305DAEB
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/9Z4tT3c/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 894
+
+Command & Conquer 3: Tiberium Wars  2007  [Ru]  1.09  Repack xatab
+Win Старые Игры
+Strategy  RTS TBS Grand 
+
+###  Подробнее
+
+Command & Conquer 3: Tiberium Wars — компьютерная игра в жанре «стратегия в реальном времени», разработанная компанией Electronic Arts Los Angeles для ОС Windows и игровой приставки Xbox 360, долгожданное пополнение в линейке игр серии Command & Conquer.Тип издания: RepackРазработчик: EA Los AngelesЖанр: Strategy  Real-time , 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF80539C8DBC771EE87408333734A7736E916691
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/jMqBcR7/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 715
+
+Command & Conquer 3: Tiberium Wars  2007  [Ru Multi]  1.09  License PROPHET
+Win Старые Игры
+Strategy  RTS TBS Grand 
+
+###  Подробнее
+
+Command & Conquer 3: Tiberium Wars — компьютерная игра в жанре «стратегия в реальном времени», разработанная компанией Electronic Arts Los Angeles для ОС Windows и игровой приставки Xbox 360, долгожданное пополнение в линейке игр серии Command & Conquer.Тип издания: LicenseРазработчик: EA Los AngelesЖанр: Strategy  Real-time , 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:301A07ADAB9FEB8196B9993CDC8944812DEB4A7C
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/jMqBcR7/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 704
+
+Command & Conquer 3: Kane’s Wrath   Ярость Кейна  2008  [Ru]  1.02  Repack xatab
+Win Старые Игры
+Strategy  RTS TBS Grand 
+
+###  Подробнее
+
+Борьба между Братством NOD и силами GDI продолжается! Непримиримая война за тиберий вспыхнула с новой силой, а в центре событий оказался сам Кейн — харизматичный лидер бунтарей. Command & Conquer 3 Ярость Кейна раскрывает историю самого главного преступника планеты.Тип издания: RepackРазработчик: BreakAway Limited, EA Los AngelesЖанр: 3D, StrategyЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C7A4B3B2703062FAD4A7D80DE5F80AA8F7C741A
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/dKxQ6BM/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 451
+
+Empire Earth 3  2007  [En]  1.0  License GOG
+Win Старые Игры
+Strategy  RTS TBS Grand 
+
+###  Подробнее
+
+Создайте могущественное государство в протяженной кампании, охватывающей всю Землю. Постройте свою империю, выбрав одну из трех фракций или придумав собственную. Сделайте из зарождающейся державы доминирующую силу, чтобы вступить в схватку за планету. Мировое господство совсем близко. Впервые в серии Empire Earth именно вы вершите историю. Земля поделена на несколько     Читать дальше...    Тип издания: LicenseРазработчик: Mad Doc SoftwareЖанр: Стратегия, В реальном времени, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:56436AB164FE7B580B20384653E625A59A95E629
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/w4LPSP5/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 299 776
 
 Chris Swayer s Locomotion  2004  [En]  4.02.176  License GOG
@@ -15,7 +169,7 @@ Strategy  Manage Busin
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/h1W9zXr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/h1W9zXr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -37,7 +191,7 @@ Action  TPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/WGzGvLC/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/WGzGvLC/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -59,7 +213,7 @@ Strategy Tactical  RTS TBS Wargame
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zfPYH80/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zfPYH80/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,7 +235,7 @@ Strategy Tactical  RTS TBS Wargame
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LN2hQ2h/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LN2hQ2h/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,7 +257,7 @@ Arcade
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/m9JW8hY/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/m9JW8hY/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,7 +279,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/xYwZsTd/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/xYwZsTd/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,7 +301,7 @@ Strategy  RTS TBS Grand
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/fnXhPwc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/fnXhPwc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,7 +323,7 @@ Strategy  RTS TBS Grand
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/yQZF8jc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/yQZF8jc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,7 +345,7 @@ Arcade
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RP0xdRZ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RP0xdRZ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,7 +367,7 @@ Strategy  RTS TBS Grand
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Mcb5qVG/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Mcb5qVG/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,7 +389,7 @@ RPG
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/7QVTnq1/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/7QVTnq1/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,7 +411,7 @@ Brothers in Arms: Hell s Highway является третьей частью в
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/B2jc8Nj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/B2jc8Nj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,7 +433,7 @@ Action  FPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/rGhgp1G/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/rGhgp1G/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,7 +455,7 @@ Brothers in Arms: Earned in Blood — это тактический шутер, 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JtP2pgL/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/JtP2pgL/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,7 +477,7 @@ Brothers in Arms: Hell s Highway является третьей частью в
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/R4bpdfq/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/R4bpdfq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,7 +499,7 @@ Action  TPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3vjHKYV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3vjHKYV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,7 +521,7 @@ Action  TPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/CWXKHzs/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/CWXKHzs/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,7 +543,7 @@ Action  FPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/f427Ngd/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/f427Ngd/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,7 +565,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RT2nHt6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RT2nHt6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,7 +587,7 @@ Strategy Tactical  RTS TBS Wargame
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/DtSsVzt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/DtSsVzt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,7 +609,7 @@ Action  FPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hM40sHP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hM40sHP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,7 +631,7 @@ Action  TPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/fqwWVbm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/fqwWVbm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,7 +653,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Y7T2GBY/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Y7T2GBY/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,7 +675,7 @@ Simulation  Other
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JjzCqy7/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/JjzCqy7/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,7 +697,7 @@ Tomb Raider III – присоединяйтесь к Ларе Крофт в е�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/s6YL7Pm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/s6YL7Pm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,7 +719,7 @@ Strategy  RTS TBS Grand
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/CwzV3Nr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/CwzV3Nr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,7 +741,7 @@ Strategy Tactical  RTS TBS Wargame
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/bXFGLp1/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/bXFGLp1/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,7 +763,7 @@ RPG
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3c7YPHz/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3c7YPHz/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,7 +785,7 @@ SuperPower 2 – единственный глобальный геополит�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/x3frcBk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/x3frcBk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,7 +807,7 @@ Strategy (RTS/TBS/Grand)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/GJRjpvy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/GJRjpvy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,7 +829,7 @@ Strategy Tactical  RTS TBS Wargame
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/7VV9gFm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/7VV9gFm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,7 +851,7 @@ Shaolin vs Wutang - это файтинг, выполненный в аркад�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/T8yhqSS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/T8yhqSS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -719,7 +873,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/kBSq3DT/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/kBSq3DT/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -741,7 +895,7 @@ Action (FPS)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/w6ZRg0k/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/w6ZRg0k/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -763,7 +917,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/DbqVwGm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/DbqVwGm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -785,7 +939,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3FJY5Rv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3FJY5Rv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -807,7 +961,7 @@ Adventure/Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/pK8mQd2/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/pK8mQd2/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -829,7 +983,7 @@ RPG
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MVLn069/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MVLn069/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -851,7 +1005,7 @@ Metal Fatigue - стратегия в реальном времени, кото�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/C8ChLRT/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/C8ChLRT/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -873,7 +1027,7 @@ Adventure/Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZhTpjL7/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZhTpjL7/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -895,7 +1049,7 @@ Action  FPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/47Ws5Lj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/47Ws5Lj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -917,7 +1071,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4dJY2wj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4dJY2wj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -939,7 +1093,7 @@ Adventure/Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mS5hHgV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mS5hHgV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -961,7 +1115,7 @@ Adventure/Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/QD9SFgG/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/QD9SFgG/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -983,7 +1137,7 @@ Strategy Tactical  RTS TBS Wargame
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hgTM3Pj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hgTM3Pj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1005,7 +1159,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zVsbCpL/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zVsbCpL/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1027,7 +1181,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/XZTYXFV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/XZTYXFV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1049,7 +1203,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/D19K2qX/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/D19K2qX/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1071,7 +1225,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/nQ1RnQv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/nQ1RnQv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1093,7 +1247,7 @@ Simulation  Other
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RT0WSVP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RT0WSVP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1115,7 +1269,7 @@ Strategy Tactical  RTS TBS Wargame
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hX7DfyL/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hX7DfyL/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1137,7 +1291,7 @@ Action  TPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zx2204L/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zx2204L/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1159,7 +1313,7 @@ Action  TPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PML81gP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PML81gP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1181,7 +1335,7 @@ Action  FPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4M1XK7m/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4M1XK7m/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1203,7 +1357,7 @@ Action  TPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/wwKTGkp/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/wwKTGkp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1225,7 +1379,7 @@ RPG
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/870qT2L/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/870qT2L/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1247,7 +1401,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/5hV3yts/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/5hV3yts/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1269,7 +1423,7 @@ Athens 2004 - официальная игра XXVIII летних Олимпий
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zVL5RkP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zVL5RkP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1291,7 +1445,7 @@ Racing
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/9smKWX2/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/9smKWX2/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1313,7 +1467,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/B4SmfZ3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/B4SmfZ3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1335,7 +1489,7 @@ Action  FPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/25kHTvV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/25kHTvV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1357,7 +1511,7 @@ Strategy Tactical  RTS TBS Wargame
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/K9WDQtF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/K9WDQtF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1379,7 +1533,7 @@ Adventure Quest
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/X4WNzGt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/X4WNzGt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1401,7 +1555,7 @@ Action  TPS
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MczyvKv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MczyvKv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1423,7 +1577,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/1v7kKkJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/1v7kKkJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1445,7 +1599,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PT7hRpJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PT7hRpJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1467,7 +1621,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/tZL9VV6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/tZL9VV6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1489,7 +1643,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/dcKwbbk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/dcKwbbk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1511,7 +1665,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/C1MkBwj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/C1MkBwj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1533,7 +1687,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/bmqq5F8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/bmqq5F8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1555,7 +1709,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4RNCsCD/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4RNCsCD/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1577,7 +1731,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KVsk3Ph/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KVsk3Ph/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1599,161 +1753,7 @@ Simulation  Sport
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KFnxdWh/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 203 486
-
-Alpine Skiing 2005  2004  [En Ge]  1.88  Repack CoD - MW2
-Win Старые Игры
-Simulation  Sport 
-
-###  Подробнее
-
-Горные лыжи — весьма популярный вид спорта. Разумеется, нельзя пройти мимо Alpine Skiing  2005 , одного из двух горнолыжных симуляторов. В игре представлено четыре дисциплины: Slalom, Giant Slalom, Super G и Downhill. Мягко падающие снежинки, мерно раскачивающиеся пушистые ели, снежные просторы, на закате превращающиеся в огромный золотой слиток. Удивительно, но     Читать дальше...    Тип издания: RepackРазработчик: 49GamesЖанр: Sport  Winter Sropt, Skiing , 3D, 1 st Person, 3 rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D4833679EB15C10A788F8DA6ABE8F8D559EAF241
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/HnbKvDB/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 203 475
-
-Salt Lake 2002  2002  [En]  1.0  Repack CoD - MW2
-Win Старые Игры
-Simulation  Sport 
-
-###  Подробнее
-
-Salt Lake 2002 является официальной игрой XIX зимних Олимпийских игр, которые прошли в американском городе Солт-Лейк-Сити в 2002 году. В проекте представлено шесть различных видов спорта, состоящих из ряда престижных зимних соревнований. В каждом из них у вас будет уникальная возможность посоревноваться за звание Олимпийского чемпиона.Тип издания: RepackРазработчик: Attention To DetailЖанр: Sport  Winter Sport, Olympics , 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9BBF6B78A2280A50065C13BB28B554279FBD7FFC
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/6wDqH5N/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 203 304
-
-Carmageddon 2: Carpocalypse Now  1998  [En]  1.0  License GOG
-Win Старые Игры
-Racing
-
-###  Подробнее
-
-Первый в мире скоростной симулятор изъятия органов возвращается в трехмерной графике! Побоище еще более кровавое, части тела отлетают еще дальше, повреждения еще более тяжелые. Крушите и жгите изумленные трехмерные толпы, выжав педаль газа. Уничтожайте противников любым способом – чем изобретательней, тем больше награда. Без правил, без компромиссов, БЕЗ ЖАЛОСТИ!Тип издания: LicenseРазработчик: Stainless SoftwareЖанр: Экшн, Сражения, РаллиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44A369AE36F3A829364466A9E652CFF84C96B2DA
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/cyBLwTy/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 202 231
-
-POSTAL: Classic and Uncut  2003  [En]  1.0-05.07.2018 dlc  License GOG
-Win Старые Игры
-Arcade
-
-###  Подробнее
-
-Реалистичный психологический триллер с непрекращающейся чередой убийств, запрещенный более чем в десяти странах. Никаких пришельцев, мутантов и убийств драконов. Лишь добротный, до безумия антиобщественный кровопролитный боевик с элементами стратегии и вмешательством правительства. Пройдите 17 уровней, взрывая, сметая и калеча всех и вся на своем пути  а в дополнении     Читать дальше...    Тип издания: LicenseРазработчик: Running With ScissorsЖанр: Action  Shooter , 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EEB123CD85BEA93671DC184CB9A4AEC73C105931
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/3cPrVTQ/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 201 788
-
-Postal 2  2003  [Ru Multi]  5024 dlc  License GOG [Uncut Version]
-Win Старые Игры
-Action  FPS 
-
-###  Подробнее
-
-Игра, возродившая серию! У Чувака первый рабочий день в компании RWS. Тут-то и начинается веселье! Подеритесь с копами! Задайте жару прохожим! Проучите террорюг! Купите молоко! Получите автограф Гэри Коулмана! Забудьте все, что вы знали о шутерах с видом от первого лица. Влезьте на недельку в шкуру Чувака из Postal. Вас ждет открытый трехмерный мир, более ста уникальных     Читать дальше...    Тип издания: LicenseРазработчик: Running With ScissorsЖанр: Action  Shooter , 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, ПольскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:221BF8288B8939DE4C9D53497BB50E9C291CC6CE
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/5WPMMjh/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 200 942
-
-Carmageddon Max Pack  1997  [En]  1.0 dlc  License GOG
-Win Старые Игры
-Racing
-
-###  Подробнее
-
-Садитесь за руль и крушите машины неудачников, оказавшихся, на вашем пути. Вместо саундтрека вы услышите скрежет металла, брызги машинного масла о лобовое стекло и визг покрышек на поворотах. Крепче держитесь за руль, ведь перед вами на выбор 23 крэшмобиля  от жуткого монстр-трака до сверхскоростного дрэгстера  и более 30 уровней, полных адовой ярости и ужаса на     Читать дальше...    Тип издания: LicenseРазработчик: Stainless SoftwareЖанр: Экшн, Сражения, РаллиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7C8A557E81319DCA3C122230109DC182089B91F0
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/gV89qGP/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 200 143
-
-Carmageddon TDR 2000   Кармагеддон. Колеса смерти  2000  [En]  1.0  License GOG
-Win Старые Игры
-Racing
-
-###  Подробнее
-
-Carmageddon TDR2000 - продолжение игры Carmageddon и Carmageddon II. Она была разработана Torus Games, и выпущена в 2000 году. В России известна как Кармагеддон: Колёса Смерти и переведена компанией Новый Диск. Как и в предыдущих играх серии в некоторых странах заменяли человеческих пешеходов на зомби, фактически только изменяя озвучивание, цвет крови и кожи на зелёныйТип издания: LicenseРазработчик: Torus GamesЖанр: Action, Arcade, Racing  Cars, Futuristic , 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E41D4EB4D75BB16E4CD6FE78911F79FB9BAFD6C4
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/9HYbScH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KFnxdWh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

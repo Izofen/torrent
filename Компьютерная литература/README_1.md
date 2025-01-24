@@ -1,4 +1,48 @@
 ﻿
+###  Публикация: 1 652 528
+
+Кэти Танимура | SQL для анализа данных  2024  [PDF]
+Компьютерная литература
+Программирование
+
+###  Подробнее
+
+Рассказывается о возможностях SQL применительно к анализу данных. Сравниваются различные типы баз данных, описаны методы подготовки данных для анализа. Рассказано о типах данных, структуре SQL-запросов, профилировнии, структурировании и очистке данных. Описаны методы анализа временных рядов, трендов, приведены примеры анализа данных с учетом сезонности. Отдельные     Читать дальше...    Жанр: ПрограммированиеПеревод: Игорь ДонченкоИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D78974150451FA1CA71D00A68FD13927D9FE8D6B
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/D8ZW2w3/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 652 081
+
+Анатолий Постолит | Python, Django и Bootstrap для начинающих  2023  [PDF]
+Компьютерная литература
+Программирование
+
+###  Подробнее
+
+Книга посвящена вопросам разработки веб-приложений с использованием языка Python, фреймворков Django, Bootstrap и интерактивной среды разработки PyCharm. Рассмотрены основные технологии и рабочие инструменты создания веб-приложений. Описаны фреймворки Django, Bootsrtap и структура создаваемых веб-приложений. На простых примерах показана обработка и маршрутизация     Читать дальше...    Жанр: ПрограммированиеИздательство: БХВ СПбФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C949850BB68614F199E82CEB58214D689DE3CCE2
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/M5YPJtx/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 651 614
 
 Скотт Чакон, Бен Штрауб | Pro Git - профессиональный контроль версий (2016) [PDF, EPUB, FB2]
@@ -15,7 +59,7 @@ Pro Git (2-е изд.) – это полностью обновленное ру
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ccRg9V1/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ccRg9V1/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -37,7 +81,7 @@ Pro Git (2-е изд.) – это полностью обновленное ру
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/N6ZGRm8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/N6ZGRm8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,7 +104,7 @@ Pro Git (2-е изд.) – это полностью обновленное ру
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/L9WrjJV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/L9WrjJV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,7 +126,7 @@ Pro Git (2-е изд.) – это полностью обновленное ру
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/p0ndHPF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/p0ndHPF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,7 +148,7 @@ Pro Git (2-е изд.) – это полностью обновленное ру
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/z6NrYFd/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/z6NrYFd/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,7 +170,7 @@ Pro Git (2-е изд.) – это полностью обновленное ру
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HC23whm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HC23whm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,7 +192,7 @@ Pro Git (2-е изд.) – это полностью обновленное ру
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0FhZxCH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0FhZxCH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,7 +216,7 @@ b]Формат:
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FBCT8GZ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FBCT8GZ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,7 +238,7 @@ b]Формат:
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/x3bnXCf/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/x3bnXCf/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,7 +261,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0VBK2hk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0VBK2hk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,7 +283,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0JZJSwz/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0JZJSwz/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,7 +305,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/c65P0w5/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/c65P0w5/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,7 +327,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MRJTmKV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MRJTmKV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,7 +352,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/L6Dxz5b/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/L6Dxz5b/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,7 +374,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3ph1hSm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3ph1hSm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,7 +396,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SsJW43G/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SsJW43G/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,7 +418,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/k9d9K5T/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/k9d9K5T/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,7 +441,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/tMVpb2Z/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/tMVpb2Z/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,7 +463,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/YfYMH6h/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/YfYMH6h/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,7 +486,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/C2sfG9t/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/C2sfG9t/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,7 +508,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/9qr5H6N/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/9qr5H6N/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,7 +530,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PTtZQ04/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PTtZQ04/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,7 +552,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZM4JC15/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZM4JC15/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,7 +574,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Pmhb3Tn/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Pmhb3Tn/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,7 +596,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/54q5m1T/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/54q5m1T/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,7 +618,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/wcW2Fbr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/wcW2Fbr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,7 +640,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/t8krZqQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/t8krZqQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,7 +662,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mqbdgfN/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mqbdgfN/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,7 +684,7 @@ Swift известен как язык разработки приложений
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Lh8wSJV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Lh8wSJV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,7 +708,7 @@ Machine Minds AI | Building Javascript Apps with Chat GPT (2023) [PDF] [EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZhKPcp7/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZhKPcp7/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,7 +730,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/C24HKhH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/C24HKhH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,7 +752,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/r2Zg7kQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/r2Zg7kQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -731,7 +775,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/27m6Nvv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/27m6Nvv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -754,7 +798,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/k9L2f49/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/k9L2f49/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -776,7 +820,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/qdttsXS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/qdttsXS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -798,7 +842,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/8MBPK6R/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/8MBPK6R/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -820,7 +864,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/6gKyRfS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/6gKyRfS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -842,7 +886,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/WByJVWh/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/WByJVWh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -864,7 +908,7 @@ Python — язык программирования №1 для машинно�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZWNgWc4/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZWNgWc4/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -887,7 +931,7 @@ Python — язык программирования №1 для машинно�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/232yZXd/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/232yZXd/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -909,7 +953,7 @@ Professional developers will produce leaner applications for the ASP.NET Core pl
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4WMJ7hH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4WMJ7hH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -931,7 +975,7 @@ Professional developers will produce leaner applications for the ASP.NET Core pl
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Y86SkYY/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Y86SkYY/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -955,7 +999,7 @@ Understanding Java from the JVM up gives you a solid foundation to grow     Ч�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JF9gxpY/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/JF9gxpY/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -977,7 +1021,7 @@ Understanding Java from the JVM up gives you a solid foundation to grow     Ч�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/TmJp1vX/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/TmJp1vX/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -999,7 +1043,7 @@ Understanding Java from the JVM up gives you a solid foundation to grow     Ч�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3BLpYp6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3BLpYp6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1021,7 +1065,7 @@ Understanding Java from the JVM up gives you a solid foundation to grow     Ч�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/gWzF13p/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/gWzF13p/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1044,7 +1088,7 @@ Understanding Java from the JVM up gives you a solid foundation to grow     Ч�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/x8p76qj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/x8p76qj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1067,7 +1111,7 @@ Selenium - это швейцарский нож в руках программи
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mRD6wTW/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mRD6wTW/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1089,7 +1133,7 @@ Selenium - это швейцарский нож в руках программи
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4P2T1hP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4P2T1hP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1113,7 +1157,7 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Msw1xYW/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Msw1xYW/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1137,7 +1181,7 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HtnHP5p/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HtnHP5p/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1161,7 +1205,7 @@ Selenium WebDriver is a popular browser automation framework. Testers or develop
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/h2mjN4M/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/h2mjN4M/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1185,7 +1229,7 @@ Selenium WebDriver is a popular browser automation framework. Testers or develop
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/92vgQCH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/92vgQCH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1207,7 +1251,7 @@ Selenium WebDriver is a popular browser automation framework. Testers or develop
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HdZpwqx/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HdZpwqx/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1229,7 +1273,7 @@ Selenium WebDriver is a popular browser automation framework. Testers or develop
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/rQCh2gv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/rQCh2gv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1253,7 +1297,7 @@ Selenium WebDriver is a popular browser automation framework. Testers or develop
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/CWZ2BwK/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/CWZ2BwK/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1275,7 +1319,7 @@ Selenium WebDriver is a popular browser automation framework. Testers or develop
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mzDgkcg/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mzDgkcg/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1299,7 +1343,7 @@ If you feel like you may have seen     Читать дальше...    Жанр
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/j40N9FQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/j40N9FQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1323,7 +1367,7 @@ Krasimir Tsonev | 50 Tips on JavaScript: 50 of the most interesting features, co
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KwTw4C4/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KwTw4C4/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1345,7 +1389,7 @@ Krasimir Tsonev | 50 Tips on JavaScript: 50 of the most interesting features, co
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/GsjqyJc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/GsjqyJc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1367,7 +1411,7 @@ Krasimir Tsonev | 50 Tips on JavaScript: 50 of the most interesting features, co
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/xFy51BC/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/xFy51BC/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1389,7 +1433,7 @@ Krasimir Tsonev | 50 Tips on JavaScript: 50 of the most interesting features, co
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RznQJfn/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RznQJfn/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1411,7 +1455,7 @@ Steve Belovarich | Fullstack Web Components  2020  [PDF, EPUB, MOBI] [EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/myg2H68/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/myg2H68/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1436,7 +1480,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HDs3mmW/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HDs3mmW/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1458,7 +1502,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/YTk5Dg5/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/YTk5Dg5/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1480,7 +1524,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/qB4K5M3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/qB4K5M3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1502,7 +1546,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HzkN2rc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HzkN2rc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1524,7 +1568,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/16fMccM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/16fMccM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1546,7 +1590,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/gTTpDfk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/gTTpDfk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1568,7 +1612,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HxXKG3L/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HxXKG3L/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1590,7 +1634,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/996sTj5/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/996sTj5/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1612,7 +1656,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/pjzgH88/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/pjzgH88/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1634,7 +1678,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/BPLPKgs/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/BPLPKgs/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1656,7 +1700,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Z62PfZ5/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Z62PfZ5/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1678,7 +1722,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/23g5msh/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/23g5msh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1700,7 +1744,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package  2022  [PDF] [E
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/5TsVjJz/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/5TsVjJz/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1722,7 +1766,7 @@ Eric Windmill | Flutter in Action 1st Edition  2019  [EPUB] [EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/yhfcgNJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/yhfcgNJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1746,51 +1790,7 @@ Herbert Schildt | Java: A Beginner s Guide, Ninth Edition  2022  [EPUB] [EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/fSt1cBx/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 558 485
-
-Мэтт Зандстра | PHP 8: объекты, шаблоны и методики программирования, 6-е издание  2021  [PDF]
-Компьютерная литература
-Программирование
-
-###  Подробнее
-
-В этой книге рассматриваются методики объектно-ориентированного программирования на PHP и применение главных принципов проектирования программного обеспечения на основе классических проектных шаблонов, а также описываются инструментальные средства и нормы практики разработки, тестирования, непрерывной интеграции и развертывания надежного прикладного кода. Настоящее,     Читать дальше...    Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:96917E58E127EDED6746418AD628D1C896BC4E70
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/tZnLzXq/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 558 134
-
-Коллектив авторов | Большая библиотека программирования на Python  121 книга на русском + англоязычные шпаргалки   2010 - 2022  [PDF, DJVU] [О
-Компьютерная литература
-Программирование
-
-###  Подробнее
-
-Серия  Библиотека программиста  предназначена как для опытных мастеров своего дела, так и для тех, кто только приступил к изучению программирования. В данном выпуске библиотеки книги повящённые изучению Python.Жанр: Компьютерная литератураФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5BB02F460E4804C383A62BEC4DDD046F63853B7E
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/NsCBcTd/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/fSt1cBx/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

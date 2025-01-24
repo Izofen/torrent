@@ -1,4 +1,51 @@
 ﻿
+###  Публикация: 1 420 840
+
+Борис Черный | Профессиональный TypeScript. Разработка масштабируемых javascript-приложений  2021  [PDF]
+Компьютерная литература
+Горячие новинки
+
+###  Подробнее
+
+Любой программист, работающий с языком с динамической типизацией, подтвердит, что задача масштабирования кода невероятно сложна и требует большой команды инженеров. Вот почему Facebook, Google и Microsoft придумали статическую типизацию для динамически типизированного кода.
+Работая с любым языком программирования, мы отслеживаем исключения и вычитываем код строку     Читать дальше...    Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A80EDC3D9825A5A4663F6F452CE276627CBB4CA6
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/JRbPSZt/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 419 191
+
+Уэс МакДермотт | PBR руководство от Allegorithmic   The PBR Guide by Allegorithmic [2 части]  2018  [PDF] [Ru En]
+Компьютерная литература
+3D графика
+
+###  Подробнее
+
+Allegorithmic - лидер отрасли в области технологий 3D-текстурирования с его отмеченным наградами набором программ Substance.
+Эта книга, написанная Уэсом МакДермоттом и перепроверенная экспертами в этой области, описывает принципы физически корректного рендеринга  PBR  и содержит практические рекомендации по текстурированию PBR.
+В первой части книги рассматриваются     Читать дальше...    Жанр: 3D графика, ТекстурированиеФормат: PDF
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8793721C6EF9BED0F1BF4F3C364CEF307C69EBDF
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/4Wh1Cmr/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 417 622
 
 Д.М. Златопольский | 1400 задач по программированию  2020  [PDF]
@@ -15,7 +62,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/cwsVr9w/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/cwsVr9w/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -37,7 +84,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/GcjH668/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/GcjH668/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -59,7 +106,7 @@ HTML, CSS и JavaScript в простых шагах инструктируют 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/N1RBnS3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/N1RBnS3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,7 +128,7 @@ HTML, CSS и JavaScript в простых шагах инструктируют 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MBVH15t/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MBVH15t/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,7 +150,7 @@ HTML, CSS и JavaScript в простых шагах инструктируют 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/J2fdKqk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/J2fdKqk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,7 +172,7 @@ HTML, CSS и JavaScript в простых шагах инструктируют 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/T8kL8BK/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/T8kL8BK/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,7 +194,7 @@ HTML, CSS и JavaScript в простых шагах инструктируют 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Z1Q8nWb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Z1Q8nWb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,7 +216,7 @@ HTML, CSS и JavaScript в простых шагах инструктируют 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PC0zjdQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PC0zjdQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,7 +239,7 @@ API позволяет разработчикам выполнять интег�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/NFbJrcJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/NFbJrcJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,7 +264,7 @@ This Books Absolutely For Beginners:
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/jbXM3tN/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/jbXM3tN/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,7 +289,7 @@ This Books Absolutely For Beginners:
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4V93nJm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4V93nJm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,7 +311,7 @@ Kubernetes – один из ключевых элементов совреме�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/30Zx3Sr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/30Zx3Sr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,7 +333,7 @@ Fabien Potencier | Symfony 5. The Fast Track   Фабьен Потенсье | S
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/X4pxLh0/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/X4pxLh0/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,7 +355,7 @@ Android для начинающих проведет вас через проц�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/cXYwShr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/cXYwShr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,7 +377,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/n6gtG3S/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/n6gtG3S/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,7 +399,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/g9fhfkb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/g9fhfkb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,7 +421,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/CPZ5NW3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/CPZ5NW3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,7 +443,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/m9BdMR3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/m9BdMR3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,7 +466,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3p87V2r/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3p87V2r/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,7 +488,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/TH07TJq/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/TH07TJq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,7 +511,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SQ3GWg3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SQ3GWg3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,7 +534,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0JsfhNz/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0JsfhNz/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,7 +556,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/GVyCy30/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/GVyCy30/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,7 +580,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/L8bR61t/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/L8bR61t/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,7 +602,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/fCPLQpb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/fCPLQpb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,7 +624,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RTBk1Qj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RTBk1Qj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,7 +647,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/M12Tf42/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/M12Tf42/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,7 +670,7 @@ Kutub Thakur, Al-Sakib Khan Pathan | Cybersecurity Fundamentals: A Real-World Pe
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3rxSVCT/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3rxSVCT/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,7 +693,7 @@ TypeScript - это типизированный расширенный набо
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/jzM9q2r/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/jzM9q2r/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,7 +716,7 @@ Packt Publishing | Книги по Blender на русском языке [+ Sup
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ckQLbGZ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ckQLbGZ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,7 +739,7 @@ Packt Publishing | Книги по Blender на русском языке [+ Sup
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/pvZ2vWM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/pvZ2vWM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -714,7 +761,7 @@ Packt Publishing | Книги по Blender на русском языке [+ Sup
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vd2R8Mb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vd2R8Mb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -736,7 +783,7 @@ Cycles — это движок рендеринга, который впервы
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Z6hzCGx/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Z6hzCGx/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -758,7 +805,7 @@ Kirupa Chinnathambi   Кирупа Чиннатхамби | Javascript Absolute 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/j8xk4jM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/j8xk4jM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -780,7 +827,7 @@ Kirupa Chinnathambi   Кирупа Чиннатхамби | Javascript Absolute 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Vq29RyJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Vq29RyJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -802,7 +849,7 @@ Kirupa Chinnathambi   Кирупа Чиннатхамби | Javascript Absolute 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/F76SrG9/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/F76SrG9/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -825,7 +872,7 @@ Kirupa Chinnathambi   Кирупа Чиннатхамби | Javascript Absolute 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/pzXtDpX/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/pzXtDpX/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -847,7 +894,7 @@ Kirupa Chinnathambi   Кирупа Чиннатхамби | Javascript Absolute 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/93BqHV8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/93BqHV8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -871,7 +918,7 @@ Kirupa Chinnathambi   Кирупа Чиннатхамби | Javascript Absolute 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0mdb0T2/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0mdb0T2/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -893,7 +940,7 @@ Kirupa Chinnathambi   Кирупа Чиннатхамби | Javascript Absolute 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Q6bcVVF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Q6bcVVF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -917,7 +964,7 @@ Kirupa Chinnathambi   Кирупа Чиннатхамби | Javascript Absolute 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/X50CtPt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/X50CtPt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -939,7 +986,7 @@ Kirupa Chinnathambi   Кирупа Чиннатхамби | Javascript Absolute 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JC0fsXB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/JC0fsXB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -961,7 +1008,7 @@ Dusan Petkovic | Microsoft SQL Server 2019: A Beginner s Guide, 7th Edition   Mi
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/tmP1mZF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/tmP1mZF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -983,7 +1030,7 @@ Dusan Petkovic | Microsoft SQL Server 2019: A Beginner s Guide, 7th Edition   Mi
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/gdVtVGh/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/gdVtVGh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1005,7 +1052,7 @@ Dusan Petkovic | Microsoft SQL Server 2019: A Beginner s Guide, 7th Edition   Mi
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Jx52hdJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Jx52hdJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1028,7 +1075,7 @@ Blender - это бесплатная графическая программа 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/YBTdJSH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/YBTdJSH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1050,7 +1097,7 @@ Blender - это бесплатная графическая программа 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FV4dvqD/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FV4dvqD/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1075,7 +1122,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/2S6pV22/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/2S6pV22/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1097,7 +1144,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HqHTbcB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HqHTbcB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1119,7 +1166,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/pwNjMsj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/pwNjMsj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1141,7 +1188,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/nQDwsJT/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/nQDwsJT/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1163,7 +1210,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LnqZsLR/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LnqZsLR/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1187,7 +1234,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/bKc3K2w/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/bKc3K2w/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1211,7 +1258,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/f2Qgwpd/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/f2Qgwpd/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1233,7 +1280,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/bLyWGZj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/bLyWGZj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1255,7 +1302,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/tbkYnxQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/tbkYnxQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1277,7 +1324,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/cFhR6v6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/cFhR6v6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1301,7 +1348,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/M2nRRBs/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/M2nRRBs/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1323,7 +1370,7 @@ Go – превосходный системный язык. Созданный 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/2qNFvcs/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/2qNFvcs/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1345,7 +1392,7 @@ Python — один из наиболее популярных современ�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/TqDt6B6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/TqDt6B6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1367,7 +1414,7 @@ Python — один из наиболее популярных современ�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/fSLg7Lh/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/fSLg7Lh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1389,7 +1436,7 @@ Python — один из наиболее популярных современ�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/P6RB9v0/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/P6RB9v0/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1414,7 +1461,7 @@ Python — один из наиболее популярных современ�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/stsZ4h8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/stsZ4h8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1436,7 +1483,7 @@ Python — один из наиболее популярных современ�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/7QJK54c/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/7QJK54c/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1458,7 +1505,7 @@ Python — один из наиболее популярных современ�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/sgq7BVK/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/sgq7BVK/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1480,7 +1527,7 @@ Python — один из наиболее популярных современ�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Hx2dLWc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Hx2dLWc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1502,7 +1549,7 @@ Python — один из наиболее популярных современ�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/VtYkm33/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/VtYkm33/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1525,7 +1572,7 @@ Python — один из наиболее популярных современ�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/5jQktgm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/5jQktgm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1547,7 +1594,7 @@ Python — один из наиболее популярных современ�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/71YqHY6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/71YqHY6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1569,7 +1616,7 @@ Carmine Noviello | Mastering STM32  release 0.26   2018  [PDF] [En]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/6PmMK7N/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/6PmMK7N/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1592,7 +1639,7 @@ Dr.Max | SEO Монстр 2020  2019  [PDF]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LdM0CJF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LdM0CJF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1614,7 +1661,7 @@ Dr.Max | SEO Монстр 2020  2019  [PDF]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/x5Gh9Sv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/x5Gh9Sv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1636,7 +1683,7 @@ Shodan – это поисковый движок для устройств, п�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/WKVx56C/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/WKVx56C/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1660,7 +1707,7 @@ Shodan – это поисковый движок для устройств, п�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Sv7LmVH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Sv7LmVH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1682,7 +1729,7 @@ Shodan – это поисковый движок для устройств, п�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/92ycNZx/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/92ycNZx/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1704,7 +1751,7 @@ Shodan – это поисковый движок для устройств, п�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/QYzXtjT/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/QYzXtjT/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1728,7 +1775,7 @@ Java – один из самых популярных и востребован
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0ZdsRL1/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0ZdsRL1/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1751,51 +1798,7 @@ Java – один из самых популярных и востребован
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/8sLk2Lp/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 299 309
-
-Джон Пол Мюллер, Лука Массарон | Искусственный интеллект для чайников  2019  [PDF]
-Компьютерная литература
-Программирование
-
-###  Подробнее
-
-Искусственный интеллект является захватывающим и немного жутковатым. Он вокруг нас. Искусственный интеллект помогает защитить от мошенничества, контролировать расписание медицинских процедур, он способен работать в клиентской службе и даже помогает вам в выборе телешоу и приборке вашего дома. Хотите узнать больше? Эта книга восполняет пробелы, знакомя вас с тем,     Читать дальше...    Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:42D09F9EA1B96E6DE5C28E10E7B2BC42B8B903BA
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/TkX7Zj7/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 298 705
-
-Эванс Бенджамин и др. | Java. Оптимизация программ. Практические методы повышения производительности приложений в JVM [+files]  2019  [PDF, DJVU]
-Компьютерная литература
-Программирование
-
-###  Подробнее
-
-Настройка производительности — наука экспериментальная, но это не означает, что инженеры должны прибегать к догадкам и фольклору, чтобы выполнить свою работу  хотя часто случается именно так . С помощью этой практической книги разработчики средней и высокой квалификации, работающие со сложными стеками технологий, научатся настраивать высокую производительность Java-приложений,     Читать дальше...    Жанр: ПрограммированиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DDB113CBC7657E1F7A5771B3D19FC451305D3D59
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/x7SzxNz/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/8sLk2Lp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

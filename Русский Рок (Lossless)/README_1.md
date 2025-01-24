@@ -1,4 +1,524 @@
 ﻿
+###  Публикация: 1 756 173
+
+Аквариум - Музыка Трёх Песен о Родине (1991) 3CD, 2024, BG PLUS LLP [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 02:03:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0B317AABD0A2F269AF0FB2352B5A090D8D6A89C
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/rx99Q8P/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 755 853
+
+VA - Константин Ступин. Трибьют. Часть 3 (2024) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Пурген - Как тогда (Константин Ступин cover)
+2. Stilgar - Какая разница (Константин Ступин cover)
+3. The Iron Bees - И я решил (Константин Ступин cover)
+4. Чёртов стул - Ночью всякое бывает (Константин Ступин cover)(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:358A0C39D1D224E9F89D4AD90F9D147626FD70E1
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/J3WBmX2/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 755 852
+
+7Раса - Гранж (2024) [MP3|320 Kbps] <Alternative>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. 0=боль
+2. Чистый лёд
+3. Птички
+4. Молоды(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DB41E8B3D3EED611086A7E6D20A72F84570E38E1
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/526HqWp/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 755 850
+
+Операция Пластилин - Мантра, побеждающая смерть (2024) [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Оверсайз
+2. Не спали
+3. Маленький злой супермен
+4. Танцуй со мной, смерть(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:27E414FB0190B7E4BBA2B8CC56D6CAC08B178C3D
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/30gg3RZ/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 755 849
+
+Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Письмо
+2. Позабытые детства друзья
+3. Королева аптеки
+4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2EAA04E8A3A4AA1A8A8FCB91C05D0C35AC3FFF53
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/Rcn0HgV/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 755 847
+
+Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [MP3|320 Kbps] <Post Punk, New Wave>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Письмо
+2. Позабытые детства друзья
+3. Королева аптеки
+4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F764C501B00E02F7696E162020127B1F5E1F05CC
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/Rcn0HgV/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 912
+
+Infornal FuckЪ - Музыка категории бэ (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Folk-Black-Metal, Parody-Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Ходынский слэм [00:04:08]
+02. Берёзовый сок [00:02:44]
+03. Комарик [00:03:26]
+04. Дракула [00:04:26](   Читать дальше...   )Жанр: Heavy-Folk-Black-Metal, Parody-MetalПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EC393508DF651E28CC3522BEC47BA9502BFFBD7C
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/r2mDmHw/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 852
+
+VA - XX. Трибьют группе Артерия (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Артерия - Ты – это навсегда!
+2. Strike - Жизнь – игра
+3. SIBERIUS - Лети на свет!
+4. Арктида - Стальные нервы(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:31:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:27070749C8D02F7D3FD320E7454A0F92D6495D3C
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/0JttdnP/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 850
+
+VA - XX. Трибьют группе Артерия (2024) [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Артерия - Ты – это навсегда!
+2. Strike - Жизнь – игра
+3. SIBERIUS - Лети на свет!
+4. Арктида - Стальные нервы(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:31:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8847F2698AC03A0048E466E0FB51421576503E65
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/ydtvgjX/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 815
+
+Infornal FuckЪ - Музыка Категории Бэ (2024) [MP3|320 Kbps] <Parody Metal, Punk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Ходынский Слэм [4:09]
+02. Берёзовый Сок [2:44]
+03. Комарик [3:27]
+04. Дракула [4:26](   Читать дальше...   )Жанр: Parody Metal, Heavy FolkПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD13077FC9F5A69345A4B1C79971D6E349D023DE
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/DkrdDSG/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 658
+
+Воля и Разум - Иди на Свет (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Кома
+02. Посткоматозный Бред
+03. Иди на Свет
+04. Грешник или Святой(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0AD450E94CDC6379340054E597DD9544E59C8F23
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/BjxqyLG/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 607
+
+Альянс - Полно!! (2024) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Новый день
+2. Ветры декабря
+3. Ктоктокто
+4. Снежная(   Читать дальше...   )Жанр: RockПродолжительность: 00:22:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:364333D34BAD28FC7A93F88E8A2F44AF526C15F2
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/xf3grFj/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 581
+
+Бранимир - Ждут домой (2024) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Ты меня где-то ждёшь
+2. Вахтовик звонит домой
+3. Провожал я друга на войну
+4. Стёпка украл гуся(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA0F4DBF57AA869CECD6C95B3ADA42694ACBF5DF
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/JnmbpG9/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 500
+
+Самое Большое Простое Число - Животные пьют из луж (2024) [MP3|320 Kbps] <Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Навеки
+2. Это не конец
+3. Дикий
+4. ОБЖ(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:265DAEA6D8A3D723B811EF70E912249CC9A77738
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/XkqfyXQ/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 305
+
+Hardy - Мир Криминала (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Пуля-дура 05:29
+02. На всех парусах 06:56
+03. Звериная душа 07:27
+04. Всё та же злость 04:01(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D40519EF13CE5CFD7AD63690EA07EA4CD0ED574E
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/G0RBqfT/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 753 330
+
+Високосный Год - Приносящий удачу (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Новосибирск
+2. Звони!
+3. Именины смерти
+4. Отражение неба(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C12E8456D93F6ACA5D0B95509F244BAA3A8FB7F
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/xjJj4qk/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 753 329
+
+Високосный Год - Приносящий удачу (2024) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Новосибирск
+2. Звони!
+3. Именины смерти
+4. Отражение неба(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C41C444B2933A8CBAD95201F32035AC36D6D3511
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/xjJj4qk/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 753 327
+
+KDRR - Деконструкция (2024) [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Эпиграф. Свобода
+2. Рок-н-ролл
+3. Птицы
+4. Аритмия(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8A3EBA79ACAD152FBD7CEA5AD513C4FC7CED89A9
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/W5kTTw5/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 753 201
+
+Пикник - Будущее ждет нас (2023) [FLAC|Lossless|image + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Твое сердце должно быть моим
+02. Театр абсурда
+03. Фиолетово. черный
+04. Игла(   Читать дальше...   )Жанр: RockПродолжительность: 02:17:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:58008545F0F7DFC2402719AA015872234B14A2A1
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/54fRfBS/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 752 884
+
+Би-2 - Не зли моих ангелов (2024) Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Не зли моих ангелов (Adrian Bushby Version)
+2. Не зли моих ангелов (Bolshakov Version)Жанр: RockПродолжительность: 00:11:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:289A4EFE16AF8ED85BF355DB6E2F18680AC8934F
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/vsTtQcx/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 752 033
+
+Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Lossless|image + .cue] <Slamming Brutal Death Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Collapse 2:05
+02. Spatial Deformation 3:20
+03. Extraterrestrial Paradox 3:20
+04. Absolute Elimination of Existence 3:07(   Читать дальше...   )Жанр: Slamming Brutal Death MetalПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:77DCCC215C954FD2E85F0E3A093C2B5304FF8010
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/HT7RjWX/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 752 012
 
 Молчат Дома - Белая полоса (2024) [MP3|320 Kbps] <Post Punk, New Wave>
@@ -18,7 +538,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/D4tx26c/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,7 +563,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/Br3rXBq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,7 +588,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/ZXz94Ff/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,7 +613,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/ZXz94Ff/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,7 +638,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/dmhPTLZ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,7 +663,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/Zds5NH8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,7 +688,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/qgdhbhd/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,7 +713,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/4tf5mhy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,7 +738,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/CMbVD4P/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,7 +763,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/Zds5NH8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,7 +788,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="" />
+  <img src="https://i.ibb.co/4tf5mhy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,7 +813,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0my1wyH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0my1wyH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,7 +838,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0my1wyH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0my1wyH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,7 +863,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PNzj2zf/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PNzj2zf/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,7 +885,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/gghgCyc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/gghgCyc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,7 +910,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JnCtBWF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/JnCtBWF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,7 +935,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4TYL3Cs/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4TYL3Cs/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,7 +960,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/D9CjBx9/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/D9CjBx9/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,7 +985,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/D9CjBx9/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/D9CjBx9/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,7 +1010,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Sr79MCR/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Sr79MCR/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,7 +1035,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/WtSs25w/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/WtSs25w/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,7 +1060,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/VBC8tX3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/VBC8tX3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,7 +1085,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/nRD2pZy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/nRD2pZy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,7 +1110,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/nRD2pZy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/nRD2pZy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,7 +1160,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/YfcHQZJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/YfcHQZJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,7 +1187,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LQksztb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LQksztb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,7 +1213,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/yFqVcms/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/yFqVcms/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,7 +1238,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hmJfT5v/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hmJfT5v/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -743,7 +1263,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hmJfT5v/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hmJfT5v/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -768,7 +1288,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4mjbnpJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4mjbnpJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -793,7 +1313,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/7RV1PyT/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/7RV1PyT/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -818,7 +1338,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KzmCgdL/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KzmCgdL/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -843,7 +1363,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KzmCgdL/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KzmCgdL/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -868,7 +1388,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Jqc1BrY/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Jqc1BrY/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -893,7 +1413,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Jqc1BrY/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Jqc1BrY/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -918,7 +1438,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/f8BLNXG/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/f8BLNXG/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -968,7 +1488,7 @@ CD1 - Zvuki Mu:
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/6XQj1T3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/6XQj1T3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -993,7 +1513,7 @@ CD1:
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/161Rh66/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/161Rh66/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1018,7 +1538,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zX0rN3y/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zX0rN3y/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1043,7 +1563,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4RDg9cq/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4RDg9cq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1068,7 +1588,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZS2vwDX/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZS2vwDX/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1093,7 +1613,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZS2vwDX/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZS2vwDX/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1118,7 +1638,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LZy2BGV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LZy2BGV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1143,7 +1663,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/j45JC4G/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/j45JC4G/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1168,7 +1688,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/D46hB4j/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/D46hB4j/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1193,7 +1713,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/D46hB4j/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/D46hB4j/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1218,7 +1738,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/w6sFkXQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/w6sFkXQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1243,7 +1763,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/w6sFkXQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/w6sFkXQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1268,7 +1788,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0BhGcSQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0BhGcSQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1293,7 +1813,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/q78m7Nc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/q78m7Nc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1318,7 +1838,7 @@ Rock, Alternative, Punk, Metal
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zfWkMVw/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zfWkMVw/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1465,529 +1985,6 @@ Rock, Alternative, Punk, Metal
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:34418B8E6F140270222D7E1ADB370133C98F525D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 744 734
-
-VA - Константин Ступин. Трибьют. Часть 2 (2024) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Дождь (Константин Ступин cover)
-2. Секрет (Константин Ступин cover)
-3. Осень (Константин Ступин cover)
-4. Когда я умер (Константин Ступин cover)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F5C332CA3AC3ABE710C105D84432B8C83E126DA
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 744 467
-
-Blind Ivy - Satcitananda (2024) [MP3|320 Kbps] <Metalcore, Groove Metal, Female Vocals>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Intro [00:00:49]
-02 - The Point Of No Return [00:04:52]
-03 - In Your Blood [00:03:48]
-04 - Enemy Is Here [00:03:17](   Читать дальше...   )Жанр: Metalcore, Groove Metal, Female VocalsПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:262894C1C1FDEF6311E74475F87B3D3307EC8C4E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 744 459
-
-Hardy - Мир криминала (2024) [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Пуля-дура (аудио) [00:05:29]
-02 - На всех парусах (аудио) [00:06:56]
-03 - Звериная душа (аудио) [00:07:27]
-04 - Всё та же злость (аудио) [00:04:01](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E8DF043AC17963F14830C8FCFC7FE53A3190E70F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 744 455
-
-Ze Fish - Душевнородной (2024) [MP3|320 Kbps] <Rock, Punk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Моя Жизнь [00:03:28]
-02 - Поздно умирать молодым [00:02:46]
-03 - Собирайся, поехали! [00:03:50]
-04 - Море [00:03:00](   Читать дальше...   )Жанр: Pop Rock, Ska, PunkПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:538ABF0D270B2C979263ED985077F503B8DD57F9
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 744 139
-
-Ночные Снайперы - симфоническая акустика двух столиц (2024) Live акустика 2024 [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. увертюра. бог ушел
-2. время года зима
-3. охота на волчат
-4. лебедь в партере(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B6F0648051845CD18893CF909B3288A38D4BC8E2
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 744 137
-
-Ночные Снайперы - симфоническая акустика двух столиц (2024) Live акустика 2024 [MP3|320 Kbps] <Symphonic Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. увертюра. бог ушел
-2. время года зима
-3. охота на волчат
-4. лебедь в партере(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:137B3CCA06C92D6DBC78B860AE1DA1FEFDA12D15
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 744 129
-
-Красная плесень - Союз ТОП 10 Пародий (2024) New version [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Тужимся. Mr.Конкредо (New version)
-2. Дедушка по городу (New version)
-3. Десантники ВДВ (New version)
-4. Попала в задницу пчела (New version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:619CBABA892C092C2ACA79B722B04B1413A99545
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 744 127
-
-Красная плесень - Союз ТОП 10 Пародий (2024) New version [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Тужимся. Mr.Конкредо (New version)
-2. Дедушка по городу (New version)
-3. Десантники ВДВ (New version)
-4. Попала в задницу пчела (New version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A6C593AB6EE88F8A51470EF720566F2ECCDCB64F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 743 688
-
-Balga, Autumn Tales - Midnight Mystery (2024) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-More Hate Productions представляет сплит-диск с участием двух групп из Калининграда. Первая группа известна тем, кто следит за релизами лейбла. Это BALGA с ее довольно сырым, но атмосферным блэк-металом. Группа представляет два мини-альбома, выпущенных в 2023 году: "Troops of Hate" и "A New Road or a Secret Gate". Этот материал логически вытекает (   Читать дальше...   )01. Balga – Prologue (Intro)
-02. Balga – A New Road Or A Secret Gate
-03. Balga – ...By Caves Where Never Sun Has Shone
-04. Balga – With Foes Ahead, Behind Us Dread(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:53BE5C1D67ECB6C8C1C9417EC7ACF47073738A32
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 742 252
-
-Lumen - Lumen & Orchestra (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Intro + Далеко (Live)
-2. Не надо снов (Live)
-3. Кофе (Live)
-4. Истина (Live)(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 01:34:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:667986E46A21ECB16DDE23DC01AD98625DE1F341
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 742 251
-
-Lumen - Lumen & Orchestra (2024) [MP3|320 Kbps] <Symphonic Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Intro + Далеко (Live)
-2. Не надо снов (Live)
-3. Кофе (Live)
-4. Истина (Live)(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 01:34:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7D47BF36D1713D3B31029F037E44AABFE6BD5DAA
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 742 040
-
-Инкогнито - Насквозь (2024) EP [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Карнавал
-2. Весна
-3. НасквозьЖанр: RockПродолжительность: 00:09:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2477A56CE809752BE03DB374364DD885E9E6DC6C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 741 954
-
-Яйцы Fаберже - Live (2024) [MP3|320 Kbps] <Rock, Ska>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Курорты (Live)
-2. Смерть системе (Live)
-3. Das ist Fantastisch! (Live)
-4. 33 (Live)(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:34E93243B21286FCA254CAC8C635B6A0A4687F82
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 741 692
-
-Мельница - Дорога Сна (2003) [WavPack|Lossless|image + .cue] <Folk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Дорога Сна
- 02. Горец
- 03. Ольга
- 04. Лорд Грегори(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:141C0FF0CDF534FBBCF064F3FB835A8C11AD8F1F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 740 719
-
-ЗакЛинания - Экзорцизм (2018) [MP3|320 Kbps] <Punk, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - ПодСказка 3:01
-02 - С тобой 4:01
-03 - Хватит 2:06
-04 - Смотри на небо 3:45(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E798D0D1D599B237B6EED3840D9EF96CB5167729
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 740 446
-
-Йорш - Счастье! Конец (2024) EP [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Как у Кобейна
-2. Глава 7. Синяя пустошь
-3. Журавли
-4. БуревестникЖанр: Punk RockПродолжительность: 00:12:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DE3963CB154C36F3D3F4AC54B5C130DAE61A8C84
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 740 445
-
-Ночные Снайперы - исключенный из времени (2024) EP [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. исключенный из времени
-2. дом стеной
-3. возвращаюсьЖанр: RockПродолжительность: 00:09:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ACFBF3B5A872A3E6D37FC39595D590B461150B95
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 740 207
-
-Кукрыниксы - Раскрашенная Душа (2002) [WavPack|Lossless|image + .cue] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. По Раскрашенной Душе
- 02. Жадное Море
- 03. Дороги
- 04. Каменный Гость(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53"24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9EAEC26086C9999227AA77FE03B8ACB2111D26D8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 740 116
-
-Опасные Соседи - Пьяницы и фонари (2024) [FLAC|Lossless|image + .cue] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Без
-02. Прийти
-03. Скучная ночь
-04. Солнца глоток(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ACF071A3F3376B80FBB55789ACEBC48405A70E99
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 739 289
-
-CAGMO - Симфония Король и Шут (2024) [MP3|320 Kbps] <Symphonic Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Лесник
-2. Смельчак и ветер
-3. Два друга и разбойники
-4. Сапоги мертвеца(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF1E6B8BF5203D33095607E4979F07697A2B6B09
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 739 199
-
-Ентеткрыт - Всё к мамочке (2004) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Ещё и ещё [00:02:20]
-02. Шрек [00:01:54]
-03. Крылатые крысы [00:02:09]
-04. Там, где холодная зима [00:02:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F1B888B65B05CA4C81C82DDE2A71461F8291994C
 ```
 
 <div id="header" align="center">

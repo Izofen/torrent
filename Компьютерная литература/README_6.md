@@ -1,4 +1,50 @@
 ﻿
+###  Публикация: 974 569
+
+Е.Г. Качко | Параллельное программирование  2011  [PDF, DJVU]
+Компьютерная литература
+Программирование
+
+###  Подробнее
+
+В учебном пособии изложены методы создания программ с  параллельными вычислениями. Рассмотрены критерии оценки параллельных программ, эффективность SIMD команд, этапы разработки параллельных программ и среды для их создания OPEN МР и ТВВ. Выполняется сравнение компиляторов Visual Studio C+ + и Intel C++ с точки зрения оптимизации создаваемых программ для параллельного     Читать дальше...    Жанр: ПрограммированиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:23024E04BB20BC2935598D6B9062AC5127EA68CC
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/5h9v1wh/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 974 160
+
+Photodex | ProShow Producer 7.0. Руководство пользователя  2015  [PDF]
+Компьютерная литература
+2D графика
+
+###  Подробнее
+
+Это перевод на русский язык документа Proshow Producer Version 7 User Guide, издание 7.0.1, 2015 года, находящегося в свободном доступе на сайте корпорации Photodex.
+
+Версия Proshow Producer 7 отличается от предшественниц. В нее добавлены новые функции и изменен ряд элементов интерфейса. Руководство к версии 7 существенно отличается от руководства к версии 5, мой     Читать дальше...    Жанр: Учебная литератураФормат: PDF
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B95580FC252D93928181229081FBA5670A507955
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/9hQcYwL/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 971 030
 
 Сильвен Ретабоуил | Android NDK. Разработка приложений под Android на С C++  2012  [PDF, RTF]
@@ -15,7 +61,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mqm8NKD/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mqm8NKD/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -37,7 +83,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/XZkSF0b/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/XZkSF0b/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -59,7 +105,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/VDNY4Sr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/VDNY4Sr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,7 +127,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/GV8Cwf8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/GV8Cwf8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,7 +149,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/CVgvP7X/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/CVgvP7X/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,7 +173,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/frNJGbq/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/frNJGbq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,7 +195,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3h0hrBy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3h0hrBy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,7 +218,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/VQC6b4k/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/VQC6b4k/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,7 +240,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/GnmdtYd/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/GnmdtYd/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,7 +263,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/x26gbBS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/x26gbBS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,7 +285,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/n7c5jYn/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/n7c5jYn/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,7 +307,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Z2zvTxW/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Z2zvTxW/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,7 +329,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/QFSTp95/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/QFSTp95/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,7 +351,7 @@ Jason P.Odell, Ph.D. | Capture NX2 для фотографов  Краткое �
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/syqmYWt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/syqmYWt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,7 +373,7 @@ Jason P.Odell, Ph.D. | Capture NX2 для фотографов  Краткое �
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/5YXRxvd/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/5YXRxvd/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,7 +395,7 @@ Jason P.Odell, Ph.D. | Capture NX2 для фотографов  Краткое �
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/L8WGJJF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/L8WGJJF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,7 +417,7 @@ Jason P.Odell, Ph.D. | Capture NX2 для фотографов  Краткое �
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Z6LJdNp/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Z6LJdNp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,7 +439,7 @@ Jason P.Odell, Ph.D. | Capture NX2 для фотографов  Краткое �
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/p3wd4zg/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/p3wd4zg/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,7 +461,7 @@ Chekpoint — компания, занимающаяся разработкой 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/BjjDyc6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/BjjDyc6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,7 +484,7 @@ Chekpoint — компания, занимающаяся разработкой 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/DfqjTv3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/DfqjTv3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,7 +506,7 @@ Chekpoint — компания, занимающаяся разработкой 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/7XB6XPh/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/7XB6XPh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,7 +528,7 @@ Chekpoint — компания, занимающаяся разработкой 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hBG5W5W/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hBG5W5W/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,7 +552,7 @@ Chekpoint — компания, занимающаяся разработкой 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3S7qbtc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3S7qbtc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,7 +574,7 @@ Chekpoint — компания, занимающаяся разработкой 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZhG05VB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZhG05VB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,7 +598,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/y5QLNXS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/y5QLNXS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,7 +620,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/gVFbWJq/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/gVFbWJq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,7 +643,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/rxyMwd4/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/rxyMwd4/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,7 +665,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JpHTZXt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/JpHTZXt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,7 +690,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/G9mNsTP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/G9mNsTP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,7 +712,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/n8bXkwt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/n8bXkwt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,7 +734,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HV7hq4K/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HV7hq4K/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,7 +756,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/YNLPMWr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/YNLPMWr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,7 +778,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Z81mxJM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Z81mxJM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -754,7 +800,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/L0M38mW/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/L0M38mW/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -776,7 +822,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/p1RdVW6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/p1RdVW6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -798,7 +844,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/8dmbjVJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/8dmbjVJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -820,7 +866,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/C91XQnj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/C91XQnj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -842,7 +888,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/drdqJQf/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/drdqJQf/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -864,7 +910,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ggkzJB9/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ggkzJB9/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -894,7 +940,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/jfQ5hSH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/jfQ5hSH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -917,7 +963,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/DY9B677/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/DY9B677/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -939,7 +985,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/s3Qrq8f/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/s3Qrq8f/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -961,7 +1007,7 @@ C помощью Nero 8 Ultra Edition вы можете выполнить лю�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4R5FSSK/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4R5FSSK/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -983,7 +1029,7 @@ Ingate | Семантическое ядро: 6 адовых ошибок  2014 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Dw0JyCp/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Dw0JyCp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1005,7 +1051,7 @@ Ingate | Семантическое ядро: 6 адовых ошибок  2014 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4Vq7h8J/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4Vq7h8J/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1027,7 +1073,7 @@ Ingate | Семантическое ядро: 6 адовых ошибок  2014 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/DtzH2zX/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/DtzH2zX/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1049,7 +1095,7 @@ Ingate | Семантическое ядро: 6 адовых ошибок  2014 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/p6DBPtS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/p6DBPtS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1071,7 +1117,7 @@ Ingate | Семантическое ядро: 6 адовых ошибок  2014 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FXvpFTk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FXvpFTk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1094,7 +1140,7 @@ CoolReader — это удобная программа для чтения эл
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mSqzrdS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mSqzrdS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1117,7 +1163,7 @@ Dave Harfield  ред.  | Андроид: Советы, трюки, прилож
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3TtMRf9/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3TtMRf9/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1139,7 +1185,7 @@ Dave Harfield  ред.  | Андроид: Советы, трюки, прилож
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/sCB1ppF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/sCB1ppF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1161,7 +1207,7 @@ Dave Harfield  ред.  | Андроид: Советы, трюки, прилож
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/BnY7CWt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/BnY7CWt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1183,7 +1229,7 @@ Acronis | Acronis True Image 2013. Руководство пользовател
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/K5xXbkP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/K5xXbkP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1205,7 +1251,7 @@ Acronis | Acronis True Image 2013. Руководство пользовател
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/j6Wwz8M/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/j6Wwz8M/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1236,7 +1282,7 @@ Stuart McClure и др. | Hacking Exposed 6: Network Security Secrets & Solution
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PYz3qdD/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PYz3qdD/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1258,7 +1304,7 @@ Autocad MEP 2012. Руководство пользователя [2011 г.] [PD
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/qp7nGv0/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/qp7nGv0/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1280,7 +1326,7 @@ Jerry Honeycutt | Introducing Windows 8. An Overview for IT Professionals   Зн
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vZnLTCQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vZnLTCQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1302,7 +1348,7 @@ Jerry Honeycutt | Introducing Windows 8. An Overview for IT Professionals   Зн
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ChYLGHS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ChYLGHS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1324,7 +1370,7 @@ Jerry Honeycutt | Introducing Windows 8. An Overview for IT Professionals   Зн
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HdkXy5f/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HdkXy5f/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1347,7 +1393,7 @@ Jerry Honeycutt | Introducing Windows 8. An Overview for IT Professionals   Зн
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mTV7smW/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mTV7smW/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1370,7 +1416,7 @@ Adobe Press | Adobe After Effects CS6 Classroom in a Book [2012] [PDF] [En]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/74JQ2jq/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/74JQ2jq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1399,7 +1445,7 @@ Jennifer Niederst Robbins | Веб-дизайн. Самоучитель 4 в 1  
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/6mCHwMC/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/6mCHwMC/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1426,7 +1472,7 @@ Jennifer Niederst Robbins | Веб-дизайн. Самоучитель 4 в 1  
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/1KGShHP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/1KGShHP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1448,7 +1494,7 @@ Jennifer Niederst Robbins | Веб-дизайн. Самоучитель 4 в 1  
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/QdfmDmG/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/QdfmDmG/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1470,7 +1516,7 @@ Jennifer Niederst Robbins | Веб-дизайн. Самоучитель 4 в 1  
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/d2YRcVr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/d2YRcVr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1494,7 +1540,7 @@ Jennifer Niederst Robbins | Веб-дизайн. Самоучитель 4 в 1  
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/TcpzpnB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/TcpzpnB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1518,7 +1564,7 @@ Jennifer Niederst Robbins | Веб-дизайн. Самоучитель 4 в 1  
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vPXZtnq/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vPXZtnq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1540,7 +1586,7 @@ AutoCAD 2007 является очень мощной средой трехме�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ns2qN9z/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ns2qN9z/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1562,7 +1608,7 @@ AutoCAD 2007 является очень мощной средой трехме�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mDPv2h8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mDPv2h8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1585,7 +1631,7 @@ Windows XP делает ваш компьютер еще более  макин�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RNyP5Sb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RNyP5Sb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1608,7 +1654,7 @@ JavaFX — это платформа для создания Rich Internet Appli
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/XZbpFwp/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/XZbpFwp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1630,7 +1676,7 @@ JavaFX — это платформа для создания Rich Internet Appli
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PNLNCHf/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PNLNCHf/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1652,7 +1698,7 @@ JavaFX — это платформа для создания Rich Internet Appli
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/VTzgRF7/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/VTzgRF7/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1674,7 +1720,7 @@ Adobe InDesign CS5 Professional. Oфициальный учебный курс [
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/X8131n1/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/X8131n1/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1696,7 +1742,7 @@ Steinberg | Руководство пользователя HALion 3  русск
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/tCF5ChZ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/tCF5ChZ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1724,7 +1770,7 @@ Steinberg | Руководство пользователя HALion 3  русск
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/10gnNLg/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/10gnNLg/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1751,7 +1797,7 @@ Steinberg | Руководство пользователя HALion 3  русск
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/njNftRL/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/njNftRL/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1773,52 +1819,7 @@ Steinberg | Руководство пользователя HALion 3  русск
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/xXgdqKr/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 427 674
-
-К.А. Власов, В.Ю. Казаков | Total Commander: эффективная работа с файлами и архивами + CD [2009] [DJVU]
-Компьютерная литература
-Горячие новинки
-
-###  Подробнее
-
-Рассмотрен Total Commander- популярный файловый менеджер для повседневной работы на компьютере, позволяющий эффективно управлять файлами, каталогами и архивами - который по простоте освоения, удобству применения и мощности функций во многом превосходит используемый в Windows Проводник. Подробно, с многочисленными примерами, описаны все возможности программы - как     Читать дальше...    Формат: DJVU
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D3810E158DA9CB723355801B9071B50AE80BC4D
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/R7JYCpS/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 370 812
-
-Никита Культин, Лариса Цой | Small Basic для начинающих [2011] [PDF]
-Компьютерная литература
-Программирование
-
-###  Подробнее
-
-В данном пособии в доступной форме изложены основы теории программирования, приведено описание современного языка программирования для начинающих - Microsoft Small Basic и рассмотрен процесс создания программы от составления алгоритма до отладки.
-Показано, как записать инструкции программы, использовать инструкции выбора и циклов, ввести исходные данные и вывести     Читать дальше...    Формат: PDF
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2C1740668EF9E1A4301B3078CA171121130CDA15
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/dk7VxNR/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/xXgdqKr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

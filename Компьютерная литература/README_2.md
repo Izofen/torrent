@@ -1,4 +1,48 @@
 ﻿
+###  Публикация: 1 558 485
+
+Мэтт Зандстра | PHP 8: объекты, шаблоны и методики программирования, 6-е издание  2021  [PDF]
+Компьютерная литература
+Программирование
+
+###  Подробнее
+
+В этой книге рассматриваются методики объектно-ориентированного программирования на PHP и применение главных принципов проектирования программного обеспечения на основе классических проектных шаблонов, а также описываются инструментальные средства и нормы практики разработки, тестирования, непрерывной интеграции и развертывания надежного прикладного кода. Настоящее,     Читать дальше...    Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:96917E58E127EDED6746418AD628D1C896BC4E70
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/tZnLzXq/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 558 134
+
+Коллектив авторов | Большая библиотека программирования на Python  121 книга на русском + англоязычные шпаргалки   2010 - 2022  [PDF, DJVU] [О
+Компьютерная литература
+Программирование
+
+###  Подробнее
+
+Серия  Библиотека программиста  предназначена как для опытных мастеров своего дела, так и для тех, кто только приступил к изучению программирования. В данном выпуске библиотеки книги повящённые изучению Python.Жанр: Компьютерная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5BB02F460E4804C383A62BEC4DDD046F63853B7E
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/NsCBcTd/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 556 285
 
 Тимур Машнин | Введение в объектно-ориентированный дизайн с Java  2022  [PDF]
@@ -15,7 +59,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0hK2DMF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0hK2DMF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -38,7 +82,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/YB4PM9n/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/YB4PM9n/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,7 +104,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/6v3zVL9/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/6v3zVL9/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -85,7 +129,7 @@ CSS in Depth познакомит вас с миром методов CSS, ко�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FKq1zPh/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FKq1zPh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,7 +151,7 @@ CSS in Depth познакомит вас с миром методов CSS, ко�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/44sDX17/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/44sDX17/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,7 +173,7 @@ ADMIN Network and Security - это реальный мир системного
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/QMG6HK2/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/QMG6HK2/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,7 +195,7 @@ ADMIN Network and Security - это реальный мир системного
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/BVNKzB9/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/BVNKzB9/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,7 +217,7 @@ ADMIN Network and Security - это реальный мир системного
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MShzCSZ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MShzCSZ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,7 +239,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/bJxMLqm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/bJxMLqm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,7 +263,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Lxb7Gd0/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Lxb7Gd0/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,7 +285,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/5FvcR5t/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/5FvcR5t/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,7 +308,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/rmbrrsG/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/rmbrrsG/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,7 +330,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/sWYGDkn/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/sWYGDkn/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,7 +352,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KN6dxVq/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KN6dxVq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,7 +374,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/McZkJ6C/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/McZkJ6C/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,7 +396,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/26Dtj8b/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/26Dtj8b/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,7 +418,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MkyQBP3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MkyQBP3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,7 +440,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vBfZKWh/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vBfZKWh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,7 +462,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KWQKKn8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KWQKKn8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,7 +484,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JvSXmpb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/JvSXmpb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,7 +506,7 @@ Dart – объектно-ориентированный язык програм
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zhFHvpM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zhFHvpM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,7 +528,7 @@ Dart – объектно-ориентированный язык програм
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/wwNmNH6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/wwNmNH6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,7 +550,7 @@ Dart – объектно-ориентированный язык програм
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vL14RG0/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vL14RG0/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,7 +572,7 @@ Unreal Engine 4  UE4  – популярный движок, который ис
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FqzqkrB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FqzqkrB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,7 +594,7 @@ Unreal Engine 4  UE4  – популярный движок, который ис
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LtmVq87/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LtmVq87/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,7 +616,7 @@ Unreal Engine 4  UE4  – популярный движок, который ис
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/cyfqQgC/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/cyfqQgC/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,7 +638,7 @@ Unreal Engine 4  UE4  – популярный движок, который ис
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/8xxhNZb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/8xxhNZb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,7 +660,7 @@ Unreal Engine 4  UE4  – популярный движок, который ис
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Gc3YVvp/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Gc3YVvp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,7 +684,7 @@ Unreal Engine 4  UE4  – популярный движок, который ис
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/WvntZKv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/WvntZKv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,7 +706,7 @@ Unreal Engine 4  UE4  – популярный движок, который ис
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ncBKs8m/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ncBKs8m/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,7 +730,7 @@ Unreal Engine 4  UE4  – популярный движок, который ис
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MMMxgZ5/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MMMxgZ5/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,7 +752,7 @@ Unreal Engine 4  UE4  – популярный движок, который ис
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vBztXwS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vBztXwS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -730,7 +774,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/dG9cTR5/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/dG9cTR5/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -752,7 +796,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/y03bJ9w/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/y03bJ9w/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -774,7 +818,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/XSWhC3Z/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/XSWhC3Z/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -796,7 +840,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/swTZsfw/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/swTZsfw/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -818,7 +862,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mq2271S/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mq2271S/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -840,7 +884,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0X1dCnx/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0X1dCnx/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -862,7 +906,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0V1zbCt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0V1zbCt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -885,7 +929,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/r5hP0KR/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/r5hP0KR/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -907,7 +951,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JxRMw3T/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/JxRMw3T/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -929,7 +973,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vsX0Q13/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vsX0Q13/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -951,7 +995,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0cz0hLw/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0cz0hLw/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -973,7 +1017,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ggRQgMk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ggRQgMk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -995,7 +1039,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4tFH4kr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4tFH4kr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1017,7 +1061,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Ch347vJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Ch347vJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1040,7 +1084,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/NYCbkjy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/NYCbkjy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1065,7 +1109,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FXKyYnZ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FXKyYnZ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1088,7 +1132,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RHG1K2d/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RHG1K2d/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1111,7 +1155,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/GMHqYjF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/GMHqYjF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1133,7 +1177,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/yV1Hgkp/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/yV1Hgkp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1155,7 +1199,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/WVDpQYn/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/WVDpQYn/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1177,7 +1221,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KXpmsqy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KXpmsqy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1199,7 +1243,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/BnTLWTD/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/BnTLWTD/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1222,7 +1266,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JQtJS4M/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/JQtJS4M/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1244,7 +1288,7 @@ Robert Sedgewick, Kevin Wayne | Algorithms, Fourth Edition  Deluxe : Book and 24
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/YtFF0hC/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/YtFF0hC/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1266,7 +1310,7 @@ Larry L. Peterson, Bruce S. Davie | Computer Networks: A Systems Approach   Ко
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/B3kHvwS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/B3kHvwS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1288,7 +1332,7 @@ Larry L. Peterson, Bruce S. Davie | Computer Networks: A Systems Approach   Ко
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/5FZWFSW/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/5FZWFSW/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1312,7 +1356,7 @@ javascript — это язык программирования для веб-с
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0D1Q7Sy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0D1Q7Sy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1334,7 +1378,7 @@ javascript — это язык программирования для веб-с
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Z1x2xRQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Z1x2xRQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1356,7 +1400,7 @@ javascript — это язык программирования для веб-с
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0yMbNfh/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0yMbNfh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1378,7 +1422,7 @@ javascript — это язык программирования для веб-с
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0sXD7jQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0sXD7jQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1400,7 +1444,7 @@ ImagineFX | Как рисовать анатомию   How to Draw and Paint Ana
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/tpG4GW6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/tpG4GW6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1422,7 +1466,7 @@ ImagineFX | Как рисовать анатомию   How to Draw and Paint Ana
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hHjmxSM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hHjmxSM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1444,7 +1488,7 @@ PascalABC.NET — современная версия языка програм�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/R9VYC9J/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/R9VYC9J/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1466,7 +1510,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0mwM09Q/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0mwM09Q/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1488,7 +1532,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/55srS14/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/55srS14/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1510,7 +1554,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mBYYZT6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mBYYZT6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1532,7 +1576,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Yy0RRBx/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Yy0RRBx/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1555,7 +1599,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/gtpnqW5/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/gtpnqW5/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1577,7 +1621,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/jfZ9RV0/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/jfZ9RV0/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1599,7 +1643,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/XxwQhy7/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/XxwQhy7/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1621,7 +1665,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/yQP2m8G/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/yQP2m8G/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1645,7 +1689,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Bzq7GHv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Bzq7GHv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1667,7 +1711,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/K6Dytfz/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/K6Dytfz/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1691,7 +1735,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/QmFsg2y/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/QmFsg2y/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1713,7 +1757,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/XbrQpGC/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/XbrQpGC/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1735,54 +1779,7 @@ UVLayout является автономным приложением созда
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0Z4RzCH/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 420 840
-
-Борис Черный | Профессиональный TypeScript. Разработка масштабируемых javascript-приложений  2021  [PDF]
-Компьютерная литература
-Горячие новинки
-
-###  Подробнее
-
-Любой программист, работающий с языком с динамической типизацией, подтвердит, что задача масштабирования кода невероятно сложна и требует большой команды инженеров. Вот почему Facebook, Google и Microsoft придумали статическую типизацию для динамически типизированного кода.
-Работая с любым языком программирования, мы отслеживаем исключения и вычитываем код строку     Читать дальше...    Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A80EDC3D9825A5A4663F6F452CE276627CBB4CA6
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/JRbPSZt/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 419 191
-
-Уэс МакДермотт | PBR руководство от Allegorithmic   The PBR Guide by Allegorithmic [2 части]  2018  [PDF] [Ru En]
-Компьютерная литература
-3D графика
-
-###  Подробнее
-
-Allegorithmic - лидер отрасли в области технологий 3D-текстурирования с его отмеченным наградами набором программ Substance.
-Эта книга, написанная Уэсом МакДермоттом и перепроверенная экспертами в этой области, описывает принципы физически корректного рендеринга  PBR  и содержит практические рекомендации по текстурированию PBR.
-В первой части книги рассматриваются     Читать дальше...    Жанр: 3D графика, ТекстурированиеФормат: PDF
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8793721C6EF9BED0F1BF4F3C364CEF307C69EBDF
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/4Wh1Cmr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0Z4RzCH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

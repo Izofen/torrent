@@ -1,4 +1,29 @@
 ﻿
+###  Публикация: 1 765 956
+
+Ю.В. Исаченко, В.А Степанов | Архитектура вычислений. Обработка больших объемов данных (2024) [PDF]
+Компьютерная литература
+Программирование
+
+###  Подробнее
+
+В методических рекомендациях изложены основные понятия распределенных вычислений, больших объемов данных.
+В первом разделе рассматриваются основные понятия параллельных вычислений и распараллеливания.
+Во втором – понятия жизненного цикла данных, больших данных и обработки больших данных.
+Издание предназначается для студентов первой ступени высшего образования по (   Читать дальше...   )Жанр: Методические рекомендацииИздательство: Витебский государственный университетФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC92885F64D780D350328D5CFE7032E3BF75CD6A
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/d6K3Cfn/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 763 785
 
 Крис Хьюз, Тони Тернер | Прозрачное программное обеспечение: Безопасность цепочек поставок ПО (2025) [PDF]
@@ -15,7 +40,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zHR6NFS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zHR6NFS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -37,7 +62,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/qp7T4RT/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/qp7T4RT/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -59,7 +84,29 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/xGsFwGv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/xGsFwGv/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 055
+
+Книжная серия | Энциклопедия компьютерных игр (Навигатор игрового мира) [8 книг] (1999 - 2003) [PDF]
+Компьютерная литература
+Горячие новинки
+
+###  Подробнее
+
+Энциклопедия компьютерных игр (секреты, советы, прохождения) от журнала Навигатор Игрового Мира.Жанр: Компьютерные игрыИздательство: БиблионФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1FA07DCF9EC319989DB81041311357201622AF5F
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/1JZqxFX/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,7 +128,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/fp28Jhb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/fp28Jhb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,7 +150,7 @@
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/51W0jQQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/51W0jQQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,7 +172,7 @@ JavaScript играет ключевую роль в современной ра
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/K0VF9J9/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/K0VF9J9/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,7 +194,7 @@ JavaScript играет ключевую роль в современной ра
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/2Wxf3pX/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/2Wxf3pX/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,7 +218,7 @@ JavaScript играет ключевую роль в современной ра
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/5hpfZH3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/5hpfZH3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,7 +240,7 @@ JavaScript играет ключевую роль в современной ра
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/TgvkSLW/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/TgvkSLW/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,7 +262,7 @@ JavaScript играет ключевую роль в современной ра
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/YcRrn5R/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/YcRrn5R/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,7 +284,7 @@ JavaScript играет ключевую роль в современной ра
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/YbQzB9B/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/YbQzB9B/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,7 +306,7 @@ Stepik, Александр Чумилин | Основы этичного хак
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/89X9hmr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/89X9hmr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,7 +331,7 @@ Writing asynchronous code can be challenging, with a variety of possible interfa
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MMbrKG2/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MMbrKG2/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,7 +353,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PTD72Q3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PTD72Q3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,7 +375,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zHLBQny/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zHLBQny/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,7 +397,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/k3Fy1t9/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/k3Fy1t9/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,7 +419,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZLnbHMy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZLnbHMy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,7 +441,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vPfF9w7/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vPfF9w7/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,7 +463,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/t8d48T2/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/t8d48T2/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,7 +488,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zFF5j3S/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zFF5j3S/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,7 +510,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/N666PFk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/N666PFk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,7 +532,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hf0HN10/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hf0HN10/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,7 +557,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KGGL3kr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KGGL3kr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,7 +579,7 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/7N7QcxP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/7N7QcxP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,7 +601,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/bBw5PTD/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/bBw5PTD/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,7 +623,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hDPdx6v/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hDPdx6v/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,7 +645,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/54n3nqb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/54n3nqb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,7 +667,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LCCwpRw/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LCCwpRw/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,7 +690,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/c6jL795/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/c6jL795/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,7 +713,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/1R9qsCL/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/1R9qsCL/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,7 +735,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/2n4jDYK/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/2n4jDYK/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,7 +758,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/1LLpGMt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/1LLpGMt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -734,7 +781,7 @@ Die (   Читать дальше...   )Жанр: учебное пособие
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/rZ5shtQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/rZ5shtQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -756,7 +803,7 @@ As algorithmic data processing increasingly pervades everyday life, it is also m
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RY4Ls0c/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RY4Ls0c/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -778,7 +825,7 @@ As algorithmic data processing increasingly pervades everyday life, it is also m
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RzSK91N/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RzSK91N/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -801,7 +848,7 @@ Here is your in-depth guide to cryptography and cryptanalysis in Java. This book
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/DL7SNn9/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/DL7SNn9/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -823,7 +870,7 @@ In "Database Fundamentals: Strategies for Efficient Access to Information and En
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/h2Q81PZ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/h2Q81PZ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -846,7 +893,7 @@ Beginning with the basics, this book provides an outline of the steps necessary 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Lz9Brc8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Lz9Brc8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -869,7 +916,7 @@ New agent environments ranging from games, and robotics to finance are explained
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/x8bxPWp/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/x8bxPWp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -891,7 +938,7 @@ New agent environments ranging from games, and robotics to finance are explained
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/dpQqFsM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/dpQqFsM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -913,7 +960,7 @@ New agent environments ranging from games, and robotics to finance are explained
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zJB617G/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zJB617G/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -937,7 +984,7 @@ New agent environments ranging from games, and robotics to finance are explained
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/tpjrfVb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/tpjrfVb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -961,7 +1008,7 @@ New agent environments ranging from games, and robotics to finance are explained
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/F33QKHm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/F33QKHm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -983,7 +1030,7 @@ New agent environments ranging from games, and robotics to finance are explained
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/dkP9jv4/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/dkP9jv4/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1006,7 +1053,7 @@ New agent environments ranging from games, and robotics to finance are explained
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/pygqGnH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/pygqGnH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1030,7 +1077,7 @@ New agent environments ranging from games, and robotics to finance are explained
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3SHSZm4/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3SHSZm4/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1052,7 +1099,7 @@ PyCharm – лучшая профессиональная среда разра�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/9NQrKYH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/9NQrKYH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1074,7 +1121,7 @@ In Learn Python 3 the Hard Way, Zed Shaw taught you the basics of Programming wi
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/8BqWBfV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/8BqWBfV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1096,7 +1143,7 @@ In Learn Python 3 the Hard Way, Zed Shaw taught you the basics of Programming wi
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SnHy75T/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SnHy75T/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1118,7 +1165,7 @@ In Learn Python 3 the Hard Way, Zed Shaw taught you the basics of Programming wi
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PtmYf3L/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PtmYf3L/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1143,7 +1190,7 @@ In Learn Python 3 the Hard Way, Zed Shaw taught you the basics of Programming wi
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PzgK4bV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PzgK4bV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1168,7 +1215,7 @@ In Learn Python 3 the Hard Way, Zed Shaw taught you the basics of Programming wi
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/NVYFVgk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/NVYFVgk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1193,7 +1240,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/7tJBLD8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/7tJBLD8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1216,7 +1263,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/jD1tFJZ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/jD1tFJZ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1238,7 +1285,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FgmtYVj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FgmtYVj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1260,7 +1307,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/88TZtnF/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/88TZtnF/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1283,7 +1330,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Y2YcC14/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Y2YcC14/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1305,7 +1352,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/2Wyfkkz/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/2Wyfkkz/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1327,7 +1374,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/z8jDjZN/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/z8jDjZN/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1349,7 +1396,7 @@ Cеть Lightning  Lightning Network, LN  – это быстро развива
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/DLGck8B/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/DLGck8B/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1371,7 +1418,7 @@ FPGA  Field-Programmable Gate Array, программируемые пользо
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/kSksKP4/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/kSksKP4/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1393,7 +1440,7 @@ FPGA  Field-Programmable Gate Array, программируемые пользо
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/fxT5PQS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/fxT5PQS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1416,7 +1463,7 @@ FPGA  Field-Programmable Gate Array, программируемые пользо
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/7W43FZR/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/7W43FZR/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1438,7 +1485,7 @@ FPGA  Field-Programmable Gate Array, программируемые пользо
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FJytV5y/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FJytV5y/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1460,7 +1507,7 @@ Doug Farrell | The Well-Grounded Python Developer (2023) [PDF][EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KFfz2s7/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KFfz2s7/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1482,7 +1529,7 @@ Alex Libby | Practical Next.js for E-Commerce (2023) [PDF][EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LgqVFdp/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LgqVFdp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1504,7 +1551,7 @@ David Matuszek | Quick Java (2023) [PDF][EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0fdP17H/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0fdP17H/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1527,7 +1574,7 @@ Python — популярный язык программирования выс
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0rTFG1c/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0rTFG1c/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1549,7 +1596,7 @@ Python — популярный язык программирования выс
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0CH0Qcn/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0CH0Qcn/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1571,7 +1618,7 @@ Python — популярный язык программирования выс
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3WspHGN/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3WspHGN/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1593,7 +1640,7 @@ Python — популярный язык программирования выс
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/bLMP1Ls/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/bLMP1Ls/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1615,7 +1662,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/RSYVyw1/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/RSYVyw1/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1637,7 +1684,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3pQP6MM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3pQP6MM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1659,7 +1706,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/JxHZtTW/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/JxHZtTW/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1681,7 +1728,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/9s1QtHy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/9s1QtHy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1704,7 +1751,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/XFhg4sk/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/XFhg4sk/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1726,7 +1773,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vmRQDJS/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vmRQDJS/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1750,51 +1797,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/zNKqd7p/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 528
-
-Кэти Танимура | SQL для анализа данных  2024  [PDF]
-Компьютерная литература
-Программирование
-
-###  Подробнее
-
-Рассказывается о возможностях SQL применительно к анализу данных. Сравниваются различные типы баз данных, описаны методы подготовки данных для анализа. Рассказано о типах данных, структуре SQL-запросов, профилировнии, структурировании и очистке данных. Описаны методы анализа временных рядов, трендов, приведены примеры анализа данных с учетом сезонности. Отдельные     Читать дальше...    Жанр: ПрограммированиеПеревод: Игорь ДонченкоИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D78974150451FA1CA71D00A68FD13927D9FE8D6B
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/D8ZW2w3/image.jpg                                                                                                                    " />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 081
-
-Анатолий Постолит | Python, Django и Bootstrap для начинающих  2023  [PDF]
-Компьютерная литература
-Программирование
-
-###  Подробнее
-
-Книга посвящена вопросам разработки веб-приложений с использованием языка Python, фреймворков Django, Bootstrap и интерактивной среды разработки PyCharm. Рассмотрены основные технологии и рабочие инструменты создания веб-приложений. Описаны фреймворки Django, Bootsrtap и структура создаваемых веб-приложений. На простых примерах показана обработка и маршрутизация     Читать дальше...    Жанр: ПрограммированиеИздательство: БХВ СПбФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C949850BB68614F199E82CEB58214D689DE3CCE2
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/M5YPJtx/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/zNKqd7p/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

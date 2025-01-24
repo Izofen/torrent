@@ -1,4 +1,572 @@
 ﻿
+###  Публикация: 902 917
+
+VA - Paul Oakenfold - DJ Box: June  2015  [MP3|320 кб с]<Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+001. Fehrplay - Lotus  Original Mix   07:04 
+002. Paul Oakenfold feat. J Hart - Surrender  Rei Remix   03:31 
+003. Max Freegrant - Secret Weapon  Original Mix   05:38 
+004. Canberra & Astrid Suryanto - UP  Mike Saint-Jules Radio Edit   03:45     Читать дальше...    Производство: PerfectoЖанр: TranceПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:96DB7575D59F1C02A7DC2537D2F227D30501B231
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/fH3Y1YW/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 893 956
+
+Venture - Introverted  2015  [FLAC|Lossless|WEB-DL]<Ambient, Experimental, Downtempo>
+Electronic
+Downtempo, Trip-Hop, Lounge  Lossless 
+
+###  Подробнее
+
+01. As My World Falls Apart  04:03 
+02. Eternia  04:02 
+03. Method 5  05:05 
+04. Fragments  05:30 
+05. New Beginnings  03:57     Читать дальше...    Жанр: Ambient, Experimental, DowntempoПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C17A838CBCBE5517B4BBBB839A08AAB050AE09CC
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/2F8rtbB/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 882 692
+
+Fix8:Sed8  Fïx8:Sëd8  - Discography 6 Releases  2005-2009  Dependent [FLAC|Lossless|WEB|tracks]<EBM, Electro, IDM, Industrial>
+Electronic
+Industrial, EBM, Dark Electro  Lossless 
+
+###  Подробнее
+
+01. Enigma  07:13 
+ 02. Prognosis  06:17 
+ 03. Human Harvest  05:13 
+ 04. Tremors  feat. Emke   04:57     Читать дальше...    Тип издания: WebЖанр: EBM, Electro, IDM, Industrial •Продолжительность: 06:57:08 • Источник: bandcamp
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2B4FBDAAFA1C55ACC9D5A082100228DE4C256421
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/xGW2KGF/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 872 750
+
+Blue Foundation - 6 Albums, 9 Singles & EP  2000-2011  [MP3|128-320 кб с]<Trip-hop, Downtempo>
+Electronic
+Easy listening
+
+###  Подробнее
+
+Albums:
+2000 - Wiseguy & HollywoodЖанр: Trip-hop, DowntempoПродолжительность: 07:46:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:08473DDA7CB391C8EE8EA5D58F61305360A44F3F
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/tbcS52b/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 861 851
+
+Plastikman - EX Club Mixes  2015  [FLAC|Lossless|WEB-DL]<Techno, Minimal>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. EXhale  Dixon s Just A Different Mixdown Version   07:01 
+02. EXplore  Recondite Remix   05:56 
+03. EXpand  Tale Of Us Remix   07:51 
+04. EXposed  Dubfire Remix   13:00 Жанр: Techno, MinimalПродолжительность: 00:33:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E000775811645FF3ED1773E978C001C278483F73
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/cLrbMLQ/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 860 303
+
+Enabl.ed - Discography  12 Releases   2010-2016  [MP3|320 кб с]<IDM, Glitch, Abstract>
+Electronic
+IDM
+
+###  Подробнее
+
+01. Can You Really Know  04:03 
+ 02. Roobes  03:03 
+ 03. Struggled 3-in-1  02:37 
+ 04. Up the Tube  04:03     Читать дальше...    Жанр: IDM, Glitch, Abstract •Продолжительность: 00:16:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C74EB21B3FF75EF90C11D879DC833435FE428D93
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/5x9jBkB/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 859 079
+
+Marcus Koch - Silhouettes  2014  [MP3|320 кб с] <ChillOut, Downtempo, Lounge>
+Electronic
+Easy listening
+
+###  Подробнее
+
+01. Elysium  Original Mix   05:08 
+  02. Meditations  Original Mix   06:08 
+  03. Seemless  Original Mix   06:30 
+  04. Relaxed  Original Mix   06:30 
+  05. Travelin  Original Mix   04:54 
+  06. Sundowner  Original Mix   04:50 
+  07. Footprints  Original Mix   05:50 
+  08. Breathtaking  Original Mix   04:17 
+  09. Space Walk  Original Mix   04:18 
+  10. Delightful  Original Mix   05:41     Читать дальше...    Жанр: ChillOut, Downtempo, LoungeПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06B40B5282FAAD7A9387D98D521C84B6AE6FF438
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/9YvdC1V/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 857 958
+
+VA - Insight Music  The Past Three Years   2014  [MP3|320 кб с] <Dubstep, Ambient, Future Garage, Bass>
+Electronic
+Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+###  Подробнее
+
+01. Vacant - Dusk  04:13 
+  02. Rustica - Sepia  05:35 
+  03. RIT - The Pain Withheld  03:59 
+  04. Vancore - Voices  04:56 
+  05. Twin Empire - Ribbons  05:10 
+  06. Slimburn - Angels  Down   03:27 
+  07. Lexis - Saltwater  04:28 
+  08. Vancore - Dead Angel  06:26 
+  09. Himalia - Kytos  06:38 
+  10. Subalpine - Warm Inside  06:19     Читать дальше...    Жанр: Dubstep, Ambient, Future Garage, BassПродолжительность: 02:23:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3DB9CC896EE5F2876C26148FAFC4EAAA9AE138BF
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/7gnTrc5/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 857 766
+
+Spatialize - 3 Albums & 1 EP  2005 - 2014  [MP3|320 кб с] <Psychill, Downtempo, Ambient>
+Electronic
+Easy listening
+
+###  Подробнее
+
+Albums:
+2005 - Dryad s Bubble
+2014 - On The Edge Of Forever
+2014 - Radial
+EPs:
+2006 - In The Midst Of Myriads EPЖанр: Psychill, Downtempo, AmbientПродолжительность: 03:16:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21543026334CCFED8CE4523625370355708002AC
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/KyHwzb9/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 710
+
+VA - Planet Chill In The Mix: Deep Journey 2012  Compiled By York  [MP3|320 кб с] <Chill Out, Downtempo>
+Electronic
+Easy listening
+
+###  Подробнее
+
+01. Alex Terzakis - Sunday  Original Mix   04:16 
+  02. York & Dan - Dejavu  Chill Out Mix   04:19 
+  03. Eigenart - Whales Unfinished  Original Mix   05:42 
+  04. Solarstone - Seven Cities  Solarstone Ambient Dub Mix   07:51 
+  05. Sylvermay - Dream On  Original Mix   03:50 
+  06. Seven24 - The Journey  Chris Wonderful Remix   07:10 
+  07. Solarstone - Swansong  With Hannah Magenta   05:51 
+  08. Work Of Art - World Spinning  York Planet Chillmix Remix   04:24 
+  09. Matt Darey Presents Esp - From Russia With Love  Ambient     Читать дальше...    Жанр: Chill Out, DowntempoПродолжительность: 02:34:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B596353A392F54573371BAF44617A72D71CFA88
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/RTkqwKZ/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 791
+
+VA - Ethneomystica Vol. 1  Compiled By Maiia   2014  [FLAC|Lossless|WEB-DL] <Downtempo, Psydub, Psychill>
+Electronic
+Psybient, Psychill, Psydub (Lossless)
+
+###  Подробнее
+
+01. ManMadeMan - Sub Aqua  07:54 
+ 02. Chronos - Swinging Satori  08:43 
+ 03. Naturelement - Black Hole To The Soul  07:24 
+ 04. Radioactive Sandwich - Damien El Racho  08:35 
+ 05. Globular - Infinity Inside  14:06 
+ 06. Slackbaba - The Wanderer  06:00 
+ 07. Yechidah - Shamanic Wisdom  10:21 
+ 08. Vlastur & JP Illusion - Faces Come Out Of The Rain  05:51 
+ 09. Mahaon - Pink Glasses  05:42 
+ 10. Yggdrasil - Riddlefich  Maiia 2014 Remix   08:34 Жанр: Downtempo, Psydub, PsychillПродолжительность: 01:23:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B9B107BEF7BC6B7A757AFE55C06EEBF29A1559EC
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/1drXLKm/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 843 012
+
+Depeche Mode - Live In Berlin  2014  2CD [MP3|320 кб с]<Synthpop>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+1. Welcome To My World
+2. Angel
+3. Walking In My Shoes
+4. Precious
+5. Black Celebration
+6. Should Be Higher
+7. Policy Of Truth
+8. The Child Inside
+9. But Not Tonight
+10. Heaven    Читать дальше...    Жанр: Synthpop |Продолжительность: 02:01:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A220EBD0A63B2278BEC985679F36EFB732D7BF73
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/HPW4CQW/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 841 137
+
+Chronos - Steps To The Great Knowledge  2007  [FLAC|Lossless|WEB-DL] <Downtempo, Goa Trance, Ambient>
+Electronic
+Psybient, Psychill, Psydub  Lossless 
+
+###  Подробнее
+
+01. The Gates  02:10 
+  02. Step By Step  09:27 
+  03. Stonehendge  10:43 
+  04. Mandala  New Edit   08:00 
+  05. Self Overcoming  10:54 
+  06. Mayan Artifact  Part 1   09:57 
+  07. Mayan Artifact  Part 2   11:45 
+  08. Shamora Ritual  09:29 
+  09. Mayan Artifact  Twisted Breaks Mix   04:45 Жанр: Downtempo, Goa Trance, AmbientПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45866D8B39229C1F38A46F41AB29A6D42E0123C7
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/CVzNztx/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 840 701
+
+Emmerichk - Late Nineties  2014  [FLAC|Lossless|WEB-DL] <Techno>
+Electronic
+House, Techno, Electro, Minimal  Lossless 
+
+###  Подробнее
+
+01. Deep Thoughts  06:44 
+  02. Contained Anger  06:30 
+  03. Transforming The Past  03:37 
+  04. Fields: Air And Room  06:15 
+  05. Late Nineties  05:03 
+  06. Dark Ambiences  06:37 
+  07. The Hood  03:15 
+  08. The Jaguar  07:28 
+  09. Acid Twilight  05:21 
+  10. Analog Fever  05:18     Читать дальше...    Жанр: TechnoПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9ECD167FD7C1B143E994265C640E7E14ED8466D3
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/qg058Fn/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 830 849
+
+Ascendant - Discography - 3 Releases  2014  [MP3|320 кб с]<Ambient, Psybient, Downtempo>
+Electronic
+Easy listening
+
+###  Подробнее
+
+01. Outlets of the Sky  08:10 
+ 02. Glass Desert  06:24 Жанр: Ambient, Psybient, Downtempo |Продолжительность: 00:14:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:61D83323522500DE0F75E414CBB61ABB1C556DDD
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/C9H7YQj/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 829 218
+
+Marek Hemmann - In Between  2009  [FLAC|Lossless] <Techno>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Alias  05:22 
+  02. Tagoma  05:57 
+  03. Kaleido  05:55 
+  04. Compass  06:36 
+  05. Inessa  08:05 
+  06. Gemini  09:08 
+  07. Yvette  05:59 
+  08. Swarm  06:24 
+  09. NTMYT  06:04 
+  10. Down  04:19 Жанр: TechnoПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41CA65B6D2D01C64492CB077565DFEBC30D08B11
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/Lzd2rBj/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 828 506
+
+Season Lounge - Chillout Music  2014  4CD [MP3|320 кб с]<Lounge   Chillout   New Age   Downtempo>
+Electronic
+Easy listening
+
+###  Подробнее
+
+01. Arctic Disco  4:40 
+02. Sax On The Rox  5:04 
+03. Surfing The Glacier  5:24 
+04. Frozen Didge  6:19 
+05. Spicy Icy  4:19 
+06. Ice Shaker  5:35 
+07. Snow Angel  6:27 
+08. Barefoot On Ice  4:47 
+09. Endless White  4:37 
+10. Penguins On Dope  5:15     Читать дальше...    Жанр: Lounge   Chillout   New Age   DowntempoПродолжительность: 04:13:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:250719CA32315CB6EC3F9A1EEF3B8D9397F87B69
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/qCdrT70/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 817 948
+
+VA - Ministry Of Sound: Trance Nation Anthems  Mixed By Judge Jules   2003   3xCD [FLAC|Lossless] <Trance, Progressive Trance>
+Electronic
+Trance  Lossless 
+
+###  Подробнее
+
+01. William Orbit - Barbers Adagio For Strings  Ferry Corsten Remix   05:55 
+ 02. System F - Out Of The Blue  Original 12  Version   04:13 
+ 03. ATB - 9pm  Till I Come   Sequential One 1999 Remix   04:41 
+ 04. Binary Finary - 1999  Gouryella Remix   05:23 
+ 05. Push - Universal Nation  03:30 
+ 06. Matt Darey pts. Mash Up - Liberation  Temptation Fly Like An Angel   05:37 
+ 07. Pulp Victim - The World  04:56 
+ 08. Electrique Boutique - Revelation  05:23 
+ 09. Delerium feat. Sarah McLachlan - Silence  DJ Tiësto s     Читать дальше...    Жанр: Trance, Progressive TranceПродолжительность: 03:48:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:122D6C8304D44E6BC7219C0846AFEB316A424C78
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/2yDMMyr/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 814 444
+
+And One - Magnet  2014  3CD Trilogie Edition [MP3|320 кб с]<Synthpop, EBM>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. Love Needs A Saving Hand
+02. Zeit Ohne Zeit
+03. Love Is Always On Your Side
+04. Unter Meiner Uniform
+05. The Other Side
+06. Love Me
+07. Keiner Fühlt s Wie Wir
+08. Everybody Lies At Night
+09. Fake Of Pleasure
+10. Dead LoveЖанр: Synthpop, EBMПродолжительность: 02:09:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63761E04BC002ABAA0F1104D709A48F7AF4336AB
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/RNMMtVV/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 803 908
+
+Nadja Lind - 19 Albums  2009 - 2014  [MP3|320 кб с] <Deep House, Techno, Minimal, Tech House, Dub Techno, Downtempo, Chill House>
+Electronic
+Techno, Electro, Minimal
+
+###  Подробнее
+
+Список альбомов:
+2009 - Hummingbird
+2010 - Sunspots EP
+2011 - Best Of Nadja Lind
+2011 - Brain Candy
+2011 - Dark Matter  Mixed by Nadja Lind 
+2011 - Lucid Sounds, Vol.3  Mixed by Nadja Lind 
+2011 - Making A Difference  Nadja Lind, Paul Loraine 
+2011 - Shakes
+2012 - Brain Candy Remixed    Читать дальше...    Жанр: Tech House, Techno, MinimalПродолжительность: 32:38:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4C3DB7DFE568345958F70B57C86BFE06BD8E0D88
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/4t6grqs/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 793 736
 
 VA - Waves  Balancing Chillout Tunes   2014  [MP3|320 кб с] <Chillout, Downtempo, Lounge>
@@ -24,7 +592,7 @@ Easy listening
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ys0NSGQ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ys0NSGQ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,7 +623,7 @@ Easy listening
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/1TLyBfJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/1TLyBfJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,7 +647,7 @@ Psybient, Psychill, Psydub  Lossless
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/7tCHHnc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/7tCHHnc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -110,7 +678,7 @@ Easy listening
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3pJjTWV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3pJjTWV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,7 +709,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/xS2V86W/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/xS2V86W/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,7 +740,7 @@ Easy listening
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/tChLT5Y/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/tChLT5Y/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,7 +771,7 @@ Easy listening
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0qts97G/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0qts97G/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,7 +802,7 @@ House, Techno, Electro, Minimal  Lossless
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/9NVXCYg/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/9NVXCYg/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,7 +833,7 @@ Synthpop, New Wave (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/p10Z8VV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/p10Z8VV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,7 +864,7 @@ Experimental Electronic
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/gmXXw5w/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/gmXXw5w/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,7 +895,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/r2YZyKy/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/r2YZyKy/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,7 +926,7 @@ Easy listening
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/d7gZk5V/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/d7gZk5V/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,7 +951,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LtSd1kN/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LtSd1kN/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,7 +982,7 @@ CD 1
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/sC0vhMf/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/sC0vhMf/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,7 +1011,7 @@ Akshan - The Tree Of Life  2012
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/QcC9tQH/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/QcC9tQH/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,7 +1042,7 @@ Synthpop, New Wave (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/gVhMnYq/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/gVhMnYq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,7 +1073,7 @@ Synthpop, New Wave (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Khks3K1/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Khks3K1/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,7 +1104,7 @@ House, Techno, Electro, Minimal (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/t3NTDfm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/t3NTDfm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,7 +1126,7 @@ Psybient, Psychill, Psydub  Lossless
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/CWz61bP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/CWz61bP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,7 +1151,7 @@ Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Bc3DVD3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Bc3DVD3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,7 +1180,7 @@ VA - Earthquake - Compiled by Digital Tribe  2CD Unmixed   2009
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Qf1pzm4/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Qf1pzm4/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,7 +1211,7 @@ Easy listening
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/028DGgV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/028DGgV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,7 +1236,7 @@ Easy listening
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/c1H9TFB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/c1H9TFB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

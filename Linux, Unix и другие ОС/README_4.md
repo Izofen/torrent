@@ -1,4 +1,52 @@
 ﻿
+###  Публикация: 688 985
+
+Sabayon 13.08  Multi DE  Поддержка анонимного доступа в сети [x86]  5xDVD, CD 
+Linux, Unix и другие ОС
+ОС Linux
+
+###  Подробнее
+
+Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
+
+Сегодня Фабио Эркулиани  Fabio Erculiani  и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux Kernel 3.10.4 с поддержкой BFQ iosched, обновлена поддержка ZFS file system, GNOME 3.8.4, KDE 4.10.5, MATE 1.6.2, Xfce 4.10, LibreOffice 4.1, UEFI SecureBoot для 64-bit образов.
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21053F9F40987AF72F87F2E9D3DD790A96897974
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/SXNVn00/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 688 972
+
+Sabayon 13.08  Multi DE  Поддержка анонимного доступа в сети [x86-64]  5xDVD, CD 
+Linux, Unix и другие ОС
+ОС Linux
+
+###  Подробнее
+
+Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
+
+Сегодня Фабио Эркулиани  Fabio Erculiani  и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux Kernel 3.10.4 с поддержкой BFQ iosched, обновлена поддержка ZFS file system, GNOME 3.8.4, KDE 4.10.5, MATE 1.6.2, Xfce 4.10, LibreOffice 4.1, UEFI SecureBoot для 64-bit образов.
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B2A91B6628F5FEAEE09ECC4C7E86831E79C3A03
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/SXNVn00/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 688 331
 
 Mageia 4 Alpha I [i586, x86-64] 4xDVD
@@ -23,7 +71,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LhGTY1B/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LhGTY1B/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,7 +95,7 @@ Tails Live DVD - известная ранее также как  Incognito , о
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/xSHR8LM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/xSHR8LM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,7 +117,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/6r8n0rc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/6r8n0rc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,7 +141,7 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/bH0pgb0/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/bH0pgb0/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,7 +165,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/q7dN15J/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/q7dN15J/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,7 +189,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/q7dN15J/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/q7dN15J/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,7 +211,7 @@ MKVToolnix - функциональный набор инструментов д
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SV9kZGg/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SV9kZGg/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,7 +235,7 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/bH0pgb0/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/bH0pgb0/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,7 +257,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/6r8n0rc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/6r8n0rc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,7 +281,7 @@ Tails Live DVD - известная ранее также как  Incognito , о
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/xSHR8LM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/xSHR8LM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,7 +303,7 @@ SnowLinux Frosty 4 базируется на Ubuntu 13.04 и используе�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ZxKCDTz/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ZxKCDTz/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,7 +327,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/p38YsHR/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/p38YsHR/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,7 +351,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/c6CFXFs/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/c6CFXFs/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,7 +377,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Hrm4Mfw/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Hrm4Mfw/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,7 +403,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/YjRpHxK/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/YjRpHxK/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,7 +425,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FbW9MdV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FbW9MdV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,7 +449,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LhGTY1B/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LhGTY1B/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,7 +473,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LhGTY1B/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LhGTY1B/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,7 +497,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LhGTY1B/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LhGTY1B/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,7 +521,7 @@ Tails Live DVD - известная ранее также как  Incognito , о
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/xSHR8LM/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/xSHR8LM/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,7 +547,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/p38YsHR/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/p38YsHR/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,7 +571,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/jWc1xLD/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/jWc1xLD/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,7 +595,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/p38YsHR/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/p38YsHR/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,7 +621,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SNjcVKg/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SNjcVKg/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,7 +647,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SNjcVKg/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SNjcVKg/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,7 +671,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SNjcVKg/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SNjcVKg/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,7 +695,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/R7crSPG/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/R7crSPG/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,7 +721,7 @@ Jondo Live-CD   DVD предлагает безопасные, предвари�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Y84HmVW/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Y84HmVW/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,7 +745,7 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SXNVn00/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SXNVn00/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -721,7 +769,7 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SXNVn00/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SXNVn00/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -745,7 +793,7 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/SXNVn00/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/SXNVn00/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -771,7 +819,7 @@ Xubuntu — это разрабатываемая Canonical, основанна�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/mFkvbF3/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/mFkvbF3/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -793,7 +841,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/6r8n0rc/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/6r8n0rc/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -817,7 +865,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Tw1ydGm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Tw1ydGm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -841,7 +889,7 @@ Foresight Linux 2.5.3 поставляется с ядром LTS-ветки 3.4;
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/5KRKz59/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/5KRKz59/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -871,7 +919,7 @@ a0c947c99d25dbd6a30643de1e53fbf5     Читать дальше...
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/p38YsHR/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/p38YsHR/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -895,7 +943,7 @@ Tails Live DVD - известная ранее также как  Incognito , о
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/sq3CcQZ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/sq3CcQZ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -917,7 +965,7 @@ VMware Workstation — известная программа для виртуа
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/CHQNxGs/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/CHQNxGs/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -941,7 +989,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KrxsG12/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KrxsG12/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -963,7 +1011,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FbW9MdV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FbW9MdV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -987,7 +1035,7 @@ Red Hat Enterprise Linux  RHEL  6.4, корректирующий релиз к�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/KLNhb8F/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/KLNhb8F/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1011,7 +1059,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Lxzsbc2/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Lxzsbc2/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1033,7 +1081,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FbW9MdV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FbW9MdV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1057,7 +1105,7 @@ SolusOS – ориентированный на новичков в Linux нас
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/n8gk8wJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/n8gk8wJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1083,7 +1131,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/t3t89qR/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/t3t89qR/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1107,7 +1155,7 @@ MenuetOS не основана ни на Unix, ни на стандарте POSI
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/QKP1ZLm/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/QKP1ZLm/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1136,7 +1184,7 @@ eComStation  eCS  — обновлённая OEM-версия операцион
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/P437Fgf/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/P437Fgf/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1160,7 +1208,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/vH7YjD6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/vH7YjD6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1182,7 +1230,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FbW9MdV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FbW9MdV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1204,7 +1252,7 @@ Linux, Unix и другие ОС
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FwNLrps/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FwNLrps/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1228,7 +1276,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/FbW9MdV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/FbW9MdV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1254,7 +1302,7 @@ DraftSight дает возможность профессиональным по
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3NLJ9GV/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3NLJ9GV/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1284,7 +1332,7 @@ KolibriOS  англ. KolibriOS — КолибриОС  — операционн�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/2YV4Z8Y/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/2YV4Z8Y/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
