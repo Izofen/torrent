@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 705 133
+
+ВИА «Веселые ребята» - Любовь – огромная страна (1974) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1:
+01. Любовь - огромная страна (Б. Рычков - Л. Дербенев)
+02. Я к тебе не подойду (Д. Тухманов - Л. Дербенев, И. Шаферан)
+03. Отчего (Ю. Антонов - Т. Сашко)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:348E0649E7AD1689907C815E75B331D5FF881676
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 130
+
+ВИА «Ариэль» - Ариэль (1975) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+01. Зимы и весны (музыка и слова В. Ярушина)
+02. Где ждет любовь (музыка и слова А. Богословского)
+03. Старая пластинка (Н Богословский — Я. Родионов)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F530D53B5C3ED438FB08183E4BB596948282DED6
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 095
+
+Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossless|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1:
+01 - Кто идет (Д.-Б. Бембо — С. Бардотти — Н. Джакомелли — И. Форсман) — на шведском яз.;
+02 - Тайные влюбленные (П. Хочкисс — С. Джонсон):
+03 - Кто-то другой (А. Гленмарк — Т. X. Майнор):(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EABA8D20A0F7CA8D0B54EEB2CB5386CDCB3B8A49
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 093
+
+Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|tracks] <Country, Pop-Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1
+01. Люсиль
+Lucille (R. Bowling - H. Bynum)
+02. Игрок(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:77FE250003184A4909CE652CBD7B59D2542D7DCA
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 090
+
+Joe Dassin - Поет Джо Дассен (1979) [FLAC 24/192|Lossless|tracks] <Chanson, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1 сторона.
+01 - Если бы тебя не было. Et Si Tu N'existais Pas
+02 - Альбатрос. L'Albatros.
+03 - Моя музыка. Ma Musique.(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A7BBFEC264B1B1115A0EFE1B689924D0D57B2F73
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 087
+
+Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Думаю до понедельника) (1990) [FLAC 24/192|Lossless|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+Modern Age Rock'N'Roll
+01.Сегодняшний рок-н-ролл (муз. и сл. Дж. Стингрэй и Б. Гребенщикова)
+Give Me Some More Of Your Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3D277D22A0677288779972C0B5462A169EC6B728
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 074
+
+VA - With love to children  С любовью к детям   1991  [FLAC 24 192|Lossless|tracks] <Electronic, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1:
+01. Love Is Such A Lonely Word  D. Bohlen  – Blue System
+02. Big Time  Muller – G+M Koppehelle  – C. C. Catch
+03. Sole  G. Castelli – G. Gaste  – Gino Castelli    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B6E92DD8AE3F1FDF6C1C9E3E2817F6CB906B86B5
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 071
+
+Emerson, Lake & Palmer - Trilogy  1972  1990-е [FLAC 24 192|Lossless|tracks] <Rock, Prog Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1.
+01.The Endless Enigma  Part One   Emerson – Lake 
+02.Fugue  Emerson 
+03.The Endless Enigma  Part Two   Emerson – Lake     Читать дальше...    Жанр: Rock, Prog RockПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:018E67962A302C3D49C479902155EFD3BE49917E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 959
+
+ВИА «ABC» под управлением Ангело Владковича  Югославия  - ABC  1975  [FLAC 24 192|Lossless|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1:
+01. Ватерлоо  Б.Андерсон 
+02. Мечты  И.Швагер 
+03. Какая она красивая  Д.Паце     Читать дальше...    Жанр: PopПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F76BCE4ACB02973B7909510EFAF84EBA4FF652A9
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 952
+
+Вахтанг Кикабидзе - Пока сердце поет  1979  [FLAC 24 192|Lossless|tracks] <Retro, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1:
+01. Пока сердце поёт  А. Ованов – Н. Арешидзе 
+02. Ты сама ко мне придёшь  Г. Каландадзе – П. Грузинский 
+03. Куда ушли вы, молодые годы  Н. Адилашвили – В. Гоголашвили     Читать дальше...    Жанр: Retro, PopПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:39ED83346B49088FF2ADF07D0BC7F29EC076C01F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 704 948
 
 Вальдо де лос Риос - Волшебная Музыка  1979  [FLAC 24 192|Lossless|tracks] <Modern Classical>
@@ -1739,255 +1989,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:A0259EA072B97EE5E6B0AE74F96CFFDF13AD52C8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 673
-
-Unheilig - Frohes Fest  2002  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Sternzeit  1. Strophe 
-02. Kling Glöckchen Klingelingeling
-03. Leise Rieselt Der Schnee
-04. O Tannenbaum    Читать дальше...    Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E051C9F8E01C30629A8BB0A899F681DD9B7AFFA
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 658
-
-Mystic Prophecy - Studio Albums  12 releases   2001-2023  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Power Speed Thra
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Mystic Prophecy — немецкая пауэр-метал группа из Меммингена, Бавария, образованная в 2000 году.2001 - Vengeance
-2003 - Regressus
-2004 - Never Ending
-2006 - Savage SoulsЖанр: Power Speed Thrash MetalПродолжительность: 09:55:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/LkrnGTv/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 648
-
-Unheilig - Phosphor  2001  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Die Macht
-02. Willenlos
-03. Ikarus
-04. Sage Ja!    Читать дальше...    Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F173CF113DF006299B249C8FA710A050ABA4816
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 462
-
-Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Группа Gardenian была основана в Швеции в 1996 году Тимом Бломом (ударные) и Джимом Кьеллом (гитара, вокал). Вскоре к группе присоединились Хокан Скогер (бас) и Никлас Энгелин (гитара).1997 - Two Feet Stand
-1999 - Soulburner
-2000 - SindustriesЖанр: Melodic Death MetalПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:52C4710E801238F3A9E8C3F166DD9A9DA4083C31
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 256
-
-Pain of Salvation - Panther  2020  [FLAC|24 192|tracks|Vinyl-Rip] <Progressive Rock, Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Accelerator
-A2 Unfuture
-A3 Restless Boy
-B1 Wait    Читать дальше...    Жанр: Progressive Rock, MetalПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF8D8FA6344948FC164B95169AB8CB38BB42C3BF
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 250
-
-Pain of Salvation - Road Salt Two  2011 [FLAC|24 96|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Road Salt Theme  00:43 
-02. Softly She Cries  04:16 
-03. Conditioned  04:17 
-04. Healing Now  04:30     Читать дальше...    Жанр: Progressive Rock, MetalПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 149
-
-Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock, Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 No Way
-A2 She Likes To Hide
-A3 Sisters
-A4 Of Dust(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:53375725C461C26074992730EDB370C5D40C3126
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 102
-
-Lost World Order - Studio Albums  4 releases   2008-2016  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Thrash Death Metal
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Lost World Order - метал-группа из Билефельда, Северный Рейн-Вестфалия, Германия.2008 - This Apparatus Must Be Earthed!
-2009 - Marauders
-2011 - Parasites
-2016 - TyrantsЖанр: Thrash Death MetalПродолжительность: 03:19:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 826
-
-Pain of Salvation - Remedy Lane  2002  Reissue, 2014, Inside Out Music [FLAC|24 192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Of Two Beginnings  02:24 
-02. Ending Theme  04:59 
-03. Fandango  05:52 
-04. A Trace of Blood  08:17     Читать дальше...    Жанр: Progressive Rock, MetalПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6FEFC1AEB7FE0CD0F2968C7AD06384A0D8C0702A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 585
-
-Pain of Salvation - The Perfect Element- Part I  2000  Anniversary Mix, 2020, Inside Out Music[FLAC|24 192|tracks|Vinyl-Rip]  <Progressive Rock,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Used
-02. In the Flesh
-03. Ashes
-04. Morning on Earth    Читать дальше...    Жанр: Progressive Rock, MetalПродолжительность: 01:47:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E5C9B1EEB6E55F938FF680B0EAB2DEB3B5C6C67
 ```
 
 <div id="header" align="center">

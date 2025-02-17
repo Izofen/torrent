@@ -1,4 +1,255 @@
 ﻿
+###  Публикация: 1 630 238
+
+Dee D. Jackson - Cosmic Curves  1978  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Automatic Lover 4:08
+A2 Red Flight 4:10
+A3 Galaxy Of Love 4:48
+A4 Meteor Man 4:47    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C7C57E8EC626A14CA1AD3EF1767C7F9A56EA7A12
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 232
+
+Stream of Passion - Studio Albums  5 releases   2005-2014  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Progressive Symp
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Stream of Passion — мексикано-нидерландская симфоник- готик-метал-группа, образованная в 2005 году Арьеном Антони Люкассеном и Марселой Бовио.2005 - Embrace the Storm
+2006 - Out in the Real World  EP 
+2009 - The Flame Within
+2011 - Darker DaysЖанр: Progressive Symphonic MetalПродолжительность: 04:11:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D32D97DBEB6C81168B9B3BDE39813A4408ACD96F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 226
+
+Gorillaz - Cracker Island  2023  [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip Hop, Rock, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Cracker Island  3:33 
+ 02. Oil  3:50 
+ 03. The Tired Influencer  3:31 
+ 04. Tarantula  3:32     Читать дальше...    Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CC458EC151F24CA9F2FCC5F22DBF416BD57AF0BB
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 201
+
+Красные Маки - Если Не Расстанемся...  1980  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+А1 Встречай Меня
+А2 Если Не Расстанемся
+А3 Скажет Девчонка
+А4 Давай Попробуем Вернуть    Читать дальше...    Жанр: PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E6CDF7484CFC3EF2251AAEFB65F308B95B16B3D
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/6wCss1V/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 140
+
+Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Завтра, Варшава
+A2 Дай, Дай
+A3 Сады
+A4 Эта Рена(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:01940AFC53BFABA545CD4072615D960EE8E4B80C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 078
+
+Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Speed/Thr
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Holy Moses — немецкая трэш-метал-группа, одна из первых групп на немецкой трэш-метал-сцене.
+Лидер группы — вокалистка Сабина Классен.1986 - Queen Of Siam - Walpurgisnight Demo
+1987 - Finished With The Dogs
+1989 - The New Machine Of Liechtenstein
+1990 - World ChaosЖанр: Speed/Thrash MetalПродолжительность: 13:02:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:541FD872CC3ABEE3863ADF7EE3741935A22B6904
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 629 965
+
+Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1 The Getaway
+2 Dark Necessities
+3 We Turn Red
+4 The Longest Wave(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B4D569EE6D0D78E363150CDF52152EB2B38363F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 629 913
+
+Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Change The Weather
+A2 Stand Up
+A3 Fever
+A4 Original Song(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B2623DCC96EA8789D4F7D9C132CC461ED1AFC7B5
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 629 816
+
+Baccara - Baccara  1977   [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01 Yes Sir, I Can Boogie  Dostal - Soja  4:37
+02 Love You Till I Die  Dostal - Soja  4:29
+03 Granada  Lara  4:21
+04 Gimme More  Soja - Zentner  3:54    Читать дальше...    Жанр: PopПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5CCFF4D651623339252A73CA4D8A37716199A78F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 629 685
+
+Зодиак - Музыка во Вселенной  1982   [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Electro, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Таинственная галактика  4:45 
+A2. Лазерная иллюминация  4:11 
+A3. Серебряная мечта  3:33 
+A4. Фотофиниш  4:34     Читать дальше...    Жанр: Electro, DiscoПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FAAE095706F44266BEC0CA327A1FCD13E959B6FD
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 629 672
 
 Kylie Minogue - Kiss Me Once  2014  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Synth-pop>
@@ -1728,253 +1979,6 @@ A4. Lost In Paradise  Extended Version  5:05    Читать дальше...    
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 371
-
-Various - Flashdance - Original Soundtrack From The Motion Picture  1983  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Soundtrack>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05919032C3DCDB93C8E83D52C977783D806CC3DB
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 217
-
-Londonbeat - In the blood  1990  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. It s in the blood [4:50]
-02. Getcha ya ya [4:35]
-03. She broke my heart  in 36 places  [3:40]
-04. She said she loves me [4:17]    Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 202
-
-Samantha Fox - Touch Me  1986  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Synth-Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Touch Me  I Want Your Body  3:44
-A2 I m All You Need 4:25
-A3 Suzie, Don t Leave Me With Your Boyfriend 3:54
-A4 Wild Kinda Love 3:33    Читать дальше...    Жанр: Synth-PopПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 196
-
-Space - Magic Fly  1983  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Ambient, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1  Пристегните Ремни 5:59
-A2  Баллада 2:17
-A3  Танго В Космосе 4:28
-A4  Наваждение 3:32    Читать дальше...    Жанр: Ambient, DiscoПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 622 959
-
-Dreamtale - Studio Albums (8 releases) (2002-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Power Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Dreamtale — финская группа, играющая пауэр-метал, образованная в 1999 году.2002 - Beyond Reality
-2003 - Ocean's Heart
-2005 - Difference
-2008 - PhoenixЖанр: Melodic Power MetalПродолжительность: 08:12:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8870D5E32E79A2FB57376BF8A99690B6CB86DB83
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 622 220
-
-Sheavy - Studio Albums  9 releases   1996-2013  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Stoner Doom Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
-1998 - The Electric Sleep
-2000 - Celestial Hi-Fi
-2003 - SynchronizedЖанр: Stoner Doom MetalПродолжительность: 07:57:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 621 442
-
-Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Роберт Адриан Кэтли — английский певец, музыкант, солист британской рок-группы Magnum. Здесь представлена его сольная дискография.1998 - The Tower
-1999 - Legends
-2001 - Middle Earth
-2003 - When Empires BurnsЖанр: Heavy Metal, Hard RockПродолжительность: 06:08:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 621 149
-
-VA  «Червоны гитары», М. Родович, Д. Фардон, Саймон и Гарфанкель  - Не Задирай Носа  1972  [FLAC 1.0|192 24|image +.cue|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 «Червоны гитары» - Не Задирай Носа
- С. Краевский – М. Гашинский 
-A2 Марыля Родович - Баллада О Поезде
- А. Зелинский - А. Осецка     Читать дальше...    Жанр: PopПродолжительность: 00:13:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 620 922
-
-Spiritbox - Studio Albums  5 releases   2017-2023  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Metalcore, Progressive Meta
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Spiritbox — канадская метал-группа из Виктории, Британская Колумбия. Дуэт мужа и жены, гитариста Майка Стрингера и вокалистки Кортни ЛаПланте, основан в 2017 году. Музыкальный стиль группы трудно отнести к определённому жанру метал-музыки, и он представляет собой множество стилей, включая электронную музыку.2017 - Spiritbox  EP 
-2019 - Singles Collection  EP 
-2021 - Eternal Blue
-2022 - Rotoscope  EP Жанр: Metalcore, Progressive Metal, DjentПродолжительность: 02:27:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8322C9115553730E78E5B3A8245FA731CA8D5F75
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 620 890
-
-Donny Osmond - Донни Осмонд  1976  Лицензия фирмы Polydor International GmbH  ФРГ  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Life Is Just What You Make It • Ты хозяин своей судьбы
-A2. The Twelfth Of Never • Буду любить тебя вечно
-A3. Sunshine Rose • Солнечная роза
-A4. Do You Want Me • Нужен ли я тебе    Читать дальше...    Жанр: Pop RockПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
 ```
 
 <div id="header" align="center">

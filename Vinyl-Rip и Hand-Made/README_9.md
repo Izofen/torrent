@@ -1,4 +1,252 @@
 ﻿
+###  Публикация: 1 662 856
+
+Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-Rip]<Symphonic Power Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Song For Eden
+A2 Jerusalem Is Falling
+A3 Design The Century
+A4 Rise Of The 4th Reich(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B08F578F930294AF66E5AA2A0E22A33857C88674
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 662 814
+
+VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Puccini, Berlioz and Bizet (1976) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip]
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Serbami Ognor (Semiramide, Act I)
+A2 Se M'Ami Ancor ... Al Nostri Monti Ritorneremo (Il Trovatore, Act IV)
+A3 Un Di Felice (La Traviata, Act I)
+A4 Ascoltai Le Porte Dell'Asil S'Apron Gia, Dio, Che Nell'Alma Infondere (Don Carlo, Act II)(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:870A41064ADDD114E0F45E11BFF88C53539B6227
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 662 711
+
+Sylosis - Studio Albums (8 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Thrash Metal, Meta
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Sylosis — британская метал-группа из Рединга. Группа была основана в 2000 году гитаристом Джошем Миддлтоном и бас-гитаристом Карлом Парнеллом.2006 - Casting Shadows (EP)
+2007 - The Supreme Oppressor (EP)
+2008 - Conclusion of an Age
+2011 - Edge of the EarthЖанр: Melodic Death Metal, Thrash Metal, MetalcoreПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4CF79D02D17736E4B7169D0986B51AAE3BB4721E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 662 444
+
+Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Seventh Wonder — прогрессив-метал группа, была создана в Стокгольме в 2000 году бас-гитаристом Андреасом Бломквистом, гитаристом Йоханом Лифвендалом и барабанщиком Джонни Сэндином.2005 - Become
+2006 - Waiting In The Wings
+2008 - Mercy Falls
+2011 - The Great EscapeЖанр: Progressive MetalПродолжительность: 06:24:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:434CC2B40B5BD6A7B47CC4DB3FA555D8965DB38A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 662 007
+
+Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Met
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Mark Robert Boals (родился 5 декабря 1958 г.) - американский хэви-метал вокалист1998 - Ignition
+2000 - Ring Of Fire
+2002 - Edge Of The WorldЖанр: Power MetalПродолжительность: 05:37:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6E9BF7D6F234F9345E1DB71915500F6983F1995D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 661 987
+
+Vindictiv - Studio Albums  4 releases   2008-2016  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Progressive Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Vindictiv - прогрессив-метал группа из Стокгольма, Швеция, основанная в 2004 году.2008 - Vindictiv
+2009 - Ground Zero
+2013 - Cage of Infinity
+2015 - World of FearЖанр: Progressive MetalПродолжительность: 03:37:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF08D1759784C11927F4FAAC539A42BA7AE0D34B
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 661 762
+
+Demons & Wizards  Blind Guardian; Iced Earth  - Studio Albums  3 releases   2000-2020  hand made [restored, declipped] [FLAC |16 44.1|tr
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Demons & Wizards - сайд-проект вокалиста Ханси Кюрша  Blind Guardian  и гитариста Джона Шаффера  Iced Earth  в жанре пауэр-метал.2000 - Demons & Wizards
+2005 - Touched by the Crimson King
+2020 - IIIЖанр: Power MetalПродолжительность: 03:24:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 661 630
+
+Rage of Angels - Rage of Angels  1989  [WavPack|32 192|image + .cue|Vinyl-Rip] <Melodic Heavy Metal, Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Leave You Or Forsake You
+02. Reason To Rock
+03. It s Not Late For Love
+04. Somebody s Watching You    Читать дальше...    Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A6D7C9AEBC0D4384A673530831E5769B0CBA5784
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 661 107
+
+Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral  1977  A New Recording from the Berlin Philarmonic Hall [
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Ludvig Van Beethoven  1770 - 1817 
+Symphony No.6 In F Major, Op. 68  Pastoral 
+A New Recording from the Berlin Philarmonic Hall
+A1 Allegro Ma Non Troppo    Читать дальше...    Жанр: Classical, RomanticПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 660 750
+
+Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection  1973  [FLAC 2.0|24 96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Vienna Blood
+A2 Radetzky March
+A3 Tales From The Vienna Woods
+B1 The Blue Danube    Читать дальше...    Жанр: Classical, OrchestraПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 660 657
 
 Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
@@ -1735,255 +1983,6 @@ Side A:
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:71F207E6629AC8C46C0C88C5F6B30D40BCA9CBD6
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 644 307
-
-Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Electronic, Funk / Soul, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1		I'm Your Baby Tonight	5:00
-A2		My Name Is Not Susan	4:38
-A3		All The Man That I Need	4:09
-A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 643 972
-
-Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, Reissue, Gatefold 180g Electric-Blue And Orange Vinyl [FLAC 2.0|192/24|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-00:38:54
-
-A1 Atomic
-(A. Maratrat, G. L'Her)(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 03:11:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 643 464
-
-Presto Ballet - Studio Albums (6 releases) (2005-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover Progressive>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Presto Ballet — прогрессив-рок-группа, основанная гитаристом Metal Church Курдтом Вандерхофом.2005 - Peace Among The Ruins
-2008 - The Lost Art of Time Travel
-2011 - Invisible Places
-2012 - Relic of the Modern World(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 05:00:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:19A6E9A8F9E2B3623EB50A2D988D4F33686E3769
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 642 992
-
-Emperor - Studio Albums  7 releases   1993-2001  hand made [restored, declipped] [FLAC|16 44.1|tracks +.cue] <Symphonic Black Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Emperor — норвежская блэк-метал-группа, основанная в 1991 году и оказавшая значительное влияние на развитие жанра.1993 - Emperor  EP 
-1994 - As The Shadows Rise  EP 
-1994 - In the Nightside Eclipse
-1998 - Anthems To The Welkin At DuskЖанр: Symphonic Black MetalПродолжительность: 04:17:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6CC8EDBE9CC8A2E1A81A8C3BDD8F5C6ADA895EFC
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 642 795
-
-Deserted Fear - Studio Albums (5 releases) (2012-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Deserted Fear - Death metal группа из Германии, основана в 2008 году.2012 - My Empire
-2014 - Kingdom of Worms
-2017 - Dead Shores Rising
-2019 - Drowned By HumanityЖанр: Death MetalПродолжительность: 03:57:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:07FF70A2C40CED1D5570CD3716D3A12E352EB26A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 642 533
-
-Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic/Symphonic Deat
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Eternal Tears of Sorrow — финская группа, исполняющая музыку в стиле симфонический дэт-метал.1997 - Sinner's Serenade
-1998 - Vilda Mannu
-2000 - Chaotic Beauty
-2001 - A Virgin And A WhoreЖанр: Melodic/Symphonic Death MetalПродолжительность: 05:19:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3403DFFCB7EA8524DBBFA88A9533326A3A4F224C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 642 386
-
-Леонид Агутин - Летний Дождь (1998) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Latin, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Не Унывай!
-A2 Летний Дождь
-A3 Полночи
-A4 Танцевали Пары(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 642 322
-
-The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Gothic/Doom 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-The Sins of Thy Beloved — музыкальный коллектив из Норвегии, исполняющий свою музыку в направлении симфонического готик/дум-метала. Название группы переводится как «Грехи твоей возлюбленной/Грехи твоего возлюбленного». По словам участников коллектива они выбрали именно это название, так как оно наиболее полно отображает музыку, концепцию и лирику группы (лирика песен (   Читать дальше...   )1997 - All Alone (EP)
-1998 - Lake of Sorrow
-2002 - Perpetual DesolutionЖанр: Symphonic Gothic/Doom MetalПродолжительность: 02:19:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2850E838857667DD3914CFAE98763A28F7998B54
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 642 122
-
-Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial/Groove/Progressive Metal, Dj
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Mnemic — датская метал-группа, образованная в Ольборге в 1998 году.2003 - Mechanical Spin Phenomena
-2004 - The Audio Injected Soul
-2007 - Passenger
-2010 - Sons Of The SystemЖанр: Industrial/Groove/Progressive Metal, DjentПродолжительность: 04:40:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 642 113
-
-A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Stay On These Roads 4:44
-A2 The Blood That Moves The Body 4:05
-A3 Touchy 4:31
-A4 This Alone Is Love 5:13(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8D6868FBE367A08BB0303738B18AB784F6863B85
 ```
 
 <div id="header" align="center">

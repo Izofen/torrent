@@ -1,4 +1,257 @@
 ﻿
+###  Публикация: 1 086 523
+
+Manfred Mann s Earth Band - The Roaring Silence  1976  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Progressive Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Blinded By The Light  7:09 
+A2. Singing The Dolphin Through  8:21 
+A3. Waiter Theres A Yawn In My Ear  5:40 
+B1. The Road To Babylon  6:53     Читать дальше...    Производство: Bronze - 27 870 XOTЖанр: Progressive RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 086 353
+
+Демис  Руссос - Большой успех Демиса Руссоса  1980  2 LP [WavPack|192 32|tracks|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+01. Someday, Somewhere  Когда-то, где-то   3:00
+02. Forever And Ever  Навсегда, навсегда   3:36
+03. Velvet Mornings  Бархатные утра   3:34    Читать дальше...    Жанр: PopПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E1A8F531EF97CB518707B3E7245E308CBFD3F4EF
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 085 375
+
+Александр Барыкин - Букет  1988  [WavPack|192 24|image + .cue|Vinyl-Rip] <Rock, New Wave>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Букет  3:38 
+02. Дождь И Снег  4:36 
+03. Осенний Парк  5:05 
+04. Голос Твой  5:26     Читать дальше...    Жанр: Rock, New WaveПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 084 131
+
+Константин Сокольский - Старинные Романсы, Песни  1990  [FLAC 1.0|96 24|image+.cue|Vinyl-Rip] <Chanson, Vocal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Когда любовь волнует кровь  вальс-бостон 
+02. Песня балалайки  танго 
+03. Свадебная тройка  фокстрот 
+04. Чужие города    Читать дальше...    Жанр: Chanson, VocalПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4BD76A19CBF2BB763BA09A1F594ADA7C2341A495
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 083 755
+
+Yello - You Gotta Say Yes To Another Excess  1983  1984, Stiff Records [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. I Love You  3:25 
+A2. Lost Again   4:19 
+A3. No More Words   3:58 
+A4. Crash Dance   2:09     Читать дальше...    Производство: Stiff Records - STLP 1017Жанр: ElectronicПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A3650B4A4BD311C3AC47AA26CDBBBC25CB4387D5
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 083 119
+
+Братья Жемчужные - Я решил жениться  1994  Запись 1974 г. [FLAC 2.0|44,1 16|tracks|MC-Rip] <Chanson>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Я решил жениться
+02. Поезд ехал на Восток
+03. Госпожа Разлука
+04. Школа бальных танцев    Читать дальше...    Жанр: ChansonПродолжительность: 00:40:51
+Страна-производитель: Russia
+Номер по каталогу: none
+Кодек: FLAC  tracks     Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8D41A13F515B30E2E89B5773073B480A36480D30
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 082 282
+
+Didier Marouani - Space Opera  1988  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Part 1  4:41 
+02. Part 2  2:53 
+03. Part 3  3:51 
+04. Part 4  Save Our Soul   4:44     Читать дальше...    Производство: Мелодия АЗГ - A60 00381 006Жанр: ElectronicПродолжительность: 00:33:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EF8E74D059D9D1D194B982BBB5F1DBBC622D4D3E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 082 094
+
+Modern Talking - Ready For Romance  1987  [WavPack|192 32|tracks|Vinyl-Rip] <Italo-Disco, Synth-pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+01. Брат Луи  Brother Louie   3:40
+02. Лишь мы вдвоем  Just We Two  Mona Lisa    3:56
+03. Леди Лэй  Lady Lai   4:56    Читать дальше...    Жанр: Italo-Disco, Synth-popПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:72ABC07BE618FA632E5E68B9C35A4B681867409E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 081 655
+
+Гарри Гродберг - И. С. Бах - Токкаты  1975  [WavPack|192 32|tracks|Vinyl-Rip|Lossless] <Classical, Baroque>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Toccata In D Minor, B. 565  8:22
+Toccata In C Major, B. 564
+2.  Allegro   6:14    Читать дальше...    Жанр: Classical, BaroqueПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BD12A25ED340DB6E47FBCCF0FF80D700A77E692E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 080 441
+
+Давид Ойстрах - И. С. Бах - Сюита №2 си минор, Г.Ф. Гендель - Музыка на воде  1989  [WavPack|192 32|tracks|Vinyl-Rip] <Classical, Baroque>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+И. С. Бах. Сюита №2 си минор
+1. Ouverture  9:14
+2. Rondeau  1:34    Читать дальше...    Жанр: Classical, BaroqueПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2B8076FFDAE30B7FA6A3E05687DE6B210D79A4BC
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 080 374
 
 Barclay James Harvest - Everyone Is Everybody Else  1974  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Progressive Rock>
@@ -1724,254 +1977,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:36FFACB1A13245B5EB6F20CF6E4E0E8784D8A237
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 050 670
-
-Форум - Никто Не Виноват  1988  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Electronic, New Wave, Synth-pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Мечтатель • Dreamer
-02. Закодирована Дверь • Door With A Code
-03. Ты Пожалеешь • Yo ll Be Sorry
-04. Серенада • Serenade    Читать дальше...    Жанр: Electronic, New Wave, Synth-popПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2781746B23F41AAC5533DBE83DE5B44D4BDF962C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 050 497
-
-VA - Рождественские Встречи Аллы Пугачёвой  1991  2EP [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Аркадий Укупник - Фиеста
-A2 А-Студио - Был Мой Сон
-A3 Владимир Пресняков-младший - Странник
-A4 Лариса Долина - Варьете Потерянных Сердец    Читать дальше...    Жанр: Pop, RockПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E03DD0FF830EAB4B62B8B1328B77B263DF5D44EB
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 049 808
-
-VA - Вас Поздравляют Звёзды!  1990  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 А. Пугачева, Р. Горобец, Б. Шукенов, А. Барыкин, А. Буйнов - Рождество
-A2 С. Минаев - Ломбаба
-A3 Е. Семенова - А жизнь меня кружила
-A4 И. Саруханов - Barbe    Читать дальше...    Жанр: Pop, RockПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E02200B0E797239E4C67177E3DBA9B2A5D48BA3E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 049 566
-
-Genesis - SACD Anthology  1970-1998  [FLAC 2.0|96 24|tracks+.cue|SACD] <Progressive Rock, Pop Rock, Art Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Invisible Touch  3:29 
-02. Tonight, Tonight, Tonight  8:54 
-03. Land Of Confusion  4:46 
-04. In Too Deep  5:03     Читать дальше...    Жанр: Progressive Rock, Pop Rock, Art RockПродолжительность: 14:37:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B345F4CCF1B7F126269C2A5139016902BCAF921C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 048 861
-
-Def Leppard - Pyromania  1983  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Hard Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Rock Rock  Till You Drop   3:57 
-02. Photograph  4:06 
-03. Stagefright  3:46 
-04. Too Late For Love  4:26     Читать дальше...    Производство: Mercury Records - 810 308-1Жанр: Hard RockПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:52F94159702996FFB78062811CA47C100AA28371
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 048 502
-
-Виктор Цой - Печаль  2000 2015  [WavPack 2.0 32 192|image + .cue|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона A
-A1. Война
-A2. Спокойная ночь
-A3. В наших глазах    Читать дальше...    Жанр: RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:47B7650CFAA018C694EB8D91386250A82C52352F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 048 341
-
-Alan Parsons - A Valid Path  2006  [FLAC 2.0|48 24|image+.cue|Audio-DVD] <Progressive Rock, Art-Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01 - Return to Tunguska
- 02 - More Lost Without You
- 03 - Mammagamma  04
- 04 - We Play The Game    Читать дальше...    Жанр: Progressive Rock, Art-RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7D2B2B0337101128C04100750DB08F197FD5D7AC
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 047 276
-
-Трио Современной Джазовой Музыки: В. Чекасин, В. Тарасов, В. Ганелин - Джазовые Импровизации  1976  [FLAC 2.0|96 24|side-tracks|Vinyl-Rip] <Free
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-А	Джазовые Импровизации
-В	Джазовые Импровизации  Окончание Жанр: Free JazzПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:864A40CB67B61C44A369D71699BE3CE1AFA27DF8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 047 254
-
-Chicago - Chicago 18  1987  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Jazz Rock, Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Niagara Falls
-02. Forever
-03. If She Would Have Been Faithful...
-04. 25 Or 6 To 4    Читать дальше...    Жанр: Jazz Rock, Pop RockПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59427E2D6D8AFAD4414B3CC395EF1BEDED7202D6
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 047 244
-
-VA - Панорама  86. Фестиваль Молодежной Популярной Музыки  1987  2LP [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Hard Rock, Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Круиз - Не падай духом
-02. Здравствуй Песня - Дрянная девчонка
-03. С. Сарычев - Цунами
-04. И. Кезля, А. Моргунов - Долина грёз    Читать дальше...    Жанр: Hard Rock, Pop RockПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B7FFCD0A042F5FA8510E62DDD365E37765DC87C
 ```
 
 <div id="header" align="center">

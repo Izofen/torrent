@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 208 575
+
+Raffaella Carra Рафаэлла Карра - Поёт Рафаэлла Карра  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Чак-Чак  Ciak  Malgioglio - Castellari
+02. Вернись Ко Мне  Torna Da Me  Belfiore - Boncompagni - Bracardi
+03. Несчастная Любовь  Povero Amore  Boncompagni - Bracardi
+04. На Словах  A Parole  Belfiore - Boncompagni - Bracardi    Читать дальше...    Жанр: Italo PopПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6722F60B27957CA21FA8379CC569E108A153B068
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 569
+
+VA - Superstars  1974  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Tom Jones - Little Lonely One
+02. Gerry Dorsey - The Sentimental Joker
+03. Gilbert O Sullivan - I Wish I Could Cry
+04.   The Nocturnes   - Why  Am I Treated So Bad     Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 554
+
+VA - San Remo  88  1988  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Massimo Ranieri - Perdere l’amore
+02. Fiordaliso - Per Noi
+03. Toto Cutugno - Emozioni
+04. Marcella - Dopo La Tempesta    Читать дальше...    Жанр: Italo PopПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 540
+
+VA - Le Canzoni D Oggi  1987  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Al Bano & Romina Power – Sempre, Sempre
+02. Loretta Goggi – Io Nascero
+03. Adriano Celentano – Lunedi
+04. Marcella Bella – La Verita    Читать дальше...    Жанр: Italo PopПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:972872B0AA114045CC6429CD3E72B909A66CB422
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 528
+
+VA - Italian Pop Music  1986  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Claudio Baglioni - Un Giorno nuovo
+02. Lucio Battisti - E Penso A Te
+03. Edoardo Bennato - L isola Che Non C e
+04. Lucio Battisti - Ancora Tu    Читать дальше...    Жанр: Italo PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7E36B68997E1A4D1E01BD7C2942A9A48E1A0B23E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 517
+
+VA - Italian Hit-Parade 2  1985  [FLAC 2.0|96 24|image+.cue|Vinyl-Rips] <Italo Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Dori Ghezzi - Margherita on so la
+02. Stefano Sani - Complimenti
+03. Rosanna Fratello - …Se t’amo t’amo
+04. Adriano Celentano - Atmosfera    Читать дальше...    Жанр: Italo PopПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CE2B6A4FF241262493C72047E6B61C7F9BBF6E93
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 498
+
+Pooh - Viva  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Io Sono Vvo
+02. Notte A Sorpresa
+03. Una Donna Normale
+04. Tutto Adesso    Читать дальше...    Жанр: Italo PopПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F0A730619FFF3812F485F4D5A14B15BA9774ADA1
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 378
+
+Within Temptation - Hydra  2014  [FLAC 2.0|192 24|image + cue|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Let Us Burn
+02. Dangerous  feat. Howard Jones 
+03. And We Run  Feat. Xzibit 
+04. Paradise  What About Us?   feat. Tarja     Читать дальше...    Жанр: RockПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8404BFE1F2EAC5D41638FAB2B010C58864E49E66
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 159
+
+Lindsey Stirling - Shatter Me  2014  [FLAC 2.0|192 24|image + cue|Vinyl-Rip] <Dubstep, Modern Classical>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1. Beyond The Veil
+2. Mirror Haus
+3. V-Pop
+4. Shatter Me  feat. Lzzy Hale     Читать дальше...    Жанр: Dubstep, Modern ClassicalПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B90C59C319DD4A7CA29272EDF7F763173D0ACD4
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 156
+
+Imagine Dragons - Night Visions  2012  [FLAC 2.0|192 24|image + cue|Vinyl-Rip] <Rock, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1. Radioactive
+2. Tiptoe
+3. It s Time
+4. Demons    Читать дальше...    Жанр: Rock PopПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A5388CE1B361B85EDF1692D9AC925DA26CFDB4C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 208 010
 
 Tom Jones Том Джонс - Лучшие песни из репертуара...  1981  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
@@ -1731,255 +1981,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 169 430
-
-ВИА Пламя - 200 лет  1982  [DSD2.0|5,64MHz 1bit|tracks|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Вячеслав Малежик - Двести лет
-02. ПЛАМЯ - Гороскоп
-03. ПЛАМЯ - Синяя птицаЖанр: PopПродолжительность: 00:10:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 169 413
-
-Alice Cooper - Paranormal  2017  2LP, 45RPM [WavPack 2.0|192 32|image + .cue|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Paranormal  4:10 
-A2. Dead Flies  2:24 
-A3. Fireball  4:49 
-B1. Paranoiac Personality  3:10     Читать дальше...    Производство: Ear Music - 0212198EMUЖанр: RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 167 019
-
-Александр Зацепин - музыка из к ф  Кавказская пленница   1967  [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Pop, Stage & Screen>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Песенка О Медведях  2:56 
-02. Дорога  1:58 
-03. Встреча  2:42 
-04. На Танцевальной Площадке  2:50 Жанр: Pop; Stage & ScreenПродолжительность: 00:10:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C83E30D165E840E78ABF20BA9D1DBEB693FF36CB
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 402
-
-Queen - Jazz  1978  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Mustapha  3:02 
-A2. Fat Bottomed Girls  4:17 
-A3. Jealousy  3:14 
-A4. Bicycle Race  3:04     Читать дальше...    Производство: Elektra - P-10601EЖанр: RockПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A5820B8AEFDEFC9158723D5767C4B63D9B2C12AB
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 051
-
-VA - Убойная Сила. Любимые песни из телесериалов  2002  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Pop, Chanson, Soundtrack>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона А:
-01.   Любэ   - Позови меня тихо по имени
-02. Михаил Круг и Вика Цыганова - Приходите в мой дом
-03. Виктор Королёв - Непутёвая    Читать дальше...    Жанр: Pop, Chanson, SoundtrackПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F1400E62F41648F4FAA2221D1A194DEE66AA2B4D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 044
-
-Андрей Макаревич - Золотые хиты 2003  2003  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Rock, Chanson, Ballad>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона А:
-01. Тонкий шрам на любимой попке
-02. Начало
-03. Через стекло    Читать дальше...    Жанр: Rock, Chanson, BalladПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7DF9F01A12C7955D6A4B6DEF193889A1622864B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 165 607
-
-VA - 80 s Dance Classic volume 2  2002  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Pop Rock, Pop, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. Arabesque - Midnight Dancer
-02. Bad Boys Blue - You re A Woman
-03. Ottawan - D.I.S.C.O.    Читать дальше...    Жанр: Pop Rock, Pop, DiscoПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FB5AE1DDD9C6458C42552E748EAA0F4069ECFC5F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 165 600
-
-VA - 80 s Dance Classic  2001  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Pop Rock, Pop, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. Opus - Life Is Life
-02. Status Quo - You re In The Army Now
-03. Desireless - Voyage    Читать дальше...    Жанр: Pop Rock, Pop, DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9DC71C62A866B850A365E729AE0EBCDF881E4F2
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 165 567
-
-Glenn Miller - World Music Collection  2002  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Jazz, Big Band>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. In The Mood
-02. Sunrise Serenade
-03. Astring Of Pears    Читать дальше...    Жанр: Jazz, Big BandПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:961134FFE7F4A0D7C3B9758766A179722CC0CDBC
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 164 825
-
-London Orion Orchestra, Alice Cooper, Dave Fowler, Stephen McElroy, Rick Wakeman - Pink Floyd s Wish You Were Here Symphonic  2016  [DSD2.0|5,64
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01.Wish You Were Here  Vocal   5:05 
-02.Shine On You Crazy Diamond  Part I-V   13:17 
-03.Welcome To The Machine  7:11 
-04.Have A Cigar  5:17     Читать дальше...    Жанр: Rock; ClassicalПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44C36F5027E60A7D92C1496463386A75395E7B5F
 ```
 
 <div id="header" align="center">

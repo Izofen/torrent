@@ -1,4 +1,253 @@
 ﻿
+###  Публикация: 1 700 673
+
+Unheilig - Frohes Fest  2002  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Sternzeit  1. Strophe 
+02. Kling Glöckchen Klingelingeling
+03. Leise Rieselt Der Schnee
+04. O Tannenbaum    Читать дальше...    Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E051C9F8E01C30629A8BB0A899F681DD9B7AFFA
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 658
+
+Mystic Prophecy - Studio Albums  12 releases   2001-2023  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Power Speed Thra
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Mystic Prophecy — немецкая пауэр-метал группа из Меммингена, Бавария, образованная в 2000 году.2001 - Vengeance
+2003 - Regressus
+2004 - Never Ending
+2006 - Savage SoulsЖанр: Power Speed Thrash MetalПродолжительность: 09:55:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/LkrnGTv/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 648
+
+Unheilig - Phosphor  2001  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Die Macht
+02. Willenlos
+03. Ikarus
+04. Sage Ja!    Читать дальше...    Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F173CF113DF006299B249C8FA710A050ABA4816
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 462
+
+Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Группа Gardenian была основана в Швеции в 1996 году Тимом Бломом (ударные) и Джимом Кьеллом (гитара, вокал). Вскоре к группе присоединились Хокан Скогер (бас) и Никлас Энгелин (гитара).1997 - Two Feet Stand
+1999 - Soulburner
+2000 - SindustriesЖанр: Melodic Death MetalПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:52C4710E801238F3A9E8C3F166DD9A9DA4083C31
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 256
+
+Pain of Salvation - Panther  2020  [FLAC|24 192|tracks|Vinyl-Rip] <Progressive Rock, Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Accelerator
+A2 Unfuture
+A3 Restless Boy
+B1 Wait    Читать дальше...    Жанр: Progressive Rock, MetalПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF8D8FA6344948FC164B95169AB8CB38BB42C3BF
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 250
+
+Pain of Salvation - Road Salt Two  2011 [FLAC|24 96|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Road Salt Theme  00:43 
+02. Softly She Cries  04:16 
+03. Conditioned  04:17 
+04. Healing Now  04:30     Читать дальше...    Жанр: Progressive Rock, MetalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 149
+
+Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock, Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 No Way
+A2 She Likes To Hide
+A3 Sisters
+A4 Of Dust(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:53375725C461C26074992730EDB370C5D40C3126
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 102
+
+Lost World Order - Studio Albums  4 releases   2008-2016  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Thrash Death Metal
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Lost World Order - метал-группа из Билефельда, Северный Рейн-Вестфалия, Германия.2008 - This Apparatus Must Be Earthed!
+2009 - Marauders
+2011 - Parasites
+2016 - TyrantsЖанр: Thrash Death MetalПродолжительность: 03:19:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 699 826
+
+Pain of Salvation - Remedy Lane  2002  Reissue, 2014, Inside Out Music [FLAC|24 192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Of Two Beginnings  02:24 
+02. Ending Theme  04:59 
+03. Fandango  05:52 
+04. A Trace of Blood  08:17     Читать дальше...    Жанр: Progressive Rock, MetalПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6FEFC1AEB7FE0CD0F2968C7AD06384A0D8C0702A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 699 585
+
+Pain of Salvation - The Perfect Element- Part I  2000  Anniversary Mix, 2020, Inside Out Music[FLAC|24 192|tracks|Vinyl-Rip]  <Progressive Rock,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Used
+02. In the Flesh
+03. Ashes
+04. Morning on Earth    Читать дальше...    Жанр: Progressive Rock, MetalПродолжительность: 01:47:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E5C9B1EEB6E55F938FF680B0EAB2DEB3B5C6C67
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 698 857
 
 Enemy of Reality - Studio Albums (3 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
@@ -1731,253 +1980,6 @@ A4 Night Of The Living Dead    Читать дальше...    Жанр: Thrash,
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/ZfCr35D/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 524
-
-Silent Force - Studio Albums  5 releases   2000-2013  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Power Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Silent Force - немецкая группа Heavy Metal Power Metal, образованная в 1999 году.2000 - The Empire Of Future
-2001 - Infatuator
-2004 - Worlds Apart
-2007 - Walk The Earth    Читать дальше...    Жанр: Power MetalПродолжительность: 05:03:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:484BF8716C7638A6204B931744B24745E4C67367
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 413
-
-System Of A Down - Mezmerize  2005   [FLAC|24 192|image + .cue|Vinyl-Rip]<Alternative Metal, Nu Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Soldier Side - Intro
-A2 B.Y.O.B.
-A3 Revenga
-A4 Cigaro    Читать дальше...    Жанр: Alternative Metal, Nu MetalПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:49C12326CA3DB194DC515C45E014467BC981000A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 406
-
-Ayreon - The Source  2017  [FLAC|24 96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 - The Day That The World Breaks Down
-A2 - Sea Of Machines
-A3 - Everybody Dies
-B1 - Star Of Sirrah    Читать дальше...    Жанр: Progressive Metal, RockПродолжительность: 01:28:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 362
-
-Stam1na - Studio Albums  12 releases   2005-2023  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Progressive Thrash Heavy
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Stam1na  «Стойкость»  — метал-группа из Леми, Южная Карелия, Финляндия. Их стиль можно определить как прогрессивный метал с элементами треш-, дет- и альтернативного метала. Тексты — на финском языке.2005 - Stam1na
-2006 - Uudet Kymmenen Kaskya
-2008 - Raja
-2010 - Viimeinen AtlantisЖанр: Progressive Thrash Heavy MetalПродолжительность: 09:33:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 158
-
-Semblant - Studio Albums  5 releases   2010-2022  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Extreme Symphonic Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Semblant - готик экстремальный симфонический металл из Куритибы, Парана, Бразилия, образованная в 2006 году.2010 - Last Night of Mortality
-2011 - Behind the Mask
-2014 - Lunar Manifesto
-2020 - ObscuraЖанр: Extreme Symphonic MetalПродолжительность: 03:52:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A3FD30F9F739E0D75E1F1AC74A4E2CABB7262092
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 124
-
-System Of A Down - Hypnotize  2005  [FLAC|24 192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Attack
-A2 Dreaming
-A3 Kill Rock  N Roll
-A4 Hypnotize    Читать дальше...    Жанр: Alternative Metal, Nu MetalПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1AEE197496430259FD16FE6ACF11D960F15C7B6D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 117
-
-Ayreon - The Theory of Everything  2013  [FLAC|24 96|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Phase I: Singularity
-A-a - Prologue: The Blackboard
-A-b - The Theory Of Everything Part 1
-A-c - Patterns    Читать дальше...    Жанр: Progressive Metal, RockПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 101
-
-Mario Lanza Марио Ланца - Голос и ночь, Всё это ты, Прекраснейшая ночь года  1990  Из собраний М. Магомаева, Ю. Крууса, О. Шишова, Н. Тюрина [FL
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Из кинофильма  Потому, что ты моя Жанр: Pop, Classical, RetroПродолжительность: 02:18:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E02EC2818F0C326084AFCCFEA0EFE39D87FA3D16
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 054
-
-Anubis Gate - Studio Albums  10 releases   2004-2023  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Progressive Power Meta
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Anubis Gate - датская пауэр прог-метал группа, образованная в 2001 году в Ольборге.2004 - Purification
-2005 - A Perfect Forever
-2007 - Andromeda Unchained
-2009 - The DetachedЖанр: Progressive Power MetalПродолжительность: 09:49:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87D186EB2DC9A10893E8AE7E60C77204867E4890
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/9t1Lvkz/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 683 868
-
-System Of A Down - Steal This Album!  2002  [FLAC|24 192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Chic  N  Stu
-A2 Innervision
-A3 Bubbles
-A4 Boom!    Читать дальше...    Жанр: Alternative Metal, Nu MetalПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6B885BCE2311F1E892EEE8D4BF17C19A95011F47
-```
-
-<div id="header" align="center">
-  <img src="" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

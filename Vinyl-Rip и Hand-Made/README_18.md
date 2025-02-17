@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 326 146
+
+Yujiro Mabuchi '68 All Stars - Minatomachi Blues. Crown Golden Series, Tenor Saxophone (1969) [FLAC 2.0|48/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Toki Ni Wa Haha No Nai Ko No Yoni
+ A2 Yoake No Scat
+ A3 Nanairo No Shiawase
+ A4 Kaze(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F5EBCC0B5A046021743BEE380E142C16DDD2F538
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 326 075
+
+VA - Best Hit Of Japan  Shungo Sawada Akira Fukuhara Quintet   19??  [FLAC 2.0|44,1 16|image +.cue|Vinyl-Rip] <Pop, Instrumental>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Shungo Sawada - Koi No Kisetsu
+02. Shungo Sawada - Tenshi No Yuwaku
+03. Shungo Sawada - Koi No Hallelujah
+04. Shungo Sawada - Mona Lisa No Hohoemi    Читать дальше...    Жанр: Pop, InstrumentalПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A907E39A90C84424D2D2F3DF477F72BC0FF9228E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 794
+
+Wanda Jackson & Karel Zich - Let s Have A Party In Prague  1988  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Rock & Roll>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1:
+01. Let s Have A Party
+02. Long-Legged Guitar Picking Man
+03. Losing Game    Читать дальше...    Жанр: Rock & RollПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8ABE2B3FAE979738E819F01AD605CAD9AD7FE355
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 758
+
+Timothy Farrell & Christopher Green - Organ and Cello Music from Westminster Abbey  1973  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Classical, Cel
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side One:
+A1 Fanfare, Op. 85
+A2 Pfingsten, Op. 145, No. 6
+A3 Improvisation on  Schonster Herr Jesu , Op. 55 for cello and organ    Читать дальше...    Жанр: Classical, Cello & Organ
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:607B33E9CF1A42CA95129DA5027E0C7FB9D76B93
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 323 333
+
+Audrey Hepburn, Rex Harrison - My Fair Lady  The Original Sound Track Recording   1964  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Soundtrack, 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Overture
+02. Why Can t The English?
+03. Wouldn t It Be Loverly
+04. I m Just An Ordinary Man    Читать дальше...    Жанр: Soundtrack, MusicalПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87CB27A7C81D69A4BC7AADFDC0284D0A3CF12253
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 322 081
+
+Robert Miles - Dreamland  1996 2019  [WavPack 2.0|192 24|image +.cue|Vinyl-Rip] <Dream-House, Trance>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Children  Dream Version   7:05 
+A2. Fable  Message Version   6:23 
+A3. Fantasya  5:44 
+B1. Landscape  6:02     Читать дальше...    Жанр: Dream-House, TranceПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1DBD0D6AA936BE7A0F696B2D053D0E19717B53D7
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 320 616
+
+VA - Познахте Ли...?  1979  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Rock, Soul, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1
+01 Suzi Quatro & Chris Norman - Stumblin’ In
+02 Adriano Celentano - Geppo
+03 Eruption - One Way Ticket    Читать дальше...    Жанр: Rock, Soul, PopПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:172F62C75BB8FF21D1DCE10B470E6A6DB8D82BBD
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 320 246
+
+Walter Trout - Survivor Blues  2019  [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Blues Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01 - Me, My Guitar And The Blues[7:02]
+ 02 - Be Careful How You Vote[3:56]
+ 03 - Woman Don t Lie[5:27]
+ 04 - Sadie[4:45]    Читать дальше...    Жанр: Blues RockПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3CE2E97977248B4A73A38A5F2ED7A72A00288B53
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 319 910
+
+Mireille Mathieu - Sentimentalement Votre  1977  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop> [обновлен]
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Le Silence
+02. Sagapo
+03. Un Oiseau Chante
+04. Amour Defendu    Читать дальше...    Жанр: PopПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C42F267380B8FC28765CCAB02736717348C0426
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 319 904
+
+Eva  Csepregi Éva, ex Neoton Familia  - Midnight  1986  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Electronic, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Midnight
+A2 Carribean Holiday
+A3 How Do You Know
+A4 Someday You ll Be Sorry    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A767A155879B45C94EEE9D2CDCDD17E3280DCA4C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 319 902
 
 Sheena Easton - Do You  1985  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Synth-pop>
@@ -1736,256 +1986,6 @@ Side A:
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:1F1830285191AF037FD3DBCB88D0639DF252DB9D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 896
-
-VA - The Civil War - Original Soundtrack Recording. Traditional American Songs And Instrumental Music Featured In The Film By Ken Burns  1990  [FL
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 The Old Bethpage Brass Band - Drums Of War 
-A2 Paul Roebling - Oliver Wendell Holmes  Quote 
-A3 Evan Stover, Jay Ungar, Matt Glaser  Fiddle  and Molly Mason, Russ Barenberg  Guitar  - Ashokan Farewell
-A4 Jacqueline Schwab  Piano  - Battle Cry Of Freedom    Читать дальше...    Жанр: SoundtrackПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 697
-
-Fine Young Cannibals - Fine Young Cannibals  1985  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Johnny Come Home
-A2 Couldn t Care More
-A3 Don t Ask Me To Choose
-A4 Funny How Love Is    Читать дальше...    Жанр: Pop RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 681
-
-Cliff Richard - The Best Of...  unknown  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Classic Rock, Rock n Roll>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Face A:
-01. Devil Woman
-02. The Young Ones
-03. Do You Wanna Dance    Читать дальше...    Жанр: Classic Rock, Rock n RollПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14F155DD0EA7859AF89AA5E1911297226D24E802
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 662
-
-The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music  Schubert, Tchaickovsky, Strauss, Verdi, Delibes, Rubenstein   2000  [FLAC 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1:
-01. Adolphe Adam -   Giselle  
-02. Franz Schubert -   Rosamunde  
-    Читать дальше...    Жанр: ClassicalПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 655
-
-Veli-Matti Jarvenpaa - Sarkijarven Bolero  1992  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Folk, World & Country>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Heittopussi
-A2 Sarkijarven Bolero
-A3 Vauhdin Maailma
-A4 Neidot Herkat Hennot    Читать дальше...    Жанр: Folk, World & CountryПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 279
-
-Supertramp - Crime Of The Century  1974  [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. School  5:33 
-02. Bloody Well Right  4:30 
-03. Hide In Your Shell  6:44 
-04. Asylum  6:41     Читать дальше...    Жанр: RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:022EDEE7353C7925A1A8419476F3C06B854D721C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 140
-
-VA - Country Gold  1985  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Country Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1:
-01. Dan Seals - My Baby s Got Good Timing
-02. Anne Murray - Just Fall In Love Again
-03. Michael Martin Murphey - What sForever For    Читать дальше...    Жанр: Country RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F9F73D39A02BFB74BDA20D934567DC5933EFDC9
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 135
-
-The Marshall Tucker Band - Still Holdin  On  1988  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Country Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Dancin  Shoes
-A2 Keeping The Love Alive
-A3 Once You Get The Feel Of It
-A4 Still Holdin  On    Читать дальше...    Жанр: Country RockПродолжительность: 00:32:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 133
-
-Chuck Berry - St. Louis To Liverpool  1984  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Rock & Roll>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Little Marie
-A2 Our Little Rendezvous
-A3 No Particular Place To Go
-A4 You Two    Читать дальше...    Жанр: Rock & RollПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 128
-
-Mariah Carey - Dance Remixes  99  1999  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop, House>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. I Still Believe  The Kings Mix 
-02. Honey  Classic Mix 
-03. When You Believe  Featuring – Whitney Houston     Читать дальше...    Жанр: Pop, HouseПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
 ```
 
 <div id="header" align="center">

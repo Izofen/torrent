@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 430 188
+
+VA - Ленинградский Рок-клуб  1988  Записи 1986 - 1987 гг. [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Alternative Rock, New Wave>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Игры - Освобождение  I Want To Be Free 
+A2 Алиса - Мое Поколение  My Generation 
+A3 Присутствие - Выйди Вон  Get Out 
+A4 АВИА - Шла Машина Грузовая  The Passing Lorry     Читать дальше...    Жанр: Alternative Rock, New WaveПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 429 650
+
+Георги Бейков, Ваня Цокова  Дуо Нове  - Завръщане  1983  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Земя
+A2 Спомен подир спомен
+A3 Циганката
+A4 Любовта, която остава    Читать дальше...    Жанр: PopПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4BDA3403F6CAB1454C51DBB792713612209758C6
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/kDtBBTh/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 429 648
+
+Puhdys - Puhdys 11: Computer-Karriere  1983  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Synth-pop, Classic Rock, New Wave>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Computer-Karriere
+A2 Flieg Mit Mir
+A3 Jahreszeiten
+A4 Stop, Baby, Stop    Читать дальше...    Жанр: Synth-pop, Classic Rock, New WaveПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 428 854
+
+Roxy Music - Manifesto  1979  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Art Rock, New Wave, Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+East Side
+A1 Manifesto
+A2 Trash
+A3 Angel Eyes    Читать дальше...    Жанр: Art Rock, New Wave, Pop RockПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F83ACB44E747F4FA6D5EE396478127C262650E15
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 428 056
+
+Massive Attack - Mezzanine   1998  2013, Europe, Reissue [FLAC 2.0|96 24|tracks +.cue|Vinyl-Rip] <Trip Hop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Angel
+A2 Risingson
+A3 Teardrop
+B1 Inertia Creeps    Читать дальше...    Жанр: Trip HopПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F856FFF29F9FC2FC57918BCF9FF411AA729D221F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 427 597
+
+Portishead - Dummy  1994  2008, Europe, Reissue [FLAC 2.0|96 24|tracks +.cue|Vinyl-Rip] <Trip Hop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Mysterons
+A2 Sour Times
+A3 Strangers
+A4 It Could Be Sweet    Читать дальше...    Жанр: Trip HopПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A6902D2FA54D225761699AFFA2FC04E7EA9361DF
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 453
+
+Slade - Old New Borrowed And Blue  1974  [DSD 128|tracks  Vinyl-Rip ]<Glam-Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Just Want A Little Bit  4:04 
+ 02. When The Lights Are Out  3:08 
+ 03. My Town  3:08 
+ 04. Find Yourself A Rainbow  2:12     Читать дальше...    Жанр: Glam-RockПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E8A3E5D73B3F08A83A612892B61A4EEDC1EE0CC4
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 303
+
+Barbra Streisand - Guilty  1980  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Easy Listening, Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Guilty
+A2 Woman In Love
+A3 Run Wild
+A4 Promises    Читать дальше...    Жанр: Easy Listening, Pop RockПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F5E1C8A769C7A41F33C5BDDB8287514EE9743C55
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/MnyPnnw/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 419 412
+
+Маркиза - Маркиза  1990  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 220 Вольт
+A2 Спи, Дитя
+A3 Зря Ты Пришел
+A4 Все Мы Верим    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A8C96644EC00ECE51D19B47E1268D09DAF7D075
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 418 905
+
+Yes - Time And A Word  1970  1991 [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Prog Rock, Symphonic Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 No Opportunity Necessary, No Experience Needed
+A2 Then
+A3 Everydays
+A4 Sweet Dreams    Читать дальше...    Жанр: Prog Rock, Symphonic RockПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70858773752C1E07300167E7C371F1DC5A3ADCF0
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 418 636
 
 Klaus Schulze & Rainer Bloss - Dziekuje Poland Live  83  1985  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Electronic, Berlin-School>
@@ -1739,256 +1989,6 @@ A1 Ai No Banka
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:62046206D8BC624EE55326F6E99665A95C91B372
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 326 146
-
-Yujiro Mabuchi '68 All Stars - Minatomachi Blues. Crown Golden Series, Tenor Saxophone (1969) [FLAC 2.0|48/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Toki Ni Wa Haha No Nai Ko No Yoni
- A2 Yoake No Scat
- A3 Nanairo No Shiawase
- A4 Kaze(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F5EBCC0B5A046021743BEE380E142C16DDD2F538
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 326 075
-
-VA - Best Hit Of Japan  Shungo Sawada Akira Fukuhara Quintet   19??  [FLAC 2.0|44,1 16|image +.cue|Vinyl-Rip] <Pop, Instrumental>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Shungo Sawada - Koi No Kisetsu
-02. Shungo Sawada - Tenshi No Yuwaku
-03. Shungo Sawada - Koi No Hallelujah
-04. Shungo Sawada - Mona Lisa No Hohoemi    Читать дальше...    Жанр: Pop, InstrumentalПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A907E39A90C84424D2D2F3DF477F72BC0FF9228E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 324 794
-
-Wanda Jackson & Karel Zich - Let s Have A Party In Prague  1988  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Rock & Roll>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1:
-01. Let s Have A Party
-02. Long-Legged Guitar Picking Man
-03. Losing Game    Читать дальше...    Жанр: Rock & RollПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8ABE2B3FAE979738E819F01AD605CAD9AD7FE355
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 324 758
-
-Timothy Farrell & Christopher Green - Organ and Cello Music from Westminster Abbey  1973  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Classical, Cel
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side One:
-A1 Fanfare, Op. 85
-A2 Pfingsten, Op. 145, No. 6
-A3 Improvisation on  Schonster Herr Jesu , Op. 55 for cello and organ    Читать дальше...    Жанр: Classical, Cello & Organ
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:607B33E9CF1A42CA95129DA5027E0C7FB9D76B93
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 323 333
-
-Audrey Hepburn, Rex Harrison - My Fair Lady  The Original Sound Track Recording   1964  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Soundtrack, 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Overture
-02. Why Can t The English?
-03. Wouldn t It Be Loverly
-04. I m Just An Ordinary Man    Читать дальше...    Жанр: Soundtrack, MusicalПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87CB27A7C81D69A4BC7AADFDC0284D0A3CF12253
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 322 081
-
-Robert Miles - Dreamland  1996 2019  [WavPack 2.0|192 24|image +.cue|Vinyl-Rip] <Dream-House, Trance>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Children  Dream Version   7:05 
-A2. Fable  Message Version   6:23 
-A3. Fantasya  5:44 
-B1. Landscape  6:02     Читать дальше...    Жанр: Dream-House, TranceПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1DBD0D6AA936BE7A0F696B2D053D0E19717B53D7
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 320 616
-
-VA - Познахте Ли...?  1979  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Rock, Soul, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1
-01 Suzi Quatro & Chris Norman - Stumblin’ In
-02 Adriano Celentano - Geppo
-03 Eruption - One Way Ticket    Читать дальше...    Жанр: Rock, Soul, PopПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:172F62C75BB8FF21D1DCE10B470E6A6DB8D82BBD
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 320 246
-
-Walter Trout - Survivor Blues  2019  [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Blues Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01 - Me, My Guitar And The Blues[7:02]
- 02 - Be Careful How You Vote[3:56]
- 03 - Woman Don t Lie[5:27]
- 04 - Sadie[4:45]    Читать дальше...    Жанр: Blues RockПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3CE2E97977248B4A73A38A5F2ED7A72A00288B53
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 319 910
-
-Mireille Mathieu - Sentimentalement Votre  1977  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop> [обновлен]
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Le Silence
-02. Sagapo
-03. Un Oiseau Chante
-04. Amour Defendu    Читать дальше...    Жанр: PopПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C42F267380B8FC28765CCAB02736717348C0426
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 319 904
-
-Eva  Csepregi Éva, ex Neoton Familia  - Midnight  1986  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Electronic, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Midnight
-A2 Carribean Holiday
-A3 How Do You Know
-A4 Someday You ll Be Sorry    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A767A155879B45C94EEE9D2CDCDD17E3280DCA4C
 ```
 
 <div id="header" align="center">

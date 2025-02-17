@@ -1,4 +1,26 @@
 ﻿
+###  Публикация: 1 765 737
+
+Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 12.2024
+ОС Windows
+Сборки Windows 10
+
+###  Подробнее
+
+оптимизированная облегчённая (LITE) сборка на основе оригинальных русских образов операционной системы Windows 10 x64 (64 бит.) 22H2 от Microsoft 2-х редакций, Профессиональная и Домашняя, объединённых в один установочный образ. В сборке произведена оптимизация системы для более комфортной работы с ней. Из системы удалены все плиточные Apps приложения, кроме магазина (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8FC44A7CF2F5C1067C3130696383D8C97A35CD7B
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/HVNjPhg/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 763 504
 
 Windows 10 Pro 22H2 19045.5131 x64 by SanLex [Lightweight] [Ru/En] (2024.12.01)
@@ -16,7 +38,7 @@ Windows 10 Pro 22H2 19045.5131 x64 by SanLex [Lightweight] [Ru/En] (2024.12.01)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HqvYV2k/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HqvYV2k/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -41,7 +63,7 @@ updated_nov_2024_x64_dvd_ccbcec44.iso.
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/qWQTC3S/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/qWQTC3S/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,7 +88,7 @@ updated_nov_2024_x64_dvd_ccbcec44.iso.
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/qWQTC3S/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/qWQTC3S/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,7 +113,7 @@ updated_nov_2024_x64_dvd_3eeacab9.iso
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/MCC7s1Y/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/MCC7s1Y/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,7 +138,7 @@ updated_nov_2024_x64_dvd_3eeacab9.iso
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/6wWyfrb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/6wWyfrb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,7 +160,7 @@ AAF Optimus DCH Audio Driver Realtek Mod, аудио драйвер — всё �
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/NKNXQ61/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/NKNXQ61/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,7 +182,7 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 11.2024 by OVGorskiy
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/V2M5DNj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/V2M5DNj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,7 +207,7 @@ Windows 11 PRO 23H2 22631.4460 Update 13 by Ghost Spectre [En]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/ckjtnBn/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/ckjtnBn/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,7 +229,7 @@ Microsoft Windows Server 2025 поможет вам справиться с вы
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/NLjnwqG/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/NLjnwqG/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,7 +251,7 @@ Windows Server, версия 23H2 - это первый выпуск ежего�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/NLjnwqG/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/NLjnwqG/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,7 +273,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/NLjnwqG/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/NLjnwqG/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,7 +298,7 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/BnQnYQB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/BnQnYQB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,7 +323,7 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/BnQnYQB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/BnQnYQB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,7 +345,7 @@ AAF Optimus DCH Audio Driver Realtek Mod, аудио драйвер "всё в �
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/NKNXQ61/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/NKNXQ61/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,7 +367,7 @@ Microsoft Windows Server 2025 поможет вам справиться с вы
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LC1tHk6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LC1tHk6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,7 +390,7 @@ Windows 11 20in1 24H2 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2024.10.25 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/W0y6PWK/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/W0y6PWK/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,7 +412,7 @@ Windows 11 v24H2 26100.2033, включающая в себя 5 редакций
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/PFV1fJN/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/PFV1fJN/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,7 +434,7 @@ Microsoft Windows 11 24H2 (26100.2033) Pro-Home Optim Lite by OVGorskiy 10.2024 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/z6X9B4y/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/z6X9B4y/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,7 +456,7 @@ Windows Server, версия 23H2 - это первый выпуск ежего�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/68sZkJJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/68sZkJJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,7 +478,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/68sZkJJ/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/68sZkJJ/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,7 +503,7 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/C15Ys4s/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/C15Ys4s/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,7 +528,7 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/C15Ys4s/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/C15Ys4s/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,7 +550,7 @@ Windows 10 с интерфейсом Windows 7 и  Windows Vista. ОС подх�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/8dwT4sX/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/8dwT4sX/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,7 +572,7 @@ Microsoft® Windows® 11 Enterprise LTSC x64 24H2 RU by OVGorskiy 10.2024
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/hKjw65N/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/hKjw65N/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,7 +595,7 @@ Windows 11 4in1 Version 24H2 (x64) Elgujakviso Edition (v.05.10.24) [Ru]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0nP3g39/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0nP3g39/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,7 +620,7 @@ updated_sep_2024_x64_dvd_377ddb197.iso
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4dKRByt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4dKRByt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,7 +645,7 @@ updated_sep_2024_x64_dvd_377ddb19.iso
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/M5j9xmP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/M5j9xmP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,7 +670,7 @@ Windows 11 24H2 26100.1742 5in1 by SmokieBlahBlah 2024.10.05 [Ru]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/x3f7FPt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/x3f7FPt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,7 +692,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 09.2024
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0JcYKwB/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0JcYKwB/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,7 +716,7 @@ Windows 10 Pro 22H2 19045.4894 x64 by SanLex [Lightweight] [Ru-En] (2024.09.26)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/5sxbZKY/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/5sxbZKY/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -716,7 +738,7 @@ Windows Server, версия 23H2 - это первый выпуск ежего�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/K0Mxvz6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/K0Mxvz6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -738,7 +760,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/K0Mxvz6/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/K0Mxvz6/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -763,7 +785,7 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3scYt9S/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3scYt9S/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -788,7 +810,7 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/3scYt9S/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/3scYt9S/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -811,7 +833,7 @@ Windows 10 Pro 22H2 build 19045.4651 x64 by LaK [Ru]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/tsBjPKD/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/tsBjPKD/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -835,7 +857,7 @@ Windows 11 Pro 22631.4037 x64 by SanLex [Lightweight] [Ru/En] (2024.09.05)
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/0CVWtjg/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/0CVWtjg/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -857,7 +879,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 04.2024
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/T1rJZMb/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/T1rJZMb/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -879,7 +901,7 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/pjxTKGv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/pjxTKGv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -904,7 +926,7 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/HXNPjxr/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/HXNPjxr/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -926,7 +948,7 @@ Windows 11 Pro 22H2 Build 22621.1702 x64 by SanLex [Lightweight] Ru/En] (2023.05
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/2FSbfgj/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/2FSbfgj/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -948,7 +970,7 @@ Microsoft® Windows® 11 Professional VL x64 22H2 RU by OVGorskiy 03.2023
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/LkYBJ1q/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/LkYBJ1q/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -973,7 +995,7 @@ feb_2023_x64_dvd_c29e4bb3.iso.
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/4F9kxkv/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/4F9kxkv/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -998,7 +1020,7 @@ Windows 10 November 2021 Update  под кодовым названием  21H2 
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Z2JVS0m/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Z2JVS0m/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1021,7 +1043,7 @@ Windows 7 SP1 6.1  Build 7601.25661   13in2  x86 x64 by Sergei Strelec [Ru]
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/545BKjp/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/545BKjp/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1044,7 +1066,7 @@ Microsoft Windows 10.0.18363.1621, Version 1909  Updated June 2021  - Ориги
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/02G6Bqt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/02G6Bqt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1067,7 +1089,7 @@ Microsoft Windows 10.0.17763.1935, Version 1809  Updated May 2021  - Ориги�
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/sRFsndP/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/sRFsndP/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1089,7 +1111,7 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1158  Updated April 2020  Ор
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/c3kjj21/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/c3kjj21/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1111,7 +1133,7 @@ Microsoft Windows 10 Professional 10586 TH2, Release 1511 - Оригинальн
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/Pgp9DMt/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/Pgp9DMt/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
@@ -1135,7 +1157,7 @@ Windows OEM Recovery СD DVD
 ```
 
 <div id="header" align="center">
-  <img src="https://i.ibb.co/dPYJqg8/image.jpg                                                                                                                    " />
+  <img src="https://i.ibb.co/dPYJqg8/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

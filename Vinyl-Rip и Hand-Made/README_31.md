@@ -1,4 +1,291 @@
 ﻿
+###  Публикация: 619 304
+
+Rammstein - 2 альбома  2001, 2009  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Industrial>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Rammlied 5:19
+A2. Ich Tu Dir Weh 5:05
+A3. Waidmanns Heil 3:35
+B1. Haifisch 3:43
+B2. B******** 4:11
+B3. Fruhling In Paris 4:46
+C1. Wiener Blut 3:52
+C2. Pussy 3:59
+C3. Liebe Ist Fur Alle Da 3:29
+D1. Mehr 4:10    Читать дальше...    Жанр: IndustrialПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:679D710E769F7DBFDF0D4054004758E29C439C09
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 619 233
+
+Rammstein - 4 альбома  1995-2005  [FLAC 2.0 24 96|tracks + .cue  Vinyl-Rip]<Industrial>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Benzin 3:47
+A2. Mann Gegen Mann 3:52
+A3. Rosenrot 3:55
+A4. Spring 5:25
+A5. Wo Bist Du 3:57
+B1. Stirb Night Vor Mir 4:08
+B2. Zerstoren 5:30
+B3. Hilf Mir 4:45
+B4. Te Quiero Puta! 3:53
+B5. Feuer Und Wasser 5:13    Читать дальше...    Жанр: IndustrialПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6D6C6E25C3139962F9AC2CDAA5D576253CBB1157
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 618 847
+
+Mylene Farmer - Monkey Me  2012  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Elle A Dit 3:53
+A2. A L Ombre 4:50
+A3. Monkey Me 4:16
+B1. Tu Ne Le Dis Pas 4:22
+B2. Love Dance 4:07
+B3. Quand 4:06
+C1. J Ai Essayé De Vivre... 4:41
+C2. Ici Bas 4:33
+C3. A-T-On Jamais 3:47
+D1. Nuit D Hiver 5:25    Читать дальше...    Жанр: PopПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:78775AA202D728AE8E558B818CDCEAD99C9D88E6
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 618 803
+
+System Of A Down - Toxicity  2001  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Nu Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Prison Song 3:21
+A2. Needles 3:14
+A3. Deer Dance 2:55
+A4. Jet Pilot 2:06
+A5. X 1:59
+A6. Chop Suey! 3:30
+A7. Bounce 1:54
+A8. Forest 4:01
+B1. ATWA 2:56
+B2. Science 2:43    Читать дальше...    Жанр: Nu MetalПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:85DE97EF1D07A8A1C837ED8619898CE06530A5B0
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 618 724
+
+The Prodigy - 4 альбома + 3 сингла   1993-1997  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Breakbeat, Techno, Acid>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Poison  95 EQ  6:17
+A2. Rat Poison 5:32
+AA1. Scienide 5:58
+AA2. Poison  Environmental Science Dub Mix  6:21Жанр: Breakbeat, Techno, AcidПродолжительность: 00:24:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA0FA24310F21E669113CA79A945546D9B10641F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 617 610
+
+Rainbow - 7 альбомов (1975-1983) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Stranded 4:31
+A2. Can't Let You Go 4:22
+A3. Fool For The Night 4:04
+A4. Fire Dance 4:30(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:678C1E76A64F21449B32FE44894297827A3BABE8
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 617 097
+
+Queen - 13 Студийных альбомов + Mr. Bad Guy, Barcelona  1973-1992  [FLAC 2.0 24 192|image + .cue|tracks  Vinyl-Rip ]<Classic Rock>
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Barcelona 5:40
+A2. La Japonaise 4:50
+A3. The Fallen Priest 5:47
+A4. Ensueno 4:21
+B1. The Golden Boy 6:06
+B2. Guide Me Home 2:40
+B3. How Can I Go On 4:02
+B4. Overture Piccante 6:43Жанр: Classic RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:336438EA30105DCE5C9EB29D9EE3EDC5049C727D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 616 296
+
+U2 - Achtung Baby  1991  [FLAC 2.0 24 192|tracks  Vinyl-Rip ]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Zoo Station 4:30
+A2. Even Better Than the Real Thing 4:04
+A3. One 3:54
+A4. Until The End Of The World 5:31
+A5. Who s Gonna Ride Your Wild Horses 4:31
+A6. So Cruel 4:21
+B1. The Fly 4:38
+B2. Mysterious Ways 3:42
+B3. Tryin  to Throw Your Arms Around the World 4:37
+B4. Ultraviolet  Light My Way  4:40    Читать дальше...    Жанр: RockПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 616 265
+
+Кино  Виктор Цой  - Неизвестные Песни Виктора Цоя  1992  [APE 2.0 24 96|image + .cue  Vinyl-Rip ]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EBCF3778D92E0673B6A03A8630B32D552E81D453
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 615 136
+
+Depeche Mode - Playing The Angel  2005  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Synth-pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. A Pain That I m Used To 4:08
+A2. John The Revelator 3:45
+A3. Suffer Well 3:54
+B1. The Sinner In Me 4:59
+B2. Precious 4:07
+B3. Macro 4:09
+C1. I Want It All 6:11
+C2. Nothing s Impossible 4:22
+C3. Introspectre 1:41
+C4. Damaged People 3:30    Читать дальше...    Жанр: Synth-popПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 614 646
 
 Deep Purple - 9 альбомов  1970-1990  [FLAC 2.0 24 192 |image + .cue  Vinyl-Rip ]<Rock>
@@ -1886,253 +2173,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 203 008
-
-Depeche Mode - 11 альбомов  1981-2005   Vinil-rip 24 Bit 96 kHz  [FLAC|Lossless]<Electro-Rock, New Wave, Synthpop>
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 194 789
-
-Scorpions - Sting In The Tail  2010  [Vinyl Rip 24Bit 192kHz]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. Raised On Rock  3:59 
-02. Sting In The Tail  3:13 
-03. Slave Me  2:45     Читать дальше...    Жанр: RockПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 180 706
-
-Miles Davis - 12 LP альбомов  1957 - 1969  [24 bit 96 kHz|VinylRip]<Jazz, Hard Bop, Cool Jazz, Modal, Fusion>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Jazz, Hard Bop, Cool Jazz, Modal, FusionПродолжительность: 08:36:10
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 177 019
-
-The Dave Brubeck Quartet - Gone With the Wind (1959) [FLAC|24bit/192kHz & 24bit/96kHz]<Jazz>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. Swanee River 5:55
-2. The Lonesome Road 7:41
-3. Georgia On My Mind 6:40
-4. Camptown Races 2:01(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9DBD0323C9BB70D0AFB59316635BEB0D7BE2990C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 176 425
-
-Pink Floyd - Animals  1977  DVD-Audio  UpMix  [MLP 5.1]<Rock>
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. Pigs on the Wing  Part 1   Waters  - 1:25 min
-2. Dogs  Waters Gilmour  - 17:06 min
-3. Pigs  Three Different Ones   Waters  - 11:31 min
-4. Sheep  Waters  - 10:25 min
-5. Pigs on the Wing  Part 2   Waters  - 1:28 min
-
-Audio
-Format: MLP
-Bit rate mode: Variable
-maximum bit rate: 9 600 Kbps    Читать дальше... Жанр: Rock
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 171 737
-
-Scorpions - Taken By Force  1977  [Vinyl Rip 24Bit 96kHz]<Classic Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-1. Steamrock Fever  03:41 
-2. We ll Burn The Sky  06:30 
-3. I ve Got To Be Free  04:04     Читать дальше...    Жанр: Classic RockПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ACD7DBB2E41222ECF1A0C998ED13E963DAF5F94B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 149 832
-
-Bee Gees - Size Isn t Everything  1993  [FLAC|24Bit 96kHz] <pop-rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Paying The Price Of Love  4:13 
-02. Kiss Of Life  4:15 
-03. How To Fall In Love, Pt.1  5:58 
-04. Omega Man  3:57     Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ACA23A69194F656517C72AC23134A407C7EEB865
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 144 897
-
-Demis Roussos - Souvenirs  1975  [FLAC|24Bit 96kHz]<pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1   Sing An Ode To Love    4:12 
-A2   Midnight Is The Time I Need You    3:03 
-A3   I ll Be Your Friend  Schön Wie Mona Lisa    4:12 
-A4   Action Lady   3:01     Читать дальше...    Жанр: Electronic, Funk   SoulПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFDABC9F4D57F1675E28B397A9093B3754752951
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 125 709
-
-Андрей Сапунов и группа «Лотос» - Лотос - 1987, FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. Белый день (А. Сапунов / С. Андреев)
-2. Немного счастья на двоих (А. Сапунов / И. Фрадкина)
-3. Евпатория (А. Сапунов / И. Фрадкина)
-4. Свежий ветер (А. Сапунов / И. Фрадкина)(   Читать дальше...   )Жанр: RockПродолжительность: 33:54 + допись 07:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D4D5BFEA2D03555F715280E87ADC472F26DC420F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 120 478
-
-Freddie Mercury & Montserrat Caballe - Barcelona  1988  VinylRip 24 bit 96 kHz [FLAC]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1A1.Жанр: Rock, Classical CrossoverПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3C0E6F50AD5D2C963D3827305630B4FF73C53D96
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/DkCL20h/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

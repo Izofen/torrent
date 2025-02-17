@@ -1,4 +1,250 @@
 ﻿
+###  Публикация: 996 399
+
+Владимир Кузьмин - Ромео и Джульетта  1987  1989, Мелодия ТЗГ [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Ромео и Джульетта  4:13 
+A2. Долгая ночь  4:19 
+A3. Блеск в ее глазах  3:51 
+A4. Когда меня ты позовёшь  5:30     Читать дальше...    Производство: Мелодия ТЗГ - С60 27991 004Жанр: RockПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:507A90084A700B8FEDED72B5489EE7AAC14E1B7D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 994 866
+
+Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely  2001  [FLAC 2.0|44,1 16|image+cue|MC-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Nobody Wants To Be Lonely - Ricky Martin & Christina Aguilera
+02. El Amor De Mi Vida - Ricky Martin
+03. El Beso Del Final - Christina Aguilera
+04. Fuego Contra Fuego - Ricky Martin    Читать дальше...    Жанр: PopПродолжительность: 01:28:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 994 695
+
+Александр Барыкин - Ступени; Больше не встречу  1985-1986  Мелодия [FLAC 2.0|192 24|image+cue|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01 - Ступени
+02 - Элегия
+03 - Но всё-таки лето
+04 - Мона Лиза    Читать дальше...    Жанр: RockПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29745FA174E2247A62D845D13313F9B1D794D99A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 993 828
+
+Кикки - Полуночное солнце   Kikki - Midnight Sunshine   1985  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Folk Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Wasn t That Love  Кто Идет 
+02. Undercover Lovers  Тайные Влюбленные 
+03. Somebody Else Will  Кто-To Другой 
+04. Fallin In Love, Fallin Apart  Влюбиться, Разлюбить     Читать дальше...    Жанр: Folk RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9DE2AAAC1C27647C413F393F8EFF4E12C01966D6
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 993 458
+
+Hana & Dana, ORM - Talisman  1984  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1	Ciao Pepino	3:36
+A2	My Summer Holidays	3:22
+A3	Sad Old Clown	3:54
+A4	All Right	4:01    Читать дальше...    Жанр: Synth-pop, DiscoПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E6B9B50A0982929C243746FBAD88DA3B5FA5C83
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 992 847
+
+Артур Эйзен - Романсы русских композиторов  1970  [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Classical, Romance>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Сомнение  М. Глинка, Н. Кукольник   5:06
+2. Клубится волною кипучею кур  А. Рубинштейн, Мирза Шафи   5:04
+3. Я вас любил  Б. Шереметьев, А. Пушкин   2:46    Читать дальше...    Жанр: Classical, RomanceПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DAD68544BFE11D32C0EA513950027E7FEB0E9E34
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 991 825
+
+Валерий Леонтьев - По вашим письмам: Горькие яблоки  1985  [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Горькие яблоки
+02. Конь мой, коньЖанр: PopПродолжительность: 00:08:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BB50483059032583F15526D0D569B0FA73B15DC4
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 991 818
+
+Валерий Леонтьев - Ненаглядная сторона  1981  [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Ненаглядная сторона
+02. Бреду по жёлтым склонамЖанр: PopПродолжительность: 00:11:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9526CDDB5AE1ED421D577C2F4A9E89F099C4E775
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 991 508
+
+Круиз - Волчок  1981-82  [FLAC 2.0|44.1 16|tracks|Tape-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Виза Для Круиза  4:55 
+02. Волчок  3:41 
+03. Душа  5:24 
+04. Попугай  3:19     Читать дальше...    Жанр: PopПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6246DFA48BE8681B8C2E686E26414BF65AC8DE48
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 991 305
+
+Машина времени - Реки и мосты  1987  2LP [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Classic Rock, Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Реки и мосты  6:00
+2. Флюгер  4:08
+3. Гололед  3:42    Читать дальше...    Жанр: Classic Rock, Pop RockПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B4D0035C691C96D7A0092C5C0E2E572764FDCF4D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 990 964
 
 Веселые Ребята - Музыкальный Глобус  1979  [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Pop>
@@ -1727,254 +1973,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 950 072
-
-Czeslaw Bartkowski  Czesław Bartkowski  - Drums Dream  1976  [FLAC 2.0 24 96|tracks+.cue  Vinyl-Rip ]<Contemporary Jazz>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1a	Drums Dream
-A1b	Przejsciowka
-A2a	FAO
-A2b	Rozmowa Z Dzwonem    Читать дальше...    Жанр: Contemporary JazzПродолжительность: 00:40:22
-Издатель  лейбл : Polskie Nagrania Muza
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EA0CA3E7C449618A05146B4EDADB990BC3FE83C8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 866
-
-The Doors - The Doors  1967  Reissue  1980, Warner Pioneer   [FLAC 2.0 24 96|image  Vinyl-Rip ]<Psychedelic Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Break On Through  To The Other Side   2:28 
-A2. Soul Kitchen  3:32 
-A3. The Crystal Ship  2:33 
-A4. Twentieth Century Fox  2:32     Читать дальше...    Производство: Elektra Records   Warner PioneerЖанр: Psychedelic RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4EE4C3463260518783618A23B2960ECA6298FDE5
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 781
-
-The Beatles - Let It Be  1970  [FLAC 2.0|192 24|tracks|Vinyl-Rip]<Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-1. Two Of Us  3:36
-2. Dig A Pony  3:54
-3. Across The Universe  3:48    Читать дальше...    Жанр: Pop RockПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9B1F26D630AF5C5EB577FAF4E2AB95463A30728F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 761
-
-VA - Девочка Моя Синеглазая - Песни В. Дорохина и Л. Воропаевой  1989  [FLAC 2.0 24 96|image+.cue  Vinyl-Rip ]<Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Е. Белоусов -	Девочка Моя Синеглазая
-A2	Е. Семенова -	Мужчина, Который Спешит
-A3	Е. Белоусов -	Алушта
-A4	Е. Семенова -	На Минутку    Читать дальше...    Жанр: PopПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6CE0E7A934960643F398F9CD49EE3A6DCDD36852
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 188
-
-ВИА Здравствуй, Песня - Мы Любим Диско  1980  [FLAC 2.0 24 96|image+.cue  Vinyl-Rip ]<Pop, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Венера · Venus
-A2	Огонь; Мы Любим  Диско  · Fire; We Like  Disco 
-A3	Ленивый Ковбой · Cowboy s Song
-A4	Я Жду Тебя · Io Sono Sempre Quello Que    Читать дальше...    Жанр: Pop, DiscoПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B442B498B2C224E122E0CCE95A23D846476BFE61
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 948 997
-
-This Mortal Coil - It ll End In Tears  1984  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Electronic; Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Kangaroo  3:30 Жанр: Electronic; RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6AA6D921F9BA64051DF912A12BAD6695F30985B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 948 576
-
-Оскар Питерсон и Каунт Бейси - Оскар Питерсон и Каунт Бейси  1982  [FLAC 2.0 24 96|traks Vinyl-Rip ]<Jazz, Swing>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-1. Булочки  Buns   4:28
-2. Эти пустяки напоминают мне о тебе  These Foolish Things   5:34
-3. RB  5:26    Читать дальше...    Жанр: Jazz, SwingПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:35BB934EC2AF75F7DBC56404EE85A75F7C9BD876
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/41GXSNT/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 960
-
-VA - Бумер - 2  2006  [FLAC 2.0 16 44,1|image+.cue  MC-Rip ]<Original Soundtrack>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Ленинград - Меня зовут Шнур
-02. Тела - Шизофрения
-03. Ber-Lin - Даша
-04. Пираньи - Плати    Читать дальше...    Жанр: Original SoundtrackПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CAF1630512B22B5A3B0C4375BBA87CB05F14185F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 912
-
-VA - Fantastic Rio Carnaval  1976  [FLAC 2.0 24 96|Limage+.cue  Vinyl-Rip ]<Latin, Samba>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Gres Acadêmicos Do Salgueiro - Nossa Madrinha, Mangueira Querida-Tengo Tengo
-A2	Gres Mocidade Independente De Padre Miguel - Rio Zê Pereira
-A3	Gres Imperatriz Leopoldinense - Martin Cererê
-A4	Gres Imperatriz Leopoldinense - Abc Do Carnaval À Maneira Da Literatura De CordelЖанр: Latin, SambaПродолжительность: 01:24:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59AE3967469FF42A285440EB9241E02902912507
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 860
-
-VA - Шедевры инструментальной музыки части 1 - 3  1999  [FLAC 2.0 16 44,1|tracks+.cue  MC-Rip ]<Easy Listening>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. История любви - Поль Мориа
- 02. Одинокий пастух - Джеймс Ласт
- 03. К Элизе - Ричард Клайдерман
- 04. Эммануэль - Фаусто Папетти    Читать дальше...    Жанр: Easy ListeningПродолжительность: 03:34:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D73A71FB3328BCB5F9E052B853B1ECA49C126D6B
 ```
 
 <div id="header" align="center">

@@ -1,4 +1,286 @@
 ﻿
+###  Публикация: 671 487
+
+Fausto Papetti - Фаусто Папетти  1984  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Jazz, Easy Listening>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Первая любовь  3:19 
+Primo Amore
+ Depsa 
+A2. Райская мелодия  3:18 
+Theme From Paradise
+ J.Diamond - L.Russel - Brown 
+A3. Память  3:36 
+Memory
+ A.L.Webber - T.Nunn Жанр: Jazz, Easy ListeningПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ADD414FA2D8D0842865133625C6C88DBAF6CD8D7
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 670 907
+
+Jean Michel Jarre - Oxygene  1976  Polydor Japan [FLAC|2.0 24 96|image  Vinyl-Rip ]<Experimental Electronic, Ambient>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+«Oxygene»  Кислород  — музыкальный альбом Жана-Мишеля Жарра, вышедший в 1976 году. Этот альбом считается дебютным в дискографии Жарра: хотя тот и выпускал пластинки ранее, они были малотиражными и экспериментальными.
+Альбом является одним из ранних образцов музыки эмбиент — это медленная, лёгкая и медитативная электроника. Несмотря на то, что в прессе звучание Oxygene часто называют «космическим», сам Жан-Мишель в интервью рассказал, что пытался в музыке выразить движение атмосферы Земли, о чём и говорит название.Жанр: Experimental Electronic, AmbientПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F970FC0C9ECBFF10423175F1AC7AB19C83CF91C8
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 670 528
+
+Jean Michel Jarre - Revolutions  1988  [FLAC|2.0 24 192|tracks  Vinyl-Rip <Experimental Electronic, Ambient>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Ouverture
+A2 Part 1
+A3 Part 2
+A4 Part 3
+A5 London Kid
+B1 Revolutions
+B2 Tokyo Kid
+B3 Computer Weekend
+B4 September
+B5 The EmigrantЖанр: Experimental Electronic, AmbientПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:366A3FB3D9D75EDD468F77BC3C427DBB8D1A6149
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 670 148
+
+Two Door Cinema Club - Beacon  2012  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Alternative Indie Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Next Year  4:10 
+02. Handshake  3:29 
+03. Wake Up  3:45 
+04. Sun  3:06 
+05. Someday  3:39 
+06. Sleep Alone  3:53 
+07. The World is Watching  with Valentina   3:34 
+08. Settle  3:51 
+09. Spring  3:23 
+10. Pyramid  3:07     Читать дальше...    Жанр: Alternative Indie RockПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D75AFD41382BCB422A422F6AB897CF77B354365
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 668 939
+
+Иоганн Себастьян Бах - Бранденбургские концерты №3 и №6  1979  [FLAC|2.0 24 96|tracks  Vinyl-Rip ]<Classical>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+БРАНДЕНБУРГСКИЙ КОНЦЕРТ № 3
+соль мажор
+BWV 1048
+A1.  Allegro . Adagio  5:55 
+A2. Allegro  5:30 
+БРАНДЕНБУРГСКИЙ КОНЦЕРТ № 6
+си бемоль мажор
+BWV 1051
+B1.  Allegro   7:03 
+B2. Adagio ma non tanto  5:14     Читать дальше...    Жанр: ClassicalПродолжительность: 00:29:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FEA77EE3E2DDCFCA1795D4F712EB9B4938EF8C82
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 667 991
+
+Адольф Шарль Адан  Жизель  - Оркестр Большого театра СССР  Альгис Жюрайтис   1989  [FLAC 2.0 24 192|traks Vinil-Rip ]<Classical, Rom
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Classical, RomanticПродолжительность: 01:20:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:398464A479DF5841456C4B9611A73851B843E00F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 667 768
+
+Slipknot - 5 альбомов  1999-2014  9LP [FLAC 2.0 24 192 | tracks, image+.cue  Vinyl-Rip ]<Nu Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Slipknot — американская группа, исполняющая музыку в стиле Nu-Metal и Alternative-Metal. Группа образована в 1995 году, хотя первые признаки её существования датируются 1992 годом, когда был сформирован минимальный состав.
+Альбомы группы получили статус платиновых, а некоторые из песен были номинированы на премию «Грэмми» в категориях «Лучшая хэви-метал композиция»     Читать дальше...    01. XIX
+02. Sarcastrophe
+03. AOV
+04. The Devil In I    Читать дальше...    Жанр: Nu MetalПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A337130E111B28699D51A6385720A033DBC8A326
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 667 611
+
+Hypocrisy - 13 альбомов  1992-2013  14LP [FLAC 2.0 24 192 | image tracks  Vinyl-Rip ]<Melodic Death Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Hypocrisy — шведская дэт-метал-группа, сформированная в 1990 году Петером Тэгтгреном. С 1990 по 1994 год группа играла дэт-метал, добавив в него с 1995 года элементы мелодизма.01. End of Disclosure
+02. Tales of Thy Spineless
+03. The Eye
+04. United We Fall
+05. 44 Double Zero
+06. Hell Is Where I Stay
+07. Soldier of Fortune
+08. When Death Calls
+09. The Return
+10. Living Dead    Читать дальше...    Жанр: Melodic Death MetalПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1E77DF20E019B6C73C03FE533A57B39D4AE5FBC0
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 666 864
+
+Secret Service - Collection  7 LP   1979-1987  [FLAC 2.0 24 192|image Vinyl-Rip ]<Electronic, Synth-pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1979 - Oh Susie
+1981 - Ye Si Ca
+1982 - Cutting Corners
+1984 - Jupiter Sign    Читать дальше...    Жанр: Electronic, Synth-popПродолжительность: 04:23:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:206AB242BB408334705B6533E3C25AE56E6033B2
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 666 821
+
+Megadeth - 10 альбомов  1985-2011  12LP [FLAC 2.0 24 192 | image tracks  Vinyl-Rip ]<Thrash Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Megadeth — американская трэш-метал-группа из города Лос-Анджелес, штат Калифорния, сформированная в 1983 году. Коллектив основан гитаристом и вокалистом Дэйвом Мастейном и бас-гитаристом Дэвидом Эллефсоном после того, как Мастейн был уволен из группы Metallica. С тех пор Megadeth выпустили 14 студийных альбомов. Группа является одним из самых коммерчески успешных трэш-метал коллективов, продав более чем 38 миллионов альбомов по всему миру, включая номинированный на «Грэмми» мульти-платиновый альбом Countdown to Extinction. В одних только Соединённых Штатах Megadeth получили пять платиновых, семь золотых альбомов и восемь номинаций на премию «Грэмми», как лучший исполнитель музыки в жанре «хэви-метал». Группа распалась в 2002 году после того, как Мастейн тяжело повредил лучевой нерв, но, пройдя физиотерапию, в 2004 году Мастейн восстановил группу, которая в том же году выпустила альбом The System Has Failed, который стартовал на 18 месте в хит-параде популярных альбомов журнала Billboard.
+За двадцать семь лет активной     Читать дальше...    01. Sudden Death
+02. Public Enemy No. 1
+03. Whose Life  Is It Anyways? 
+04. We The People
+05. Guns, Drugs & Money
+06. Never Dead
+07. New World Order
+08. Fast Lane
+09. Black Swan
+10. Wrecker    Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C21F083C59B53EBF0BFE393DC21E1CF754F9960A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 666 508
 
 Stratovarius - 13 альбомов  1989-2013  16LP [FLAC 2.0 24 192 | image tracks  Vinyl-Rip ]<Power Metal>
@@ -2018,293 +2300,6 @@ LP13-B1. Rain 3:03    Читать дальше...    Жанр: RockПродол
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:A2C72549FF8FA5BFAEDE0317EB64E10043DFA8A2
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 619 304
-
-Rammstein - 2 альбома  2001, 2009  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Industrial>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Rammlied 5:19
-A2. Ich Tu Dir Weh 5:05
-A3. Waidmanns Heil 3:35
-B1. Haifisch 3:43
-B2. B******** 4:11
-B3. Fruhling In Paris 4:46
-C1. Wiener Blut 3:52
-C2. Pussy 3:59
-C3. Liebe Ist Fur Alle Da 3:29
-D1. Mehr 4:10    Читать дальше...    Жанр: IndustrialПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:679D710E769F7DBFDF0D4054004758E29C439C09
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 619 233
-
-Rammstein - 4 альбома  1995-2005  [FLAC 2.0 24 96|tracks + .cue  Vinyl-Rip]<Industrial>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Benzin 3:47
-A2. Mann Gegen Mann 3:52
-A3. Rosenrot 3:55
-A4. Spring 5:25
-A5. Wo Bist Du 3:57
-B1. Stirb Night Vor Mir 4:08
-B2. Zerstoren 5:30
-B3. Hilf Mir 4:45
-B4. Te Quiero Puta! 3:53
-B5. Feuer Und Wasser 5:13    Читать дальше...    Жанр: IndustrialПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D6C6E25C3139962F9AC2CDAA5D576253CBB1157
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 618 847
-
-Mylene Farmer - Monkey Me  2012  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Elle A Dit 3:53
-A2. A L Ombre 4:50
-A3. Monkey Me 4:16
-B1. Tu Ne Le Dis Pas 4:22
-B2. Love Dance 4:07
-B3. Quand 4:06
-C1. J Ai Essayé De Vivre... 4:41
-C2. Ici Bas 4:33
-C3. A-T-On Jamais 3:47
-D1. Nuit D Hiver 5:25    Читать дальше...    Жанр: PopПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:78775AA202D728AE8E558B818CDCEAD99C9D88E6
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 618 803
-
-System Of A Down - Toxicity  2001  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Nu Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Prison Song 3:21
-A2. Needles 3:14
-A3. Deer Dance 2:55
-A4. Jet Pilot 2:06
-A5. X 1:59
-A6. Chop Suey! 3:30
-A7. Bounce 1:54
-A8. Forest 4:01
-B1. ATWA 2:56
-B2. Science 2:43    Читать дальше...    Жанр: Nu MetalПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:85DE97EF1D07A8A1C837ED8619898CE06530A5B0
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 618 724
-
-The Prodigy - 4 альбома + 3 сингла   1993-1997  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Breakbeat, Techno, Acid>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Poison  95 EQ  6:17
-A2. Rat Poison 5:32
-AA1. Scienide 5:58
-AA2. Poison  Environmental Science Dub Mix  6:21Жанр: Breakbeat, Techno, AcidПродолжительность: 00:24:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA0FA24310F21E669113CA79A945546D9B10641F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 617 610
-
-Rainbow - 7 альбомов (1975-1983) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Stranded 4:31
-A2. Can't Let You Go 4:22
-A3. Fool For The Night 4:04
-A4. Fire Dance 4:30(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:678C1E76A64F21449B32FE44894297827A3BABE8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 617 097
-
-Queen - 13 Студийных альбомов + Mr. Bad Guy, Barcelona  1973-1992  [FLAC 2.0 24 192|image + .cue|tracks  Vinyl-Rip ]<Classic Rock>
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Barcelona 5:40
-A2. La Japonaise 4:50
-A3. The Fallen Priest 5:47
-A4. Ensueno 4:21
-B1. The Golden Boy 6:06
-B2. Guide Me Home 2:40
-B3. How Can I Go On 4:02
-B4. Overture Piccante 6:43Жанр: Classic RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:336438EA30105DCE5C9EB29D9EE3EDC5049C727D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 616 296
-
-U2 - Achtung Baby  1991  [FLAC 2.0 24 192|tracks  Vinyl-Rip ]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Zoo Station 4:30
-A2. Even Better Than the Real Thing 4:04
-A3. One 3:54
-A4. Until The End Of The World 5:31
-A5. Who s Gonna Ride Your Wild Horses 4:31
-A6. So Cruel 4:21
-B1. The Fly 4:38
-B2. Mysterious Ways 3:42
-B3. Tryin  to Throw Your Arms Around the World 4:37
-B4. Ultraviolet  Light My Way  4:40    Читать дальше...    Жанр: RockПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 616 265
-
-Кино  Виктор Цой  - Неизвестные Песни Виктора Цоя  1992  [APE 2.0 24 96|image + .cue  Vinyl-Rip ]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EBCF3778D92E0673B6A03A8630B32D552E81D453
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 615 136
-
-Depeche Mode - Playing The Angel  2005  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Synth-pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. A Pain That I m Used To 4:08
-A2. John The Revelator 3:45
-A3. Suffer Well 3:54
-B1. The Sinner In Me 4:59
-B2. Precious 4:07
-B3. Macro 4:09
-C1. I Want It All 6:11
-C2. Nothing s Impossible 4:22
-C3. Introspectre 1:41
-C4. Damaged People 3:30    Читать дальше...    Жанр: Synth-popПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
 ```
 
 <div id="header" align="center">

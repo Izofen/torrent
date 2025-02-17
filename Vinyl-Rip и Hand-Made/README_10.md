@@ -1,4 +1,253 @@
 ﻿
+###  Публикация: 1 644 307
+
+Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Electronic, Funk / Soul, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1		I'm Your Baby Tonight	5:00
+A2		My Name Is Not Susan	4:38
+A3		All The Man That I Need	4:09
+A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 643 972
+
+Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, Reissue, Gatefold 180g Electric-Blue And Orange Vinyl [FLAC 2.0|192/24|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+00:38:54
+
+A1 Atomic
+(A. Maratrat, G. L'Her)(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 03:11:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 643 464
+
+Presto Ballet - Studio Albums (6 releases) (2005-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover Progressive>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Presto Ballet — прогрессив-рок-группа, основанная гитаристом Metal Church Курдтом Вандерхофом.2005 - Peace Among The Ruins
+2008 - The Lost Art of Time Travel
+2011 - Invisible Places
+2012 - Relic of the Modern World(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 05:00:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:19A6E9A8F9E2B3623EB50A2D988D4F33686E3769
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 642 992
+
+Emperor - Studio Albums  7 releases   1993-2001  hand made [restored, declipped] [FLAC|16 44.1|tracks +.cue] <Symphonic Black Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Emperor — норвежская блэк-метал-группа, основанная в 1991 году и оказавшая значительное влияние на развитие жанра.1993 - Emperor  EP 
+1994 - As The Shadows Rise  EP 
+1994 - In the Nightside Eclipse
+1998 - Anthems To The Welkin At DuskЖанр: Symphonic Black MetalПродолжительность: 04:17:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6CC8EDBE9CC8A2E1A81A8C3BDD8F5C6ADA895EFC
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 642 795
+
+Deserted Fear - Studio Albums (5 releases) (2012-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Deserted Fear - Death metal группа из Германии, основана в 2008 году.2012 - My Empire
+2014 - Kingdom of Worms
+2017 - Dead Shores Rising
+2019 - Drowned By HumanityЖанр: Death MetalПродолжительность: 03:57:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:07FF70A2C40CED1D5570CD3716D3A12E352EB26A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 642 533
+
+Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic/Symphonic Deat
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Eternal Tears of Sorrow — финская группа, исполняющая музыку в стиле симфонический дэт-метал.1997 - Sinner's Serenade
+1998 - Vilda Mannu
+2000 - Chaotic Beauty
+2001 - A Virgin And A WhoreЖанр: Melodic/Symphonic Death MetalПродолжительность: 05:19:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3403DFFCB7EA8524DBBFA88A9533326A3A4F224C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 642 386
+
+Леонид Агутин - Летний Дождь (1998) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Latin, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Не Унывай!
+A2 Летний Дождь
+A3 Полночи
+A4 Танцевали Пары(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 642 322
+
+The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Gothic/Doom 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+The Sins of Thy Beloved — музыкальный коллектив из Норвегии, исполняющий свою музыку в направлении симфонического готик/дум-метала. Название группы переводится как «Грехи твоей возлюбленной/Грехи твоего возлюбленного». По словам участников коллектива они выбрали именно это название, так как оно наиболее полно отображает музыку, концепцию и лирику группы (лирика песен (   Читать дальше...   )1997 - All Alone (EP)
+1998 - Lake of Sorrow
+2002 - Perpetual DesolutionЖанр: Symphonic Gothic/Doom MetalПродолжительность: 02:19:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2850E838857667DD3914CFAE98763A28F7998B54
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 642 122
+
+Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial/Groove/Progressive Metal, Dj
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Mnemic — датская метал-группа, образованная в Ольборге в 1998 году.2003 - Mechanical Spin Phenomena
+2004 - The Audio Injected Soul
+2007 - Passenger
+2010 - Sons Of The SystemЖанр: Industrial/Groove/Progressive Metal, DjentПродолжительность: 04:40:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 642 113
+
+A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Stay On These Roads 4:44
+A2 The Blood That Moves The Body 4:05
+A3 Touchy 4:31
+A4 This Alone Is Love 5:13(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8D6868FBE367A08BB0303738B18AB784F6863B85
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 642 059
 
 Shylmagoghnar - Studio Albums (2 releases) (2014-2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive/Melodic Death/Black 
@@ -1734,257 +1983,6 @@ A4		Teach You How To Dance	5:31(   Читать дальше...   )Жанр: Ele
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:8C5254D9BB5A34611EB66977C6F87B0DCBA08C3C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 238
-
-Dee D. Jackson - Cosmic Curves  1978  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Automatic Lover 4:08
-A2 Red Flight 4:10
-A3 Galaxy Of Love 4:48
-A4 Meteor Man 4:47    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C7C57E8EC626A14CA1AD3EF1767C7F9A56EA7A12
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 232
-
-Stream of Passion - Studio Albums  5 releases   2005-2014  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Progressive Symp
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Stream of Passion — мексикано-нидерландская симфоник- готик-метал-группа, образованная в 2005 году Арьеном Антони Люкассеном и Марселой Бовио.2005 - Embrace the Storm
-2006 - Out in the Real World  EP 
-2009 - The Flame Within
-2011 - Darker DaysЖанр: Progressive Symphonic MetalПродолжительность: 04:11:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D32D97DBEB6C81168B9B3BDE39813A4408ACD96F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 226
-
-Gorillaz - Cracker Island  2023  [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip Hop, Rock, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Cracker Island  3:33 
- 02. Oil  3:50 
- 03. The Tired Influencer  3:31 
- 04. Tarantula  3:32     Читать дальше...    Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CC458EC151F24CA9F2FCC5F22DBF416BD57AF0BB
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 201
-
-Красные Маки - Если Не Расстанемся...  1980  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-А1 Встречай Меня
-А2 Если Не Расстанемся
-А3 Скажет Девчонка
-А4 Давай Попробуем Вернуть    Читать дальше...    Жанр: PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E6CDF7484CFC3EF2251AAEFB65F308B95B16B3D
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/6wCss1V/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 140
-
-Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Завтра, Варшава
-A2 Дай, Дай
-A3 Сады
-A4 Эта Рена(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:01940AFC53BFABA545CD4072615D960EE8E4B80C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 078
-
-Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Speed/Thr
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Holy Moses — немецкая трэш-метал-группа, одна из первых групп на немецкой трэш-метал-сцене.
-Лидер группы — вокалистка Сабина Классен.1986 - Queen Of Siam - Walpurgisnight Demo
-1987 - Finished With The Dogs
-1989 - The New Machine Of Liechtenstein
-1990 - World ChaosЖанр: Speed/Thrash MetalПродолжительность: 13:02:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:541FD872CC3ABEE3863ADF7EE3741935A22B6904
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 629 965
-
-Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1 The Getaway
-2 Dark Necessities
-3 We Turn Red
-4 The Longest Wave(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B4D569EE6D0D78E363150CDF52152EB2B38363F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 629 913
-
-Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Change The Weather
-A2 Stand Up
-A3 Fever
-A4 Original Song(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B2623DCC96EA8789D4F7D9C132CC461ED1AFC7B5
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 629 816
-
-Baccara - Baccara  1977   [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01 Yes Sir, I Can Boogie  Dostal - Soja  4:37
-02 Love You Till I Die  Dostal - Soja  4:29
-03 Granada  Lara  4:21
-04 Gimme More  Soja - Zentner  3:54    Читать дальше...    Жанр: PopПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5CCFF4D651623339252A73CA4D8A37716199A78F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 629 685
-
-Зодиак - Музыка во Вселенной  1982   [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Electro, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Таинственная галактика  4:45 
-A2. Лазерная иллюминация  4:11 
-A3. Серебряная мечта  3:33 
-A4. Фотофиниш  4:34     Читать дальше...    Жанр: Electro, DiscoПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FAAE095706F44266BEC0CA327A1FCD13E959B6FD
 ```
 
 <div id="header" align="center">

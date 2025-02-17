@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 672 719
+
+Bolt Thrower - Studio Albums  8 releases   1988-2005  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Death Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Bolt Thrower — британская дэт-метал-группа, образовавшаяся в 1986 году в Бирмингеме, Англия, и ставшая  согласно Allmusic  «самой последовательной и стойкой дэт-метал-группой Британии, сумевшей через все взлёты и падения сохранить звучание и не поддаться на коммерческие соблазны»1988 - In Battle There Is No Law
+1989 - Realm Of Chaos
+1991 - War Master
+1992 - The IVth CrusadeЖанр: Death MetalПродолжительность: 06:15:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F53D880D8944389925010ED692DC5015E458B4D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 672 667
+
+Death - The Sound of Perseverance  1998  Reissue 2016, Relapse Records [FLAC|24 96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Scavenger Of Human Sorrow  06:57 
+02. Bite The Pain  04:29 
+03. Spirit Crusher  06:47 
+04. Story To Tell  06:36     Читать дальше...    Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:44A51D6968F01296F1D835CD65C7CF20A4114E75
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 672 620
+
+Мираж - Неизданное  1989-1991  hand made, remastered [FLAC|44 16|tracks] <Pop, Dance, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+CD-1  34:04 
+
+[4:53] 1. Я жду тебя
+[4:05] 2. Эхо    Читать дальше...    Жанр: Pop, Dance, DiscoПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4459A0DE943680AD4F5845D64CAAC96AFBAEE041
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 672 551
+
+Death - Leprosy  1988  [FLAC|24 96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Leprosy  06:20 
+02. Born Dead  03:28 
+03. Forgotten Past  04:37 
+04. Left To Die  04:37     Читать дальше...    Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:035C1F723584BCE25B0AEDE0AD0EBBF6F7BF2749
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 672 508
+
+Benediction - Studio Albums  9 releases   1990-2020  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Death Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Benediction — британская дэт-метал-группа из Бирмингема, основаная в 1989 году. Основными темами группы являются социальные проблемы и религия.1990 - Subconscious Terror
+1991 - The Grand Leveller
+1992 - Dark Is The Season
+1993 - Transcend The RubiconЖанр: Death MetalПродолжительность: 07:04:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D25280E53829C267CF2533112A7D3ED223E580DA
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 672 139
+
+Death - Scream Bloody Gore  1987  Reissue, 2001, Century Media [FLAC|24 96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Infernal Death  02:54 
+02. Zombie Ritual  04:35 
+03. Denial Of Life  03:36 
+04. Sacrificial  03:43     Читать дальше...    Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:54:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41B402F6EDBEF9690352F641D849EA0611D83AAF
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 672 010
+
+Bal-Sagoth - Studio Albums  6 releases   1995-2006  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Symphonic Epic Black Met
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Bal-Sagoth — английская группа, играющая в жанре симфонический блэк-метал, существующая с 1993 года. Как представитель эпик-метала, Bal-Sagoth тяготеют к крупным эпическим формам, создавая сюжетные концептуальные альбомы в жанре фэнтэзи.1995 - A Black Moon Broods over Lemuria
+1996 - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule
+1997 - Battle Magic
+1999 - The Power CosmicЖанр: Symphonic Epic Black MetalПродолжительность: 05:12:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3569950657EB5DE293301E1EA672FF55A6288D4C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 671 693
+
+Gorefest  & The 11th Hour  - Studio Albums  9 releases   1991-2012  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Death 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Gorefest — нидерландская дэт-метал группа, образованная в сентябре 1989 года, в провинции Зеландия.1991 - Mindloss
+1992 - False
+1994 - Erase
+1996 - Soul SurvivorЖанр: Death Metal; Death  n  RollПродолжительность: 08:05:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:02BCB5A49FB354AE7678DC39DF60E2076FCB756D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 671 626
+
+Death - Human  1991  Reissue 2021, Relapse Records [FLAC|24 96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Flattening Of Emotions
+A2 Suicide Machine
+A3 Together As One
+A4 Secret Face    Читать дальше...    Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0FE311C7FF8BB2A7F2ED42C507E7132C9BCFEB03
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 671 189
+
+Brand New - Studio Albums  5 releases   2001-2017  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Punk, Post-Hardcore>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Brand New — американская рок-группа из Лонг-Айленда, Нью-Йорк. Коллектив был основан в 2000 году.2001 - Your Favorite Weapon
+2003 - Deja Entendu
+2006 - The Devil And God Are Raging Inside Me
+2009 - DaisyЖанр: Punk, Post-HardcoreПродолжительность: 04:10:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:19B955D54330CB36816555C860878394127CE80F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 671 068
 
 Черный Кофе - Два альбома: Переступи Порог и Вольному — Воля  1987, 1990  [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -1722,254 +1972,6 @@ Heavenly — пауэр-метал-группа из Франции, основ�
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 662 856
-
-Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-Rip]<Symphonic Power Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Song For Eden
-A2 Jerusalem Is Falling
-A3 Design The Century
-A4 Rise Of The 4th Reich(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B08F578F930294AF66E5AA2A0E22A33857C88674
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 662 814
-
-VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Puccini, Berlioz and Bizet (1976) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip]
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Serbami Ognor (Semiramide, Act I)
-A2 Se M'Ami Ancor ... Al Nostri Monti Ritorneremo (Il Trovatore, Act IV)
-A3 Un Di Felice (La Traviata, Act I)
-A4 Ascoltai Le Porte Dell'Asil S'Apron Gia, Dio, Che Nell'Alma Infondere (Don Carlo, Act II)(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:870A41064ADDD114E0F45E11BFF88C53539B6227
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 662 711
-
-Sylosis - Studio Albums (8 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Thrash Metal, Meta
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Sylosis — британская метал-группа из Рединга. Группа была основана в 2000 году гитаристом Джошем Миддлтоном и бас-гитаристом Карлом Парнеллом.2006 - Casting Shadows (EP)
-2007 - The Supreme Oppressor (EP)
-2008 - Conclusion of an Age
-2011 - Edge of the EarthЖанр: Melodic Death Metal, Thrash Metal, MetalcoreПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4CF79D02D17736E4B7169D0986B51AAE3BB4721E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 662 444
-
-Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Seventh Wonder — прогрессив-метал группа, была создана в Стокгольме в 2000 году бас-гитаристом Андреасом Бломквистом, гитаристом Йоханом Лифвендалом и барабанщиком Джонни Сэндином.2005 - Become
-2006 - Waiting In The Wings
-2008 - Mercy Falls
-2011 - The Great EscapeЖанр: Progressive MetalПродолжительность: 06:24:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:434CC2B40B5BD6A7B47CC4DB3FA555D8965DB38A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 662 007
-
-Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Met
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Mark Robert Boals (родился 5 декабря 1958 г.) - американский хэви-метал вокалист1998 - Ignition
-2000 - Ring Of Fire
-2002 - Edge Of The WorldЖанр: Power MetalПродолжительность: 05:37:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6E9BF7D6F234F9345E1DB71915500F6983F1995D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 661 987
-
-Vindictiv - Studio Albums  4 releases   2008-2016  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Progressive Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Vindictiv - прогрессив-метал группа из Стокгольма, Швеция, основанная в 2004 году.2008 - Vindictiv
-2009 - Ground Zero
-2013 - Cage of Infinity
-2015 - World of FearЖанр: Progressive MetalПродолжительность: 03:37:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF08D1759784C11927F4FAAC539A42BA7AE0D34B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 661 762
-
-Demons & Wizards  Blind Guardian; Iced Earth  - Studio Albums  3 releases   2000-2020  hand made [restored, declipped] [FLAC |16 44.1|tr
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Demons & Wizards - сайд-проект вокалиста Ханси Кюрша  Blind Guardian  и гитариста Джона Шаффера  Iced Earth  в жанре пауэр-метал.2000 - Demons & Wizards
-2005 - Touched by the Crimson King
-2020 - IIIЖанр: Power MetalПродолжительность: 03:24:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 661 630
-
-Rage of Angels - Rage of Angels  1989  [WavPack|32 192|image + .cue|Vinyl-Rip] <Melodic Heavy Metal, Hard Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Leave You Or Forsake You
-02. Reason To Rock
-03. It s Not Late For Love
-04. Somebody s Watching You    Читать дальше...    Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A6D7C9AEBC0D4384A673530831E5769B0CBA5784
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 661 107
-
-Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral  1977  A New Recording from the Berlin Philarmonic Hall [
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Ludvig Van Beethoven  1770 - 1817 
-Symphony No.6 In F Major, Op. 68  Pastoral 
-A New Recording from the Berlin Philarmonic Hall
-A1 Allegro Ma Non Troppo    Читать дальше...    Жанр: Classical, RomanticПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 660 750
-
-Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection  1973  [FLAC 2.0|24 96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Vienna Blood
-A2 Radetzky March
-A3 Tales From The Vienna Woods
-B1 The Blue Danube    Читать дальше...    Жанр: Classical, OrchestraПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
 ```
 
 <div id="header" align="center">

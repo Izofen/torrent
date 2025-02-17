@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 598 370
+
+HIM - Studio Albums  10 releases   1997 - 2013  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Gothic Rock, Gothic Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+HIM — финская рок-группа, созданная в 1991 году вокалистом Вилле Вало, гитаристом Микко Линдстремом и басистом Микко Паананеном. Первоначальное название коллектива было His Infernal Majesty  Его дьявольское Величество , но его заменили аббревиатурой HIM, когда начались обвинения в пропаганде сатанизма. Некоторое непродолжительное время во время гастролей по США и     Читать дальше...    1997 - Greatest Lovesongs Vol. 666
+2000 - Razorblade Romance
+2001 - Deep Shadows And Brilliant Highlights
+2003 - Love Metal    Читать дальше...    Жанр: Gothic Rock, Gothic MetalПродолжительность: 10:13:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9CE846906E176701A8A43C083589F4D1D55E0035
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 597 443
+
+Fozzy - Studio Albums  8 releases   2000 - 2022  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Heavy Metal, Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Fozzy — американская хэви-метал группа.
+В 1999 году рестлер Крис Джерико и гитарист группы  Stuck Mojo  Рич Уорд создали кавер-группу  Fozzy Osbourne . Вскоре название сократилось до  Fozzy , а в 2000 году на лейбле  Megaforce Records  вышел одноименный дебютный альбом.2000 - Fozzy
+2002 - Happenstance
+2005 - All That Remains
+2009 - Chasing The GrailЖанр: Heavy Metal, Hard RockПродолжительность: 06:20:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:46559443E0979F542F4D933AF84E9D407EA52E82
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 795
+
+Nordic Union - Studio Albums  3 releases   2016 - 2022  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Melodic Heavy Metal<3
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+За названием  Nordic Union  скрывается созданный президентом компании  Frontiers Records  Serafino Perugino совместный проект Ронни Аткинса  Ronnie Atkins  из легендарной датской мелодик-хард н хэви группы  Pretty Maids  и подающего большие надежды шведского автора песен и продюссера Эрика Мартенсона  Erik Martensson  известного по таким     Читать дальше...    2016 - Nordic Union
+2018 - Second Coming
+2022 - Animalistic
+.Жанр: Melodic Heavy Metal Hard RockПродолжительность: 02:15:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9864A331F5B3E71184626604B124A9E0ACD6B449
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 711
+
+Audioslave - Studio Albums  3 releases   2002 - 2006  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Hard Rock, Post-Grunge>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Audioslave — супергруппа, состоявшая из бывших инструменталистов группы Rage Against the Machine Тома Морелло  гитарист , Тима Коммерфорда  бас-гитарист и сопровождающий вокал  и Брэда Уилка  ударные , а также Криса Корнелла  бывший ведущий вокалист и ритм-гитарист группы Soundgarden  в качестве ведущего вокалиста. Группа сформировалась после распада Rage Against     Читать дальше...    2002 - Audioslave
+2005 - Out Of Exile
+2006 - Revelations
+.Жанр: Hard Rock, Post-GrungeПродолжительность: 03:15:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 639
+
+Tarja  Nightwish  - Studio Albums  5 releases   2007 - 2019  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Symphonic Me
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Та́рья Со́йле Су́санна Ту́рунен Кабу́ли  фин. Tarja Soile Susanna Turunen Cabuli; род. 17 августа 1977, деревня Пухос, близ Китеэ, Финляндия  — финская оперная и рок-певица, пианистка, композитор, бывшая вокалистка симфоник-метал-группы Nightwish.2007 - My Winter Storm
+2010 - What Lies Beneath
+2013 - Colours In The Dark
+2016 - The Shadow SelfЖанр: Symphonic Metal Rock, NeoclassicalПродолжительность: 05:28:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:781609E457EF84EA151F424B69C932A1EB30BBE4
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 628
+
+Маленький Принц - Мы встретимся снова  1989  [WavPack 2.0|192 32|tracks|MB-Rip] <Pop, Dance, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+[5:06] 1. Я не знаю, зачем мне ты
+[4:01] 2. Голос в ночи
+[5:17] 3. Прощай
+[4:46] 4. Не знаю я тебя    Читать дальше...    Жанр: Pop, Dance, DiscoПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C5A3741CAC7E106A729D2B12BDF7660BD6A8663F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 539
+
+Therion - Studio Albums  17 releases   1991 - 2022  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Death Metal, Symphonic 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Therion  от греч. θηρίον —  «зверь», «чудовище»  — шведская симфоник-метал-группа, основанная в 1987 году. Therion считаются старейшей группой в стиле симфоник-метал и одними из основателей этого жанра  наряду с более поздними Nightwish . С середины 1990-х их композиции записываются и исполняются с участием живых оркестров, приглашённых     Читать дальше...    1991 - Of Darkness
+1992 - Beyond Sanctorum
+1993 - Symphony Masses: Ho Drakon Ho Megas
+1995 - Lepaca KliffothЖанр: Death Metal, Symphonic Operatic MetalПродолжительность: 19:20:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1A4F26E1093703F1EB95E9F241D4F5230E583B0F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 595 750
+
+Slash  Saul Hudson, Slash s Snakepit, Velvet Revolver  - Studio Albums  9 releases   1995 - 2022  hand made [restored, declipped] [FLAC 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Saul Hudson, более известный по сценическому псевдониму Slash  род. 23 июля 1965 года  — американский рок-музыкант британского происхождения. Наиболее известен как гитарист американской хард-рок-группы Guns N’ Roses, с которой он добился всемирного успеха в конце 1980-х и начале 1990-х годов. В поздние годы своего участия в Guns N  Roses сформировал сайд-проект Slash s     Читать дальше...    2010 - Slash
+2012 - Apocalyptic Love
+2014 - World On Fire
+2018 - Living The DreamЖанр: Heavy Metal, Hard Rock, Glam MetalПродолжительность: 09:34:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2D4D5A18BCEDF5575FA9755D820AF9E107DBE47F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 595 443
+
+Art Of Anarchy - Studio Albums  2 releases   2015 - 2017  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Hard Rock, Post-Gru
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Art of Anarchy — американская хард-рок супергруппа, образованная в 2011 году. В состав группы входят братья-близнецы Джон и Винс Вотта, басист Disturbed Джон Мойер, бывший гитарист Guns N  Roses Рон «Бамблфут» Тал в качестве со-гитариста и продюсера, а с 2016 года - вокалист Creed Скотт Стэпп.
+В первом альбоме группы вокалистом был ныне покойный Скотт Вейланд, бывший     Читать дальше...    2015 - Art Of Anarchy
+2017 - The MadnessЖанр: Hard Rock, Post-Grunge, Heavy MetalПродолжительность: 01:38:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9CDD9364967B39B57B80F080003449D6A925B3E5
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 595 313
+
+Nuclear Assault - Studio Albums  6 releases   1986 - 2005  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Thrash Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Nuclear Assault — американская трэш-метал кроссовер-трэш группа, основанная в 1984 году бас-гитаристом Anthrax Дэнни Лилкером.1986 - Game Over + The Plague  EP 
+1988 - Survive
+1989 - Handle With Care
+1991 - Out Of OrderЖанр: Thrash MetalПродолжительность: 04:45:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 595 112
 
 Joe Lynn Turner - Studio Albums  11 releases   1985 - 2022  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <AOR Hard Rock; 
@@ -1752,256 +2002,6 @@ Disturbed — американская метал-группа, образова
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:86D0FE147C277901E205131F8BF58FE3F9A23333
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 715
-
-Unleash the Archers - Studio Albums  6 releases   2009 - 2020  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Heavy Power 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Unleash the Archers — канадская метал-группа, основанная в Ванкувере в 2007 году. Группа исполняет смесь традиционного хеви-метала с пауэр-металом и мелодичным дэт-металом.2009 - Behold The Devastation
-2011 - Demons Of The AstroWaste
-2015 - Time Stands Still
-2017 - ApexЖанр: Heavy Power Metal, Melodic Death MetalПродолжительность: 05:10:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5D52BFC4E48E6BF1B8D3102956F1355FA7544F2
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 611
-
-Europe - Дискография  14 albums   1983-2017  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Hard Rock, Heavy Metal, Glam Met
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Europe — шведская рок-группа, основанная вокалистом Джоуи Темпестом и гитаристом Джоном Норумом. В первый период существования группа относилась к жанру глэм-метал, но после возрождения перешла на современные хард-рок и хэви-метал.1983 - Europe
-1984 - Wings of Tomorrow
-1986 - The Final Countdown
-1988 - Out of This World    Читать дальше...    Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 12:58:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E1E4070308C69FA7EA93A66BD1ACB0DBB28783E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 601
-
-Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Oriental Progressive Metal, Power Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Myrath (араб. ميراث‎, наследие) — ориентал-метал-группа, основанная в 2001 году в Тунисе.2005 - Double Face
-2007 - Hope
-2010 - Desert Call
-2011 - Tales of the SandsЖанр: Oriental Progressive Metal, Power MetalПродолжительность: 07:44:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 589
-
-Seether - Studio Albums (10 releases) (2000 - 2021) hand made [restored, declipped] hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Seether — рок-группа, сформированная в ЮАР в мае 1999 года. Группа выступала под названием Saron Gas до 2002 года, когда было принято нынешнее название.2000 - Fragile (as Saron Gas)
-2002 - Disclaimer
-2004 - Disclaimer II
-2005 - Karma And EffectЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 09:32:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DFC44311DCF6F239DF69C525A2C8AD4ADA074450
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 453
-
-Korn - Studio Albums  15 releases   1994 - 2022  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Nu Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Korn  стилизуется как KoЯn  — американская ню-метал-группа, основанная в городе Бейкерсфилд  Калифорния  в 1993 году. Группа примечательна тем, что стала пионером жанра ню-метал и вывела его в мейнстрим.1994 - Korn
-1996 - Life Is Peachy
-1998 - Follow The Leader
-1999 - IssuesЖанр: Nu MetalПродолжительность: 14:12:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:76E75774C7FD1804156DB5A4C5B111170D6A75D6
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 844
-
-Tempest - Дискография  2018 - 2022  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Thrash Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Tempest - немецкая трэш-метал группа из Аахена, основана в 2013 году Филом Пирисом и Марко Шефером.
-Tempest поставили перед собой задачу донести свою современную и зрелую интерпретацию трэш-метала до поклонников и тех, кто хочет им стать. С одной стороны, влияние великих трэшевых икон вообще невозможно скрыть, поэтому велосипед вообще не стоит изобретать, а с другой     Читать дальше...    2018 - When Hate Has Dominion
-2022 - Point of No ReturnЖанр: Thrash MetalПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6E947E88F3B70B38407E60B17E797932E3A969BE
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 801
-
-The Post Scriptum group - Post Scriptum  1983  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Blues Rock, Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 A Song For You
-A2 Fall Is At Your Door
-A3 A Song That s Always New
-A4 Shadow On My Wall    Читать дальше...    Жанр: Blues Rock, Pop RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1BD1BE2956AA503135084D0027CAC3006092CDE7
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 469
-
-Mustasch - Дискография  13 albums   2001-2019  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Heavy Metal, Stoner Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Mustasch — шведская рок-группа. Сформирована осенью 1998 года Ральфом Джилленхаммаром, Ханнесом Ханссоном, Матсом Ханссоном и Стамом Йоханссоном в Гётеборге.2002 - Above All
-2003 - RatSafari
-2005 - Powerhouse
-2007 - Latest Version of the Truth    Читать дальше...    Жанр: Heavy Metal, Stoner MetalПродолжительность: 08:48:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F2A572D12A122F07EDC0FB74286296C4D97E3F38
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 456
-
-Incubus - Дискография  11 albums   1995-2020  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Alternative Rock, Funk Rock, In
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Incubus — американская альтернативная рок-группа.
-Группа была создана в калифорнийском городе Калабасасе в 1992 году одноклассниками Брэндоном Бойдом  вокал, перкуссия , Майком Айнзайгером  гитара , Алексом Катуничем, взявшим себе псевдоним «Дирк Лэнс»  бас-гитара , и Хосе Пасийясом  ударные .1995 - Fungus Amongus
-1997 - S.C.I.E.N.C.E.
-1999 - Make Yourself
-2001 - Morning ViewЖанр: Alternative Rock, Funk Rock, Indie RockПродолжительность: 09:24:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:498D7C5238B757291021C5700507A34100F0873D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 447
-
-Allegaeon - Дискография  10 releases   2008-2022  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <Technical Melodic Death Met
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Allegaeon — американская экстремальная метал-группа из Форт-Коллинза, штат Колорадо, образованная в 2008 году.2010 - Fragments of Form and Function
-2012 - Formshifter
-2014 - Elements of the Infinite
-2016 - Proponent for SentienceЖанр: Technical Melodic Death MetalПродолжительность: 06:41:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA4BAC55975439C7BE0028B8451ECEFC945F105C
 ```
 
 <div id="header" align="center">

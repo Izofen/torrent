@@ -1,4 +1,251 @@
 ﻿
+###  Публикация: 1 684 524
+
+Silent Force - Studio Albums  5 releases   2000-2013  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Power Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Silent Force - немецкая группа Heavy Metal Power Metal, образованная в 1999 году.2000 - The Empire Of Future
+2001 - Infatuator
+2004 - Worlds Apart
+2007 - Walk The Earth    Читать дальше...    Жанр: Power MetalПродолжительность: 05:03:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:484BF8716C7638A6204B931744B24745E4C67367
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 684 413
+
+System Of A Down - Mezmerize  2005   [FLAC|24 192|image + .cue|Vinyl-Rip]<Alternative Metal, Nu Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Soldier Side - Intro
+A2 B.Y.O.B.
+A3 Revenga
+A4 Cigaro    Читать дальше...    Жанр: Alternative Metal, Nu MetalПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:49C12326CA3DB194DC515C45E014467BC981000A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 684 406
+
+Ayreon - The Source  2017  [FLAC|24 96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 - The Day That The World Breaks Down
+A2 - Sea Of Machines
+A3 - Everybody Dies
+B1 - Star Of Sirrah    Читать дальше...    Жанр: Progressive Metal, RockПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 684 362
+
+Stam1na - Studio Albums  12 releases   2005-2023  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Progressive Thrash Heavy
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Stam1na  «Стойкость»  — метал-группа из Леми, Южная Карелия, Финляндия. Их стиль можно определить как прогрессивный метал с элементами треш-, дет- и альтернативного метала. Тексты — на финском языке.2005 - Stam1na
+2006 - Uudet Kymmenen Kaskya
+2008 - Raja
+2010 - Viimeinen AtlantisЖанр: Progressive Thrash Heavy MetalПродолжительность: 09:33:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 684 158
+
+Semblant - Studio Albums  5 releases   2010-2022  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Extreme Symphonic Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Semblant - готик экстремальный симфонический металл из Куритибы, Парана, Бразилия, образованная в 2006 году.2010 - Last Night of Mortality
+2011 - Behind the Mask
+2014 - Lunar Manifesto
+2020 - ObscuraЖанр: Extreme Symphonic MetalПродолжительность: 03:52:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A3FD30F9F739E0D75E1F1AC74A4E2CABB7262092
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 684 124
+
+System Of A Down - Hypnotize  2005  [FLAC|24 192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Attack
+A2 Dreaming
+A3 Kill Rock  N Roll
+A4 Hypnotize    Читать дальше...    Жанр: Alternative Metal, Nu MetalПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1AEE197496430259FD16FE6ACF11D960F15C7B6D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 684 117
+
+Ayreon - The Theory of Everything  2013  [FLAC|24 96|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Phase I: Singularity
+A-a - Prologue: The Blackboard
+A-b - The Theory Of Everything Part 1
+A-c - Patterns    Читать дальше...    Жанр: Progressive Metal, RockПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 684 101
+
+Mario Lanza Марио Ланца - Голос и ночь, Всё это ты, Прекраснейшая ночь года  1990  Из собраний М. Магомаева, Ю. Крууса, О. Шишова, Н. Тюрина [FL
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Из кинофильма  Потому, что ты моя Жанр: Pop, Classical, RetroПродолжительность: 02:18:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E02EC2818F0C326084AFCCFEA0EFE39D87FA3D16
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 684 054
+
+Anubis Gate - Studio Albums  10 releases   2004-2023  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Progressive Power Meta
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Anubis Gate - датская пауэр прог-метал группа, образованная в 2001 году в Ольборге.2004 - Purification
+2005 - A Perfect Forever
+2007 - Andromeda Unchained
+2009 - The DetachedЖанр: Progressive Power MetalПродолжительность: 09:49:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87D186EB2DC9A10893E8AE7E60C77204867E4890
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/9t1Lvkz/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 683 868
+
+System Of A Down - Steal This Album!  2002  [FLAC|24 192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Chic  N  Stu
+A2 Innervision
+A3 Bubbles
+A4 Boom!    Читать дальше...    Жанр: Alternative Metal, Nu MetalПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B885BCE2311F1E892EEE8D4BF17C19A95011F47
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 683 807
 
 Ayreon - 01011001  2008  [FLAC|24 192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
@@ -1732,256 +1979,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:B040AA3EDB20D562A9BB694C32B233F42913F468
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 672 719
-
-Bolt Thrower - Studio Albums  8 releases   1988-2005  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Death Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Bolt Thrower — британская дэт-метал-группа, образовавшаяся в 1986 году в Бирмингеме, Англия, и ставшая  согласно Allmusic  «самой последовательной и стойкой дэт-метал-группой Британии, сумевшей через все взлёты и падения сохранить звучание и не поддаться на коммерческие соблазны»1988 - In Battle There Is No Law
-1989 - Realm Of Chaos
-1991 - War Master
-1992 - The IVth CrusadeЖанр: Death MetalПродолжительность: 06:15:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F53D880D8944389925010ED692DC5015E458B4D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 672 667
-
-Death - The Sound of Perseverance  1998  Reissue 2016, Relapse Records [FLAC|24 96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Scavenger Of Human Sorrow  06:57 
-02. Bite The Pain  04:29 
-03. Spirit Crusher  06:47 
-04. Story To Tell  06:36     Читать дальше...    Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44A51D6968F01296F1D835CD65C7CF20A4114E75
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 672 620
-
-Мираж - Неизданное  1989-1991  hand made, remastered [FLAC|44 16|tracks] <Pop, Dance, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-CD-1  34:04 
-
-[4:53] 1. Я жду тебя
-[4:05] 2. Эхо    Читать дальше...    Жанр: Pop, Dance, DiscoПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4459A0DE943680AD4F5845D64CAAC96AFBAEE041
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 672 551
-
-Death - Leprosy  1988  [FLAC|24 96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Leprosy  06:20 
-02. Born Dead  03:28 
-03. Forgotten Past  04:37 
-04. Left To Die  04:37     Читать дальше...    Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:035C1F723584BCE25B0AEDE0AD0EBBF6F7BF2749
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 672 508
-
-Benediction - Studio Albums  9 releases   1990-2020  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Death Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Benediction — британская дэт-метал-группа из Бирмингема, основаная в 1989 году. Основными темами группы являются социальные проблемы и религия.1990 - Subconscious Terror
-1991 - The Grand Leveller
-1992 - Dark Is The Season
-1993 - Transcend The RubiconЖанр: Death MetalПродолжительность: 07:04:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D25280E53829C267CF2533112A7D3ED223E580DA
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 672 139
-
-Death - Scream Bloody Gore  1987  Reissue, 2001, Century Media [FLAC|24 96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Infernal Death  02:54 
-02. Zombie Ritual  04:35 
-03. Denial Of Life  03:36 
-04. Sacrificial  03:43     Читать дальше...    Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:54:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:41B402F6EDBEF9690352F641D849EA0611D83AAF
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 672 010
-
-Bal-Sagoth - Studio Albums  6 releases   1995-2006  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Symphonic Epic Black Met
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Bal-Sagoth — английская группа, играющая в жанре симфонический блэк-метал, существующая с 1993 года. Как представитель эпик-метала, Bal-Sagoth тяготеют к крупным эпическим формам, создавая сюжетные концептуальные альбомы в жанре фэнтэзи.1995 - A Black Moon Broods over Lemuria
-1996 - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule
-1997 - Battle Magic
-1999 - The Power CosmicЖанр: Symphonic Epic Black MetalПродолжительность: 05:12:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3569950657EB5DE293301E1EA672FF55A6288D4C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 671 693
-
-Gorefest  & The 11th Hour  - Studio Albums  9 releases   1991-2012  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Death 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Gorefest — нидерландская дэт-метал группа, образованная в сентябре 1989 года, в провинции Зеландия.1991 - Mindloss
-1992 - False
-1994 - Erase
-1996 - Soul SurvivorЖанр: Death Metal; Death  n  RollПродолжительность: 08:05:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02BCB5A49FB354AE7678DC39DF60E2076FCB756D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 671 626
-
-Death - Human  1991  Reissue 2021, Relapse Records [FLAC|24 96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Flattening Of Emotions
-A2 Suicide Machine
-A3 Together As One
-A4 Secret Face    Читать дальше...    Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0FE311C7FF8BB2A7F2ED42C507E7132C9BCFEB03
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 671 189
-
-Brand New - Studio Albums  5 releases   2001-2017  hand made [restored, declipped] [FLAC |16 44.1|tracks +.cue] <Punk, Post-Hardcore>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Brand New — американская рок-группа из Лонг-Айленда, Нью-Йорк. Коллектив был основан в 2000 году.2001 - Your Favorite Weapon
-2003 - Deja Entendu
-2006 - The Devil And God Are Raging Inside Me
-2009 - DaisyЖанр: Punk, Post-HardcoreПродолжительность: 04:10:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:19B955D54330CB36816555C860878394127CE80F
 ```
 
 <div id="header" align="center">

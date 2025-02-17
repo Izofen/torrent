@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 271 896
+
+VA - The Civil War - Original Soundtrack Recording. Traditional American Songs And Instrumental Music Featured In The Film By Ken Burns  1990  [FL
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 The Old Bethpage Brass Band - Drums Of War 
+A2 Paul Roebling - Oliver Wendell Holmes  Quote 
+A3 Evan Stover, Jay Ungar, Matt Glaser  Fiddle  and Molly Mason, Russ Barenberg  Guitar  - Ashokan Farewell
+A4 Jacqueline Schwab  Piano  - Battle Cry Of Freedom    Читать дальше...    Жанр: SoundtrackПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 697
+
+Fine Young Cannibals - Fine Young Cannibals  1985  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Johnny Come Home
+A2 Couldn t Care More
+A3 Don t Ask Me To Choose
+A4 Funny How Love Is    Читать дальше...    Жанр: Pop RockПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 681
+
+Cliff Richard - The Best Of...  unknown  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Classic Rock, Rock n Roll>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Face A:
+01. Devil Woman
+02. The Young Ones
+03. Do You Wanna Dance    Читать дальше...    Жанр: Classic Rock, Rock n RollПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:14F155DD0EA7859AF89AA5E1911297226D24E802
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 662
+
+The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music  Schubert, Tchaickovsky, Strauss, Verdi, Delibes, Rubenstein   2000  [FLAC 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1:
+01. Adolphe Adam -   Giselle  
+02. Franz Schubert -   Rosamunde  
+    Читать дальше...    Жанр: ClassicalПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 655
+
+Veli-Matti Jarvenpaa - Sarkijarven Bolero  1992  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Folk, World & Country>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Heittopussi
+A2 Sarkijarven Bolero
+A3 Vauhdin Maailma
+A4 Neidot Herkat Hennot    Читать дальше...    Жанр: Folk, World & CountryПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 279
+
+Supertramp - Crime Of The Century  1974  [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. School  5:33 
+02. Bloody Well Right  4:30 
+03. Hide In Your Shell  6:44 
+04. Asylum  6:41     Читать дальше...    Жанр: RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:022EDEE7353C7925A1A8419476F3C06B854D721C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 140
+
+VA - Country Gold  1985  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Country Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1:
+01. Dan Seals - My Baby s Got Good Timing
+02. Anne Murray - Just Fall In Love Again
+03. Michael Martin Murphey - What sForever For    Читать дальше...    Жанр: Country RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F9F73D39A02BFB74BDA20D934567DC5933EFDC9
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 135
+
+The Marshall Tucker Band - Still Holdin  On  1988  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Country Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Dancin  Shoes
+A2 Keeping The Love Alive
+A3 Once You Get The Feel Of It
+A4 Still Holdin  On    Читать дальше...    Жанр: Country RockПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 133
+
+Chuck Berry - St. Louis To Liverpool  1984  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Rock & Roll>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Little Marie
+A2 Our Little Rendezvous
+A3 No Particular Place To Go
+A4 You Two    Читать дальше...    Жанр: Rock & RollПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 128
+
+Mariah Carey - Dance Remixes  99  1999  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop, House>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. I Still Believe  The Kings Mix 
+02. Honey  Classic Mix 
+03. When You Believe  Featuring – Whitney Houston     Читать дальше...    Жанр: Pop, HouseПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 271 121
 
 Peter Sellers - The Peter Sellers Collection 1955-1990  Series EMI Comedy Classics. Classic songs, sketches and previously unreleased material. Prod
@@ -1732,256 +1982,6 @@ Vinyl-Rip и Hand-Made
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 575
-
-Raffaella Carra Рафаэлла Карра - Поёт Рафаэлла Карра  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Чак-Чак  Ciak  Malgioglio - Castellari
-02. Вернись Ко Мне  Torna Da Me  Belfiore - Boncompagni - Bracardi
-03. Несчастная Любовь  Povero Amore  Boncompagni - Bracardi
-04. На Словах  A Parole  Belfiore - Boncompagni - Bracardi    Читать дальше...    Жанр: Italo PopПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6722F60B27957CA21FA8379CC569E108A153B068
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 569
-
-VA - Superstars  1974  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Tom Jones - Little Lonely One
-02. Gerry Dorsey - The Sentimental Joker
-03. Gilbert O Sullivan - I Wish I Could Cry
-04.   The Nocturnes   - Why  Am I Treated So Bad     Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 554
-
-VA - San Remo  88  1988  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Massimo Ranieri - Perdere l’amore
-02. Fiordaliso - Per Noi
-03. Toto Cutugno - Emozioni
-04. Marcella - Dopo La Tempesta    Читать дальше...    Жанр: Italo PopПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 540
-
-VA - Le Canzoni D Oggi  1987  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Al Bano & Romina Power – Sempre, Sempre
-02. Loretta Goggi – Io Nascero
-03. Adriano Celentano – Lunedi
-04. Marcella Bella – La Verita    Читать дальше...    Жанр: Italo PopПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:972872B0AA114045CC6429CD3E72B909A66CB422
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 528
-
-VA - Italian Pop Music  1986  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Claudio Baglioni - Un Giorno nuovo
-02. Lucio Battisti - E Penso A Te
-03. Edoardo Bennato - L isola Che Non C e
-04. Lucio Battisti - Ancora Tu    Читать дальше...    Жанр: Italo PopПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E36B68997E1A4D1E01BD7C2942A9A48E1A0B23E
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 517
-
-VA - Italian Hit-Parade 2  1985  [FLAC 2.0|96 24|image+.cue|Vinyl-Rips] <Italo Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Dori Ghezzi - Margherita on so la
-02. Stefano Sani - Complimenti
-03. Rosanna Fratello - …Se t’amo t’amo
-04. Adriano Celentano - Atmosfera    Читать дальше...    Жанр: Italo PopПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE2B6A4FF241262493C72047E6B61C7F9BBF6E93
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 498
-
-Pooh - Viva  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Io Sono Vvo
-02. Notte A Sorpresa
-03. Una Donna Normale
-04. Tutto Adesso    Читать дальше...    Жанр: Italo PopПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F0A730619FFF3812F485F4D5A14B15BA9774ADA1
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 378
-
-Within Temptation - Hydra  2014  [FLAC 2.0|192 24|image + cue|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Let Us Burn
-02. Dangerous  feat. Howard Jones 
-03. And We Run  Feat. Xzibit 
-04. Paradise  What About Us?   feat. Tarja     Читать дальше...    Жанр: RockПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8404BFE1F2EAC5D41638FAB2B010C58864E49E66
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 159
-
-Lindsey Stirling - Shatter Me  2014  [FLAC 2.0|192 24|image + cue|Vinyl-Rip] <Dubstep, Modern Classical>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. Beyond The Veil
-2. Mirror Haus
-3. V-Pop
-4. Shatter Me  feat. Lzzy Hale     Читать дальше...    Жанр: Dubstep, Modern ClassicalПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7B90C59C319DD4A7CA29272EDF7F763173D0ACD4
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 156
-
-Imagine Dragons - Night Visions  2012  [FLAC 2.0|192 24|image + cue|Vinyl-Rip] <Rock, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. Radioactive
-2. Tiptoe
-3. It s Time
-4. Demons    Читать дальше...    Жанр: Rock PopПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A5388CE1B361B85EDF1692D9AC925DA26CFDB4C
 ```
 
 <div id="header" align="center">
