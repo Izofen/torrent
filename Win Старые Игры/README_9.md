@@ -530,7 +530,7 @@ Simulation  Other
 
 ###  Публикация: 1 068 890
 
-Overclocked: A History of Violence   Overclocked. Оправданная жестокость  2007  [Ru Multi]  1.1  License PROPHET
+Overclocked: A History of Violence   Overclocked. Оправданная жестокость  2007  [Ru Multi] <
 Win Старые Игры
 Adventure Quest
 
@@ -662,7 +662,7 @@ Action  TPS
 
 ###  Публикация: 1 065 025
 
-Overclocked: A History of Violence   Overclocked. Оправданная жестокость  2007  [Ru En]  1.1  License GOG
+Overclocked: A History of Violence   Overclocked. Оправданная жестокость  2007  [Ru En]  1
 Win Старые Игры
 Adventure Quest
 
@@ -794,7 +794,7 @@ RPG
 
 ###  Публикация: 1 061 200
 
-Sudden Strike: Resource War - Real War Game  2016  [Ru]  2.4 3.44   2016  Repack Mod Modplanet League
+Sudden Strike: Resource War - Real War Game  2016  [Ru]  2.4 3.44   2016  Repack Mod
 Win Старые Игры
 AddOn DLC Mod для Игр
 
@@ -882,7 +882,7 @@ Lords of the Realms 3 посвящена истории средневековь
 
 ###  Публикация: 1 058 931
 
-Master of Orion 3   Master of Orion 3: Престол Галактики  2003  [Ru En]  1.2.5  19644   License GOG
+Master of Orion 3   Master of Orion 3: Престол Галактики  2003  [Ru En]  1.2.5  19644 
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -1234,7 +1234,7 @@ Action (TPS)
 
 ###  Публикация: 1 048 512
 
-Strategic Command: European Theater   Вторая мировая: Стратегия победы  2002  [En]  1.07  License GOG
+Strategic Command: European Theater   Вторая мировая: Стратегия победы  2002  [En]  1.07 
 Win Старые Игры
 Strategy Tactical  RTS TBS Wargame 
 
@@ -1300,7 +1300,7 @@ Strategy Tactical (RTS/TBS/Wargame)
 
 ###  Публикация: 1 046 283
 
-Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV  2005  [Ru En]  1.01 1.0  [Mod] Unofficial
+Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV  2005  [Ru En]  1.01 1.0  [Mod] Un
 Win Старые Игры
 AddOn/DLC/Mod для Игр
 
@@ -1366,7 +1366,7 @@ Strategy Tactical  RTS TBS Wargame
 
 ###  Публикация: 1 041 067
 
-Serious Sam: The First Encounter   Крутой Сэм: Первая кровь  2001  [Ru En]  1.0 1.05 dlc  Repack Mod Alex [Community Edition]
+Serious Sam: The First Encounter   Крутой Сэм: Первая кровь  2001  [Ru En]  1.0 1.05 d
 Win Старые Игры
 Action  FPS 
 
@@ -1454,7 +1454,7 @@ Strategy Tactical  RTS TBS Wargame
 
 ###  Публикация: 1 030 465
 
-Guitar Hero 3: Legends Of Rock   Guitar Hero 3. Легенды рока  2008  [En]  1.3.67255  License
+Guitar Hero 3: Legends Of Rock   Guitar Hero 3. Легенды рока  2008  [En]  1.3.67255  Licen
 Win Старые Игры
 Arcade
 
@@ -1476,7 +1476,7 @@ Arcade
 
 ###  Публикация: 1 029 907
 
-Psi-Ops: The Mindgate Conspiracy   Psi-Ops: Врата разума  2005  [Ru En]  1.0  Repack R.G. Revenants
+Psi-Ops: The Mindgate Conspiracy   Psi-Ops: Врата разума  2005  [Ru En]  1.0  Repack R.G
 Win Старые Игры
 Action (TPS)
 
@@ -1608,7 +1608,7 @@ Arcade
 
 ###  Публикация: 1 011 611
 
-Аллоды 2: Повелитель душ   Rage of Mages 2: Necromancer  1999  [Ru En]  1.07  License GOG
+Аллоды 2: Повелитель душ   Rage of Mages 2: Necromancer  1999  [Ru En]  1.07  License GO
 Win Старые Игры
 RPG
 

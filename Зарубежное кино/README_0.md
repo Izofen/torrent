@@ -332,7 +332,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Публикация: 1 765 425
 
-Третий лишний / Ted (2012) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision P7, 10-bit] [Unrated Cut]
+Третий лишний / Ted (2012) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision P7, 10-bit] [Unrated C
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
@@ -662,7 +662,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Публикация: 1 764 621
 
-Зомби по имени Шон / Shaun of the Dead (2004) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision P7, 10-bit]
+Зомби по имени Шон / Shaun of the Dead (2004) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision P7,
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
@@ -712,7 +712,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Подробнее
 
-Студентка философского факультета подвергается нападению вампирши прямо на улице. Разумеется, сразу после этого в её организме и сознании начинают происходить необратимые перемены.
+Студентка философского факультета подвергается нападению вампирши прямо на улице. Разумеется, сразу после этого в её организме и сознании начинают происходить необратимые перемены.
 
 Но что интересно: интеллектуальный потенциал девушки только растет, новые способности позволяют ей защитить диссертацию. Однако вечеринка по поводу защиты превращается в кровавую оргию.Производство: США, Аргентина, Fast Films, Guild, October FilmsЖанр: Ужасы, драмаРежиссер: Абель ФеррараАктеры: Лили Тейлор, Кристофер Уокен, Аннабелла Шиорра, Иди Фалко, Пол Кэлдерон, Фредро Старр, Кэтрин Эрбе, Майкл Империоли, Джамал Симмонс, Майкл ФеллаПеревод: Двуголосый профессиональный (DVD R5)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 01:22:30
 
@@ -796,7 +796,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Публикация: 1 764 344
 
-Объясни мне, любовь / Ingeborg Bachmann - Reise in die Wuste / Ingeborg Bachmann - Journey Into the Desert (2023) WEBRip [H.264/1080p]
+Объясни мне, любовь / Ingeborg Bachmann - Reise in die Wuste / Ingeborg Bachmann - Journey Into the
 Зарубежное кино
 Зарубежные Фильмы (HD, FHD)
 
@@ -1038,7 +1038,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Публикация: 1 763 944
 
-Государство против Фрица Бауэра / Staat gegen Fritz Bauer / The People vs. Fritz Bauer (2015) BDRip [H.264/720p] [DE / RU Sub]
+Государство против Фрица Бауэра / Staat gegen Fritz Bauer / The People vs. Fritz Bauer (2015) BDRip
 Зарубежное кино
 Фильмы в оригинале (HD, FHD, UHD)
 
@@ -1060,7 +1060,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Публикация: 1 763 936
 
-Государство против Фрица Бауэра / Staat gegen Fritz Bauer / The People vs. Fritz Bauer (2015) BDRip [H.264] [DE / RU Sub]
+Государство против Фрица Бауэра / Staat gegen Fritz Bauer / The People vs. Fritz Bauer (2015) BDRip
 Зарубежное кино
 Фильмы в оригинале (SD, DVD)
 
@@ -1082,7 +1082,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Публикация: 1 763 927
 
-Три неотправленных письма / Haitatsu sarenai santsu no tegami / The Three Undelivered Letters (1979) BDRip [H.264/720p]
+Три неотправленных письма / Haitatsu sarenai santsu no tegami / The Three Undelivered Letters (1979)
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -1104,7 +1104,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Публикация: 1 763 906
 
-Три неотправленных письма / Haitatsu sarenai santsu no tegami / The Three Undelivered Letters (1979) BDRip [H.264]
+Три неотправленных письма / Haitatsu sarenai santsu no tegami / The Three Undelivered Letters (1979)
 Зарубежное кино
 Азиатское кино (SD)
 
@@ -1126,7 +1126,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Публикация: 1 763 903
 
-Три неотправленных письма / Haitatsu sarenai santsu no tegami / The Three Undelivered Letters (1979) BDRemux [H.264/1080p]
+Три неотправленных письма / Haitatsu sarenai santsu no tegami / The Three Undelivered Letters (1979)
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -1500,7 +1500,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Публикация: 1 762 791
 
-Убийцы в чёрных колготках / Убийцы в чёрном трико / Ore ni sawaru to abunaize / Black Tight Killers (1966) BDRip [H.264/720p] [VO]
+Убийцы в чёрных колготках / Убийцы в чёрном трико / Ore ni sawaru to abunaize / Black Tight Killers
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -1522,7 +1522,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 
 ###  Публикация: 1 762 786
 
-Убийцы в чёрных колготках / Убийцы в чёрном трико / Ore ni sawaru to abunaize / Black Tight Killers (1966) BDRip [H.264] [VO]
+Убийцы в чёрных колготках / Убийцы в чёрном трико / Ore ni sawaru to abunaize / Black Tight Killers
 Зарубежное кино
 Азиатское кино (SD)
 

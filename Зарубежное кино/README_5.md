@@ -23,7 +23,7 @@
 
 ###  Публикация: 1 749 000
 
-Однажды в… Голливуде / Once Upon a Time in... Hollywood (2019) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit, Dolby Vision] [Hybrid]
+Однажды в… Голливуде / Once Upon a Time in... Hollywood (2019) UHD BDRemux [H.265/2160p] [4K, HDR, 1
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
@@ -134,7 +134,7 @@
 
 ###  Публикация: 1 748 701
 
-Хроники Риддика / The Chronicles of Riddick (2004) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7, 10-bit] [Director's Cut]
+Хроники Риддика / The Chronicles of Riddick (2004) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Visio
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
@@ -312,7 +312,7 @@
 
 ###  Публикация: 1 748 414
 
-Это как день посреди ночи / Чем день обязан ночи / Ce que le jour doit a la nuit (2012) BDRip [H.264/720p] [DVO]
+Это как день посреди ночи / Чем день обязан ночи / Ce que le jour doit a la nuit (2012) BDRip [H.264
 Зарубежное кино
 Зарубежные Фильмы (HD, FHD)
 
@@ -334,7 +334,7 @@
 
 ###  Публикация: 1 748 396
 
-Это как день посреди ночи / Чем день обязан ночи / Ce que le jour doit a la nuit (2012) BDRip [H.264] [DVO]
+Это как день посреди ночи / Чем день обязан ночи / Ce que le jour doit a la nuit (2012) BDRip [H.264
 Зарубежное кино
 Зарубежные Фильмы (SD)
 
@@ -466,7 +466,7 @@
 
 ###  Публикация: 1 748 179
 
-Исследование семейных интересов / R.I.F. (Recherches dans l Interet des Familles) (2011) BDRip [H.264/720p] [MVO]
+Исследование семейных интересов / R.I.F. (Recherches dans l Interet des Familles) (2011) BDRip [H.26
 Зарубежное кино
 Зарубежные Фильмы (HD, FHD)
 
@@ -511,7 +511,7 @@
 
 ###  Публикация: 1 748 161
 
-Исследование семейных интересов / R.I.F. (Recherches dans l Interet des Familles) (2011) BDRip [H.264] [MVO]
+Исследование семейных интересов / R.I.F. (Recherches dans l Interet des Familles) (2011) BDRip [H.26
 Зарубежное кино
 Зарубежные Фильмы (SD)
 
@@ -1061,7 +1061,7 @@ Adam bol (2024) WEBRip [H.264/1080p]
 
 ###  Публикация: 1 747 668
 
-Незнакомцы / The Strangers (2008) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit] [Unrated]
+Незнакомцы / The Strangers (2008) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit] [Unrat
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
@@ -1413,7 +1413,7 @@ Adam bol (2024) WEBRip [H.264/1080p]
 
 ###  Публикация: 1 747 244
 
-Ужас Амитивилля / The Amityville Horror (2005) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit]
+Ужас Амитивилля / The Amityville Horror (2005) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 1
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
@@ -1590,7 +1590,7 @@ Adam bol (2024) WEBRip [H.264/1080p]
 
 ###  Публикация: 1 746 746
 
-Дрянная девчонка / Yeopgijeogin geunyeo / My Sassy Girl (2001) BDRip [H.264/720p] [Театральная версия]
+Дрянная девчонка / Yeopgijeogin geunyeo / My Sassy Girl (2001) BDRip [H.264/720p] [Театральная верси
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 

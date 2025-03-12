@@ -446,7 +446,7 @@
 
 ###  Публикация: 1 755 776
 
-Спящий лагерь 3: Безлюдная территория / Sleepaway Camp III: Teenage Wasteland (1989) BDRip [H.264/720p]
+Спящий лагерь 3: Безлюдная территория / Sleepaway Camp III: Teenage Wasteland (1989) BDRip [H.264/72
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
@@ -606,7 +606,7 @@ Pavarotti - Verdi  (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 
 ###  Публикация: 1 755 535
 
-Хэллоуин 4: Возвращение Майкла Майерса / Halloween 4: The Return of Michael Myers (1988) BDRip [H.264/720p]
+Хэллоуин 4: Возвращение Майкла Майерса / Halloween 4: The Return of Michael Myers (1988) BDRip [H.26
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
@@ -961,7 +961,7 @@ Pavarotti - Verdi  (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 
 ###  Публикация: 1 754 853
 
-Кто может убить ребёнка? / Quien puede matar a un nino? / Who Can Kill a Child? / (1976) BDRip [H.264/720p] [AVO]
+Кто может убить ребёнка? / Quien puede matar a un nino? / Who Can Kill a Child? / (1976) BDRip [H.26
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
@@ -983,7 +983,7 @@ Pavarotti - Verdi  (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 
 ###  Публикация: 1 754 841
 
-Кто может убить ребёнка? / Quien puede matar a un nino? / Who Can Kill a Child? / (1976) BDRip [H.264] [AVO]
+Кто может убить ребёнка? / Quien puede matar a un nino? / Who Can Kill a Child? / (1976) BDRip [H.26
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (SD)
 

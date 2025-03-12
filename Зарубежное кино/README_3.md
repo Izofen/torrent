@@ -397,7 +397,7 @@ XV век. Эпоха королевства Чосон. Отпрыск благ
 
 ###  Публикация: 1 754 917
 
-Чародей и Белая Змея / Bai she chuan shuo / The Sorcerer and the White Snake (2011) BDRip [H.264/1080p]
+Чародей и Белая Змея / Bai she chuan shuo / The Sorcerer and the White Snake (2011) BDRip [H.264/108
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -948,7 +948,7 @@ S.O.S. Женщины в море / S.O.S.: Mulheres ao Mar (2014) DVDRip [МVO]
 
 ###  Публикация: 1 753 741
 
-Анаконда 2. Охота за проклятой орхидеей / Anacondas: The Hunt for the Blood Orchid (2004) BDRip [H.264/720p]
+Анаконда 2. Охота за проклятой орхидеей / Anacondas: The Hunt for the Blood Orchid (2004) BDRip [H.2
 Зарубежное кино
 Зарубежные Фильмы (HD, FHD)
 
@@ -970,7 +970,7 @@ S.O.S. Женщины в море / S.O.S.: Mulheres ao Mar (2014) DVDRip [МVO]
 
 ###  Публикация: 1 753 721
 
-Анаконда 2. Охота за проклятой орхидеей / Anacondas: The Hunt for the Blood Orchid (2004) BDRip [H.264]
+Анаконда 2. Охота за проклятой орхидеей / Anacondas: The Hunt for the Blood Orchid (2004) BDRip [H.2
 Зарубежное кино
 Зарубежные Фильмы (SD)
 
@@ -1170,7 +1170,7 @@ S.O.S. Женщины в море / S.O.S.: Mulheres ao Mar (2014) DVDRip [МVO]
 
 ###  Публикация: 1 753 510
 
-Белоснежка и Охотник 2 / The Huntsman: Winter's War (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [Theatrical Cut]
+Белоснежка и Охотник 2 / The Huntsman: Winter's War (2016) BDRip 3D [H.264/1080p] [Вертикальная анам
 Зарубежное кино
 Зарубежные Фильмы (3D)
 
@@ -1412,7 +1412,7 @@ S.O.S. Женщины в море / S.O.S.: Mulheres ao Mar (2014) DVDRip [МVO]
 
 ###  Публикация: 1 752 720
 
-Тихое место: День первый / A Quiet Place: Day One (2024) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-bit]
+Тихое место: День первый / A Quiet Place: Day One (2024) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby V
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 

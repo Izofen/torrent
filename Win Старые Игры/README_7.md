@@ -45,7 +45,7 @@ Adventure Quest
 
 ###  Публикация: 1 159 254
 
-Pirates of the Caribbean: At World s End   Пираты Карибского моря. На краю света  2007  [Ru Multi]  1.0  License PROPHET
+Pirates of the Caribbean: At World s End   Пираты Карибского моря. На краю света  2007  [Ru<
 Win Старые Игры
 Action  TPS 
 
@@ -67,7 +67,7 @@ Pirates of the Caribbean: At World s End основана на событиях 
 
 ###  Публикация: 1 158 596
 
-Peter Jackson s King Kong  2005  [Ru Multi]  1.0.0.1  Repack R.G. Механики [Gamer s Edition]
+Peter Jackson s King Kong  2005  [Ru Multi]  1.0.0.1  Repack R.G. Механики [Gamer s Ed
 Win Старые Игры
 Action  TPS 
 
@@ -133,7 +133,7 @@ Simulation  Other
 
 ###  Публикация: 1 157 405
 
-Peter Jackson s King Kong  2005  [Ru Multi]  1.0.0.1  Repack R.G. Revenants [Gamer s Edition]
+Peter Jackson s King Kong  2005  [Ru Multi]  1.0.0.1  Repack R.G. Revenants [Gamer s E
 Win Старые Игры
 Action  TPS 
 
@@ -463,7 +463,7 @@ Battle Chess реализует идею живых шахмат в средне
 
 ###  Публикация: 1 154 180
 
-Sudden Strike: Resource War   Sudden Strike: Битва за ресурсы  2004  [Multi]  2.4  License GOG
+Sudden Strike: Resource War   Sudden Strike: Битва за ресурсы  2004  [Multi]  2.4  License
 Win Старые Игры
 Strategy (RTS/TBS/Grand)
 
@@ -573,7 +573,7 @@ Strategy (Manage/Busin)
 
 ###  Публикация: 1 152 497
 
-London Racer: Destruction Madness   London Racer: Тотальное разрушение  2005  [Ru En Fr]  1.0  License
+London Racer: Destruction Madness   London Racer: Тотальное разрушение  2005  [Ru En Fr] <
 Win Старые Игры
 Racing
 
@@ -1079,7 +1079,7 @@ Adventure Quest
 
 ###  Публикация: 1 131 123
 
-Birthright: The Gorgon s Alliance   Право на жизнь: Союз Горгон  1997  [En]  1.3  License
+Birthright: The Gorgon s Alliance   Право на жизнь: Союз Горгон  1997  [En]  1.3  Licens
 Win Старые Игры
 RPG
 
@@ -1167,7 +1167,7 @@ Action (TPS)
 
 ###  Публикация: 1 129 618
 
-Serious Sam: The Second Encounter   Serious Sam. Второе пришествие  2002  [En]  1.07  License GOG
+Serious Sam: The Second Encounter   Serious Sam. Второе пришествие  2002  [En]  1.07  Lice
 Win Старые Игры
 Action  FPS 
 
@@ -1277,7 +1277,7 @@ Return of the Incredible Machine: Contraptions была выпущена в 2000
 
 ###  Публикация: 1 126 412
 
-AGEod s American Civil War: 1861-1865 – The Blue and the Gray   AGEod s American Civil War: Война Севера и Юга  2007  [Ru]  1.08d  Licen
+AGEod s American Civil War: 1861-1865 – The Blue and the Gray   AGEod s American Civil War: Во
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -1409,7 +1409,7 @@ Action  FPS
 
 ###  Публикация: 1 123 917
 
-Baldur s Gate II: Shadows of Amn   Baldur s Gate 2: Тени Амна  2000  [Ru En]  2.5.26461 dlc  License GOG [Complete]
+Baldur s Gate II: Shadows of Amn   Baldur s Gate 2: Тени Амна  2000  [Ru En]  2.5.2646
 Win Старые Игры
 RPG
 
@@ -1497,7 +1497,7 @@ Planescape: Torment - одна из величайших игр в истори�
 
 ###  Публикация: 1 118 483
 
-Delta Force: Task Force Dagger   Отряд Дельта: Операция  Кинжал   2002  [En]  1.00.09  License GOG
+Delta Force: Task Force Dagger   Отряд Дельта: Операция  Кинжал   2002  [En]  1.00.09 
 Win Старые Игры
 Action  FPS 
 
@@ -1519,7 +1519,7 @@ Action  FPS
 
 ###  Публикация: 1 118 470
 
-Delta Force: Land Warrior   Отряд Дельта: Операция  Спецназ   2000  [En]  1.00.42  License GOG
+Delta Force: Land Warrior   Отряд Дельта: Операция  Спецназ   2000  [En]  1.00.42  Lic
 Win Старые Игры
 Action  FPS 
 
@@ -1585,7 +1585,7 @@ Action  FPS
 
 ###  Публикация: 1 118 288
 
-Delta Force: Black Hawk Down   Delta Force: Операция  Черный Ястреб   2009  [En]  1.5.0 dlc  License GOG [Platinum Pack]
+Delta Force: Black Hawk Down   Delta Force: Операция  Черный Ястреб   2009  [En]  1.5.0<
 Win Старые Игры
 Action  FPS 
 

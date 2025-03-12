@@ -45,7 +45,7 @@ Strategy  Manage Busin
 
 ###  Публикация: 1 524 877
 
-Combat Mission: Beyond Overlord   Линия фронта. Нормандия  2001  [En]  1.12_rdna_fix  License GOG
+Combat Mission: Beyond Overlord   Линия фронта. Нормандия  2001  [En]  1.12_rdna_fix  Lice
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -265,7 +265,7 @@ Strategy  RTS TBS Grand
 
 ###  Публикация: 1 513 201
 
-Delta Force: Land Warrior   Отряд Дельта: Операция  Спецназ   2000  [Ru En]  1.00.42  License
+Delta Force: Land Warrior   Отряд Дельта: Операция  Спецназ   2000  [Ru En]  1.00.42<4
 Win Старые Игры
 Action  FPS 
 
@@ -287,7 +287,7 @@ Action  FPS
 
 ###  Публикация: 1 513 027
 
-Delta Force: Black Hawk Down   Delta Force: Операция  Черный Ястреб   2003  [Ru]  1.2.2  License
+Delta Force: Black Hawk Down   Delta Force: Операция  Черный Ястреб   2003  [Ru]  1.2.2<
 Win Старые Игры
 Action  FPS 
 
@@ -397,7 +397,7 @@ RPG
 
 ###  Публикация: 1 508 992
 
-King s Bounty: Armored Princess   King s Bounty: Принцесса в доспехах  2009  [Ru]  1.2  License
+King s Bounty: Armored Princess   King s Bounty: Принцесса в доспехах  2009  [Ru]  1.2<4
 Win Старые Игры
 RPG
 
@@ -529,7 +529,7 @@ Action  TPS
 
 ###  Публикация: 1 499 703
 
-S.T.A.L.K.E.R.: Shadow of Chernobyl   S.T.A.L.K.E.R.: Тень Чернобыля  2007  [Ru]  1.0006  Repack West4it
+S.T.A.L.K.E.R.: Shadow of Chernobyl   S.T.A.L.K.E.R.: Тень Чернобыля  2007  [Ru]  1.0006 
 Win Старые Игры
 Action  FPS 
 
@@ -1123,7 +1123,7 @@ Simulation  Other
 
 ###  Публикация: 1 469 998
 
-Nancy Drew: Curse of Blackmoor Manor   Нэнси Дрю: Проклятье поместья Блэкмур  2004  [En]  2.0.0.12  License GOG
+Nancy Drew: Curse of Blackmoor Manor   Нэнси Дрю: Проклятье поместья Блэкмур  2004  [En]  2.
 Win Старые Игры
 Adventure Quest
 
@@ -1189,7 +1189,7 @@ Arcade
 
 ###  Публикация: 1 465 851
 
-S.T.A.L.K.E.R.: Call of Pripyat   S.T.A.L.K.E.R.: Зов Припяти  2009  [Ru]  1.6.02  Repack West4it
+S.T.A.L.K.E.R.: Call of Pripyat   S.T.A.L.K.E.R.: Зов Припяти  2009  [Ru]  1.6.02  Repack
 Win Старые Игры
 Action  FPS 
 
@@ -1453,7 +1453,7 @@ Adventure Quest
 
 ###  Публикация: 1 444 412
 
-Nancy Drew: Curse of Blackmoor Manor   Нэнси Дрю: Проклятье поместья Блэкмур  2004  [Ru]  5.078  License
+Nancy Drew: Curse of Blackmoor Manor   Нэнси Дрю: Проклятье поместья Блэкмур  2004  [Ru]  5.
 Win Старые Игры
 Adventure Quest
 
@@ -1541,7 +1541,7 @@ Adventure Quest
 
 ###  Публикация: 1 442 161
 
-Nancy Drew: The Creature of Kapu Cave   Нэнси Дрю: Чудовище пещеры Капу  2006  [Ru]  1.0  License
+Nancy Drew: The Creature of Kapu Cave   Нэнси Дрю: Чудовище пещеры Капу  2006  [Ru]  1.0 
 Win Старые Игры
 Adventure Quest
 

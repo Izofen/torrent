@@ -1,4 +1,249 @@
 ﻿
+###  Публикация: 1 658 555
+
+Stilgar - Живым Или Мёртвым (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Живым или Мертвым [00:03:41]
+02. Падение в Ад [00:02:54]
+03. Птицей [00:03:07]
+04. Имена [00:03:07](   Читать дальше...   )Жанр: Hard'N'HeavyПродолжительность: 00:27:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2641F4998E41AF80B0F54791EF45DD93F18821D5
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 658 482
+
+Би-2 - Я двигаюсь дальше (2023) Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Я двигаюсь дальше
+2. Moving Along (Strangelove version)Жанр: RockПродолжительность: 00:09:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6994073917E94F5DC178B46A31A5A632DCF077DE
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 658 469
+
+Станционный смотритель - Главные песни о старом (2023) [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Вечное солнце
+2. Радуга
+3. Нопасаран
+4. Настоящий человек(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70B155E673235A61652EC0F3109E2BF2AE16823A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 658 468
+
+Крематорий - Сладкий Элвис (2023) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Сладкий Элвис
+2. Надувной аукцион
+3. Пьер Паоло Пазолини
+4. Зоя(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3C2F7506F6BD9A913AC623CF45FA1EB5A10D2DEA
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 658 173
+
+Хорея - Все, что есть у меня (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Intro [00:05:00]
+02. Листья и Лужи [00:04:05]
+03. Холодный Вечер [00:04:56]
+04. Дурка [00:03:53](   Читать дальше...   )Жанр: Alternative Rock, MetalПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0BB96847735B69F2B927F67F9D627E4C833DBA00
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 658 169
+
+Сруб - 2 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - ВосвоясиЖанр: Post-Punk, Dark FolkПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43B56572F4EDB55C59DF40F4A5797F12696C0CED
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 658 119
+
+Ashes and Bereavement - Before the Eternal Birth (2023) [FLAC|Lossless|WEB-DL|tracks] <atmosperic do
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Falling from Eden [00:10:36]
+02. Memorial Meal [00:10:42]
+03. Sedative [00:10:58]
+04. Twilight to Light [00:14:57](   Читать дальше...   )Жанр: atmosperic doom metalПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E849FF3F06D68F82BF245212B9F51C8BBF1BB78B
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 658 117
+
+Bosphorus Night - New Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. I Can Do It [00:05:49]
+02. Y.O.L.O. [00:05:05]
+03. Break the Rules [00:04:19]
+04. My Home's Inside My Veins [00:04:08](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D1DE1CD20B69FE6B5118E73CEC1585954D080412
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 658 091
+
+Max Shin - 2 Albums  2023  [MP3|320 Kbps] <Punk, Alternative Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Интро  Acoustic  [00:01:17]
+02. Пофиг  Acoustic  [00:02:08]
+03. Долбоящер  Acoustic  [00:02:40]
+04. Ты на вкус как пиво  Acoustic  [00:02:58]    Читать дальше...    Жанр: Punk, Alternative RockПродолжительность: 00:23:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:50F5369C036DDEC005E261AE9A53A22DF3840FA1
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 658 084
+
+скоты - всё лучшее детям  2023  [MP3|320 Kbps] <Punk, Alternative Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - развивайся [00:02:56]
+02 - круглая песня [00:02:57]
+03 - дно [00:03:39]
+04 - света [00:03:02]    Читать дальше...    Жанр: Punk, Alternative RockПродолжительность: 00:19:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:01F22FBB395E7270812FB47A23037E5182752889
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 656 947
 
 Тайм-Аут - Здрасьтенафиг! (2023) [MP3|320 Kbps] <Rock>
@@ -51,7 +296,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 656 635
 
-Mirror Of Enigma - Angels Are Dancing Alone (2023) Deluxe Edition [MP3|320 Kbps] <Rock Opera, New Age>
+Mirror Of Enigma - Angels Are Dancing Alone (2023) Deluxe Edition [MP3|320 Kbps] <Rock Opera, New Ag
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -176,7 +421,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 654 456
 
-Steeldown - I Don’t Care What Your Favourite Dinosaur Is (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Hard Rock, Female Vocal>
+Steeldown - I Don’t Care What Your Favourite Dinosaur Is (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -797,7 +1042,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 649 045
 
-Кипелов & Маврин - Смутное Время (1997) Reissue, Remastered, 2023, Moroz Records [MP3|320 Kbps] <Heavy Metal>
+Кипелов & Маврин - Смутное Время (1997) Reissue, Remastered, 2023, Moroz Records [MP3|320 Kbps] <Hea
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1047,7 +1292,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 646 602
 
-Пётр Мамонов & Звуки Му - Фиолетовая Черепаха. Концерт, Часть 1: песни (2023) Live [MP3|320 Kbps] <Rock>
+Пётр Мамонов & Звуки Му - Фиолетовая Черепаха. Концерт, Часть 1: песни (2023) Live [MP3|320 Kbps] <R
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1497,7 +1742,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 644 315
 
-Электрофорез - XI лет (Speed Up) (2023) [MP3|320 Kbps] <Electronic, Synth Pop, Darkwave, Experimental>
+Электрофорез - XI лет (Speed Up) (2023) [MP3|320 Kbps] <Electronic, Synth Pop, Darkwave, Experimenta
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1736,256 +1981,6 @@ Rock, Alternative, Punk, Metal
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:D316527124D3B3530629FB6ABBEC95DEC24DE1D0
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 641 277
-
-Барто - Возраст согласия (2023) [MP3|320 Kbps] <Indie, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Считалочка
-2. Чего
-3. Найди меня
-4. Лето-пламя(   Читать дальше...   )Жанр: Indie, RockПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5306F75E612F37A2AF8C1EB08BFBE6F05D97698F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 640 667
-
-Кино - Каретный Ряд (2022) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Записано дома у Александра Липницкого на Каретном Ряду в Москве 25 июля 1982.01. Просто Хочешь Ты Знать
-02. Солнечные Дни
-03. Весна
-04. Алюминиевые Огурцы(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AB85145D44B5C0B0B8A353B09BD95C563BE4C07A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 640 140
-
-Гарри Ананасов и Ко - The Best (2023) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. От Сайгона до Гаваны
-2. Дети Индиго
-3. Однажды в Америке
-4. Ясно-Солнышко(   Читать дальше...   )Жанр: RockПродолжительность: 01:41:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B2D290B3C172CC88F93C94A6F3D24C4198E650A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 639 584
-
-Изморозь - ПеркелЕ (2023) [FLAC|Lossless|image + .cue] <Folk Metal, Black Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Самая скандальная группа российской метал-сцены. Люди в черном запрещают их концерты на крупных площадках столицы, а лейблы готовы драться друг с другом за выпуск их альбомов! Фанаты группы начинают ломиться в очереди за билетами, пытаясь попасть на их концерты, но выступают они всего несколько раз в году….. Загадочная Проскофья Матвеевна дрожащей старой рукой пишет (   Читать дальше...   )01. Чёрный олень
-02. Перкеле
-03. Бабка с пистолетом
-04. Некрономикон(   Читать дальше...   )Жанр: Folk Metal, Black MetalПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0C2EDCB7B7B35400FE4F6B73B32AD353181C613B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 639 147
-
-Concrete Age - Bardo Thodol (2023) [FLAC|Lossless|image + .cue] <Thrash, Death Metal, Folk Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Hex
-02. Purity
-03. True Believer
-04. Threads Of Fate(   Читать дальше...   )Жанр: Thrash, Death Metal, Folk MetalПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9E6A6B5EB73A9E721CFD76B397708E2D4009385
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 639 139
-
-Hyperomm - Designing Apocalypse (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. The Weakest Link
-02. Shadowplay
-03. Doppelgänger
-04. Nuclear Phoenix(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C19E7D4DBE277E49C10EAAF3D0B86D88EE8C194C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 639 006
-
-Время альбиносов - Неонегатив (2007) Reissue, 2023, M2 [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Гномы и души [00:03:16]
-02 - А воды отходят [00:05:05]
-03 - Завершение игры [00:05:11]
-04 - На три весёлые буквы [00:04:08](   Читать дальше...   )Жанр: RockПродолжительность: 01:08:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D0D23283544B6608484152801315A378F0A98584
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/rsk6LcN/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 638 918
-
-Кот-Баюн - Последняя сказка (2023) EP [MP3|320 Kbps] <Folk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Кот-Баюн (Acoustic Piano Version) [00:03:47]
-02 - Затмение [00:03:55]
-03 - Вот и всё [00:03:52]Жанр: Folk RockПродолжительность: 00:11:36
-deezer
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C67E2230006CFE65A663CBF4B6A8241B9689074D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 638 902
-
-Ландыши - Гроб, канистра, сапоги (2023) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Слишком стар [00:03:00]
-02 - Стэплтон [00:03:38]
-03 - Гроб, канистра, сапоги [00:03:50]
-04 - А в саду у меня тихо [00:03:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE91D9AF883376D5A30CF751CC03C7686F835C2C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 638 780
-
-Джанни Родари - Game Over (2023) [MP3|320 Kbps] <Ska, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Шаг из рая [00:05:08]
-02. Нечего терять [00:04:20]
-03. Саранча [00:04:15]
-04. Справедливость [00:04:08](   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D2B930B0EB05DB43C01C904CCFCAEB67FE113306
 ```
 
 <div id="header" align="center">

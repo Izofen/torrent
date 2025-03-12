@@ -1,4 +1,26 @@
 ﻿
+###  Публикация: 1 641 984
+
+Люди в чёрном: Интернэшнл   Men in Black International  2019  UHD BDRemux [H.265 2160p] [4K,
+Зарубежное кино
+Зарубежные Фильмы  UHD 
+
+###  Подробнее
+
+Люди в чёрном, тайная организация на страже покоя и безопасности Земли, уже не раз защищали человечество от нападения отбросов Вселенной. На этот раз самая большая опасность для мирового сообщества, которой агентам предстоит противостоять - шпион в их рядах.Производство: США, Китай   Columbia Pictures, Tencent Pictures, Amblin EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Ф. Гэри ГрейАктеры: Крис Хемсворт, Тесса Томпсон, Кумэйл Нанджиани, Ребекка Фергюсон, Рейф Сполл, Эмма Томпсон, Лиам Нисон, Лоран Буржуа, Ларри Буржуа, Кайван НовакПеревод: Дублированный  Лицензия Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:55:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0CE61677B1AF9731780ABD79D4E75BE36BE20496
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/0nS9ggZ/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 641 736
 
 Ренфилд / Renfield (2023) BDRip [H.264/1080p] [UKR, EN / EN Sub] [Line]
@@ -45,7 +67,7 @@
 
 ###  Публикация: 1 640 474
 
-Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K, HDR10+, Dolby Vision, Profile 8, 10-bit, Hybrid]
+Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K, HDR10+, Dolby Vis
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -133,7 +155,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 636 089
 
-Подземелья и драконы: Честь среди воров   Dungeons & Dragons: Honor Among Thieves  2023  UHD BDRip [H.265 2160p] [4K, HDR10, Dolby Vision, Pro
+Подземелья и драконы: Честь среди воров   Dungeons & Dragons: Honor Among Thieves  2023  UHD B
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -199,7 +221,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 633 815
 
-Человек-муравей и Оса: Квантомания   Ant-Man and the Wasp: Quantumania  2023  WEB-DL [H.264 1080p] [IMAX]
+Человек-муравей и Оса: Квантомания   Ant-Man and the Wasp: Quantumania  2023  WEB-DL [H.264 
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -243,7 +265,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 633 513
 
-Богоматерь Нильская / Богоматерь Нила / Notre-Dame du Nil / Our Lady of the Nile (2019) HDTVRip [H.264] [FR / RU, EN, FR, DE Sub]
+Богоматерь Нильская / Богоматерь Нила / Notre-Dame du Nil / Our Lady of the Nile (2019) HDTVRip [H.2
 Зарубежное кино
 Фильмы в оригинале  SD 
 
@@ -309,7 +331,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 631 584
 
-Астерикс и Обеликс: Поднебесная   Asterix & Obelix: L Empire du Milieu  2023  WEB-DL [H.264 1080p]
+Астерикс и Обеликс: Поднебесная   Asterix & Obelix: L Empire du Milieu  2023  WEB-DL [H.264<
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -419,7 +441,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 623 621
 
-Крушение   Plane  2022  UHD BDRemux [H.265 2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit]
+Крушение   Plane  2022  UHD BDRemux [H.265 2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -441,7 +463,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 623 539
 
-Чёрная Пантера: Ваканда навеки   Black Panther: Wakanda Forever  2022  BDRip 3D [H.264 1080p] [Вертикальная анаморфная стереопара]
+Чёрная Пантера: Ваканда навеки   Black Panther: Wakanda Forever  2022  BDRip 3D [H.264 1080p
 Зарубежное кино
 Зарубежные Фильмы  3D 
 
@@ -485,7 +507,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 623 356
 
-Чемпионы   Champions  2023  WEB-DL [H.265 2160p] [4K, HDR10, Dolby Vision, 10-bit, Hybrid] [MVO]
+Чемпионы   Champions  2023  WEB-DL [H.265 2160p] [4K, HDR10, Dolby Vision, 10-bit, Hybrid] [
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -595,7 +617,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 621 432
 
-На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vi ...
+На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) UHD
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -838,7 +860,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 616 959
 
-Матрица: Революция / The Matrix Revolutions (2003) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
+Матрица: Революция / The Matrix Revolutions (2003) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision,
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -1037,7 +1059,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 605 391
 
-День сурка   Groundhog Day  1993  UHD BDRip [H.265 2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
+День сурка   Groundhog Day  1993  UHD BDRip [H.265 2160p] [4K, HDR10, Dolby Vision, Profile
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -1104,7 +1126,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 602 892
 
-Быстрый словарик любви   A E I O U - Das schnelle Alphabet der Liebe  2022  WEB-DL [H.264 1080p]
+Быстрый словарик любви   A E I O U - Das schnelle Alphabet der Liebe  2022  WEB-DL [H.264 10
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -1126,7 +1148,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 602 263
 
-Меню   The Menu  2022  WEB-DL [H.265 2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN   UKR, EN Sub]
+Меню   The Menu  2022  WEB-DL [H.265 2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [UK
 Зарубежное кино
 Фильмы с переводом на др. языках
 
@@ -1192,7 +1214,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 600 682
 
-Властелин колец: Две крепости   The Lord of the Rings: The Two Towers  2002  UHD BDRip [H.265 2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-b
+Властелин колец: Две крепости   The Lord of the Rings: The Two Towers  2002  UHD BDRip [H.265<
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -1236,7 +1258,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 600 425
 
-Волшебная сказка на Рождество   Sagan om Karl-Bertil Jonssons julafton  2021  WEB-DL [H.264 1080p] [MVO]
+Волшебная сказка на Рождество   Sagan om Karl-Bertil Jonssons julafton  2021  WEB-DL [H.264 
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -1302,7 +1324,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 599 712
 
-Инопланетное вторжение: Битва за Лос-Анджелес   Battle: Los Angeles  2011  BDRip [H.265 1080p] [10-bit]
+Инопланетное вторжение: Битва за Лос-Анджелес   Battle: Los Angeles  2011  BDRip [H.265 1080
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -1390,7 +1412,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 598 955
 
-Бардо   Bardo, falsa cronica de unas cuantas verdades   Bardo, False Chronicle of a Handful of Truths  2022  WEB-DLRip [H.264 1080p] [AVO]
+Бардо   Bardo, falsa cronica de unas cuantas verdades   Bardo, False Chronicle of a Handful of T
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -1506,7 +1528,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Подробнее
 
-Это было мрачное время. Зло торжествовало. И когда казалось, что все надежды умерли… Появился Зигфрид! Уже в младенчестве он обладал нечеловеческой силой. Влюбившись с первого взгляда в прекрасную Кримгильду, сестру короля Бургундии, вместе со своим верным другом - свином Зигфрид отправляется искать любимую.
+Это было мрачное время. Зло торжествовало. И когда казалось, что все надежды умерли… Появился Зигфрид! Уже в младенчестве он обладал нечеловеческой силой. Влюбившись с первого взгляда в прекрасную Кримгильду, сестру короля Бургундии, вместе со своим верным другом - свином Зигфрид отправляется искать любимую.
 
 Он знает, что Кримгильда с нетерпением ждет его в своем     Читать дальше...    Производство: Германия, B.A. Produktion, Constantin FilmЖанр: комедияРежиссер: Свен Унтервальдт мл.Актеры: Том Герхардт, Доркас Кифер, Фолькер Бюдтс, Аксель Нойманн, Ян Соснек, Даниэла Вутте, Михаэль Бранднер, Мирко Нончев, Маркус Мария Профитлич, Диана ФрэнкПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, НемецкийСубтитры: НемецкиеПродолжительность: 01:27:09
 
@@ -1546,7 +1568,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 587 968
 
-Адская бездна   Ostatnia wieczerza  Hellhole   2022  WEB-DL [H.264 1080p-LQ] [UKR, EN, POL   UKR, EN, POL Sub]
+Адская бездна   Ostatnia wieczerza  Hellhole   2022  WEB-DL [H.264 1080p-LQ] [UKR, EN, P
 Зарубежное кино
 Фильмы с переводом на др. языках
 
@@ -1634,7 +1656,7 @@ Ford против Ferrari   Ford v Ferrari  2019  UHD BDRemux [H.265 2160p] [4K,
 
 ###  Публикация: 1 587 183
 
-Тор: Любовь и гром   Thor: Love and Thunder  2022  BDRip 3D [H.264 1080p] [Вертикальная анаморфная стереопара]
+Тор: Любовь и гром   Thor: Love and Thunder  2022  BDRip 3D [H.264 1080p] [Вертикальная анам
 Зарубежное кино
 Зарубежные Фильмы  3D 
 
@@ -1737,28 +1759,6 @@ Supreme: Бунтарский рэп   Supremes   Authentik  2021  BDRip [H.264]
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/x6XCQXw/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 583 348
-
-Разрушение моста   Duan qiao   The Fallen Bridge  2022  WEB-DL [H.264 1080p] [MVO]
-Зарубежное кино
-Азиатское кино  HD, FHD, UHD 
-
-###  Подробнее
-
-После внезапного обрушения моста в обломках находят человеческие останки. Дочь одного из опознанных пытается докопаться до правды о смерти отца.Производство: Китай   Laurel FilmsЖанр: драма, детективРежиссер: Ли ЮйАктеры: Сандра Ма, Кэрри Ван, Вэй Фань, Цзэн Мэйхуэйцзы, Ли Сяочуань, Чжао Жуньнань, Гун Бэйби, Хуан Лу, Мокси Цзыши, Цзэн МумэйПеревод: Многоголосый любительский  Колобок Язык озвучки: русский, китайскийСубтитры: английские  hardsub , китайские  hardsub Продолжительность: 01:53:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:62DEFB0BAD0E117096D4A3D6064E80C8263B92A4
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/HFP6ZQ4/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -727,7 +727,7 @@ Strategy  RTS TBS Grand
 
 ###  Публикация: 1 592 193
 
-Space Rangers 2: Reboot   Космические рейнджеры 2: Доминаторы. Перезагрузка  2006  [En]  2.0  License GOG
+Space Rangers 2: Reboot   Космические рейнджеры 2: Доминаторы. Перезагрузка  2006  [En]  2.0
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -1013,7 +1013,7 @@ Simulation  Sport
 
 ###  Публикация: 1 578 853
 
-Die Wilden Kerle 5: Hinter dem Horizont   Тайна заброшенной фабрики  2008  [Ru]  1.0  License
+Die Wilden Kerle 5: Hinter dem Horizont   Тайна заброшенной фабрики  2008  [Ru]  1.0  Lice
 Win Старые Игры
 Adventure Quest
 
@@ -1189,7 +1189,7 @@ Action  TPS
 
 ###  Публикация: 1 567 333
 
-Soldier of Fortune II  2 : Double Helix  2003  [Multi]  1.03hf  License GOG [Gold Edition]
+Soldier of Fortune II  2 : Double Helix  2003  [Multi]  1.03hf  License GOG [Gold Editio
 Win Старые Игры
 Action  FPS 
 
@@ -1431,7 +1431,7 @@ Arcade
 
 ###  Публикация: 1 555 126
 
-Patrician III: Rise of the Hanse   Patrician III: Расцвет Ганзы  2003  [Ru En]  1.1  Unofficial
+Patrician III: Rise of the Hanse   Patrician III: Расцвет Ганзы  2003  [Ru En]  1.1  Uno
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -1519,7 +1519,7 @@ RPG
 
 ###  Публикация: 1 552 870
 
-Birthright: The Gorgon s Alliance   Право на Жизнь: Союз Горгон  1997  [Ru]  1.0  Unofficial
+Birthright: The Gorgon s Alliance   Право на Жизнь: Союз Горгон  1997  [Ru]  1.0  Unoffi
 Win Старые Игры
 RPG
 

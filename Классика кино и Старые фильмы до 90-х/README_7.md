@@ -488,7 +488,7 @@
 
 ###  Публикация: 1 634 063
 
-Принцесса-невеста / The Princess Bride (1987) UHD BDRip [H.265/2160p] [4K, HDR10+, Dolby Vision, Profile 8, 10-bit]
+Принцесса-невеста / The Princess Bride (1987) UHD BDRip [H.265/2160p] [4K, HDR10+, Dolby Vision, Pro
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы  HD, UHD, UHD-LQ, 3D 
 
@@ -1439,7 +1439,7 @@
 
 ###  Публикация: 1 614 772
 
-Индиана Джонс: В поисках утраченного ковчега   Indiana Jones and the Raiders of the Lost Ark  1981  UHD BDRip [H.265 2160p] [4K, HDR10, Dolby 
+Индиана Джонс: В поисках утраченного ковчега   Indiana Jones and the Raiders of the Lost Ark  19
 Классика кино и Старые фильмы до 90-х
 Зарубежная Классика  HD, FHD, UHD, 3D 
 
@@ -1550,7 +1550,7 @@
 
 ###  Публикация: 1 613 959
 
-Короткая ночь стеклянных кукол   La corta notte delle bambole di vetro  1971  BDRip [H.264 720p] [DVO]
+Короткая ночь стеклянных кукол   La corta notte delle bambole di vetro  1971  BDRip [H.264 7
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы  HD, FHD, UHD, 3D 
 
@@ -1727,7 +1727,7 @@
 
 ###  Публикация: 1 611 948
 
-Златовласка и золотая крепость   Yellow Hair and the Pecos Kid   Yellow Hair and the Fortress of Gold  1984  DVDRip [H.264] [DVO]
+Златовласка и золотая крепость   Yellow Hair and the Pecos Kid   Yellow Hair and the Fortress of
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы  SD 
 

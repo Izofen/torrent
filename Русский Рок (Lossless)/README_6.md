@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 686 625
+
+Shah - Fire And Brimstone Collection  2022  [FLAC|Lossless|image + .cue] <Thrash Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 Fire and Brimstone  2021 
+02 No hope and no faith  1986 
+03 Heartache and tears  2021 
+04 Paranoia  1986     Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B7754EBF9363B25BAD79C6499D5BCD4F337CE7F
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 623
+
+Shallow Rivers - The Tales Told Under the Willow  2022  [FLAC|Lossless|image + .cue] <Doom Death
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 Desolate Daughters
+02 Not Yet An Artifact
+03 Prey In Disguise
+04 Mad Song    Читать дальше...    Жанр: Doom Death MetalПродолжительность: 01:07:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90BA654D184FEBAAA936865FADA2AC2C31C7344D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 614
+
+Летальный Исход - Избыточная смертность  2022  [FLAC|Lossless|image + .cue] <Thrash Metal, Death
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01.	На трон!  Intro 	00:52
+02.	Похороны бога	05:19
+03.	Самоистязание	04:54
+04.	Огонь	04:52    Читать дальше...    Жанр: Thrash Metal, Death Metal, Old SchoolПродолжительность: 00:29:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B885149864EF52A78717AE10400DFAE9EFFB20D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 544
+
+Шеду - На взводе  2023  [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Пожар  00:03:24 
+02 - Вместо перьев  00:03:48 
+03 - Тусклый свет  00:02:59 
+04 - Признание  00:03:33     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CFC55F56B4911A65622E2E678E28FB5B51EAD3DB
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 495
+
+[Amatory] - ВПС 2023  2023  [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu Metal, Alternative Rock
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Восковый дождь 2023 [00:02:18]
+02. Страница VI 2023 [00:03:56]
+03. Осколки 2023 [00:03:58]
+04. Вечно прячется судьба 2023 [00:03:16]    Читать дальше...    Жанр: Metalcore, Nu Metal, Alternative RockПродолжительность: 00:16:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:37F2A035F8B271C794171AA7F72377818DD342C5
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 491
+
+Ермен Анти - Чёрный карнавал  2023  [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Здравствуй и прощай [00:04:03]
+02. Крутись веселей [00:03:12]
+03. Особый резон [00:05:53]
+04. Back in USSR [00:05:08]    Читать дальше...    Жанр: RockПродолжительность: 00:27:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:97E56CA8CFFA5FBEA07451EA714AA069ED7ECD61
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 319
+
+Миля - Были старого упыря  Часть I   2023  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Хозяин хатки [00:02:15]
+02 - Упыри [00:02:35]
+03 - Водяной [00:03:53]
+04 - Чёрная церковь [00:03:11]    Читать дальше...    Жанр: RockПродолжительность: 00:29:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7ACCD3599BB6309CBC5C90F1811069D17735B75E
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 318
+
+Северо-Zапад - 8  2023  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Вы вызывали [00:03:02]
+02 - Раб [00:04:14]
+03 - Клетка [00:04:02]
+04 - Звезда [00:04:01]    Читать дальше...    Жанр: RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:536326FC5F94F12915E893B8EF4F5329842C008C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 277
+
+Animal ДжаZ - Корни  2023  [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Никогда
+02. Оранжевый Дао
+03. Лёд.жесть
+04. Уходишь    Читать дальше...    Жанр: Alternative RockПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B382784E870DE950E1E1D48439E1B9841A5820EB
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 198
+
+Ангел-Хранитель - Неизданное, Том 3  2023  [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Horror Me
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Книга лешего  Live  [00:05:00]
+02. Эксперимент [00:04:58]
+03. Гокстадский корабль  Live  [00:06:31]
+04. Его прозвали Людоед [00:04:34]    Читать дальше...    Жанр: Heavy Metal, Horror MetalПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:66AE8F936655C9846BE0A625BE86FF3655E56A43
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 686 176
 
 Animal ДжаZ - Корни  2023  [MP3|320 Kbps] <Alternative Rock>
@@ -251,7 +501,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 684 965
 
-Shamayna - Shamacaine  2023  [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Metal, Stoner Metal>
+Shamayna - Shamacaine  2023  [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Metal, Stoner Meta
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -449,7 +699,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 684 732
 
-Штыкнож - Гекатомбиум  2023  [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Industrial Rock, Post-Punk>
+Штыкнож - Гекатомбиум  2023  [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Industrial Rock, P
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -524,7 +774,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 684 615
 
-Olshanoe - What a Great and Sad World It Is  2023  [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Metal, Ambient>
+Olshanoe - What a Great and Sad World It Is  2023  [FLAC|Lossless|image + .cue] <Atmospheric Bla
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -549,7 +799,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 684 613
 
-Moongates Guardian - Broken Sword  2022  Compilation [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+Moongates Guardian - Broken Sword  2022  Compilation [FLAC|Lossless|image + .cue] <Atmospheric B
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -699,7 +949,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 683 393
 
-Morbus V - Aura  2022  [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal, Atmospheric Black Metal>
+Morbus V - Aura  2022  [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal, Atmospheric Black
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -749,7 +999,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 683 346
 
-Under The Scythe - Realms Of The Void  2023  [FLAC|Lossless|image + .cue] <Technical Death Metal, Deathcore, Brutal Death Metal>
+Under The Scythe - Realms Of The Void  2023  [FLAC|Lossless|image + .cue] <Technical Death Metal
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -974,7 +1224,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 682 607
 
-Lunatii - Diskonformism: Anhedonia in Utopia  2020  [FLAC|Lossless|image + .cue] <Depressive Black Metal>
+Lunatii - Diskonformism: Anhedonia in Utopia  2020  [FLAC|Lossless|image + .cue] <Depressive Bla
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1099,7 +1349,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 682 239
 
-Духовные Принципы - Глубоко и Безнравственно  2023  [FLAC|Lossless|WEB-DL|tracks] <Ska, Punk-Rock>
+Духовные Принципы - Глубоко и Безнравственно  2023  [FLAC|Lossless|WEB-DL|tracks] <Ska, Punk-Roc
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1350,7 +1600,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 680 739
 
-DEgITx - Night  2023  [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Industrial, Melodic Death Metal >
+DEgITx - Night  2023  [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Industrial, Melodic De
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1625,7 +1875,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 678 748
 
-Пётр Налич, Юлий Ким, Герман Могилевский - Ванька Пташечка и Тельняшечка  2023  [MP3|320 Kbps] <Rock>
+Пётр Налич, Юлий Ким, Герман Могилевский - Ванька Пташечка и Тельняшечка  2023  [MP3|320 Kbps] <
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1739,253 +1989,6 @@ Rock, Alternative, Punk, Metal
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:D65F4ADDBB1DAE89C322ED0C6624EF96B1ECDF75
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 675 844
-
-Чёрный кофе - Переступи порог  1987  Reissue, 2023, Moroz Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Переступи порог
-02. Владимирская Русь
-03. Жизни рассвет
-04. Листья    Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F8482E291E9D435CF5974F661A5114F53BEA055
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 675 719
-
-ДМЦ  Дороги Меняют Цвет  - Чёрная черёмуха  2023  EP [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Куда открыли дверь
-2. Чёрная черёмуха
-3. И светит и греетЖанр: RockПродолжительность: 00:13:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D493660F3E0440DF9BBB96194BA0DB43EAF7D175
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 675 536
-
-Станционный смотритель - Родное  2023  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. На остановке
-2. Король на охоте
-3. Фотографии
-4. Янке    Читать дальше...    Жанр: Punk RockПродолжительность: 00:26:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7228768FA3B1BBC88B7B347698DC1B39ED1368C7
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 675 248
-
-Смех - По. Акт первый  2023  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Гуччи и Прада
-2. Наполовину
-3. С флагом и в трех банданах
-4. Снежинка    Читать дальше...    Жанр: Punk RockПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E10C25960E606CBB7211C722A02A4CC036D8DFA7
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 674 517
-
-The Lust - Black Dahlia Poem  2017  [FLAC|Lossless|image + .cue] <Gothic Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Day When I m Gone
-02. Haunting
-03. No One s Around
-04. You Got Me    Читать дальше...    Жанр: Gothic MetalПродолжительность: 01:16:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DC714C14F710888CC847446195BF1E37BF249212
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 674 301
-
-Light? - Standard of Ridiculous Accident  2022  [FLAC|Lossless|image + .cue] <Instrumental Atmospheric Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. The Word In the Dark Room
-02. Our Shame In the Dark RoomЖанр: Instrumental Atmospheric MetalПродолжительность: 00:21:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CFA68D5CB4D1B4E3ED243CD527D979A6B177A71D
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 673 982
-
-Мерзавцы - Пакости и Гадости  2023  [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. мерзавец [00:01:20]
-02. отпускаю [00:03:01]
-03. запрети [00:01:35]
-04. не нужен [00:01:33]    Читать дальше...    Жанр: Alternative, Punk RockПродолжительность: 00:13:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:84F78BC2BCD7FB7B57D3DB0F2B31E95CC1E50D27
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 673 918
-
-План Ломоносова - План Ломоносова VI  2023  [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Вечен и неубиваем
-02. Взахлёб
-03. Квадратный ноль
-04. Мельничный рыцарь    Читать дальше...    Жанр: Punk RockПродолжительность: 00:49:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:845BC0D27B4AE6338F414AC285A5B4D9F90F51D8
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 673 842
-
-План Ломоносова - План Ломоносова VI  2023  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Вечен и неубиваем
-2. Взахлёб
-3. Квадратный ноль
-4. Мельничный рыцарь    Читать дальше...    Жанр: Punk RockПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F92C9D7E9DC0F3279DD98EE5502AB3FB14CEA438
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 673 524
-
-Леонид Фёдоров & Игорь Крутоголов - Ашера  2023  [FLAC|Lossless|WEB-DL|tracks] <Rock, Avantgarde>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Баал
-2. Дагон
-3. Шамшу
-4. Муту    Читать дальше...    Жанр: Rock, AvantgardeПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97A8EE5BA57DB93BCC85778C9B3FCC62C85D699C
 ```
 
 <div id="header" align="center">

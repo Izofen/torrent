@@ -1,7 +1,29 @@
 ﻿
+###  Публикация: 1 402 055
+
+Мастер Z: Наследие Ип Мана   Cheung Tin-Chi  Master Z: The Ip Man Legacy   2018  BDRemux [
+Зарубежное кино
+Азиатское кино  HD, FHD, UHD 
+
+###  Подробнее
+
+После поражения от Ип Мана Чун Тинь-Чи решает исправиться и вести тихую мирную жизнь, но зло само нарывается на неприятности.Производство: Китай, Гонконг   Golden Harvest Company, Mandarin Motion PicturesЖанр: БоевикРежиссер: Юэнь Ву-ПинАктеры: Макс Чжан, Дэйв Батиста, Мишель Йео, Тони Джа, Крисси Чау, Кевин Чэн, Син Юй, Филип КюнПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:47:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B387FA8B0AA036F796B6BC72053B00601C129C67
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/TMpprYh/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 402 008
 
-Сексуальные хроники французской семьи   Chroniques sexuelles d une famille d aujourd hui  2012  BDRip [H.264 1080p] [Uncut, Deu Transfer
+Сексуальные хроники французской семьи   Chroniques sexuelles d une famille d aujourd hui  
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -68,7 +90,7 @@
 
 ###  Публикация: 1 401 354
 
-Вокруг Света за 80 Дней   Around the World in 80 Days  2004  WEB-DL [H.264 1080p] [Open Matte]
+Вокруг Света за 80 Дней   Around the World in 80 Days  2004  WEB-DL [H.264 1080p] [Open Matt
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -402,7 +424,7 @@
 
 ###  Публикация: 1 397 498
 
-Самый обычный роман  Ненормальный роман    Gajang Botongui Yeonae   Crazy Romance  2019  WEB-DLRip [DVO]
+Самый обычный роман  Ненормальный роман    Gajang Botongui Yeonae   Crazy Romance  2019 
 Зарубежное кино
 Азиатское кино  SD 
 
@@ -622,7 +644,7 @@
 
 ###  Публикация: 1 395 341
 
-Непобедимый дракон  Неуязвимый дракон    Jiu long bu bai   The Invincible Dragon  2019  BDRemux [H.264 1080p] [VO]
+Непобедимый дракон  Неуязвимый дракон    Jiu long bu bai   The Invincible Dragon  2019 
 Зарубежное кино
 Азиатское кино  HD, FHD, UHD 
 
@@ -644,7 +666,7 @@
 
 ###  Публикация: 1 394 995
 
-Запри меня, свяжи его   Wan mei jia qi 168   Lock Me Up, Tie Him Down  2014  WEB-DL [H.264 1080p] [VO]
+Запри меня, свяжи его   Wan mei jia qi 168   Lock Me Up, Tie Him Down  2014  WEB-DL [H.264<3
 Зарубежное кино
 Азиатское кино  HD, FHD, UHD 
 
@@ -732,7 +754,7 @@ A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afg
 
 ###  Публикация: 1 390 003
 
-Язык нации  Язык нашей страны    Naratmalssami   The King s Letters  2019  WEB-DLRip [MVO]
+Язык нации  Язык нашей страны    Naratmalssami   The King s Letters  2019  WEB-DLRip [
 Зарубежное кино
 Азиатское кино  SD 
 
@@ -842,7 +864,7 @@ A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afg
 
 ###  Публикация: 1 387 020
 
-Драйв  Непобедимый    Drive  1997  WEB-DLRip [H.264] [Theatrical Cut] [Open Matte] [MVO] [PR]
+Драйв  Непобедимый    Drive  1997  WEB-DLRip [H.264] [Theatrical Cut] [Open Matte] [MVO] [
 Зарубежное кино
 Зарубежные Фильмы  SD 
 
@@ -1065,7 +1087,7 @@ A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afg
 
 ###  Публикация: 1 380 171
 
-Секс и ничего личного   Секс і нічого особистого   Just Sex, Nothing Personal  2018  WEB-DL [H.264 1080p-LQ]
+Секс и ничего личного   Секс і нічого особистого   Just Sex, Nothing Personal  2018  WEB-DL
 Зарубежное кино
 Фильмы ближнего зарубежья
 
@@ -1397,7 +1419,7 @@ A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afg
 
 ###  Публикация: 1 371 555
 
-Жена путешественника во времени   The Time Traveler s Wife  2009  BDRip [H.265 1080p] [10-bit]
+Жена путешественника во времени   The Time Traveler s Wife  2009  BDRip [H.265 1080p] [10-
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -1419,7 +1441,7 @@ A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afg
 
 ###  Публикация: 1 371 532
 
-Звёздные войны: Пробуждение силы   Star Wars: Episode VII - The Force Awakens  2015  UHD BDRemux [H.265 2160p] [4K, HDR, 10-bit]
+Звёздные войны: Пробуждение силы   Star Wars: Episode VII - The Force Awakens  2015  UHD BDRem
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -1486,7 +1508,7 @@ A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afg
 
 ###  Публикация: 1 370 658
 
-Свадебный угар   Mike and Dave Need Wedding Dates  2016  UHD BDRemux [H.265 2160p] [4K, HDR, 10-bit]
+Свадебный угар   Mike and Dave Need Wedding Dates  2016  UHD BDRemux [H.265 2160p] [4K, HDR,
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -1552,7 +1574,7 @@ A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afg
 
 ###  Публикация: 1 365 808
 
-Пробуждающая совесть 2: Дар змеи   Skammerens datter II: Slangens gave  2019  BDRip [H.264 1080p]
+Пробуждающая совесть 2: Дар змеи   Skammerens datter II: Slangens gave  2019  BDRip [H.264 1
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -1575,7 +1597,7 @@ A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afg
 
 ###  Публикация: 1 363 738
 
-Красавица и чудовище   Beauty and the Beast  2017  UHD BDRemux [H.265 2160p] [4K, HDR, 10-bit]
+Красавица и чудовище   Beauty and the Beast  2017  UHD BDRemux [H.265 2160p] [4K, HDR, 10-bi
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -1746,29 +1768,6 @@ A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afg
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/ScgQK7W/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 361 618
-
-Ягуар   Le jaguar  1996  BDRip [H.264]
-Зарубежное кино
-Зарубежные Фильмы  SD 
-
-###  Подробнее
-
-Однажды вечером в лифте фешенебельного парижского отеля «Крийон» оказались вместе три человека: индеец, приехавший из Амазонки с гуманитарным турне, его переводчик — француз, выросший среди индейцев и еще один занятный тип — бездельник и мошенник Перрен, преследуемый бандитами всех мастей за игорные долги.
-Почему-то взгляд индейца Вану падает именно на него, и Перрен     Читать дальше...    Производство: Франция   Canal+Жанр: Комедия, Боевик, ПриключенияРежиссер: Франсис ВеберАктеры: Жан Рено, Патрик Брюэль, Харрисон Лоу, Патрисия Веласкес, Дэнни Трехо, Ролан Бланш, Франсуа Перро, Франсис Лемэр, Александра Вандернот, Джил БирмингемПеревод: Многоголосый профессиональный, двухголосый профессиональный, авторскийСубтитры: РусскиеПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:04EACFBD14AFAD547196220EB1705CE2BA0F4A07
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/Fm44KpN/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

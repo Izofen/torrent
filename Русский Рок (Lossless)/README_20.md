@@ -1,4 +1,251 @@
 ﻿
+###  Публикация: 1 457 063
+
+Moratory - 10 Relises  2016-2022  [MP3|320 Kbps] <Crossover, Hardcore Punk, Thrash Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. The Haunting Eye [00:04:03]
+02. Wagner s Path [00:02:14]
+03. Dances of the Damned [00:03:44]
+04. Project: Humankind [00:04:27]    Читать дальше...    Жанр: Crossover, Hardcore Punk, Thrash MetalПродолжительность: 10 CD, 02:02:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:833321901B7FFBFA725480170D0E96F045D14B4C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 457 043
+
+Авард - Судный век  2021  [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Великая ложь [00:05:08]
+02. Хищные птицы [00:04:15]
+03. Выбор есть всегда [00:03:54]
+04. Одинокие души  feat. Денис Машаров  [00:04:27]    Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3878C339A93122139DA075D3739953FD21F6F7AF
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 455 967
+
+Проект-Фобия - Каждый сам за себя  2021  [MP3|320 Kbps] <Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Выбор есть всегда [00:03:19]
+02 - Неопределенность убивает [00:03:32]
+03 - Пуля [00:03:30]
+04 - Икар [00:03:34]    Читать дальше...    Жанр: MetalПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4B5D961A9EE57621434091843AB918C8CE7854ED
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 455 761
+
+SVO - Дежавю  2020  [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Открой глаза  04:50 
+ 02. Сновидение  04:20 
+ 03. Блюз  05:52 
+ 04. Я открою двери  04:23     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B37E4328158C3B344F00281E7FAA7B476FDE0194
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 455 614
+
+Gothic Sky - In Search of a Lost Soul  2021  [MP3|320 Kbps] <Gothic Black Metal, Death Metal, No
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Seven [00:05:34]
+02 - Phantom Wanderer  feat. Arthur Berkut  [00:07:31]
+03 - Dark flame  feat. Arthur Berkut  [00:06:47]
+04 - Lord of nothingness [00:07:26]    Читать дальше...    Жанр: Gothic Black Metal, Death Metal, Nordic Metal, Family VocalПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:543042AEFFD36395A40A6097FFA6B69A158ED1B9
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 455 509
+
+Тринадцатое созвездие - Песня без Берегов  Судзуки и Сочувствующие   2021  [MP3|320 Kbps] <R
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Песня без Берегов
+2. Шансон играют Рокера
+3. Неудачник
+4. Театр  Piano version     Читать дальше...    Жанр: RockПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:82934CF61EDADF4F03461CFCAF85E26F892216C7
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 455 433
+
+Северный флот - Пританцовывай  2021  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. ПританцовывайЖанр: RockПродолжительность: 00:04:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1603540BFB297CEF299ECBFD247F0AFDF8637A94
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/Gxk4Gj7/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 455 318
+
+Псарня - Глэмпанк  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - собачий кайф [00:02:49]
+02 - ружьё [00:02:38]
+03 - шлюхи деньги наркота [00:02:17]
+04 - тупица [00:03:24]    Читать дальше...    Жанр: RockПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D0CB91258FB648160647E7F5C085625A42F8F16A
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 455 317
+
+FalStep - Минуты Счастья  2020  [MP3|320 Kbps] <Alternative Progressive Metal, Nu Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Ценить Сейчас [00:02:03]
+02 - Там, Где Нас Нет [00:03:28]
+03 - Больше Звуков И Тебя [00:04:10]
+04 - Время Забыть [00:03:19]    Читать дальше...    Жанр: Alternative Progressive Metal, Nu MetalПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:10ED0E04C96275191D40CDDA57D2A5A5B472FFDF
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 455 063
+
+com.pass - Полюса  2021  [MP3|320 Kbps] <Russian Metalcore>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Вступление [00:01:22]
+02 - Ошибка [00:03:33]
+03 - Объект №0 [00:03:48]
+04 - Демон [00:03:33]    Читать дальше...    Жанр: Russian MetalcoreПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8BABD698753D23C5DD3BA5149098E3B9CFBC5755
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 455 061
 
 Мышц. - Sadзвездие  2021  [MP3|320 Kbps] <Post-Punk, Shoegaze, Indie>
@@ -1289,7 +1536,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 443 777
 
-Леонид Фёдоров & Игорь Крутоголов  Фёдоров и Крузенштерн  - Блэйк  2021  [MP3|320 Kbps] <Rock, Avantgarde>
+Леонид Фёдоров & Игорь Крутоголов  Фёдоров и Крузенштерн  - Блэйк  2021  [MP3|320 Kbps] <Roc
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1364,7 +1611,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 443 385
 
-Кино - Черный Альбом  1990  3CD, Limited Edition, 2021, Maschina Records [MP3|320 Kbps|CDRip] <Alternative Rock>
+Кино - Черный Альбом  1990  3CD, Limited Edition, 2021, Maschina Records [MP3|320 Kbps|CDRip] <A
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1562,7 +1809,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 440 821
 
-Сборник песен на стихи Осипа Мандельштама - Сохрани мою речь навсегда  2021  Deluxe Version, Tribute [MP3|192 Kbps] <Alternative>
+Сборник песен на стихи Осипа Мандельштама - Сохрани мою речь навсегда  2021  Deluxe Version, Tri
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1612,7 +1859,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 440 572
 
-Assanity - Новые русские панки   То, что все знают  2020-2021  2CD [MP3|320 Kbps] <Alternative Rock, Grunge>
+Assanity - Новые русские панки   То, что все знают  2020-2021  2CD [MP3|320 Kbps] <Alternative
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1726,253 +1973,6 @@ Rock, Alternative, Punk, Metal
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:BCE3A13582E919271B8E75922009EA572A468B32
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 438 590
-
-Метанойя - Чистые дни  2020  [MP3|320 Kbps] <Prog Rock, Art Rock, Blues Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Засуха перед грозой
-02. Не разбудит весна
-03. Тропами единорога
-04. Чистые дни    Читать дальше...    Жанр: Prog Rock, Art Rock, Blues RockПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:457C3C2784109FE46ECA2B4397D40E96E43E503C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 438 497
-
-Юрий Сучков - Проводы 2020. Посвящение ковидологам  2021  Single [MP3|320 Kbps] <Alternative Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Проводы 2020. Посвещение ковидологам [00:04:36]Жанр: Alternative RockПродолжительность: 00:04:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E1896165A7D09CF0A36076B39EFFFF7634E0046F
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 437 774
-
-#Kisel - Поверь в себя!  2020  EP [MP3|320 Kbps] <Russian Pop Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Поверь в себя [00:02:47]
-02 - Мы новое поколение  Rock Version  [00:03:30]
-03 - Мир за миром [00:05:49]
-04 - Ты ненавидел себя [00:04:30]    Читать дальше...    Жанр: Russian Pop RockПродолжительность: 00:20:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:65983F235ADDE29463355A5282BF26BEF0C6F5B4
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 437 393
-
-Compassionizer - Caress of Compassion  2020  [MP3|320 Kbps] <Progressive Rock, RIO, Avant-Prog>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. The Whole Creation Travaileth in Pain Together  07:16 
- 02. Street out of Sleep  03:22 
- 03. How Poems Lose Relevance  04:16 
- 04. Caress of Compassion  Part 1   03:22     Читать дальше...    Жанр: Progressive Rock, RIO, Avant-ProgПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F07E5CA01401D81A34E976B086BB64D429C0A3C3
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 437 336
-
-Crimson Caravan - Big Big Bang  2020  [MP3|320 Kbps] <Stoner Desert Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Big Big Bang [00:05:45]
-02 - Satisfied Cremation [00:03:35]
-03 - Heap of Junk [00:04:14]
-04 - Fire Geckos Dance [00:04:38]    Читать дальше...    Жанр: Stoner Desert RockПродолжительность: 00:25:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D535BD5CC7D2FF34A46A63F2B5F49B2CD52519B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 437 306
-
-Crrombid Traxorm - Anamnesis Morbi  2020  [MP3|320 Kbps] <Progressive Metal, Death Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Intro-Rising Reanimation  06:26 
- 02. Mortalgramma  03:08 
- 03. New Vaccine  07:28 
- 04. Stomatologic Operation  08:10     Читать дальше...    Жанр: Progressive Metal, Death MetalПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A9E4897A08C23ED8AF565F4E9B6430240D777AA7
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 437 230
-
-Echelon - Поехали  2020  [MP3|320 Kbps] <Modern Industrial Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - На взлёт [00:01:49]
-02 - Поехали [00:04:16]
-03 - Особенный путь  feat. Alena Meta  [00:04:11]
-04 - Течение времени [00:03:54]    Читать дальше...    Жанр: Modern Industrial Nu MetalПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FC0231EFA05C5F10B8CE2C094E808720BAE57994
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 437 024
-
-Mystericon - Мёртвый лист  2020  [MP3|320 Kbps] <Sympho Gothic Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Ангел [00:05:13]
-02 - Мёртвый лист [00:03:41]
-03 - Вечность ждёт [00:06:17]
-04 - Тень палача [00:01:09]    Читать дальше...    Жанр: Sympho Gothic MetalПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2AC31722E6BC27C58790ADC7AEFF493418B055D3
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 436 615
-
-Ashley Moshe - 3 Albums  2014 - 2020  [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Emocore>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Грязь [00:04:08]
-02. Пудра [00:03:26]
-03. 40 [00:03:29]
-04. Тетрадь с полями [00:03:10]    Читать дальше...    Жанр: Alternative Metal, Nu-Metal, EmocoreПродолжительность: 3 CD, 01:50:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1EA8F6791A2051EDF620722D3B630563E8BED47A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 436 607
-
-Pine Ridge - Can t Deny  2020  [MP3|320 Kbps] <Rock, Blues>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - So [00:01:20]
-02 - Can t Deny [00:04:34]
-03 - Someone in Your Head [00:04:04]
-04 - We Come Around [00:04:42]    Читать дальше...    Жанр: Rock, BluesПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:62BC5D274BD2702C904047C20886742C312F5A8D
 ```
 
 <div id="header" align="center">

@@ -871,7 +871,7 @@ VA - Great Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 ###  Публикация: 1 763 995
 
-Andre Rieu & Johann Strauss Orchestra - The Sound of Heaven (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
+Andre Rieu & Johann Strauss Orchestra - The Sound of Heaven (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 Классика кино и Старые фильмы до 90-х
 Оркестровая (Lossless)
 
@@ -968,7 +968,7 @@ VA - Bach vs Mozart (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 ###  Подробнее
 
-Осень 1942 года. Фашистские войска рвутся к Волге, идут тяжелые бои под Сталинградом. Ради победы над врагом и освобождения своей Родины люди готовы жертвовать всем, даже собственной жизнью. Все рвутся на фронт, особенно молодежь.
+Осень 1942 года. Фашистские войска рвутся к Волге, идут тяжелые бои под Сталинградом. Ради победы над врагом и освобождения своей Родины люди готовы жертвовать всем, даже собственной жизнью. Все рвутся на фронт, особенно молодежь.
 
 Не стала исключением и 17-ти летняя Дуся Мельникова. Она уговорила своего военкома взять ее в армию. Но на фронт ее сразу не отправили, (   Читать дальше...   )Производство: СССР / Свердловская киностудияЖанр: военныйРежиссер: Ярополк ЛапшинАктеры: Борис Андреев, Ирина Гришина, Николай Прокопович, Олег Корчиков, Людмила Давыдова, Майя Булгакова, Даниил Нетребин, Гиви Тохадзе, Владимир Артемов, Юрий ЕршовСубтитры: ОтсутствуютПродолжительность: 02:13:09
 
@@ -1053,7 +1053,7 @@ VA - Bach vs Mozart (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 ###  Публикация: 1 763 778
 
-Помести чудовище на первую полосу / Об убийстве на первую полосу / Sbatti il mostro in prima pagina (1972) BDRip [H.264/720p]
+Помести чудовище на первую полосу / Об убийстве на первую полосу / Sbatti il mostro in prima pagina
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
@@ -1097,7 +1097,7 @@ VA - Bach vs Mozart (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 ###  Публикация: 1 763 764
 
-Помести чудовище на первую полосу / Об убийстве на первую полосу / Sbatti il mostro in prima pagina (1972) BDRip [H.264]
+Помести чудовище на первую полосу / Об убийстве на первую полосу / Sbatti il mostro in prima pagina
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (SD)
 
@@ -1185,7 +1185,7 @@ VA - Bach vs Mozart (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 ###  Публикация: 1 763 610
 
-Johannes Brahms - Brahms at Bedtime: A Sleepytime Serenade (1996) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Classical>
+Johannes Brahms - Brahms at Bedtime: A Sleepytime Serenade (1996) CD, Compilation, Club Edition [FLA
 Классика кино и Старые фильмы до 90-х
 Оркестровая (Lossless)
 
@@ -1276,7 +1276,7 @@ Johannes Brahms - Brahms at Bedtime: A Sleepytime Serenade (1996) CD, Compilatio
 
 ###  Публикация: 1 763 454
 
-Мерзавцы попадают в ад / Подонки маршируют в ад / Les Salauds vont en Enfer / The Wicked Go to Hell (1955) BDRip [H.264/720p] [AVO]
+Мерзавцы попадают в ад / Подонки маршируют в ад / Les Salauds vont en Enfer / The Wicked Go to Hell
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
@@ -1320,7 +1320,7 @@ Johannes Brahms - Brahms at Bedtime: A Sleepytime Serenade (1996) CD, Compilatio
 
 ###  Публикация: 1 763 298
 
-Мерзавцы попадают в ад / Подонки маршируют в ад / Les Salauds vont en Enfer / The Wicked Go to Hell (1955) BDRip [H.264] [AVO]
+Мерзавцы попадают в ад / Подонки маршируют в ад / Les Salauds vont en Enfer / The Wicked Go to Hell
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (SD)
 
@@ -1386,7 +1386,7 @@ Johannes Brahms - Brahms at Bedtime: A Sleepytime Serenade (1996) CD, Compilatio
 
 ###  Публикация: 1 763 273
 
-Дом смертного греха / Исповедь / House of Mortal Sin / The Confessional (1977) BDRip [H.264/720p] [VO]
+Дом смертного греха / Исповедь / House of Mortal Sin / The Confessional (1977) BDRip [H.264/720p] [V
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
@@ -1477,7 +1477,7 @@ VA - Famous Classical Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
 ###  Публикация: 1 762 998
 
-Скажи, что ты любишь меня, Джуни Мун / Tell Me That You Love Me, Junie Moon (1970) BDRip [H.264/720p] [MVO]
+Скажи, что ты любишь меня, Джуни Мун / Tell Me That You Love Me, Junie Moon (1970) BDRip [H.264/720p
 Классика кино и Старые фильмы до 90-х
 Зарубежная Классика (HD, FHD, UHD, 3D)
 

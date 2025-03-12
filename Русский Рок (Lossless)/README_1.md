@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 760 767
+
+СерьГа - Батарейки сели (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Эпоха
+2. Воин и поэт
+3. Идёт война
+4. Живи внутри(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:822D7A0FCBD6C8D3CCFF9F65B7380446B1FFDED8
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 595
+
+Секрет - SPB FM Stereo, Vol. I (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Самолётом До Пулково
+2. Это Питер, Детка!
+3. Раз, Два, Три…
+4. Радость Моя(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DB8DA5F8B8743814A6F678549F9A44FF779310DB
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/HxXjDvn/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 594
+
+Секрет - SPB FM Stereo, Vol. I (2024) Deluxe Edition [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Интро
+2. Самолётом до Пулково (Интро Максим Леонидов)
+3. Самолётом до Пулково
+4. Это Питер, детка! (Интро Николай Фоменко)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0700983012DB405BC670028EE8C2C9A0950221C3
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/bHfb6Zb/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 593
+
+Чёрный Вторник - С миру по нитке (2024) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. По барам
+2. На Родине
+3. Детская песенка
+4. Храп(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8EDCC23383E188ED0735FD5DDF182B9B94CC3F30
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/DRb28Td/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 592
+
+СерьГа - Батарейки сели (2024) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Эпоха
+2. Воин и поэт
+3. Идёт война
+4. Живи внутри(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B2EF5E9F81920702B105AB9364B881E11CBC4919
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/MSY3M3d/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 490
+
+Ideя Fix - 12 Снов (2007) [FLAC|Lossless|tracks + .cue] <Alternative, Mall Emo, Emocore>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Intro
+02. Витамины
+03. Психосны
+04. Плачь И Танцуй(   Читать дальше...   )Жанр: Alternative, Mall Emo, EmocoreПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F1D820BF2C82A1B6F24A1034A905BA2421CBC8E7
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 431
+
+di liberta - 2 Albums (2020, 2024) [FLAC|Lossless|WEB-DL|tracks] <Indi Folk, Dark Folk, Folk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. ТАНЦУЙ [00:01:00]
+02. ФУНКЦИЯ [00:03:15]
+03. ПАТОЛОГИЯ [00:02:43]
+04. ТАРАРАМ [00:03:20](   Читать дальше...   )Жанр: Indi Folk, Dark Folk, Folk RockПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9AE2BEBE35841931B76D314DD85E28460F7687C3
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/jbgDPz4/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 311
+
+Vendel - Out In The Fields (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Epic, Doom Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Intro
+02. Defender
+03. Never Surrender
+04. Dirge(   Читать дальше...   )Жанр: Heavy Epic, Doom MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D655B94FAB692439B314E88698FBE7AF90A621F9
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/DfHRS6J/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 046
+
+VA - Странные скачки (2023) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Настя Полева - Песня Кэрролла из сказки «Алиса в стране чудес»
+2. Чиж & Co - Лирическая
+3. Алиса - Я дышал синевой...
+4. Ва-Банкъ - В холода, в холода(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D9967FDD978B769A2EDB138EEB7F7EB0E83A745
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/8DRXVP0/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 044
+
+Билли Новик - Песни Егора Летова (Часть 2) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Мышеловка
+2. Моя оборона
+3. Человек человеку - волк
+4. Как сметана(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:22F4726D27729A1A3E306F34F5FBDB71946AACA5
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/b7xQ2qQ/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 760 040
 
 Билли Новик - Песни Егора Летова (Часть 2) (2024) [MP3|320 Kbps] <Rock>
@@ -298,7 +548,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 757 611
 
-Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3 x CD [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Blues Rock>
+Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3 x CD [FLAC|Lossless|WEB-DL|trac
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -348,7 +598,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 756 726
 
-Гражданская Оборона (Егор Летов / Коммунизм / Враг народа / Инструкция по обороне / Посев) - Дискография (169 CD) (1984-2007) [FLAC|Lossless|image + .
+Гражданская Оборона (Егор Летов / Коммунизм / Враг народа / Инструкция по обороне / Посев) - Дискогр
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -423,7 +673,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 756 173
 
-Аквариум - Музыка Трёх Песен о Родине (1991) 3CD, 2024, BG PLUS LLP [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Аквариум - Музыка Трёх Песен о Родине (1991) 3CD, 2024, BG PLUS LLP [FLAC|Lossless|WEB-DL|tracks] <R
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -520,7 +770,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 755 849
 
-Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
+Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -570,7 +820,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 754 912
 
-Infornal FuckЪ - Музыка категории бэ (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Folk-Black-Metal, Parody-Metal>
+Infornal FuckЪ - Музыка категории бэ (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Folk-Black-Metal, P
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -918,7 +1168,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 752 033
 
-Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Lossless|image + .cue] <Slamming Brutal Death Metal>
+Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Lossless|image + .cue]
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1596,7 +1846,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Подробнее
 
-«Преступление и наказание» — опера Эдуарда Артемьева (музыка) и Юрия Ряшенцева (стихи), вышедшая двухдисковым альбомом в конце 2007 года.
+«Преступление и наказание» — опера Эдуарда Артемьева (музыка) и Юрия Ряшенцева (стихи), вышедшая двухдисковым альбомом в конце 2007 года.
 
 Работу над партитурой своей оперы под рабочим названием «Раскольников» Эдуард Артемьев вёл с 1977 по 2007 год. Основой послужило либретто, написанное Андреем Кончаловским и Юрием Ряшенцевым при участии Марка Розовского по мотивам (   Читать дальше...   )01. Интродукция. Баллада шарманщика [2:46]
 02. Толпа и очередь к старухе-процентщице [3:42]
@@ -1736,256 +1986,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/7RV1PyT/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 747 612
-
-Твин Пикс - Избранное (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Электрик
-2. Надежда на Солнце
-3. С высоты
-4. Девочка-смерть(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4D3E855FCD21B447070DEF7685F90744E9DA90CA
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/KzmCgdL/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 747 608
-
-Твин Пикс - Избранное (2024) [MP3|320 Kbps] <Post Punk, New Wave>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Электрик
-2. Надежда на Солнце
-3. С высоты
-4. Девочка-смерть(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:68488ED8AC754D68B4B935CD5CFA7CB6AF2ECA3B
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/KzmCgdL/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 747 505
-
-Красная плесень - Изучайте кибернетику! (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Красная армия (New version)
-2. Казаки (New version)
-3. Патриотическая. От окраин до Кремля (New version)
-4. Памяти всех безвременно ушедших (Radio version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:17:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C798AFDE9D16BF6B960B96845565AC5DB8AE8C44
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/Jqc1BrY/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 747 504
-
-Красная плесень - Изучайте кибернетику! (2024) [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Красная армия (New version)
-2. Казаки (New version)
-3. Патриотическая. От окраин до Кремля (New version)
-4. Памяти всех безвременно ушедших (Radio version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:17:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40CE86D2DB0D1C4FE5CB148B1DE648C514360298
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/Jqc1BrY/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 747 140
-
-Каменный Ветер - 3 Albums (2024) [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Ночная [00:03:44]
-02. Победная [00:03:01]
-03. Рагнарек [00:04:26]
-04. Степной волк [00:04:18](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 3 CD, 01:22:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF365C34AF5A090FE9DCFEC87AE173929E20EDA3
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/f8BLNXG/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 747 136
-
-Ploho - Почва (2024) [MP3|320 Kbps] <Post Punk, New Wave>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Гештальт [00:04:01]
-02 - Я буду жить для тебя [00:04:01]
-03 - Фарфоровые птицы [00:03:35]
-04 - Тайга и Байкал [00:04:00](   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:34:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E4A394291C38860D838B0A1ED6197B5F870DDF49
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 747 017
-
-Звуки Му - Zvuki Mu + Live in London 1989 (1989) Remastered, 2024, Отделение ВЫХОД [FLAC|Lossless|image + .cue] <Post-Punk, Psychedelic Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-CD1 - Zvuki Mu:
-01. Источник заразы
-02. Сумасшедшая королева
-03. Забытый секс(   Читать дальше...   )Жанр: Post-Punk, Psychedelic RockПродолжительность: 01:46:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E6B775E86C0F82F0D59A5F481F1FE173320DBD2A
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/6XQj1T3/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 747 012
-
-Звуки Му - Грубый закат в Москве (1992) Remastered, 2024, Отделение ВЫХОД [FLAC|Lossless|image + .cue] <Post-Punk, Psychedelic Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-CD1:
-2. Канава
-3. Новосёлы
-4. Больничный лист(   Читать дальше...   )Жанр: Post-Punk, Psychedelic RockПродолжительность: 01:28:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:57071AD5081F8D6075823E0CB2559DE8D0B22D35
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/161Rh66/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 746 711
-
-Arbitrator - Kill Their Religion (1998) Remaster, 2024, NORZ Records [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Inhumanity [00:03:37]
-02. Hard Hearted [00:03:41]
-03. In The Nunnery [00:05:00]
-04. Sansara's Wheel [00:03:44](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63B8801C5E4FE73DC866C14EC627718636F6D86C
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/zX0rN3y/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 746 699
-
-мытищи в огне - Технолавина (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Мудрость [00:00:45]
-02. ТЕХНОЛАВИНА [00:03:15]
-03. МЫТИЩИ В ОГНЕ [00:02:36]
-04. Кружится планета [00:03:25](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:27:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D130F9112241EBFB3840FE31063B6F3C84A8D537
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/4RDg9cq/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

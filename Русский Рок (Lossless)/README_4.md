@@ -1,4 +1,251 @@
 ﻿
+###  Публикация: 1 717 387
+
+Алексей Горшенёв - Кукрыниксы. Наследие (Концерт с симфоническим оркестром) (2024) [FLAC|Lossless|WE
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Тёмный город (Конц. с симф. оркестром)
+2. Знай (Конц. с симф. оркестром)
+3. Колдовство (Конц. с симф. оркестром)
+4. Никто (Конц. с симф. оркестром)(   Читать дальше...   )Жанр: Rock, SymphonicПродолжительность: 01:23:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C987E4EF442D1355A3D80AF41CD711FCAFF25FFF
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/nL9gCkr/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 717 246
+
+Радиопомехи - Давай поиграем (2024) [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Далеко
+2. Образцовые семьи
+3. Огрызок
+4. Дряблая луна(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE185DD662A00E759AD8ABDC26F71EDA56759FE6
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 717 245
+
+ГРОТ & Юрий Шевчук - После последней войны (2024) Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. После последней войныЖанр: RockПродолжительность: 00:05:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E79D41EC7231FF2F8CA89D19DFE4303FE027C5D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 717 244
+
+Алексей Горшенёв - Кукрыниксы. Наследие (Концерт с симфоническим оркестром) (2024) [MP3|320 Kbps] <R
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Тёмный город (Конц. с симф. оркестром)
+2. Знай (Конц. с симф. оркестром)
+3. Колдовство (Конц. с симф. оркестром)
+4. Никто (Конц. с симф. оркестром)(   Читать дальше...   )Жанр: Rock, SymphonicПродолжительность: 01:23:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE1E2260541485D8F0AF9654F6F8832BEFF37030
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 717 115
+
+Ваня Зарядов (Трезвый Заряд) - Всё, что осталось нам (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Aco
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Под небом блеклым [00:03:55]
+02. Всё, что осталось нам [00:04:41]
+03. Первый снег [00:07:16]
+04. Как себя найти [00:03:34](   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B97204FAF3CE1D3639B979B0792F75D103E7D56D
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 717 074
+
+Dee_Waste - Всем, кто остался (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Cybercore, Alternative
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Всем, кто остался [00:01:35]
+02. неСВОБОДНЫЕ неЛЮДИ [00:03:29]
+03. Мразь [00:02:58]
+04. Горящее сердце [00:04:49](   Читать дальше...   )Жанр: Nu Metal, Cybercore, Alternative MetalПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FA389D9E36E70A5178C5FC86400A6AC8914105F7
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 716 815
+
+Amalgama - Mastermind (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Proton [00:00:56]
+02. Dark Lacroix [00:04:23]
+03. Legions of Steel [00:03:45]
+04. Amulang [00:03:29](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BD7CC3E9E0E90AE058ECFEBDF64462A5062BE426
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 716 675
+
+Караул - Безобразие в цвете (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alternative Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Привет [00:03:18]
+02. Июль [00:03:39]
+03. Лети к воспоминаниям [00:03:25]
+04. Ненавидеть тебя [00:03:42](   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D4AE1157E245511B5DC2C9982F302A62E2F3C951
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 716 674
+
+Магелланово Облако - Бесконечно (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Сardiowave>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Время Доброго Зла [00:03:42]
+02. Припадая К Камням [00:04:08]
+03. Мел [00:03:31]
+04. Всё Неслучайно [00:04:01](   Читать дальше...   )Жанр: Rock, СardiowaveПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DB631C90EDA8437222F33256102B91F58E39A8A5
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 716 469
+
+Виктор Цой - Желтые Воды. Акустика 1987 (2024) 2CD, Remastered, Maschina Records [MP3|320 Kbps] <Roc
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Последний герой
+02. Каждую ночь
+03. Мы ждем перемен
+04. Город(   Читать дальше...   )Жанр: RockПродолжительность: 01:29:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B4DB9A6FD9E4EEF491974C7BDEFC03902CE2D2C
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 715 814
 
 7000$ (Семь Штук Баксов) - Ярче огней (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Rapcore>
@@ -450,7 +697,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 713 664
 
-Асмодеевы крылья - Утопический вакуум тотального одиночества (2024) [MP3|320 Kbps] <doommetal, funeraldoom>
+Асмодеевы крылья - Утопический вакуум тотального одиночества (2024) [MP3|320 Kbps] <doommetal, funer
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -525,7 +772,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 713 554
 
-Clownopocalypsis - Клоунский крестовый поход (2024) [FLAC|Lossless|WEB-DL|tracks] <Horror Metal, Alternative Metal, Dark Cabaret>
+Clownopocalypsis - Клоунский крестовый поход (2024) [FLAC|Lossless|WEB-DL|tracks] <Horror Metal, Alt
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -675,7 +922,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 713 083
 
-Альберт Артамонов - Праздник пустоты в роковом трио (2022) Remastered, 2024, Альберт Артамонов [FLAC|Lossless|WEB-DL|tracks] <Acoustic rock, bard rock
+Альберт Артамонов - Праздник пустоты в роковом трио (2022) Remastered, 2024, Альберт Артамонов [FLAC
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -750,7 +997,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 712 971
 
-##### (5 Diez) - Внутреннее возгорание (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Alt.Metal, Modern Metal>
+##### (5 Diez) - Внутреннее возгорание (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Alt.Metal, Mo
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1222,7 +1469,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 708 608
 
-Схоластика - На Абордаж (2013) Reissue, 2018, Narcoleptica Prod; More Hate Productions; United By Chaos [FLAC|Lossless|image + .cue] <Thrash Metal>
+Схоластика - На Абордаж (2013) Reissue, 2018, Narcoleptica Prod; More Hate Productions; United By Ch
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1247,7 +1494,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 708 578
 
-Dark Voice of Angelique - Endgame (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial Punk, Dark Ambient>
+Dark Voice of Angelique - Endgame (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial Punk, Dar
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1297,7 +1544,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 708 571
 
-Grimwind - XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal, Melodic Death Metal>
+Grimwind - XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal, Melodic Death Meta
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1472,7 +1719,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 707 687
 
-Бездна Анального Угнетения (Б.А.У.) - Министерство Несчастья (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Alternative Metal, Punk>
+Бездна Анального Угнетения (Б.А.У.) - Министерство Несчастья (2024) [FLAC|Lossless|WEB-DL|tracks] <T
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1522,7 +1769,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 707 485
 
-Gorky Park - Stare (1996) Reissue, 2023,  Moroz Records [FLAC|Lossless|image + .cue] <Prog Rock, Progressive Metal>
+Gorky Park - Stare (1996) Reissue, 2023,  Moroz Records [FLAC|Lossless|image + .cue] <Prog Rock, Pro
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1733,256 +1980,6 @@ Rock, Alternative, Punk, Metal
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:17EB90BAE06389E543078CA6A23F8E8184B5A9B6
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 682
-
-ИМПЛОZИЯ - Искры  2024  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Время потерянных
-2. Ранен любовью
-3. Поэту
-4. Разрушая тишину    Читать дальше...    Жанр: RockПродолжительность: 00:31:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7D19D55175F2598E12E8B7C87BBBBA3244B1AA45
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 680
-
-ADDicted! - День  2024  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. ADDicted! KDRR - Чужой среди своих
-2. ADDicted! - Два фаера
-3. ADDicted! Угарный гаZzz... - Навсегда в твоём плеере
-4. ADDicted! - Чего хотел добиться ты    Читать дальше...    Жанр: Punk RockПродолжительность: 00:15:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:86A80C51724A0F94B2C6E9BD478B481E649B2A8A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 571
-
-ЗАВТРА БРОШУ - ВЫХОДА НЕТ  2024  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Интро
-2. Грустная
-3. Бей, убивай
-4. Это было глупо    Читать дальше...    Жанр: RockПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6CE82C83894508C59D03A45FBF5A832D550561F4
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/2h5J83j/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 369
-
-Neverlove - Next Level  2024  [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Emo Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Альтушка [00:03:46]
-02. Добро пожаловать в эскорт [00:03:33]
-03. SONNE [00:04:17]
-04. TRA-Hi [00:03:05]    Читать дальше...    Жанр: Alternative Rock, Emo RockПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:08C9166349EEEB8D63B58C5C0963CBFCFE1E03E2
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 364
-
-Александр Лаэртский и Карабас - Как будто пришли в гости (2024) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Заклинило
-2. Певица
-3. Вязьма
-4. Мутанты(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B577C0A2F2FB77122AC2B1BD3093567D05584262
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 307
-
-Кипелов - Весы Судьбы  2024  [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Интро
-2. Весы Судьбы
-3. Ночь в душе твоей
-4. Твой путь    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:25:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A85FCF540180114ECB72C262BD5175AA7F58F245
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 207
-
-Александр Ф. Скляр & Ва-Банкъ - Кровь и золото (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Вперёд, друзья!
-2. Чёрная свеча
-3. Рыба-смерть
-4. Когда мы были на войне(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:292D6022D06C1E5415163E1351B3DE3CDB684713
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 203
-
-Александр Ф. Скляр & Ва-Банкъ - Кровь и золото (2024) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Вперёд, друзья!
-2. Чёрная свеча
-3. Рыба-смерть
-4. Когда мы были на войне(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2E65F4CF4DB41D487F616C29DFAB6130C259671A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 704 527
-
-VA - Асса  1996  [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. «Здравствуй, мальчик Бананан»  В. Матецкий; исп. Ю. Чернавский   7:52 
-02. «Иду на ты»  сл. и муз. Б. Гребенщикова; исп. гр. «Аквариум»   2:20 
-03. «ВВС»  сл. и муз. А. Синицына; исп. гр. «Союз композиторов»   6:42 
-04. «Мочалкин блюз»  сл. и муз. Б. Гребенщикова; исп. гр. «Аквариум»   2:30     Читать дальше...    Жанр: Rock, SoundtrackПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:84114092D7C1A1ACE5229B77E1A14DBEAB858E4B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 704 513
-
-Джин-Тоник - #снебаупасть  2024  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Кто так обзывается
-2. Карусель
-3. С неба упасть
-4. Когда сломается мир    Читать дальше...    Жанр: RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8D38FC996B57B30E7843848619459FBD2B8B1B2C
 ```
 
 <div id="header" align="center">

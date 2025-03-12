@@ -1,7 +1,29 @@
 ﻿
+###  Публикация: 1 583 348
+
+Разрушение моста   Duan qiao   The Fallen Bridge  2022  WEB-DL [H.264 1080p] [MVO]
+Зарубежное кино
+Азиатское кино  HD, FHD, UHD 
+
+###  Подробнее
+
+После внезапного обрушения моста в обломках находят человеческие останки. Дочь одного из опознанных пытается докопаться до правды о смерти отца.Производство: Китай   Laurel FilmsЖанр: драма, детективРежиссер: Ли ЮйАктеры: Сандра Ма, Кэрри Ван, Вэй Фань, Цзэн Мэйхуэйцзы, Ли Сяочуань, Чжао Жуньнань, Гун Бэйби, Хуан Лу, Мокси Цзыши, Цзэн МумэйПеревод: Многоголосый любительский  Колобок Язык озвучки: русский, китайскийСубтитры: английские  hardsub , китайские  hardsub Продолжительность: 01:53:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:62DEFB0BAD0E117096D4A3D6064E80C8263B92A4
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/HFP6ZQ4/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 583 225
 
-Битва на озере 2   Chang jin hu zhi shui men qiao   Water Gate Bridge  2022  BDRip [H.264 1080p]
+Битва на озере 2   Chang jin hu zhi shui men qiao   Water Gate Bridge  2022  BDRip [H.264 
 Зарубежное кино
 Азиатское кино  HD, FHD, UHD 
 
@@ -289,7 +311,7 @@
 
 ###  Публикация: 1 579 156
 
-Решение уйти   Hyeeojil gyeolsim   Decision to Leave  2022  WEB-DLRip [H.264 720p-LQ] [AVO]
+Решение уйти   Hyeeojil gyeolsim   Decision to Leave  2022  WEB-DLRip [H.264 720p-LQ] [AVO
 Зарубежное кино
 Азиатское кино  HD, FHD, UHD 
 
@@ -311,7 +333,7 @@
 
 ###  Публикация: 1 579 082
 
-Стальной алхимик: Месть Шрама   Hagane no renkinjutsushi: Kanketsuhen fukushusha suka   Fullmetal Alchemist: The Revenge of Scar  2022  WEB-DL
+Стальной алхимик: Месть Шрама   Hagane no renkinjutsushi: Kanketsuhen fukushusha suka   Fullmeta
 Зарубежное кино
 Азиатское кино  SD 
 
@@ -356,7 +378,7 @@
 
 ###  Публикация: 1 578 163
 
-Любовь по вызову   Удачи тебе, Лео Гранде   Good Luck to You, Leo Grande  2022  BDRip [H.264 1080p] [MVO]
+Любовь по вызову   Удачи тебе, Лео Гранде   Good Luck to You, Leo Grande  2022  BDRip [H.264
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -422,7 +444,7 @@
 
 ###  Публикация: 1 573 607
 
-Арлетти. Преступная страсть   Arletty, une passion coupable   Arletty A Guilty Passion  2015  DVB
+Арлетти. Преступная страсть   Arletty, une passion coupable   Arletty A Guilty Passion  2015<4
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -577,7 +599,7 @@
 
 ###  Публикация: 1 569 466
 
-Доктор Стрэндж: В мультивселенной безумия   Doctor Strange in the Multiverse of Madness  2022  BDRip [H.265 1080p-LQ] [10-bit]
+Доктор Стрэндж: В мультивселенной безумия   Doctor Strange in the Multiverse of Madness  2022 
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -753,7 +775,7 @@
 
 ###  Публикация: 1 561 916
 
-Криминальный город 2   Beomjoе dosi 2   Beomjoidosi 2   The Roundup  2022  WEBRip [H.264 1080p] [Локализованная версия]
+Криминальный город 2   Beomjoе dosi 2   Beomjoidosi 2   The Roundup  2022  WEBRip [H.264<3
 Зарубежное кино
 Азиатское кино  HD, FHD, UHD 
 
@@ -819,7 +841,7 @@
 
 ###  Публикация: 1 561 429
 
-Чудеса   Крестный отец из Гонконга   Kei zik   Miracles: The Canton Godfather  1989  BDRip [H.264 1080p-LQ] [Remastered] [Гонконгская верс
+Чудеса   Крестный отец из Гонконга   Kei zik   Miracles: The Canton Godfather  1989  BDRip
 Зарубежное кино
 Азиатское кино  HD, FHD, UHD 
 
@@ -842,7 +864,7 @@
 
 ###  Публикация: 1 561 415
 
-Лунана: Як в классной комнате   Lunana: A Yak in the Classroom  2019  WEB-DL [H.264 1080p] [DZ   EN Sub]
+Лунана: Як в классной комнате   Lunana: A Yak in the Classroom  2019  WEB-DL [H.264 1080p] [
 Зарубежное кино
 Фильмы в оригинале  HD, FHD, UHD 
 
@@ -886,7 +908,7 @@
 
 ###  Публикация: 1 561 369
 
-Невыносимая тяжесть огромного таланта   The Unbearable Weight of Massive Talent  2022  UHD BDRemux [H.265 2160p] [4K, HDR10, Dolby Vision, Pro
+Невыносимая тяжесть огромного таланта   The Unbearable Weight of Massive Talent  2022  UHD BDR
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -996,7 +1018,7 @@
 
 ###  Публикация: 1 560 354
 
-Линия обороны: Взрывной кризис   Fang Xian - Bao Dan Wei Ji  Defense Bomb Crisis   2021  WEB-DL [H.265 1080p-LQ] [AVO]
+Линия обороны: Взрывной кризис   Fang Xian - Bao Dan Wei Ji  Defense Bomb Crisis   2021  W
 Зарубежное кино
 Азиатское кино  HD, FHD, UHD 
 
@@ -1040,7 +1062,7 @@
 
 ###  Публикация: 1 558 850
 
-Доктор Стрэндж: В мультивселенной безумия   Doctor Strange in the Multiverse of Madness  2022  WEB-DL [H.265 2160p] [4K, HDR10, 10-bit] [IMAX]
+Доктор Стрэндж: В мультивселенной безумия   Doctor Strange in the Multiverse of Madness  2022 
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -1150,7 +1172,7 @@
 
 ###  Публикация: 1 557 315
 
-Дальнобойщики 9   Torakku yaro: Neppu 5000 kiro  Trucker Yaro IX: A 5000 Km Run   1979  BDRip [H.264] [AVO]
+Дальнобойщики 9   Torakku yaro: Neppu 5000 kiro  Trucker Yaro IX: A 5000 Km Run   1979  BD
 Зарубежное кино
 Азиатское кино  SD 
 
@@ -1348,7 +1370,7 @@
 
 ###  Публикация: 1 551 143
 
-Тор 2: Царство тьмы   Thor: The Dark World  2013  UHD BDRemux [H.265 2160p] [4K, HDR10, Dolby Vision, 10-bit]
+Тор 2: Царство тьмы   Thor: The Dark World  2013  UHD BDRemux [H.265 2160p] [4K, HDR10, Dolb
 Зарубежное кино
 Зарубежные Фильмы  UHD 
 
@@ -1370,7 +1392,7 @@
 
 ###  Публикация: 1 550 489
 
-Американская предательница   American Traitor: The Trial of Axis Sally  2021  BDRip [H.264 720p] [MVO]
+Американская предательница   American Traitor: The Trial of Axis Sally  2021  BDRip [H.264 7
 Зарубежное кино
 Зарубежные Фильмы  HD, FHD 
 
@@ -1591,7 +1613,7 @@
 
 ###  Публикация: 1 540 285
 
-Моя любимая словно цветок сакуры   Sakura no Yona Boku no Koibito   Love Like the Falling Petals  2022  WEB-DLRip [H.264] [DVO]
+Моя любимая словно цветок сакуры   Sakura no Yona Boku no Koibito   Love Like the Falling Petals
 Зарубежное кино
 Азиатское кино  SD 
 
@@ -1738,28 +1760,6 @@
 
 <div id="header" align="center">
   <img src="https://i.ibb.co/02fSnzk/image.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 538 308
-
-Видео Бенни   Benny s Video  1992  BDRip [H.264 720p] [MVO]
-Зарубежное кино
-Зарубежные Фильмы  HD, FHD 
-
-###  Подробнее
-
-Бенни живёт в обеспеченной семье. Родители уделяют мало внимания сыну, и тот полностью погружён в свои увлечения — съёмку на любительскую камеру и просмотр низкобюджетных фильмов ужасов. Однажды на ферме Бенни снимает сцену забоя свиньи, тогда же ему удаётся выкрасть пистолет с патронами. Кадры настоящего убийства производят на подростка сильное впечатление, он любит     Читать дальше...    Производство: Швейцария, Австрия, Bernard Lang AG, Langfilm, Wega FilmЖанр: драма, криминалРежиссер: Михаэль ХанекеАктеры: Арно Фриш, Ангела Винклер, Ульрих Мюэ, Ингрид Штасснер, Штефани Бреме, Штефан Поласек, Кристиан Пунди, Макс Бернер, Ганспетер Мюллер, Шелли КэстнерПеревод: профессиональный многоголосый  R5 Субтитры: русские  DVD , английскиеПродолжительность: 01:49:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7A25BAE7277DC0C7C0AA9869396BAC8142949D1
-```
-
-<div id="header" align="center">
-  <img src="https://i.ibb.co/d2H15dh/image.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 747 612
+
+Твин Пикс - Избранное (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Электрик
+2. Надежда на Солнце
+3. С высоты
+4. Девочка-смерть(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4D3E855FCD21B447070DEF7685F90744E9DA90CA
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/KzmCgdL/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 747 608
+
+Твин Пикс - Избранное (2024) [MP3|320 Kbps] <Post Punk, New Wave>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Электрик
+2. Надежда на Солнце
+3. С высоты
+4. Девочка-смерть(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:68488ED8AC754D68B4B935CD5CFA7CB6AF2ECA3B
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/KzmCgdL/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 747 505
+
+Красная плесень - Изучайте кибернетику! (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Красная армия (New version)
+2. Казаки (New version)
+3. Патриотическая. От окраин до Кремля (New version)
+4. Памяти всех безвременно ушедших (Radio version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:17:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C798AFDE9D16BF6B960B96845565AC5DB8AE8C44
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/Jqc1BrY/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 747 504
+
+Красная плесень - Изучайте кибернетику! (2024) [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Красная армия (New version)
+2. Казаки (New version)
+3. Патриотическая. От окраин до Кремля (New version)
+4. Памяти всех безвременно ушедших (Radio version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:17:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:40CE86D2DB0D1C4FE5CB148B1DE648C514360298
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/Jqc1BrY/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 747 140
+
+Каменный Ветер - 3 Albums (2024) [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Ночная [00:03:44]
+02. Победная [00:03:01]
+03. Рагнарек [00:04:26]
+04. Степной волк [00:04:18](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 3 CD, 01:22:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AF365C34AF5A090FE9DCFEC87AE173929E20EDA3
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/f8BLNXG/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 747 136
+
+Ploho - Почва (2024) [MP3|320 Kbps] <Post Punk, New Wave>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Гештальт [00:04:01]
+02 - Я буду жить для тебя [00:04:01]
+03 - Фарфоровые птицы [00:03:35]
+04 - Тайга и Байкал [00:04:00](   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E4A394291C38860D838B0A1ED6197B5F870DDF49
+```
+
+<div id="header" align="center">
+  <img src="" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 747 017
+
+Звуки Му - Zvuki Mu + Live in London 1989 (1989) Remastered, 2024, Отделение ВЫХОД [FLAC|Lossless|im
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+CD1 - Zvuki Mu:
+01. Источник заразы
+02. Сумасшедшая королева
+03. Забытый секс(   Читать дальше...   )Жанр: Post-Punk, Psychedelic RockПродолжительность: 01:46:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E6B775E86C0F82F0D59A5F481F1FE173320DBD2A
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/6XQj1T3/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 747 012
+
+Звуки Му - Грубый закат в Москве (1992) Remastered, 2024, Отделение ВЫХОД [FLAC|Lossless|image + .cu
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+CD1:
+2. Канава
+3. Новосёлы
+4. Больничный лист(   Читать дальше...   )Жанр: Post-Punk, Psychedelic RockПродолжительность: 01:28:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57071AD5081F8D6075823E0CB2559DE8D0B22D35
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/161Rh66/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 746 711
+
+Arbitrator - Kill Their Religion (1998) Remaster, 2024, NORZ Records [FLAC|Lossless|WEB-DL|tracks] <
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Inhumanity [00:03:37]
+02. Hard Hearted [00:03:41]
+03. In The Nunnery [00:05:00]
+04. Sansara's Wheel [00:03:44](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63B8801C5E4FE73DC866C14EC627718636F6D86C
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/zX0rN3y/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 746 699
+
+мытищи в огне - Технолавина (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Мудрость [00:00:45]
+02. ТЕХНОЛАВИНА [00:03:15]
+03. МЫТИЩИ В ОГНЕ [00:02:36]
+04. Кружится планета [00:03:25](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:27:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D130F9112241EBFB3840FE31063B6F3C84A8D537
+```
+
+<div id="header" align="center">
+  <img src="https://i.ibb.co/4RDg9cq/image.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 746 606
 
 F.O.R. - Love (2024) [MP3|320 Kbps] <Gothic Metal, Alternative Rock>
@@ -76,7 +326,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 746 493
 
-Огонь Палатина - Бес парусов (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened Heavy Metal, Folk Metal>
+Огонь Палатина - Бес парусов (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened Heavy Metal, Folk Metal
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -526,7 +776,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 744 139
 
-Ночные Снайперы - симфоническая акустика двух столиц (2024) Live акустика 2024 [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
+Ночные Снайперы - симфоническая акустика двух столиц (2024) Live акустика 2024 [FLAC|Lossless|WEB-DL
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -551,7 +801,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 744 137
 
-Ночные Снайперы - симфоническая акустика двух столиц (2024) Live акустика 2024 [MP3|320 Kbps] <Symphonic Rock>
+Ночные Снайперы - симфоническая акустика двух столиц (2024) Live акустика 2024 [MP3|320 Kbps] <Symph
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1423,7 +1673,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 735 994
 
-Ля-Миноръ - Блатняк (2002) Remaster, 2023, Капкан [FLAC|Lossless|WEB-DL|tracks] <alternative chanson, Urban folk, jazz, ska, klezmer, world music>
+Ля-Миноръ - Блатняк (2002) Remaster, 2023, Капкан [FLAC|Lossless|WEB-DL|tracks] <alternative chanson
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1548,7 +1798,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 735 292
 
-ДДТ (DDT) - 13 Альбомов (1992-2014) Reissue Navigator Records, 16CD [FLAC|Lossless|tracks + .cue] <Rock>
+ДДТ (DDT) - 13 Альбомов (1992-2014) Reissue Navigator Records, 16CD [FLAC|Lossless|tracks + .cue] <R
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1573,7 +1823,7 @@ Rock, Alternative, Punk, Metal
 
 ###  Публикация: 1 734 712
 
-Slaughter To Prevail - 4 Albums, 4 Singles (2015-2024) [FLAC|Lossless|WEB-DL|tracks] <Ural Deathcore>
+Slaughter To Prevail - 4 Albums, 4 Singles (2015-2024) [FLAC|Lossless|WEB-DL|tracks] <Ural Deathcore
 Rock, Alternative, Punk, Metal
 Русский Рок (Lossless)
 
@@ -1737,257 +1987,6 @@ Rock, Alternative, Punk, Metal
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:3F7CE6CE1F89F7BE32F9B3A7BDD8927FFAD4D0D2
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 732 210
-
-Карнавал - Внезапный Тупик (1997) [FLAC|Lossless|image + .cue] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Внезапный тупик (В.Кузьмин - И.Кохановский) [05:00]
-02. Я знаю теперь (А.Барыкин - И.Кохановский) [04:26]
-03. Актёр (А.Барыкин - П.Жагун) [03:26]
-04. Я играю для Вас (А.Барыкин - В.Кузьмин) [04:11](   Читать дальше...   )Жанр: RockПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A121551B8811A873CA1C7A12A6362B3672EEE03B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 732 177
-
-Ария - Ария (2024) Box Set, 15CD, Reissue, Remastered [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-В бокс-сет вошли все 13 номерных альбомов группы: от “Мании величия” (1985) до “Проклятья Морей” (2018). Кроме того, в качестве бонуса в релизе также представлены альбомы “Крещение Огнём. Перезагрузка” и “Армагеддон. Перезагрузка”, ранее выпущенные в формате винила и ещё не выходившие на CD.
-Все диски упакованы в трехполосные глянцевые диджипаки. Оформление каждого (   Читать дальше...   )1985 - Мания Величия
-1986 - С Кем Ты?
-1987 - Герой Асфальта
-1989 - Игра С ОгнёмЖанр: Heavy MetalПродолжительность: 12:52:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EBA5654575C2F345E79C751F8021DDF7840F63AA
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 834
-
-Александр Барыкин И Группа Карнавал - Я Знаю Теперь... (2004) [FLAC|Lossless|image + .cue] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Русский снег
-02. Молоко
-03. Рыбка
-04. Джамайка(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BF5DFCDE232F470A377DD4B2375FF8C2A9C3BCE3
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 813
-
-ДДТ (DDT) - Сборник песен №2 (2023) 2CD [FLAC|Lossless|tracks + .cue] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Расстреляли рассветами (Live, 2022) 8:25
-02. В раю одиноко...(Творчество в пустоте-2, 2022) 4:09
-03. Метель (Live, 2017) 7:42
-04. Галя ходи (Галя ходи, 2018) 5:04(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:04096C200C9B9BCA309FAF93CAC0CAE53D82E81B
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 782
-
-Aires - Останусь собой (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. 16 лет [00:03:43]
-02. Веселье [00:02:40]
-03. По новой [00:03:06]
-04. Останусь собой [00:02:45](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:26:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F0E18E87BE5F03063B4AAECB8BC473850840993
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 485
-
-VA - Олег Чубыкин. Трибьют (2024) [MP3|320 Kbps] <Rock, Pop>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Братья Грим - Здравствуй, Лета!
-2. ERIN - Дивный мир
-3. The Just - Натворила
-4. Павел Чехов - Куда уплыли корабли?(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:536AF13326C1705AD7864CC7043CD5DBC9EAC9D9
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 148
-
-Митя Шагин и Приморский парк - Морская душа нараспашку (2022) [FLAC|Lossless|tracks + .cue] <Rock. Folk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Митя Шагин - Парус
-02. Митя Шагин - Я люблю тебя жизнь
-03. Виталий Замятин - Море волнуется
-04. Митя Шагин - На море пушки грохотали(   Читать дальше...   )Жанр: Rock. FolkПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:305C7476845A64EC85FB46A496EC9ED33AFEB3AB
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 133
-
-Хороший год - От небес до земли (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Морская соль [00:03:57]
-02. Все это сон [00:03:59]
-03. Каждому свое [00:04:27]
-04. Лайфхак [00:04:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:496B848E1243B24828EB9D8FD16DF9924DC43C0A
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 132
-
-Дорога Домой - Жить не зря? (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Приходи ночевать [00:02:34]
-02. Из далёкого детства [00:03:14]
-03. Положение дел [00:02:53]
-04. Мёд и вино [00:04:14](   Читать дальше...   )Жанр: RockПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C8B9E7569F0EA1F83ACB6C6FA7EAA3D9A6962D9C
-```
-
-<div id="header" align="center">
-  <img src="" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 727 937
-
-My Journey to the Void - Невозможность (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Post-Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Скиталец (Intro) [00:01:34]
-02. Пока все птицы спят [00:05:11]
-03. Дальше жить нельзя [00:06:08]
-04. The Oddball [00:03:48](   Читать дальше...   )Жанр: Post-Metal, Post-RockПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1F1971CAB0C7523CA4B7568B4FCA88E27F65E277
 ```
 
 <div id="header" align="center">

@@ -222,7 +222,7 @@
 
 ###  Публикация: 1 460 895
 
-Крепкий орешек 3: Возмездие   Die Hard: With a Vengeance  1995  UHD WEB-DL [H.265 2160p] [4K, HDR, 10-bit]
+Крепкий орешек 3: Возмездие   Die Hard: With a Vengeance  1995  UHD WEB-DL [H.265 2160p] [4K
 Отечественное кино
 Отечественные Фильмы  HD, FHD, UHD 
 

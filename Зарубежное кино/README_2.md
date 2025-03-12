@@ -332,7 +332,7 @@
 
 ###  Публикация: 1 758 871
 
-Тихая ночь, смертельная ночь 5: Создатель игрушек / Silent Night, Deadly Night 5: The Toy Maker (1991) BDRip [H.264/720p] [AVO]
+Тихая ночь, смертельная ночь 5: Создатель игрушек / Silent Night, Deadly Night 5: The Toy Maker (199
 Зарубежное кино
 Зарубежные Фильмы (HD, FHD)
 
@@ -574,7 +574,7 @@
 
 ###  Публикация: 1 758 419
 
-Городские легенды. Возвращение / Seoul goedam / Seoulgoedam / Urban Myths (2022) WEBRip [H.264/1080p]
+Городские легенды. Возвращение / Seoul goedam / Seoulgoedam / Urban Myths (2022) WEBRip [H.264/1080p
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -596,7 +596,7 @@
 
 ###  Публикация: 1 758 394
 
-Мы были солдатами / We Were Soldiers (2002) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-bit]
+Мы были солдатами / We Were Soldiers (2002) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
@@ -618,7 +618,7 @@
 
 ###  Публикация: 1 758 329
 
-Правила боя / Rules of Engagement (2000) UHD BDRemux [H.265/2160p] [4K, HDR10 , Dolby Vision P7, 10-bit]
+Правила боя / Rules of Engagement (2000) UHD BDRemux [H.265/2160p] [4K, HDR10 , Dolby Vision P7, 10-
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
@@ -728,7 +728,7 @@
 
 ###  Публикация: 1 758 078
 
-Хэллоуин 6: Проклятие Майкла Майерса / Halloween: The Curse of Michael Myers (1995) BDRip [H.264/720p]
+Хэллоуин 6: Проклятие Майкла Майерса / Halloween: The Curse of Michael Myers (1995) BDRip [H.264/720
 Зарубежное кино
 Зарубежные Фильмы (HD, FHD)
 
@@ -794,13 +794,13 @@
 
 ###  Публикация: 1 757 994
 
-Багровые реки / Les rivieres pourpres (2000) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-bit]
+Багровые реки / Les rivieres pourpres (2000) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
 ###  Подробнее
 
-В престижном колледже в Альпах совершено зверское убийство, которое расследует опытный комиссар полиции Пьер Ньеманс. Тем временем в другом местечке происходит еще одно, весьма странное преступление — кто-то раскапывает и оскверняет могилу 10-летней девочки.
+В престижном колледже в Альпах совершено зверское убийство, которое расследует опытный комиссар полиции Пьер Ньеманс. Тем временем в другом местечке происходит еще одно, весьма странное преступление — кто-то раскапывает и оскверняет могилу 10-летней девочки.
 
 Это дело ведет молодой детектив Макс Керкерьян. Кажется, между данными событиями нет связи. Но она существует! (   Читать дальше...   )Производство: Франция / Canal+ (fr), Gaumont, Légende Entreprises, TF1 Films ProductionsЖанр: криминал, детектив, триллерРежиссер: Матьё КассовицАктеры: Жан Рено, Венсан Кассель, Надя Фарес, Доминик Санда, Карим Белхадра, Жан-Пьер Кассель, Дидье Фламан, Франсуа Леванталь, Франсин Берже, Филипп Наон, Лоран Лафитт, Робер Гендрю, Кристоф Бернар, Никки Нод, Тони ДесканвелльПеревод: Дублированный (Видеосервис), профессиональный многоголосый (Видеосервис)Язык озвучки: Русский, французскийСубтитры: Русские (Forced, Full), английские (Full)Продолжительность: 01:45:50
 
@@ -995,7 +995,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 
 ###  Публикация: 1 757 312
 
-Поле битвы: Падение мира / Zhan di: yi zhong hao jie / Zhandi: Yizhong haojie / Battlefield: Fall of the World (2022) WEBRip [H.264/1080p]
+Поле битвы: Падение мира / Zhan di: yi zhong hao jie / Zhandi: Yizhong haojie / Battlefield: Fall of
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -1171,7 +1171,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 
 ###  Публикация: 1 757 155
 
-Драконы навсегда / Fei lung mang jeung / Dragons Forever (1988) BDRip [H.265/1080p] [10-bit] [US Transfer Remastered]
+Драконы навсегда / Fei lung mang jeung / Dragons Forever (1988) BDRip [H.265/1080p] [10-bit] [US Tra
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -1215,7 +1215,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 
 ###  Публикация: 1 757 088
 
-Американский пирог / American Pie (1999) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit] [Unrated Cut]
+Американский пирог / American Pie (1999) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit]
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
@@ -1259,7 +1259,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 
 ###  Публикация: 1 756 827
 
-Американский пирог / American Pie (1999) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-bit] [Unrated Cut]
+Американский пирог / American Pie (1999) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-bit
 Зарубежное кино
 Зарубежные Фильмы (UHD)
 
@@ -1303,7 +1303,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 
 ###  Публикация: 1 756 802
 
-При исполнении 3 / Да, мадам 2! / Huang jia shi jie zhi III: Ci xiong da dao / In the Line of Duty III (1988) BDRip [H.265/1080p] [10-bit] [GBR Transf
+При исполнении 3 / Да, мадам 2! / Huang jia shi jie zhi III: Ci xiong da dao / In the Line of Duty I
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -1435,7 +1435,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 
 ###  Публикация: 1 756 529
 
-Ип Ман и четыре царя / Ye Wen zhi Jiulong cheng zhai / Ip Man and the Four Kings (2019) WEBRip [H.264/1080p]
+Ип Ман и четыре царя / Ye Wen zhi Jiulong cheng zhai / Ip Man and the Four Kings (2019) WEBRip [H.26
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -1457,7 +1457,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 
 ###  Публикация: 1 756 513
 
-Королевские воины / Wong ga jin si / Royal Warriors (1986) BDRip [H.265/1080p] [10-bit] [DEU Transfer 4k Remastered][AVO]
+Королевские воины / Wong ga jin si / Royal Warriors (1986) BDRip [H.265/1080p] [10-bit] [DEU Transfe
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -1545,7 +1545,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 
 ###  Публикация: 1 756 391
 
-При исполнении 4: Свидетель / Wong ga si je IV: Jik gik jing yan / In the Line of Duty 4: Witness (1989) BDRip [H.265/1080p] [10-bit] [GBR Transfer Re
+При исполнении 4: Свидетель / Wong ga si je IV: Jik gik jing yan / In the Line of Duty 4: Witness (1
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -1723,7 +1723,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 
 ###  Публикация: 1 755 958
 
-Хроники призрачного племени / Jiu ceng yao ta / Chronicles of the Ghostly Tribe (2015) BDRip [H.264/1080p]
+Хроники призрачного племени / Jiu ceng yao ta / Chronicles of the Ghostly Tribe (2015) BDRip [H.264/
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 
@@ -1745,7 +1745,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 
 ###  Публикация: 1 755 933
 
-Прямо сейчас, а не после / Jigeumeun makgo geuttaeneun tteulrida (2015) BDRip [H.264/720p] [KR / RU Sub]
+Прямо сейчас, а не после / Jigeumeun makgo geuttaeneun tteulrida (2015) BDRip [H.264/720p] [KR / RU
 Зарубежное кино
 Азиатское кино (HD, FHD, UHD)
 

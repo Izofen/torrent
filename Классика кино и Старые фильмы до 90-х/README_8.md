@@ -46,7 +46,7 @@
 
 ###  Публикация: 1 611 089
 
-Расплавленный   The Incredible Melting Man  1977  UHD BDRemux [H.265 2160p] [4K, HDR10, 10-bit] [AVO]
+Расплавленный   The Incredible Melting Man  1977  UHD BDRemux [H.265 2160p] [4K, HDR10, 10-b
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы  HD, FHD, UHD, 3D 
 
@@ -90,7 +90,7 @@
 
 ###  Публикация: 1 610 613
 
-На западном фронте без перемен   All Quiet on the Western Front  1979  BDRip [H.264 720p] [MVO] [Расширенная версия]
+На западном фронте без перемен   All Quiet on the Western Front  1979  BDRip [H.264 720p] [M
 Классика кино и Старые фильмы до 90-х
 Зарубежная Классика  HD, FHD, UHD, 3D 
 
@@ -156,7 +156,7 @@
 
 ###  Публикация: 1 609 441
 
-Признание молодой домохозяйки   Confessions of a Young American Housewife  1974  BDRip [H.264 720p] [VO]
+Признание молодой домохозяйки   Confessions of a Young American Housewife  1974  BDRip [H.264<
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы  HD, FHD, UHD, 3D 
 
@@ -245,7 +245,7 @@
 
 ###  Публикация: 1 608 015
 
-Крестный отец, Эпилог:  Смерть Майкла Корлеоне    The Godfather Coda: The Death of Michael Corleone  1990 2020  BDRip [H.265 2160p] [4K,
+Крестный отец, Эпилог:  Смерть Майкла Корлеоне    The Godfather Coda: The Death of Michael Cor
 Классика кино и Старые фильмы до 90-х
 Зарубежная Классика  HD, FHD, UHD, 3D 
 
@@ -333,7 +333,7 @@
 
 ###  Публикация: 1 606 485
 
-2001 год: Космическая одиссея / 2001: A Space Odyssey (1968) BDRip [H.265/1080p] [10-bit] [UK Transfer]
+2001 год: Космическая одиссея / 2001: A Space Odyssey (1968) BDRip [H.265/1080p] [10-bit] [UK Transf
 Классика кино и Старые фильмы до 90-х
 Зарубежная Классика  HD, UHD, UHD-LQ, 3D 
 
@@ -642,7 +642,7 @@
 
 ###  Публикация: 1 602 479
 
-Убийственное лето   L ete meurtrier   One Deadly Summer  1983  Blu-ray [H.264 1080p] [Custom]
+Убийственное лето   L ete meurtrier   One Deadly Summer  1983  Blu-ray [H.264 1080p] [Cu
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы  HD, FHD, UHD, 3D 
 
@@ -776,7 +776,7 @@
 
 ###  Публикация: 1 598 717
 
-Военные игры   WarGames  1983  BDRip [H.265 2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
+Военные игры   WarGames  1983  BDRip [H.265 2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-b
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы  HD, FHD, UHD, 3D 
 
@@ -864,7 +864,7 @@
 
 ###  Публикация: 1 595 204
 
-Демоны 2   Demons 2   Demoni 2... l incubo ritorna  1986  UHD BDRemux [H.265 2160p] [4K, HDR10, 10-bit]
+Демоны 2   Demons 2   Demoni 2... l incubo ritorna  1986  UHD BDRemux [H.265 2160p] [4K,
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы  HD, FHD, UHD, 3D 
 
@@ -1311,7 +1311,7 @@ VA - The Best 50 of Piano Classical Music  2022  [FLAC|Lossless|WEB-DL|tracks] <
 
 ###  Публикация: 1 582 530
 
-Жаль, что ты каналья   Peccato che sia una canaglia   Too Bad She s Bad  1954  WEBRip [H.264 1080p] [DVO]
+Жаль, что ты каналья   Peccato che sia una canaglia   Too Bad She s Bad  1954  WEBRip [H.2
 Классика кино и Старые фильмы до 90-х
 Зарубежная Классика  HD, FHD, UHD, 3D 
 

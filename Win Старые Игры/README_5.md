@@ -199,7 +199,7 @@ Action  TPS
 
 ###  Публикация: 1 296 272
 
-Massive Assault: Phantom Renaissance   Massive Assault: Расцвет Лиги  2005  [En]  2.0.164  License GOG
+Massive Assault: Phantom Renaissance   Massive Assault: Расцвет Лиги  2005  [En]  2.0.164 
 Win Старые Игры
 Strategy Tactical  RTS TBS Wargame 
 
@@ -507,7 +507,7 @@ Action  TPS
 
 ###  Публикация: 1 276 086
 
-Tomb Raider 4: The Last Revelation   Tomb Raider: Последнее откровение  1999  [Multi]  20170914  License GOG
+Tomb Raider 4: The Last Revelation   Tomb Raider: Последнее откровение  1999  [Multi]  20170
 Win Старые Игры
 Action  TPS 
 
@@ -815,7 +815,7 @@ Strategy (RTS/TBS/Grand)
 
 ###  Публикация: 1 238 516
 
-Desperados: Wanted Dead or Alive   Desperados: Взять живым или мертвым  2006  [Ru Multi]  1.R  License PLAZA
+Desperados: Wanted Dead or Alive   Desperados: Взять живым или мертвым  2006  [Ru Multi]  
 Win Старые Игры
 Strategy Tactical  RTS TBS Wargame 
 
@@ -1497,7 +1497,7 @@ Action  FPS
 
 ###  Публикация: 1 205 760
 
-Robin Hood: The Legend of Sherwood   Робин Гуд. Легенда Шервуда  2002  [En]  1.1  License GOG
+Robin Hood: The Legend of Sherwood   Робин Гуд. Легенда Шервуда  2002  [En]  1.1  License
 Win Старые Игры
 Strategy Tactical  RTS TBS Wargame 
 
@@ -1541,7 +1541,7 @@ Adventure Quest
 
 ###  Публикация: 1 204 144
 
-Peter Jackson s King Kong: The Official Game of the Movie  2005  [Ru Multi]  1.0.0.1  Repack R.G. Catalyst [Gamer s Edition]
+Peter Jackson s King Kong: The Official Game of the Movie  2005  [Ru Multi]  1.0.0.1  Re
 Win Старые Игры
 Action  TPS 
 
@@ -1563,7 +1563,7 @@ Action  TPS
 
 ###  Публикация: 1 204 089
 
-RTL Winter Sports 2008: The Ultimate Challenge   Зимний спорт 2008  2007  [Ru]  1.0  License
+RTL Winter Sports 2008: The Ultimate Challenge   Зимний спорт 2008  2007  [Ru]  1.0  Licen
 Win Старые Игры
 Simulation  Sport 
 
@@ -1673,7 +1673,7 @@ Simulation  Sport
 
 ###  Публикация: 1 203 672
 
-Alpine Ski Racing 2007   Горные лыжи: Альпийский сезон 2007  2006  [Ru]  1.0  Repack CoD- MW2
+Alpine Ski Racing 2007   Горные лыжи: Альпийский сезон 2007  2006  [Ru]  1.0  Repack CoD-
 Win Старые Игры
 Simulation  Sport 
 
@@ -1739,7 +1739,7 @@ Simulation  Sport
 
 ###  Публикация: 1 203 506
 
-Alpine Skiing 2006   Лучшие из лучших. Горный слалом 2006  2005  [Ru]  1.03  Repack CoD - MW2
+Alpine Skiing 2006   Лучшие из лучших. Горный слалом 2006  2005  [Ru]  1.03  Repack CoD -
 Win Старые Игры
 Simulation  Sport 
 

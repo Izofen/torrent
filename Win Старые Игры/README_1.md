@@ -155,7 +155,7 @@ Racing
 
 ###  Публикация: 1 684 809
 
-Jazz Jackrabbit 2 - Holiday Hare 2023  1998-2023  [Multi]  5.12+ 0.95  Repack Mod Roger_Stone
+Jazz Jackrabbit 2 - Holiday Hare 2023  1998-2023  [Multi]  5.12+ 0.95  Repack Mod Roger_
 Win Старые Игры
 AddOn DLC Mod для Игр
 
@@ -419,7 +419,7 @@ RPG
 
 ###  Публикация: 1 669 115
 
-Search and Rescue: Vietnam Med Evac   Вьетнамский апокалипсис: Служба спасения  2002  [Ru]  1.00  License
+Search and Rescue: Vietnam Med Evac   Вьетнамский апокалипсис: Служба спасения  2002  [Ru]  
 Win Старые Игры
 Simulation  Flight Space 
 

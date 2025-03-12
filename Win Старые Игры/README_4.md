@@ -155,7 +155,7 @@ RPG
 
 ###  Публикация: 1 403 622
 
-Heroes Chronicles: All Chapters   Хроники Героев: Все главы  2000-2001  [Ru]  1.0 dlc  Repack ZoTaC
+Heroes Chronicles: All Chapters   Хроники Героев: Все главы  2000-2001  [Ru]  1.0 dlc  R
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -243,7 +243,7 @@ Strategy  RTS TBS Grand
 
 ###  Публикация: 1 391 189
 
-West of Dead  2020  [Ru Multi]  1.11.8.29 dlc  License GOG [Path of the Crow Deluxe Edition]
+West of Dead  2020  [Ru Multi]  1.11.8.29 dlc  License GOG [Path of the Crow Deluxe Edit
 Win Старые Игры
 Action  FPS 
 
@@ -397,7 +397,7 @@ Strategy  RTS TBS Grand
 
 ###  Публикация: 1 379 750
 
-Shogo: Mobile Armor Division   Ярость: Восстание на Кронусе  1998  [Ru En]  2.214  Repack Evengard
+Shogo: Mobile Armor Division   Ярость: Восстание на Кронусе  1998  [Ru En]  2.214  Repac
 Win Старые Игры
 Action  FPS 
 
@@ -683,7 +683,7 @@ Adventure Quest
 
 ###  Публикация: 1 347 623
 
-Space Clash: The last frontier   Космические войны: Последний рубеж  2000  [Ru]  1.0.0.1  Repack Evengard
+Space Clash: The last frontier   Космические войны: Последний рубеж  2000  [Ru]  1.0.0.1 
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -925,7 +925,7 @@ AddOn DLC Mod для Игр
 
 ###  Публикация: 1 331 183
 
-Leisure Suit Larry: Love for Sail!   Ларри в выходном костюме 7: Любовь под парусом  1996  [Ru]  1.01  Unofficial
+Leisure Suit Larry: Love for Sail!   Ларри в выходном костюме 7: Любовь под парусом  1996  [Ru
 Win Старые Игры
 Adventure Quest
 
@@ -1585,7 +1585,7 @@ Arcade
 
 ###  Публикация: 1 309 101
 
-S.T.A.L.K.E.R.: Clear Sky   S.T.A.L.K.E.R.: Чистое небо  2008  [Ru Multi]  1.5.10  Steam-Rip ORiGiNS
+S.T.A.L.K.E.R.: Clear Sky   S.T.A.L.K.E.R.: Чистое небо  2008  [Ru Multi]  1.5.10  Steam
 Win Старые Игры
 Action  FPS 
 

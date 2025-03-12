@@ -155,7 +155,7 @@ Strategy  Manage Busin
 
 ###  Публикация: 1 111 127
 
-Star Wars™: Empire at War  2006  [Multi]  1.05.48808 1.01.58910 dlc  License GOG [Gold Pack]
+Star Wars™: Empire at War  2006  [Multi]  1.05.48808 1.01.58910 dlc  License GOG [Gold P
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -463,7 +463,7 @@ Strategy  Manage Busin
 
 ###  Публикация: 1 103 559
 
-Leisure Suit Larry 7: Love for Sail!   Ларри 7: Секс под парусом  1996  [Multi]  1.01_v2  License GOG
+Leisure Suit Larry 7: Love for Sail!   Ларри 7: Секс под парусом  1996  [Multi]  1.01_v2 
 Win Старые Игры
 Adventure Quest
 
@@ -617,7 +617,7 @@ Adventure Quest
 
 ###  Публикация: 1 099 934
 
-Kult: Heretic Kingdoms   Heretic Kingdoms: The Inquisition   Культ. Королевства ереси  2004  [Ru Multi]  1.5  License GOG
+Kult: Heretic Kingdoms   Heretic Kingdoms: The Inquisition   Культ. Королевства ереси  2004 
 Win Старые Игры
 RPG
 
@@ -705,7 +705,7 @@ RPG
 
 ###  Публикация: 1 099 131
 
-Painkiller   Painkiller: Крещеный Кровью  2005  [Ru En]  1.64 dlc  License GOG [Black Edition]
+Painkiller   Painkiller: Крещеный Кровью  2005  [Ru En]  1.64 dlc  License GOG [Black
 Win Старые Игры
 Action  FPS 
 
@@ -727,7 +727,7 @@ Action  FPS
 
 ###  Публикация: 1 099 015
 
-Marine Heavy Gunner: Vietnam   Морпех против терроризма 3: Война во Вьетнаме  2004  [Ru]  1.0.0.2  License
+Marine Heavy Gunner: Vietnam   Морпех против терроризма 3: Война во Вьетнаме  2004  [Ru]  1.
 Win Старые Игры
 Action  FPS 
 
@@ -1387,7 +1387,7 @@ Hunting Unlimited 4 - симулятор охотника, являющийся 
 
 ###  Публикация: 1 088 129
 
-Prince of Persia: The Sands of Time   Принц Персии: Пески времени  2003  [Ru Multi]  1.0.0.181  License GOG
+Prince of Persia: The Sands of Time   Принц Персии: Пески времени  2003  [Ru Multi]  1.0.0
 Win Старые Игры
 Action  TPS 
 
@@ -1453,7 +1453,7 @@ Action  FPS
 
 ###  Публикация: 1 087 700
 
-Broken Sword: The Angel of Death   Сломанный меч: Ангел смерти  2006  [Ru Multi]  1.0  License GOG
+Broken Sword: The Angel of Death   Сломанный меч: Ангел смерти  2006  [Ru Multi]  1.0  L
 Win Старые Игры
 Adventure Quest
 
@@ -1475,7 +1475,7 @@ Adventure Quest
 
 ###  Публикация: 1 087 634
 
-Broken Sword: The Sleeping Dragon   Сломанный меч 3: Спящий дракон  2003  [Multi]  1.0  License GOG
+Broken Sword: The Sleeping Dragon   Сломанный меч 3: Спящий дракон  2003  [Multi]  1.0  Li
 Win Старые Игры
 Adventure Quest
 
@@ -1607,7 +1607,7 @@ Strategy Tactical  RTS TBS Wargame
 
 ###  Публикация: 1 083 925
 
-Command & Conquer 3: Kane’s Wrath   Ярость Кейна  2008  [Ru Multi]  1.02  License PROPHET
+Command & Conquer 3: Kane’s Wrath   Ярость Кейна  2008  [Ru Multi]  1.02  License PROPHE
 Win Старые Игры
 Strategy  RTS TBS Grand 
 

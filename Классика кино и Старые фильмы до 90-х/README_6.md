@@ -179,7 +179,7 @@
 
 ###  Публикация: 1 705 188
 
-Побег из Шоушенка   The Shawshank Redemption  1994  UHD BDRip [H.265 2160p] [4K, HDR, Dolby Vision, Profile 8, 10-bit]
+Побег из Шоушенка   The Shawshank Redemption  1994  UHD BDRip [H.265 2160p] [4K, HDR, Dolby
 Классика кино и Старые фильмы до 90-х
 Зарубежная Классика (HD, FHD, UHD, 3D)
 
@@ -580,7 +580,7 @@ VA - Intense Piano Classical Music  2024  [FLAC|Lossless|WEB-DL|tracks] <Classic
 
 ###  Публикация: 1 685 029
 
-Драка в Бэттл Крик   Battle Creek Brawl  1980  BDRemux [H.264 1080p]  JAPANESE VERSION  [MVO]
+Драка в Бэттл Крик   Battle Creek Brawl  1980  BDRemux [H.264 1080p]  JAPANESE VERSION 
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
@@ -979,7 +979,7 @@ VA - Intense Piano Classical Music  2024  [FLAC|Lossless|WEB-DL|tracks] <Classic
 
 ###  Публикация: 1 672 327
 
-Ночь охотника   The Night of the Hunter  1955  UHD BDRip [H.265 2160p] [4K, HDR, Dolby Vision Profile 8, 10-bit]
+Ночь охотника   The Night of the Hunter  1955  UHD BDRip [H.265 2160p] [4K, HDR, Dolby Visio
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
@@ -1163,7 +1163,7 @@ VA - Intense Piano Classical Music  2024  [FLAC|Lossless|WEB-DL|tracks] <Classic
 
 ###  Подробнее
 
-Тед Крамер, целиком посвятив себя карьере, не замечает того, что происходит в собственной семье. Поэтому от него уходит жена, оставляя незадачливого отца заботиться о шестилетнем сыне.
+Тед Крамер, целиком посвятив себя карьере, не замечает того, что происходит в собственной семье. Поэтому от него уходит жена, оставляя незадачливого отца заботиться о шестилетнем сыне.
 
 Теперь Крамер старший должен выступить в непривычной роли: ему предстоит ухаживать за Крамером младшим, проводить с ним больше времени и, наконец, попытаться проникнуть в хрупкий     Читать дальше...    Производство: США   Columbia picturesЖанр: драмаРежиссер: Роберт БентонАктеры: Дастин Хоффман, Мэрил Стрип, Джейн Александр, Джастин Генри, Говард Дафф, Джордж Коу, ДжоБет Уильямс, Билл Мур, Хоуланд Чемберлен, Джек РэмэджПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:30
 
@@ -1647,7 +1647,7 @@ VA - Intense Piano Classical Music  2024  [FLAC|Lossless|WEB-DL|tracks] <Classic
 
 ###  Публикация: 1 653 216
 
-Слишком маленький для такой большой войны / Prea mic pentru un razboi atit de mare / Too Little for Such a Big War (1969) HDTV [H.264/1080p] [VO]
+Слишком маленький для такой большой войны / Prea mic pentru un razboi atit de mare / Too Little for
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы  HD, FHD, UHD, 3D 
 

@@ -67,7 +67,7 @@ Galaxina   Галаксина  1980  DVDRip
 
 ###  Публикация: 917 239
 
-VA - The Early Years: George Szell - The Royal Concertgebouw Recordings  2CDs   1995  [FLAC|image+.cue]<Classical, Romantic Period, Symphony, 
+VA - The Early Years: George Szell - The Royal Concertgebouw Recordings  2CDs   1995  [FLAC|
 Классика кино и Старые фильмы до 90-х
 Оркестровая (Lossless)
 
@@ -692,7 +692,7 @@ Beethoven - Symphony No.5 in C minor
 
 ###  Публикация: 857 979
 
-Beethoven: Complete String Quartets   Tokyo String Quartet [Box set 8 SACD]  2014  [DSD 5.1, 2.0 1bit 2822,4kHz | SACD-R]<Classical>
+Beethoven: Complete String Quartets   Tokyo String Quartet [Box set 8 SACD]  2014  [DSD 5.1, 2
 Классика кино и Старые фильмы до 90-х
 Классика  HD Audio 
 
@@ -769,7 +769,7 @@ Fa majeur   F-dur, Op.135
 
 ###  Публикация: 845 782
 
-Н.Л.О.: истинная история летающих тарелок   Unidentified Flying Objects: The True Story of Flying Saucers  1956  TVRip
+Н.Л.О.: истинная история летающих тарелок   Unidentified Flying Objects: The True Story of Flying
 Классика кино и Старые фильмы до 90-х
 Зарубежная Классика (SD)
 
@@ -1223,7 +1223,7 @@ Nox Arcana - Winters Majesty  2012  [MP3|320 кб с] <Neo-Classical, Renaissanc
 
 ###  Публикация: 720 649
 
-Расцвет мисс Джин Броди   Мисс Джин Броди в расцвете лет   The Prime of Miss Jean Brodie  1969  DVDRip
+Расцвет мисс Джин Броди   Мисс Джин Броди в расцвете лет   The Prime of Miss Jean Brodie  1969
 Классика кино и Старые фильмы до 90-х
 Зарубежная Классика  SD 
 
@@ -1386,7 +1386,7 @@ Nox Arcana - Winters Majesty  2012  [MP3|320 кб с] <Neo-Classical, Renaissanc
 ###  Подробнее
 
 Комедийный художественный фильм, снятый в СССР в 1941 году. Экранизация произведения Гоголя  Повесть о том, как поссорился Иван Иванович с Иваном Никифоровичем . Входит в сборник «Миргород» .
-Впервые опубликована в альманахе А. Ф. Смирдина «Новоселье»  часть 2-я, 1834 , с подзаголовком «Одна из неизданных былей пасичника Рудого Панька».
+Впервые опубликована в альманахе А. Ф. Смирдина «Новоселье»  часть 2-я, 1834 , с подзаголовком «Одна из неизданных былей пасичника Рудого Панька».
 
 Как поссорились Иван Иванович с Иваном Никифоровичем? Зашёл Иван Иванович к своему закадычному другу Ивану Никифоровичу, желая выпросить понравившееся ружьё. Да не сложилось. И в пылу спора Иван Никифорович возьми да и назови Ивана Ивановича гусаком. А тот возьми да и разгневайся. А что было дальше… Ой, что было!..Жанр: КомедияРежиссер: Андрей Кустов, Анисим МазурАктеры: Владимир Попов, Сергей Блинников, Владимир Владиславский, Осип Абдулов, Фёдор Курихин, Фаина Раневская  в роли Горпины , Иван Лагутин, Кларина Фролова, Надежда Березовская, Иван Любезнов, Михаил Поволоцкий, Иона Бий-Бродский, Мария Барабанова, Алексей Консовский  в роли Н.В. Гоголя Продолжительность: 01:06:10
 
@@ -1716,7 +1716,7 @@ Nox Arcana - Winters Majesty  2012  [MP3|320 кб с] <Neo-Classical, Renaissanc
 
 ###  Публикация: 656 284
 
-Antonio Lucio Vivaldi- Concerti con molti strumenti: Europa Galante, conductor Fabio Biondi  2004   2005 Virgin Classics  [flac|Lossless]<Cham
+Antonio Lucio Vivaldi- Concerti con molti strumenti: Europa Galante, conductor Fabio Biondi  2004<
 Классика кино и Старые фильмы до 90-х
 Камерная  Lossless 
 

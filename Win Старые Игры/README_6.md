@@ -155,7 +155,7 @@ Carmageddon TDR2000 - продолжение игры Carmageddon и Carmageddon
 
 ###  Публикация: 1 199 344
 
-Space Empires IV   Space Empires 4   Космическая Империя 4  2000  [Ru En]  1.0  License GOG [Deluxe Edition]
+Space Empires IV   Space Empires 4   Космическая Империя 4  2000  [Ru En]  1.0  Licens
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -177,7 +177,7 @@ Strategy  RTS TBS Grand
 
 ###  Публикация: 1 199 283
 
-Return to Mysterious Island   Возвращение на таинственный остров  2004  [Ru Multi]  1.03  License GOG
+Return to Mysterious Island   Возвращение на таинственный остров  2004  [Ru Multi]  1.03<4
 Win Старые Игры
 Adventure Quest
 
@@ -221,7 +221,7 @@ Terminus - космический симулятор с реальной физ�
 
 ###  Публикация: 1 197 569
 
-Wolfenstein Anthology  1981-2015  [Ru Multi]  1.0 1.4 1.41 1.2 1.0.0.2 1.0.0.0 dlc  Repack R.G. Catalyst
+Wolfenstein Anthology  1981-2015  [Ru Multi]  1.0 1.4 1.41 1.2 1.0.0.2 1.0.0.0 d
 Win Старые Игры
 Action  FPS 
 
@@ -287,7 +287,7 @@ Strategy Tactical (RTS/TBS/Wargame)
 
 ###  Публикация: 1 196 192
 
-Tomb Raider: The Angel of Darkness   Tomb Raider: Ангел Тьмы  2003  [En Ge]  20171016  License GOG
+Tomb Raider: The Angel of Darkness   Tomb Raider: Ангел Тьмы  2003  [En Ge]  20171016  L
 Win Старые Игры
 Action (TPS)
 
@@ -375,7 +375,7 @@ Strategy (RTS/TBS/Grand)
 
 ###  Публикация: 1 192 994
 
-Alien Shooter + Expansions   Alien Shooter: Начало вторжения  2003  [Ru En]  1.2 dlc  License GOG
+Alien Shooter + Expansions   Alien Shooter: Начало вторжения  2003  [Ru En]  1.2 dlc 
 Win Старые Игры
 Arcade
 
@@ -397,7 +397,7 @@ Arcade
 
 ###  Публикация: 1 192 842
 
-Earth 2150: Moon Project   Земля 2150: Дети Селены  2000  [Ru Multi]  2.1.0.1  License GOG
+Earth 2150: Moon Project   Земля 2150: Дети Селены  2000  [Ru Multi]  2.1.0.1  License G
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -441,7 +441,7 @@ Strategy (RTS/TBS/Grand)
 
 ###  Публикация: 1 192 822
 
-Earth 2150: Escape from the Blue Planet   Земля 2150: Война миров  2000  [Ru Multi]  2.8.7.1  License GOG
+Earth 2150: Escape from the Blue Planet   Земля 2150: Война миров  2000  [Ru Multi]  2.8.7
 Win Старые Игры
 Strategy  RTS TBS Grand 
 
@@ -507,7 +507,7 @@ Action (TPS)
 
 ###  Публикация: 1 192 586
 
-Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.0b_update) License GOG
+Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.0b_update) License G
 Win Старые Игры
 RPG
 
@@ -573,7 +573,7 @@ Strategy Tactical (RTS/TBS/Wargame)
 
 ###  Публикация: 1 191 350
 
-Sherlock Holmes: The Case of the Silver Earring   Шерлок Холмс. Загадка серебряной сережки  2004  [Ru Multi]  1.0  License GOG
+Sherlock Holmes: The Case of the Silver Earring   Шерлок Холмс. Загадка серебряной сережки  2004
 Win Старые Игры
 Adventure Quest
 
@@ -1651,7 +1651,7 @@ Adventure Quest
 
 ###  Публикация: 1 163 455
 
-American Civil War: Gettysburg   Гражданская Война: Решающий Удар  2005  [Ru]  1.01  License
+American Civil War: Gettysburg   Гражданская Война: Решающий Удар  2005  [Ru]  1.01  Licen
 Win Старые Игры
 Strategy Tactical  RTS TBS Wargame 
 
@@ -1739,7 +1739,7 @@ Nu Earth: отравленная планета, где бушует на вид
 
 ###  Публикация: 1 160 572
 
-Heroes of Might and Magic V  2006  [Ru En]  1.6 2.1 3.1  Repack R.G. Origami [Gold Edition]
+Heroes of Might and Magic V  2006  [Ru En]  1.6 2.1 3.1  Repack R.G. Origami [Gold Edi
 Win Старые Игры
 Strategy Tactical  RTS TBS Wargame 
 

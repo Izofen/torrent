@@ -89,7 +89,7 @@ Bicycle Board Games - это лицензированный сборник на�
 
 ###  Публикация: 1 760 047
 
-Call of the Wild: The Angler (2022) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay [Ultimate Fishing Bundle]
+Call of the Wild: The Angler (2022) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay [Ultimate Fishing Bundle
 Win Старые Игры
 Simulation (Sport)
 
@@ -485,7 +485,7 @@ AddOn/DLC/Mod для Игр
 
 ###  Публикация: 1 746 638
 
-Nancy Drew: Last Train to Blue Moon Canyon / Нэнси Дрю. Последний поезд в Лунное ущелье (2005) [Ru] (1.0) License Новый Диск
+Nancy Drew: Last Train to Blue Moon Canyon / Нэнси Дрю. Последний поезд в Лунное ущелье (2005) [Ru]
 Win Старые Игры
 Adventure/Quest
 
@@ -507,7 +507,7 @@ Nancy Drew: Last Train to Blue Moon Canyon - детективная игра п�
 
 ###  Публикация: 1 746 636
 
-Nancy Drew: The White Wolf of Icicle Creek / Нэнси Дрю. Белый волк Ледяного ущелья (2007) [Ru] (4.04) License Новый Диск
+Nancy Drew: The White Wolf of Icicle Creek / Нэнси Дрю. Белый волк Ледяного ущелья (2007) [Ru] (4.04
 Win Старые Игры
 Adventure/Quest
 
@@ -573,7 +573,7 @@ Action (TPS)
 
 ###  Публикация: 1 744 071
 
-Nancy Drew: Danger on Deсeption Island / Нэнси Дрю. Туманы острова Лжи (2003) [Ru] (1.0) License Новый Диск
+Nancy Drew: Danger on Deсeption Island / Нэнси Дрю. Туманы острова Лжи (2003) [Ru] (1.0) License Нов
 Win Старые Игры
 Adventure/Quest
 
@@ -595,7 +595,7 @@ Nancy Drew: Danger on Deception Island - детективный квест пр�
 
 ###  Публикация: 1 743 959
 
-Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой руки (2002) [Ru] (1.0) License Новый Диск
+Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой руки (2002) [Ru] (1.0) License Новый
 Win Старые Игры
 Adventure/Quest
 
@@ -793,7 +793,7 @@ Racing
 
 ###  Публикация: 1 737 915
 
-Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под Солнцем (2007) [Ru] (1.0) License Руссобит-М
+Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под Солнцем (2007) [Ru] (1.0) License Руссоб
 Win Старые Игры
 Adventure/Quest
 
@@ -991,7 +991,7 @@ Action (FPS)
 
 ###  Публикация: 1 724 388
 
-Wolfenstein 3D (1992-2020) [En] (2.01.2020) Repack/Mod 1nomok [Beyond the Grave: Anniversary Edition]
+Wolfenstein 3D (1992-2020) [En] (2.01.2020) Repack/Mod 1nomok [Beyond the Grave: Anniversary Edition
 Win Старые Игры
 AddOn/DLC/Mod для Игр
 
@@ -1013,7 +1013,7 @@ AddOn/DLC/Mod для Игр
 
 ###  Публикация: 1 724 323
 
-Warcraft 3: Expansion Set / Военное Ремесло 3: Расширенный набор (2002) [Ru/En] (1.31.1/dlc) Unofficial
+Warcraft 3: Expansion Set / Военное Ремесло 3: Расширенный набор (2002) [Ru/En] (1.31.1/dlc) Unoffic
 Win Старые Игры
 Strategy (RTS/TBS/Grand)
 
@@ -1035,7 +1035,7 @@ Warcraft III - культовая компьютерная игра в жанр�
 
 ###  Публикация: 1 724 258
 
-Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое издание (1999) [Ru/En] (2.02.4/dlc) Repack dixen18
+Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое издание (1999) [Ru/En] (2.02.4/dlc) Repa
 Win Старые Игры
 Strategy (RTS/TBS/Grand)
 
@@ -1475,7 +1475,7 @@ Action (FPS)
 
 ###  Публикация: 1 708 174
 
-The Lord of the Rings: War of the Ring / Властелин колец: Война Кольца (2003) [Ru/En] (1.1, 1.01.0011) Repack Decepticon
+The Lord of the Rings: War of the Ring / Властелин колец: Война Кольца (2003) [Ru/En] (1.1, 1.01.001
 Win Старые Игры
 Strategy (RTS/TBS/Grand)
 
@@ -1585,7 +1585,7 @@ Strategy  RTS TBS Grand
 
 ###  Публикация: 1 700 700
 
-Cossacks: Back to War   Казаки. Снова война  2002  [Ru En]  1.35 dlc  Repack Decepticon
+Cossacks: Back to War   Казаки. Снова война  2002  [Ru En]  1.35 dlc  Repack Deceptico
 Win Старые Игры
 Strategy (RTS/TBS/Grand)
 
@@ -1651,7 +1651,7 @@ RPG
 
 ###  Публикация: 1 696 716
 
-Dungeon Siege: Legends of Aranna   Осада подземелья: Легенды Аранны  2003  [En]  1.1.462 dlc  License
+Dungeon Siege: Legends of Aranna   Осада подземелья: Легенды Аранны  2003  [En]  1.1.462 d
 Win Старые Игры
 RPG
 
@@ -1695,7 +1695,7 @@ Action (TPS)
 
 ###  Публикация: 1 691 998
 
-Heroes of Might and Magic III: Horn of the Abyss   Герои меча и магии III: Рог Бездны  2011  [Ru En]  1.7.0  Repack Mod HotA Crew
+Heroes of Might and Magic III: Horn of the Abyss   Герои меча и магии III: Рог Бездны  2011  [
 Win Старые Игры
 AddOn DLC Mod для Игр
 

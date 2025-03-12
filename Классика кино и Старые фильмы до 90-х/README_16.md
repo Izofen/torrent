@@ -357,7 +357,7 @@ Ezietto – Memories  2015  [MP3|320 кб с] <Instrumental, Neo-Classical, Elec
 
 ###  Публикация: 966 096
 
-J.S. Bach, F. Stiedry - The Art Of Fugue  orchestral version  - Hans Zender  2002  [FLAC|image + cue] <Classical, Baroque Period, Orchestro, F
+J.S. Bach, F. Stiedry - The Art Of Fugue  orchestral version  - Hans Zender  2002  [FLAC|ima
 Классика кино и Старые фильмы до 90-х
 Оркестровая  Lossless 
 
@@ -471,7 +471,7 @@ J.S. Bach, F. Stiedry - The Art Of Fugue  orchestral version  - Hans Zender  200
 
 ###  Публикация: 961 882
 
-Monteverdi - L incoronazione di Poppea  Nikolaus Harnoncourt & Concentus musicus Wien   3CDs   2009  [FLAC|Lossless]<Claassical, Baroque
+Monteverdi - L incoronazione di Poppea  Nikolaus Harnoncourt & Concentus musicus Wien   3CDs
 Классика кино и Старые фильмы до 90-х
 Вокал  Lossless 
 
@@ -1079,7 +1079,7 @@ Act Two
 
 ###  Публикация: 946 245
 
-Приключения Бакару Банзая в восьмом измерении   The Adventures of Buckaroo Banzai Across the 8th Dimension  1984  HDTV [H.264 1080i]
+Приключения Бакару Банзая в восьмом измерении   The Adventures of Buckaroo Banzai Across the 8th D
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы  HD, FHD, UHD, 3D 
 
@@ -1146,7 +1146,7 @@ Act Two
 
 ###  Публикация: 937 723
 
-Beethoven - Symphonies and Overtures  Jos Van Immerseel & Anima Eterna Orchestra  6CDs   2008  [FLAC|image +.cue]<Classical, Orchestral, R
+Beethoven - Symphonies and Overtures  Jos Van Immerseel & Anima Eterna Orchestra  6CDs   2
 Классика кино и Старые фильмы до 90-х
 Оркестровая (Lossless)
 
@@ -1193,7 +1193,7 @@ Symphonie 9 Op.125 d min
 
 ###  Публикация: 936 442
 
-Wagner and Weber - Symphonies in C  Ari Rasilainen & Norwegian Radio Orchestra   2000  [FLAC|image +.cue]<Classical, Romantic Period, Orchestr
+Wagner and Weber - Symphonies in C  Ari Rasilainen & Norwegian Radio Orchestra   2000  [FLAC
 Классика кино и Старые фильмы до 90-х
 Оркестровая (Lossless)
 
@@ -1218,7 +1218,7 @@ Symphony in C major, WWV 29
 
 ###  Публикация: 936 362
 
-Спасшиеся с острова Черепахи   Les naufrages de l ile de la Tortue  1976  DVDRip [H.264] [VO]
+Спасшиеся с острова Черепахи   Les naufrages de l ile de la Tortue  1976  DVDRip [H.264] [VO
 Классика кино и Старые фильмы до 90-х
 Старые Зарубежные Фильмы (SD)
 
