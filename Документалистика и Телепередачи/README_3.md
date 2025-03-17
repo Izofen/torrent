@@ -23,7 +23,7 @@
 
 ###  Публикация: 1 488 531
 
-BBC. Водопой: Африканский Оазис для Животных   Waterhole: Africa s Animal Oasis  2020  WEB-DL [H.264 1080p]  серии 1-3 из 3 
+BBC. Водопой: Африканский Оазис для Животных   Waterhole: Africa s Animal Oasis  2020  WEB-D
 Документалистика и Телепередачи
 Живая природа
 
@@ -67,7 +67,7 @@ BBC. Водопой: Африканский Оазис для Животных  
 
 ###  Публикация: 1 477 397
 
-Япония с высоты птичьего полета   Japan from above  2018  WEB-DL [H.264 2160p]  сезон 1, серии 1-2 из 2 
+Япония с высоты птичьего полета   Japan from above  2018  WEB-DL [H.264 2160p]  сезон 1, с
 Документалистика и Телепередачи
 Клуб кинопутешествий
 
@@ -111,7 +111,7 @@ BBC. Водопой: Африканский Оазис для Животных  
 
 ###  Публикация: 1 469 833
 
-Пастер и Кох. Дуэль гигантов в мире микробов   Pasteur & Koch: Un duel de geants dans la guerre des microbes  2018  IPTVRip [H.264]
+Пастер и Кох. Дуэль гигантов в мире микробов   Pasteur & Koch: Un duel de geants dans la guerre de
 Документалистика и Телепередачи
 Горячие новинки
 
@@ -288,7 +288,7 @@ SATELLIKE - художественные пейзажи Азии, созданн
 
 ###  Публикация: 1 456 073
 
-Повелись! Правдивая история о фальшивом искусстве   Made You Look: A True Story About Fake Art  2020  WEBRip  H264 1080p 
+Повелись! Правдивая история о фальшивом искусстве   Made You Look: A True Story About Fake Art  
 Документалистика и Телепередачи
 Горячие новинки
 
@@ -378,7 +378,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 454 930
 
-Затерянное королевство пиратов   The Lost Pirate Kingdom  2021  WEBRip  сезон 1, серии 1-6 из 6 
+Затерянное королевство пиратов   The Lost Pirate Kingdom  2021  WEBRip  сезон 1, серии 1-6 и
 Документалистика и Телепередачи
 История
 
@@ -422,7 +422,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 454 188
 
-Рождение легенды   Фильм про фильм  2014-2021  DVB [MPEG-2 720p-LQ]  серии 1-16 из ?   Обновляемая 
+Рождение легенды   Фильм про фильм  2014-2021  DVB [MPEG-2 720p-LQ]  серии 1-16 из ?  <5
 Документалистика и Телепередачи
 Посвящение искусству
 
@@ -444,7 +444,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 452 589
 
-Моя жизнь, снятая Николасом Виндингом Рефном   My Life Directed by Nicolas Winding Refn  2014  WEB-DL [H.264 1080p] [MVO]
+Моя жизнь, снятая Николасом Виндингом Рефном   My Life Directed by Nicolas Winding Refn  2014 
 Документалистика и Телепередачи
 Горячие новинки
 
@@ -554,7 +554,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 437 027
 
-Галерея Disney: Мандалорец   Disney Gallery: Star Wars: The Mandalorian  2020  WEB-DL [H.264 720p-LQ]  сезон 2, серии 1 из 8  AMS [AD]  
+Галерея Disney: Мандалорец   Disney Gallery: Star Wars: The Mandalorian  2020  WEB-DL [H.264<3
 Документалистика и Телепередачи
 Посвящение искусству
 
@@ -576,7 +576,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 437 025
 
-Галерея Disney: Мандалорец   Disney Gallery: Star Wars: The Mandalorian  2020  WEB-DL [H.264 1080p-LQ]  сезон 2, серии 1 из 8  AMS [AD] <5
+Галерея Disney: Мандалорец   Disney Gallery: Star Wars: The Mandalorian  2020  WEB-DL [H.264<3
 Документалистика и Телепередачи
 Посвящение искусству
 
@@ -620,7 +620,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 425 335
 
-Как Хрущев покорял Америку  Хрущёв уделывает Америку    Khrushchev Does America  2013  WEB-DL [H.264 720p]
+Как Хрущев покорял Америку  Хрущёв уделывает Америку    Khrushchev Does America  2013  WEB
 Документалистика и Телепередачи
 История
 
@@ -686,7 +686,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 421 478
 
-Жизнь в большом городе. Париж   The Life-Sized City. Paris  2017  IPTV [H.264 1080p]  Сезон 1, серии 1 из 6 
+Жизнь в большом городе. Париж   The Life-Sized City. Paris  2017  IPTV [H.264 1080p]  Сезо
 Документалистика и Телепередачи
 Клуб кинопутешествий
 
@@ -708,7 +708,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 420 721
 
-Тайны Арктики   Arctic Secrets  2016  UHDTVRip [H.264 1080p]  сезон 1, серии 1-5 из 5  [PR]
+Тайны Арктики   Arctic Secrets  2016  UHDTVRip [H.264 1080p]  сезон 1, серии 1-5 из 5  [
 Документалистика и Телепередачи
 Живая природа
 
@@ -752,7 +752,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 418 647
 
-Афганистан. Неизвестная война инженерных войск  2020  WEB-DL [H.264 1080p]  серии 1-4 из 4 
+Афганистан. Неизвестная война инженерных войск  2020  WEB-DL [H.264 1080p]  серии 1-4 из 4<4
 Документалистика и Телепередачи
 Отечественная история
 
@@ -818,7 +818,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 418 004
 
-Легенды. Герои дикой природы   Wildlife Icons  2017  HDTVRip [H.264 1080p]  Сезон 2, серии 1-6 из 6 
+Легенды. Герои дикой природы   Wildlife Icons  2017  HDTVRip [H.264 1080p]  Сезон 2, серии
 Документалистика и Телепередачи
 Живая природа
 
@@ -1044,7 +1044,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 395 931
 
-Обитаемый остров. Обитаемый остров. Остров Исландия   The Island Diaries. Iceland  2018  HDTV [H.264 1080i]
+Обитаемый остров. Обитаемый остров. Остров Исландия   The Island Diaries. Iceland  2018  HDTV
 Документалистика и Телепередачи
 Клуб кинопутешествий
 
@@ -1155,7 +1155,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 388 045
 
-Дикая Германия   Дикая природа Германии   Wildes Deutschland  2014-2016  BDRemux [H.264 1080p]  сезон 4, серии 1-8 из 8  [VO]
+Дикая Германия   Дикая природа Германии   Wildes Deutschland  2014-2016  BDRemux [H.264 10
 Документалистика и Телепередачи
 Живая природа
 
@@ -1177,7 +1177,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 387 974
 
-Водный мир Африки   Waterworld Africa  2015-2016  IPTV [H.264 1080p-LQ]  Сезон 1, серии 1-8 из 8 
+Водный мир Африки   Waterworld Africa  2015-2016  IPTV [H.264 1080p-LQ]  Сезон 1, серии 1-
 Документалистика и Телепередачи
 Живая природа
 
@@ -1288,7 +1288,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 348 084
 
-Тайная история человеческой эволюции   The Secret History of our Evolution  2018  HDTVRip [H.264 1080p-LQ]  серии 1-2 из 2 
+Тайная история человеческой эволюции   The Secret History of our Evolution  2018  HDTVRip [H.2
 Документалистика и Телепередачи
 Горячие новинки
 
@@ -1310,7 +1310,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 347 496
 
-Рыцари   Terra X - Rätsel alter Weltkulturen: Die Welt der Ritter  2014  IPTVRip [H.264]  серии 1-3 из 3 
+Рыцари   Terra X - Rätsel alter Weltkulturen: Die Welt der Ritter  2014  IPTVRip [H.264]  се
 Документалистика и Телепередачи
 История
 
@@ -1598,7 +1598,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 315 460
 
-Нерассказанная история Украины  В борьбе за Украину    Revealing Ukraine  2019  HDTVRip [H.264 1080p-LQ]
+Нерассказанная история Украины  В борьбе за Украину    Revealing Ukraine  2019  HDTVRip [H
 Документалистика и Телепередачи
 Политика и пропаганда, публицистика и экономика
 
@@ -1664,7 +1664,7 @@ HD Suisse: Swiss View - Berner Oberland  2007  HDTV [H.264 1080p] [50fps]
 
 ###  Публикация: 1 307 164
 
-Поля сражений   Champs de bataille  2014-2018  HDTVRip  1-10 серии из 24??   Обновляемая 
+Поля сражений   Champs de bataille  2014-2018  HDTVRip  1-10 серии из 24??   Обновляемая
 Документалистика и Телепередачи
 История
 
