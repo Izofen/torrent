@@ -1,4 +1,295 @@
 ﻿
+###  Публикация: 1 341 684
+
+Сурганова и Оркестр - Юбилейный концерт. 15 лет  2019  Live @ Crocus City Hall, Москва, 1 декабр
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Интро
+2. Всё сначала
+3. Белые люди
+4. Гонки    Читать дальше...    Жанр: RockПродолжительность: 02:10:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1A12751E60D8113C9341D669F0B87CD4968512BE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341684.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 341 681
+
+Машина времени - Просыпается ветер  2019  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Просыпается ветерЖанр: RockПродолжительность: 00:04:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BFD46C3C62F687D164C41A253692BF1A48521DAB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341681.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 340 519
+
+Plotnik82 - Смерть глотает блесну  2019  [MP3|320 Kbps] <Electronic Rock, Acoustic, Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Не помогает  3:35 
+02. Четвёртые сутки  3:38 
+03. Смерть глотает блесну  4:24 
+04. Роуминг  3:17     Читать дальше...    Жанр: Electronic Rock, Acoustic, RockПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:95C2FA9213484799A726E4983C1F0DC45D4C5C49
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340519.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 340 322
+
+Ночные Снайперы - секунду назад  2019  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. секунду назадЖанр: RockПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:104E668961F44F5DE88C1495B4CFA9D9BFE4F963
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340322.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 340 321
+
+Сурганова и Оркестр - Да будет свет  2019  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Да будет светЖанр: RockПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:010565DCF9FB5E3CED864CF5C6453BF0873C6215
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340321.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 340 084
+
+Чайф - Слова на бумаге  2019  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Чей чай горячей  Original Version 
+02. Ночью выпал снег
+03. Все девушки Бонда
+04. Время придёт выбирать    Читать дальше...    Жанр: RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0C4289B0B2F04A42861391F4B9DC25BF7353B06A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340084.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 339 966
+
+Ария - Легенды русского рока  1998  Remastered, 2019, Moroz Records [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Волонтёр  Remastered 2019 
+2. Торерo  Remastered 2019 
+3. Воля и разум  Remastered 2019 
+4. Дай руку мне  Remastered 2019     Читать дальше...    Жанр: Heavy MetalПродолжительность: 02:31:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EF96163E7EE0D7A4F62665210F59A75D1A15414C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339966.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 339 964
+
+Слот - 4ever  2009  10th Anniversary Edition, 2019, M2BA [MP3|320 Kbps] <Alternative>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+CD 1:
+1. Ангел О.К.
+2. Flash Mob
+3. Небо    Читать дальше...    Жанр: AlternativeПродолжительность: 01:23:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE88AB5BB7A218A27393D34BA3289C33C256C8B3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339964.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 338 317
+
+Вячеслав Бутусов & Орден Славы - Аллилуия  2019  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Герои
+02. Кровавая река
+03. Идиот
+04. К ангелам    Читать дальше...    Жанр: RockПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E6BEE05AB894E0A81B4CF68F37129FE9719ADF6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1338317.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 338 278
+
+Дельфин  Dolphin  - КРАЙ  2019  [MP3|320 Kbps] <Electronic, Trip-Hop>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. J2000.0
+02. Лето
+03. Joy Stick
+04. МСКВ    Читать дальше...    Жанр: Electronic, Trip-HopПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B23347E4CB0140149A3DC6332961651F56371543
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1338278.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 338 051
+
+Пилот - Рыба, крот и свинья  15 лет спустя   2019  Live [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Рок  версия 2019 
+2. Вольная птица  версия 2019 
+3. Блюз  версия 2019 
+4. Шнурок  версия 2019     Читать дальше...    Жанр: RockПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:748337B9593E9DCE54AE911E9C9FF4798559E6F3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1338051.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 337 468
+
+Алексей Чернышёв и Алексей Булгаков - Память  2019  [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Еловый Аромат
+02. Укрощение Огня
+03. Скользкий Путь
+04. Не Жалей    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A47A28D973F8D161F4D9A0D3D9220AAEA17C7CB2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1337468.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 337 427
 
 Margenta - Вентиль-провокация  2019  [MP3|320 Kbps] <Heavy Metal>
@@ -1687,300 +1978,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1314273.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 313 377
-
-АНТИМАТЕРИЯ - 4 Альбома, 1 Сингл  2013-2018  [MP3|320 Kbps] <Synth-rock, Post-punk, Electrogoth>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Одна из самых заметных групп, появившихся за последнее время на так называемой «тёмной сцене». За срок своего существования команда отыграла далеко не одну сотню концертов на абсолютно разных площадках нашей необъятной Родины и успела обзавестись массой преданных поклонников. Группа создана в 2009 году, выпустила множество демо-записей, в 2013 выпустила дебютную     Читать дальше...    2013 - Кривые Откровения
-2016 - Общество социопатов
-2017 - Танцы под кожей
-2018 - Под нейтральным флагом  EP Жанр: Synth-rock, Post-punk, ElectrogothПродолжительность: 02:45:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:20760FD167C1AA8176C4AA4C450E34825E44F075
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1313377.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 313 252
-
-Ночные Снайперы - Невыносимая легкость бытия  2019  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Разбуди меня
-2. Нелюбовь
-3. Раскаленные
-4. Грустные люди    Читать дальше...    Жанр: RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:786710A26DC43E2B14646AA8B37CFDBF53D4BAD5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1313252.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 312 851
-
-Зоя Ященко и группа Белая Гвардия - Письма из прошлого  2019  [MP3|320 Kbps] <Sentimental Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Новая лодка
-2. Грустно трамвай...
-3. Ты ветер
-4. Балерины и лошади    Читать дальше...    Жанр: Sentimental RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D14E6A85DD59C3C05FAF71B6C1082E89FF4488EA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312851.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 312 528
-
-Stigmata - Калейдоскоп  2019  [MP3|320 Kbps] <Acoustic Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Истории
-2. Цунами
-3. До девятой ступени
-4. Сожжённый дотла    Читать дальше...    Жанр: Acoustic RockПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:41BE3963CD2C33862CFC016BF86B4A1F91D78168
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312528.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 884
-
-The Hatters - Forte & Piano  2019  [MP3|320 Kbps] <Rock, Ska, Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Forte  Sounds Like Teen Spirit 
-2. Обижен
-3. Я твой
-4. Танцы    Читать дальше...    Жанр: Rock, Ska, Punk RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CED05F19631938A75F1384A2273E79A6B98834E8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311884.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 310 052
-
-Горшенев - Одиночество  2019  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. ОдиночествоЖанр: RockПродолжительность: 00:05:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E23130B8DD966874FD56F67D0C8AA575002530C3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1310052.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 309 816
-
-Комсомольск - День психа  2019  EP [MP3|320 Kbps] <Indie Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Что спрятано в моих карманах
-2. Чёрный квадрат
-3. Эйфелева башня
-4. Мы ищем человека    Читать дальше...    Жанр: Indie RockПродолжительность: 00:19:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B91CF6269A40060D1AEB4AF539E7E754B216FB8B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1309816.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 306 657
-
-Дана Соколова - Мыслепад  2018  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Остров грехов
-2. Только вперёд
-3. Разведи небо
-4. Мыслепад    Читать дальше...    Жанр: RockПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7D35FF67AE9DBEAD204F4C331D7851D251C20591
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306657.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 306 634
-
-Ленинград - i_$uss  2019  Single [MP3|320 Kbps] <Rock, Ska>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. i_$ussЖанр: Rock, SkaПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6AC728D77D922F2211E7D3724032FC647494066C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306634.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 306 189
-
-LAMPOCHKA & Abazur - Вкл Выкл  2019  [MP3|320 kbps] <Pop-Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Признание  03:46 
-02. Где мое сердце?  03:38 
-03. Малышка  04:53 
-04. Поцелуй  03:34     Читать дальше...    Жанр: Pop-RockПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:817930B840521C5AB73055C0F7EA5D2F62EEF8F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306189.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 305 741
-
-План Ломоносова - Концерт по заявкам  2019  Live [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Москва–Питер
-2. Газета
-3. Панк-опера
-4. Океан Аоио    Читать дальше...    Жанр: Punk RockПродолжительность: 01:42:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2EBC274BC16A9F48897F55261E652B67114AA936
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1305741.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 305 738
-
-Крематорий - Легенды Русского Рока  1996  Remastered, 2019, Moroz Records [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Белые столбы  Remastered 2019 
-2. Лепрозорий  Remastered 2019 
-3. Маленькая девочка  Remastered 2019 
-4. Твари  Remastered 2019     Читать дальше...    Жанр: RockПродолжительность: 01:20:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F3BBEA922F34EF708FCFA21DE88B5D4F1016DDDD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1305738.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

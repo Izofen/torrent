@@ -1,4 +1,304 @@
 ﻿
+###  Публикация: 1 366 022
+
+Sergey Golovin - Satellite  2019  [MP3|320 kbps] <Progressive Metal, Djent, Instrumental Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Loader  1:30 
+02. Renegade  5:15 
+03. Horizon Runner  5:04 
+04. Satellite  5:15     Читать дальше...    Жанр: Progressive Metal, Djent, Instrumental RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:267CDF03B3830BC95FA5F8449FF307423EF1D691
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366022.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 365 987
+
+ВеданЪ КолодЪ - 7 Альбомов  2005-2020  7CDr [MP3|192-320 Kbps] <Slavanian Folk, Ethno>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+2005-Племена
+2007-Танец Леших
+2008-Волчья Тропа
+2010-У Кривой ДорогиЖанр: Slavanian Folk, EthnoПродолжительность: 05:03:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F37CB35B605042D16838618563AAB25ABAF7D943
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1365987.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 365 920
+
+VA - Славянский Хардкор  Compilation   2013-2017  [MP3|320 Kbps] <Hardcore, Metalcore, Beatd
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Камаедзiца - Беларуская Песня [00:07:00]
+02. Вервь - Расход [00:04:07]
+03. CG Bros. - Роктолераст [00:02:51]
+04. Grimfire - За Спиной [00:03:05]    Читать дальше...    Жанр: Hardcore, Metalcore, Beatdown, HatecoreПродолжительность: 3 CD, 03:11:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:67F1ABBDAC5DF2AC2B1C27ED7168A0AFE826CB7A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1365920.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 365 918
+
+VA - Из Нави В Явь  Compilation   2011-2014  [MP3|~190 Kbps  V2 ] <Pagan Folk Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Далiна - Бескрайние просторы Матери-Земли  BLR  [00:03:18]
+02 - Omut - ...  BLR  [00:05:10]
+03 - Веремій - Гуляйполе  UKR  [00:03:19]
+04 - Бастион - Моя Земля  RUS  [00:05:25]    Читать дальше...    Жанр: Pagan Folk MetalПродолжительность: 3 CD, 08:22:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4F551891903BE0AF96CAF4FA6A1D7B1DAD1F5BD3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1365918.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 365 681
+
+Василий К. - Найти человека  2020  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Можешь не бриться
+2. Самое лучшее
+3. Найти человека
+4. Держава    Читать дальше...    Жанр: RockПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0B4EE6A6FA31010D60024F492B0C1F81448E2501
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1365681.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 365 627
+
+Мария-Режина - 6 Relised  2013-2022  [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Золотой Капрал [00:04:59]
+02 - Королева Песков [00:03:22]
+03 - Распад [00:04:57]
+04 - Голем [00:05:10]    Читать дальше...    Жанр: Heavy MetalПродолжительность: 6CD, 04:20:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3AA9E02AAC280809B1CB5315456067EB989AA4D2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1365627.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 365 621
+
+Дом Гнева - Дом Гнева  2020  [MP3|320 Kbps] <Folk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Поле [00:03:41]
+02 - Побудь со мной [00:04:05]
+03 - Нерождённая [00:03:03]
+04 - Если я [00:03:55]    Читать дальше...    Жанр: FolkПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:38034D12AA0FCB8F00073663F1D86D5CC4513EAE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1365621.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 365 198
+
+VA - Прощай, оружие, ч.1: Замкнутый круг  2020  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Владислава Рукавишникова - Когда он ещё верил в мир
+2. Алексей Караковский и Происшествие - Майор Савельев
+3. Выбыл - Хотели
+4. Хроноп - В руках дурака    Читать дальше...    Жанр: RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DC709C6D25E3B9D10B8C24C511BD2C0C8F8C6143
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1365198.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 365 188
+
+НОМ - Весёлая карусель  2020  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Ну, погоди!
+2. Антошка
+3. В лесу родилась ёлочка
+4. Сорняки    Читать дальше...    Жанр: RockПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD27861B3D9550855D3E2CBA88DFA3FCDC5204DC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1365188.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 365 116
+
+VA - Охота 92  2020  [MP3|320 Kbps] <Rock, Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. LOENGREEN - Пусть всё остаётся как есть
+2. Сергей Баринцев - Кони
+3. Sky Fashion - Melancholic Park
+4. КолинВал - Дорожная    Читать дальше...    Жанр: Rock, Indie RockПродолжительность: 01:12:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45F1B161A25D4163DC9DB97CD25853807AF5CCF1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1365116.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 364 846
+
+Sellout - Я остаюсь  2020  [MP3|320 Kbps] <Punk Rock, Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Пой со мной  feat. СЛОТ 
+2. Промолчим
+3. Забери меня с собой
+4. В космической хрущёвке  feat. Операция Пластилин     Читать дальше...    Жанр: Punk Rock, RockПродолжительность: 00:29:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:11F1163B4B9B589F06534C3BF7C01355EC601A3E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364846.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 364 415
+
+Skrin - Синтетика  2020  [MP3|320 Kbps] <Modern Metal, Metalcore>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 Посмотри назад [00:04:00]
+02  Исповедь [00:03:39]
+03 Два шага [00:04:16]
+04 Теряя себя [00:04:40]    Читать дальше...    Жанр: Modern Metal, MetalcoreПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E4533F22AC839CBFC4DBCA914EFE5A99338A5350
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364415.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 364 120
 
 Архипанк - Антиутопия  2020  [MP3|320 Kbps] <Nu-Metal, Hardcore-Punk, Female Extreme Vocal>
@@ -1655,297 +1955,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341780.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 684
-
-Сурганова и Оркестр - Юбилейный концерт. 15 лет  2019  Live @ Crocus City Hall, Москва, 1 декабр
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Интро
-2. Всё сначала
-3. Белые люди
-4. Гонки    Читать дальше...    Жанр: RockПродолжительность: 02:10:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1A12751E60D8113C9341D669F0B87CD4968512BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341684.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 681
-
-Машина времени - Просыпается ветер  2019  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Просыпается ветерЖанр: RockПродолжительность: 00:04:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFD46C3C62F687D164C41A253692BF1A48521DAB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341681.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 340 519
-
-Plotnik82 - Смерть глотает блесну  2019  [MP3|320 Kbps] <Electronic Rock, Acoustic, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Не помогает  3:35 
-02. Четвёртые сутки  3:38 
-03. Смерть глотает блесну  4:24 
-04. Роуминг  3:17     Читать дальше...    Жанр: Electronic Rock, Acoustic, RockПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:95C2FA9213484799A726E4983C1F0DC45D4C5C49
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340519.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 340 322
-
-Ночные Снайперы - секунду назад  2019  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. секунду назадЖанр: RockПродолжительность: 00:03:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:104E668961F44F5DE88C1495B4CFA9D9BFE4F963
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340322.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 340 321
-
-Сурганова и Оркестр - Да будет свет  2019  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Да будет светЖанр: RockПродолжительность: 00:03:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:010565DCF9FB5E3CED864CF5C6453BF0873C6215
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340321.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 340 084
-
-Чайф - Слова на бумаге  2019  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Чей чай горячей  Original Version 
-02. Ночью выпал снег
-03. Все девушки Бонда
-04. Время придёт выбирать    Читать дальше...    Жанр: RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0C4289B0B2F04A42861391F4B9DC25BF7353B06A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340084.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 966
-
-Ария - Легенды русского рока  1998  Remastered, 2019, Moroz Records [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Волонтёр  Remastered 2019 
-2. Торерo  Remastered 2019 
-3. Воля и разум  Remastered 2019 
-4. Дай руку мне  Remastered 2019     Читать дальше...    Жанр: Heavy MetalПродолжительность: 02:31:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EF96163E7EE0D7A4F62665210F59A75D1A15414C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339966.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 964
-
-Слот - 4ever  2009  10th Anniversary Edition, 2019, M2BA [MP3|320 Kbps] <Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-CD 1:
-1. Ангел О.К.
-2. Flash Mob
-3. Небо    Читать дальше...    Жанр: AlternativeПродолжительность: 01:23:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DE88AB5BB7A218A27393D34BA3289C33C256C8B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339964.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 338 317
-
-Вячеслав Бутусов & Орден Славы - Аллилуия  2019  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Герои
-02. Кровавая река
-03. Идиот
-04. К ангелам    Читать дальше...    Жанр: RockПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E6BEE05AB894E0A81B4CF68F37129FE9719ADF6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1338317.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 338 278
-
-Дельфин  Dolphin  - КРАЙ  2019  [MP3|320 Kbps] <Electronic, Trip-Hop>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. J2000.0
-02. Лето
-03. Joy Stick
-04. МСКВ    Читать дальше...    Жанр: Electronic, Trip-HopПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B23347E4CB0140149A3DC6332961651F56371543
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1338278.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 338 051
-
-Пилот - Рыба, крот и свинья  15 лет спустя   2019  Live [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Рок  версия 2019 
-2. Вольная птица  версия 2019 
-3. Блюз  версия 2019 
-4. Шнурок  версия 2019     Читать дальше...    Жанр: RockПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:748337B9593E9DCE54AE911E9C9FF4798559E6F3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1338051.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 337 468
-
-Алексей Чернышёв и Алексей Булгаков - Память  2019  [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Еловый Аромат
-02. Укрощение Огня
-03. Скользкий Путь
-04. Не Жалей    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A47A28D973F8D161F4D9A0D3D9220AAEA17C7CB2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1337468.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

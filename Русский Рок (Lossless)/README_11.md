@@ -1,4 +1,302 @@
 ﻿
+###  Публикация: 1 609 679
+
+Слот - XX лет  Live   2023  [MP3|320 Kbps] <Alternative Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Бой!  Live  [00:04:56]
+02 - Доска  Live  [00:03:54]
+03 - 200 кВт  Live  [00:03:26]
+04 - На Марс!  Live  [00:05:11]    Читать дальше...    Жанр: Alternative MetalПродолжительность: 01:54:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA501CAF2B4F02AE453776CD0B64C50FEAB344AE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609679.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 609 459
+
+ОгнеДар  экс Цианид  - 5 Relises  2022-2023  [MP3|320 Kbps] <Pagan Folk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+Огнедар - 2022 - Русские топоры
+Огнедар - 2022 - Старые и новые песни
+Огнедар - 2022 - Территория правды    Читать дальше...    Жанр: Pagan Folk RockПродолжительность: 5 CD, 03:32:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3CA4C2E41A77C797604C17534AC6EBA127F1EDF0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609459.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 609 444
+
+Devilgroth - 2 Albums  2018-2023  [MP3|320 Kbps] <Black Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Astral Journey [00:09:10]
+02. Siberian Moonlit Night [00:10:11]
+03. Encomium [00:07:46]
+04. Freezing Infestation [00:08:40]    Читать дальше...    Жанр: Black MetalПродолжительность: 2 CD, 02:10:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:62EE62A5F61564668B45BACEB8817C4C2A97349E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609444.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 609 443
+
+нежнотлею - Бледнее чем смерть  2023  EP [MP3|320 Kbps] <Alternative>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Немного ниже [00:04:13]
+02 - Look At Your Game Girl  Intro  [00:00:35]
+03 - Тай, тай, тай [00:02:32]
+04 - Готика [00:03:49]    Читать дальше...    Жанр: AlternativeПродолжительность: 00:17:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B3EF0C23D60A4DCC537ADBD5FCE242E8CCD2864E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609443.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 609 403
+
+Дядя Миша - Тоська-Сука И Другие Песни  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Тоська-Сука [00:02:57]
+02 - Зараза [00:01:59]
+03 - Отелло [00:04:09]
+04 - Восточная [00:01:37]    Читать дальше...    Жанр: RockПродолжительность: 00:29:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC40D9AA6E0F4E8497088C4578ED34FDF8C38C4F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609403.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 609 381
+
+Виталий Дубинин - Бал-Маскарад. Постскриптум  2023  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Evil In Your Eyes [00:05:28]
+02 - Здесь и сейчас [00:05:44]
+03 - Следуй за мной [00:04:20]
+04 - Наполеон  No Orchestra Version  [00:08:52]    Читать дальше...    Жанр: RockПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A1477766EDA4312AED4676A0F30AE88F0B19B33A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609381.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 609 374
+
+ЩЕНКИ - ЩЕНКИ: Хиты  2023  Deluxe Edition [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Intro
+2. Шрамы  Interview 
+3. Шрамы
+4. Сублимация  Interview     Читать дальше...    Жанр: Punk RockПродолжительность: 01:44:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A2DDB0BC2207C7741BA31BEC067486B7E685767
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609374.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 609 282
+
+ЗЬМЯЯ - Роберто  2021  [MP3|320 Kbps] <Post Rock, Pop Rock, Female Vocal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Роберто
+02. Границ
+03. Бесстыжие танцы
+04. Откровенно так    Читать дальше...    Жанр: Post Rock, Pop Rock, Female VocalПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AFC32D855B8AB2D3E17F662BB8C77C90433B7972
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609282.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 609 173
+
+Контрибуция - Гробовщик Взял Предоплату  2023  [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Грабёж По Закону
+02. Одной Ногой В Могиле
+03. 27
+04. Что-То Задумал    Читать дальше...    Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:39:46
+deezer
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:816F3EBEBEED92677BBC026CCAD986037A58D527
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609173.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 609 167
+
+VA - Оргазм Нострадамуса: Трибьют Vol.1-2  2020-2023  [MP3|320 Kbps] <Alternative, Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Жанр: Alternative, RockПродолжительность: 2 CD, 01:56:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A8F9C8C5999F061473CDB6849EE71CCB6B07E47D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609167.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 608 992
+
+Юрий Шевчук И Группа ДДТ - Сборник Песен  2021  [OGG Vorbis|480 Kbps] <Rock, Classic Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Белая Река
+02. В Последнюю Осень
+03. Просвистела
+04. Что Такое Осень    Читать дальше...    Жанр: Rock, Classic RockПродолжительность: 01:31:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89B3650C8A88CEFE1B720DCF6CB1CF292655ACB4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608992.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 608 749
+
+Рогатая Нога - Первая кровь  2023  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Цепеш [00:03:52]
+02 - Распутин [00:02:56]
+03 - Царь [00:05:05]
+04 - Вдова [00:03:12]Жанр: RockПродолжительность: 00:15:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04BF8DEDA34048728A579CCADD33E8929CB859F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608749.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 608 709
 
 Лучший Самый День - Мёртвых больше, чем живых  2021  [MP3|320 Kbps] <Punk Rock, Pop Punk>
@@ -1692,306 +1990,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599154.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 042
-
-МУККА - 2 Albums  2021-2022  [MP3|320 Kbps] <Alternative, Abstract Hip-Hop>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Интро [00:01:13]
-02. Химия [00:03:14]
-03. Жди меня дома [00:03:24]
-04. Северные ветра [00:03:52]    Читать дальше...    Жанр: Alternative, Abstract Hip-HopПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C41518DAB5D9A139632D197E96952BC3EF20E55B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599042.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 937
-
-Tet Rishonot - Девять первых  2022  [MP3|320 Kbps] <Hard Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Крик ищущих [00:01:48]
-02 - Не сдюжили мы, Батя [00:02:27]
-03 - Слепота [00:03:16]
-04 - Когда мы станем говорить [00:02:39]    Читать дальше...    Жанр: Hard RockПродолжительность: 00:24:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DBFEFD83B20421DF9FDDDF6A15EA5EA97F3298B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598937.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 814
-
-ротврот - 3 Albums  2018-2022  [MP3|320 Kbps] <Alternativo, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2018 - Из гаража
-2020 - Смола
-2022 - ГраницыЖанр: Alternativo, RockПродолжительность: 3 CD, 01:01:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E8A14CC2192B09EFFC8C45E69C164029C30B43F4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598814.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 385
-
-Sonic Death - 4 Albums  2020-2022  [MP3|320 Kbps] <Garage Rock, Hardcore Punk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2020 - Russian Gothic
-2020 - После нас тишина
-2021 - Ночь Длинных Баллад    Читать дальше...    Жанр: Garage Rock, Hardcore PunkПродолжительность: 4 CD, 02:15:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6691D1251B3F7D409BB4F73A264BE5D2E97A4FD4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598385.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 228
-
-The Zapoy! - 5 Albums  2015-2022  [MP3|320 Kbps] <Street Punk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2007-2015 - Compilation
-2019 - Bring It On!
-2019 - Skinhead Power    Читать дальше...    Жанр: Street PunkПродолжительность: 5 CD, 02:39:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F0ADAFED247DA1C059D9D7CCDEC75BA6E00A409C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598228.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 157
-
-STRADIE  STRΛDIE  - Кровоточие  2022  [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Industria
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Катабасис [00:03:07]
-02. Экстирпация [00:04:36]
-03. Вера [00:04:25]
-04. Кровоточие [00:03:56]    Читать дальше...    Жанр: Gothic Metal, IndustrialПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B4080C3B02C7B4F0C037116B5543F354C7FC5E8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598157.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 947
-
-Котик ДжеймS - 2 Albums  2021-2022  [MP3|320 Kbps] <Soft punk,  Alternativo, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Мечты [00:03:51]
-02. Королева [00:04:23]
-03. Муравей [00:05:00]
-04. Наркоман [00:03:10]    Читать дальше...    Жанр: Soft punk,  Alternativo, RockПродолжительность: 2 CD, 00:56:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:962F0545285FF0C13ED45A1AAB4F43F980DCF72D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597947.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 807
-
-Сосо Павлиашвили - Жизнь это рок-н-ролл  2022  [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Жизнь это рок-н-ролл [00:04:06]
-02. Мама аллилуйя [00:04:43]
-03. Волчица [00:03:49]
-04. Леди, леди  Посвящается группе Creedence  [00:03:49]    Читать дальше...    Жанр: RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F3939AEC92E1687DF58F9C219CEB4F8FBB66FB6D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597807.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 757
-
-И.Л.И. - 3 Albums  2022  [MP3|320 Kbps] <Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2022 - Внутри ёжика
-2022 - Ло-зун-ги!  И выводы 
-2022 - МаргиналгородЖанр: AlternativeПродолжительность: 3 CD, 01:23:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87BB9F652C3668042BEC0BDF254BB2CDD9E9B872
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597757.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 542
-
-Smoke Of Isengard - Orc Metal  2022  [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Stoner Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Smaug... the Dragon [00:05:09]
-02. Dwarf Hunter [00:05:11]
-03. Shire Tobacco [00:04:42]
-04. The Last Trooper [00:05:16]    Читать дальше...    Жанр: Death Metal, Stoner MetalПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A1269F683BDAF2F5C19028C6F439830E180B316
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597542.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 535
-
-Skaльпель - ВОВРЕМЯ  2022  [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Если я [00:02:33]
-02. На бегу [00:03:30]
-03. По проспекту [00:03:18]
-04. Веришь или нет? [00:02:53]    Читать дальше...    Жанр: Ska, Punk-RockПродолжительность: 00:31:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B5D7AF35E75EC0CBCED18162CD533EBCF0E7056
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597535.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 463
-
-Hyzzterezis - Reckoning  2020  [FLAC|Lossless|image + .cue] <Death Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Path of Logic 04:23
-02. Chant of Flesh 03:46
-03. Reckoning 04:24
-04. Sun in an Hourglass 04:58    Читать дальше...    Жанр: Death MetalПродолжительность: 00:30:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7BFBDCD98E374B6760ABEDCC97D8DFB9FC3D5D4F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597463.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

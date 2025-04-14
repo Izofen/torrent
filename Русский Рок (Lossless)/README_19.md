@@ -1,4 +1,305 @@
 ﻿
+###  Публикация: 1 480 663
+
+2ва Самолёта - Лучшее, Часть 1  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Два самаля
+2. Madness
+3. Ё-моё
+4. Ваня Солнцев    Читать дальше...    Жанр: RockПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:407AAF22B5D67A045DC36F85DF3DEF3A2D52F3FC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1480663.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 480 477
+
+Красная плесень - Best  1997-2000   2021  [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Тырлы-пырлы  New Version 
+2. Вечный бой  New Version 
+3. Федя  New Version 
+4. Укуренный волшебник  New Version     Читать дальше...    Жанр: Punk RockПродолжительность: 01:44:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:72B598CC44E0314E7D8B52D4E06B7BC81EEFD871
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1480477.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 480 304
+
+Джоконда - Каждый охотник желает знать  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Состав группы:
+Елена Минина - вокал, рояль, музыка, тексты
+Кирилл Поставной - гитара
+Ринат Насыров - бас-гитара    Читать дальше...    01. Симфония [4:55]
+02. Каждый охотник желает знать [4:26]
+03. На краю [4:09]
+04. Костры из книг [3:54]    Читать дальше...    Жанр: RockПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7E0BF5B11F98793AF7ECFB9F81A3E17FCBA1358A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1480304.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 479 692
+
+Тараканы! - Naked Kings  2021  [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Louder Than Thunder
+2. My Generation
+3. Naked King
+4. Shawshank Redemption    Читать дальше...    Жанр: Punk RockПродолжительность: 00:19:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3366DD36FF3C54EF240025BB9F5FA40922F9FB76
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1479692.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 478 844
+
+Игорь Кулагин - Коллекция  2015-2021  3 альбома [MP3|320 Kbps] <Rock, Blues, Blues Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Истеричная песня
+02. Шейк на песке
+03. Электрический глаз
+04. Владивосток EXPO    Читать дальше...    Жанр: Rock, Blues, Blues RockПродолжительность: 02:25:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21BAB6C16CEB2818E6B40353C300EDB6CBB81C89
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478844.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 478 225
+
+Margenta - Маги и маглы  2021  [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Пророчество
+2. Гарри Поттер - детство сердца и беда!
+3. На смерть профессора Альбуса Дамблдора. Реквием
+4. Носок для Добби    Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:34:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C58F04BC1F3F0005AB5DC766C11D162A5C3C797E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478225.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 478 177
+
+Fun Mode - Небо над Барренсом  2017  [MP3|320 Kbps] <Rock, Alternative>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Мы все играем в Warcraft [3:44]
+02. 3.3.5 [4:08]
+03. Про рогу [3:37]
+04. И удалил [2:35]    Читать дальше...    Жанр: Rock, AlternativeПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:199765544015E6CB2FE295693650504F4C50132F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478177.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 478 080
+
+Tune-O-Matic  Тюноматик  - 3 Albums  2012-2021  [MP3|320 Kbps] <Russian Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Часы  Колыбельная  [00:03:09]
+02. Предварительный анализ [00:06:40]
+03. Кинозал тюрьмы [00:05:23]
+04. Иди по воде! [00:04:40]    Читать дальше...    Жанр: Russian RockПродолжительность: 3CD, 02:52:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E885DE8BFAFF6C40EC554F03490585083432B326
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478080.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 478 045
+
+Сэнсэй - В темноте  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Умножить на ноль [00:04:01]
+02 - На другом берегу [00:04:12]
+03 - Коробки для снов [00:05:15]
+04 - Мы все так похожи [00:03:52]    Читать дальше...    Жанр: RockПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C22ACC7177813C18E963C642004F90980CF16A9A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478045.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 477 544
+
+Би-2 - Нам не нужен герой  2021  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Нам не нужен герой
+2. Падал свет  feat. Моя Мишель, Юрий Каспарян, Глеб Колядин, Алексей Мещеряков, Антон Давидянц Жанр: RockПродолжительность: 00:10:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD8121254926B98F9A9ECCEB94306359EFA9E3ED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1477544.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 477 318
+
+Капитан Лис - Портовые Шлюхи, 2CD  2021  [MP3|320 Kbps] <Folk Rock, Folk Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Портовые Шлюхи  Rock Edition  [00:02:22]
+02. Нахер Шторм!  Rock Edition  [00:02:08]
+03. Чарка Рома  Rock Edition  [00:02:23]
+04. Горизонт  Rock Edition  [00:02:28]    Читать дальше...    Жанр: Folk Rock, Folk MetalПродолжительность: 2CD, 00:40:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C8F79CA5905BDAF162C910A2C645AB63CD26A8EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1477318.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 477 311
+
+Teach Every Mary - Сотня фунтов за голову Тича  2021  [MP3|320 Kbps] <Heavy Metal, Folk Metal, P
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Баба на корабле [00:03:31]
+02 - Сотня фунтов за голову Тича [00:03:10]
+03 - Слава Безумцам! [00:03:23]
+04 - Королева пиратов [00:03:39]    Читать дальше...    Жанр: Heavy Metal, Folk Metal, Pirate MetalПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F52EDDC4D3ADCC8A6D61EEBAAAAF94C60CB516C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1477311.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 477 308
 
 Selva - Selva  2021  EP [MP3|320 Kbps] <Alternative Rock>
@@ -1692,302 +1993,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462605.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 603
-
-Гаснет Свет - Aurum Et Sanguinem  2021  [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Эпитафия
-2. Падение  feat. Евгений Егоров, Елена Минина 
-3. Исход  feat. Алексей Страйк 
-4. Шепот  feat. Олег Жиляков, Сергей Терентьев, Расул Салимов     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D40CB8D6C41E9ED04D20122F68CFA47CE7A0B123
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462603.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 235
-
-КерамикА - Журналюги  2021  EP [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Журналюги
-2. Посадочный
-3. КоняшкаЖанр: RockПродолжительность: 00:11:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6FCEF693774254C6606E9BFA5D03F3BD36308F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462235.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 077
-
-Браво & Евгений Осин - Скажем мы друг другу  Браво!   1989  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-По случаю 60-летнего юбилея первого полета человека в космос, мы решили приурочить к этой дате релиз нашего альбома  Скажем мы друг другу  Браво! , который был записан в далеком 1989 году, но до сих пор не был представлен официально в нашей дискографии. Одна из заглавных песен с этого альбома как раз посвящена выдающемуся человеку - Юрию Гагарину!     Читать дальше...    1. На танцплощадке
-2. Юрий Гагарин
-3. Звёздный Шейк
-4. Мне грустно и легко    Читать дальше...    Жанр: RockПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97F4840C195B4EC4263EAB76E278027B0A1B0224
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462077.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 040
-
-Sellout - Микрорайоны потухших глаз  2021  [MP3|320 Kbps] <Punk Rock, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Русская боль
-2. Андеграунд на Руси
-3. Мама, я Панк  feat. Смех 
-4. В плену панических атак  feat. Операция Пластилин     Читать дальше...    Жанр: Punk Rock, RockПродолжительность: 00:34:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0506DDD3B988A3E76CBA5EAE4E8339FAC39566CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462040.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 038
-
-Земфира - Северный Ветер  2021  Original Motion Picture Soundtrack [MP3|320 Kbps] <Rock, OST>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Северная прелюдия
-2. Фанни
-3. Шкатулка
-4. Ария Дивы    Читать дальше...    Жанр: Rock, OSTПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5143347CC08BA5B305F598A298C0B79C5F97E7BD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462038.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 461 205
-
-Кино - 45  1982  Remastered, 2021, AnTrop [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Время есть, а денег нет
-02. Алюминиевые огурцы
-03. Бездельник №1
-04. Просто хочешь ты знать    Читать дальше...    Жанр: RockПродолжительность: 01:28:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6422BB9A9130D5790C634AA6EFA621F6BA2A90EE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461205.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 715
-
-Вячеслав Бутусов & Орден Славы - Гудбай, Америка!  2021  Single [MP3|320 Kbps] <Rock, Electronic
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Гудбай, Америка!  2021 Жанр: Rock, ElectronicПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6C7E286D6B086F2120FCCAD99553C6B0C1AE473
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460715.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 459 565
-
-Звери - Очень  2021  EP [MP3|320 Kbps] <Pop Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Очень
-2. Город
-3. Поздно
-4. Диагонали    Читать дальше...    Жанр: Pop RockПродолжительность: 00:21:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AFF20D094592E3B0AA7D76874445BAA38156B1DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1459565.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 459 365
-
-Александр Пушной - Каверы Пушного  2021  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Трава у дома  cover version 
-2. От винта!  cover version 
-3. 6 кадров  cover version 
-4. День рожденья  cover version     Читать дальше...    Жанр: RockПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C8B96B4769FEF6D7B2BE78C79723DF43312C0127
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1459365.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 458 896
-
-Константин Сапрыкин - Пассажир  2021  [MP3|~245 Kbps  V0 ] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Рок-звезда [00:04:04]
-02 - Эксцентриситет [00:05:11]
-03 - Живой [00:06:15]
-04 - Последнее письмо [00:03:22]    Читать дальше...    Жанр: RockПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:985A05249159EE70FEEBB5A6D17E2A703B014729
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1458896.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 458 781
-
-Biopsyhoz  Биопсихоз  - Перерождение  2021  [MP3|320 Kbps] <Alternative, EBM, Industrial>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Люди На Б-Люде
-2. Стадный Инстинкт
-3. Встань В Позу
-4. Я Твой ... Клоун    Читать дальше...    Жанр: Alternative, EBM, IndustrialПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5EB9127C73E5200E99E564EC59805FA575035E3B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1458781.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 458 611
-
-The Solarburst - 2 Albums, 1 Single  2017-2021  [MP3|320 Kbps] <Alternative, Post-Hardcore, Elec
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Российский интернет проект из Брянска, играющий музыку вне жанровых рамок01. D.F. [00:03:40]
-02. It s Personal [00:03:29]
-03. Dreaming Out Loud [00:03:15]
-04. Even If [00:03:38]    Читать дальше...    Жанр: Alternative, Post-Hardcore, ElectronicПродолжительность: 01:27:36  3CD 
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1073D4A9C1542C2594B2F3AB0F59727180EB2FCE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1458611.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
