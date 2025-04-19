@@ -1,4 +1,579 @@
 ﻿
+###  Публикация: 1 047 691
+
+Modern Talking - Remixes 2  2007  [FLAC|Lossless|tracks + .cue] <Euro Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Geronimo s Cadillac  Long Vocal Version   5:06 
+02. Brother Louie  Instrumental Version   4:02 
+03. TV Makes The Superstar  Extended Version   5:04 
+04. You Are Not Alone  Extended Version   4:55     Читать дальше...    Жанр: Euro DiscoПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:97BF411988709E093BB37E407C5B014FE92A8F0C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047691.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 047 587
+
+Saragossa Band - Saragossa  1980  Ariola, 1993 [FLAC|Lossless|image + .cue] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Rasta Man
+02. Chico Cipito
+03. Samba Olé, Rumba Ok  Making Bum Bum All Night 
+04. Going Up, Going Down    Читать дальше...    Жанр: DiscoПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E8B98DB20A1E79B57CE8D2EB21DFAB3B65A2A8F5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047587.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 047 368
+
+Modern Talking - Remixes  2005  [FLAC|Lossless|tracks + .cue] <Euro Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Space Mix  98  4:30 
+02. Jet Airliner  Fasten-Seat-Belt Mix   5:50 
+03. Ready For The Victory  Club Version   5:11 
+04. You re My Heart, You re My Soul  Instrumental   3:58     Читать дальше...    Жанр: Euro DiscoПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:048499C99518E44F5D7AA804CFF19DE8EF5DF3F4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047368.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 935
+
+VA - Hit Explosion - Latin Workout  2016  [MP3|320 Kbps] <Euro Dance, Pop Dance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Dj-Chart - La Bomba 03:59
+02. Ivan Herb - Larga Vida En Vivo 03:07
+03. Masterbeat - Take On Me  Live Version  03:25
+04. Cuba Club - Cuba  Sunset Crew Radio Edit  03:07    Читать дальше...    Жанр: Euro Dance, Pop DanceПродолжительность: 02:35:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3922E33F17A4BA8BE77AB62A3D67B88A66BB2678
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046935.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 902
+
+Dschinghis Khan - Best Of Dschinghis Khan  2012  [FLAC|Lossless|tracks + .cue] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Dschinghis Khan  03:04 
+02. Himalaya  04:17 
+03. Pistolero  04:18 
+04. Wir sitzen alle im selben Boot  04:00     Читать дальше...    Жанр: DiscoПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F76BCFC333FFBFDC91525301E3EEF45FD204000
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046902.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 609
+
+VA - Unclassics: Obscure Electronic Funk & Disco 1978-1985  2004  CD [MP3|320 Kbps] <Electronic,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Untro -  Untro  0:07 
+02. Discotheque -  Disco Special  4:54 
+03. Zodiac -  Pacific  3:49 
+04. Pluton & Humanoids -  World Invaders  4:46     Читать дальше...    Жанр: Electronic, Italo-Disco, Deep House, DiscoПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B78441F2EE157C72E74E3C9A898D279AE855327B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046609.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 567
+
+VA - I-Robots - Italo Electro Disco Underground Classics  2004  CD [MP3|320 Kbps] <Electronic, I
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Charlie -  Spacer Woman  7:30 
+02. Capricorn -  I Need Love  6:14 
+03. Sun la shan -  Catch  Dub Version   5:26 
+04. Peter Richard -  Walking In The Neon  Club Version   8:20     Читать дальше...    Жанр: Electronic, Italo-DiscoПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FF4869DBEA6EB9A7770E460EC9F68BAE9DC7FBFE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046567.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 562
+
+Celine Dion  Céline Dion  - Encore un soir  2016  Deluxe Version [FLAC|Lossless|WEB-DL|track
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Plus qu ailleurs  3:38 
+02. L étoile  3:14 
+03. Ma faille  3:51 
+04. Encore un soir  4:23     Читать дальше...    Жанр: Pop, French Chanson, Vocal, BalladПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63D9D9C833B6A2800DC3D5C7DF6D4841C4A2B2DF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046562.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 468
+
+Moon Birds - 2 Albums  1977, 1978  [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Французский студийный проект в стиле  спейс-диско  композитора, продюсера и режиссера Гумберта Ибахе  Humbert Ibach, настоящее имя Умберто Петруччи  с привлечением сессионных музыкантов.01. Cosmos No. 1  2:20 
+02. Fly In The Night  3:08 
+03. Safari Rock 1  2:17 
+04. Safari Rock 2  2:20     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:74A0C5FD5E3C4E5E08FAC1DBB3C0BC6CC1D1BDD7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046468.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 405
+
+Ingrid Michaelson - It Doesn t Have to Make Sense  2016  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Light Me Up
+02. Whole Lot of Heart
+03. Miss America
+04. Another Life    Читать дальше...    Жанр: PopПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F304B92DE362D03175E73654142039E97B7D9289
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046405.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 346
+
+Celine Dion - Encore un soir  2016  Deluxe Edition [MP3|320 Kbps] <Pop, French Chanson>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Пластинку «Encore Un Soir» Селин Дион посвятила своему мужу, который ушёл из жизни в январе 2016 года. Заглавный сингл с альбома ещё в мае дебютировал на первых строчках французских чартов.01. Plus qu ailleurs
+02. L étoile
+03. Ma faille
+04. Encore un soir  Album Version     Читать дальше...    Жанр: Pop, French ChansonПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E5222CF4F550D55FFBE09E97B8D8BB8802A2E88E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046346.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 327
+
+VA - Underground Nu-Disco Sessions Vol.6  2016  [MP3|320 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Drone In Ibiza - Back In That Days - Original Mix
+02. Mr. Stylus - Right Now - Original Mix
+03. Elber Florentino - Santa Monica Sunset - Original Mix
+04. Bruno Costa - Escudo - Original Mix    Читать дальше...    Жанр: DiscoПродолжительность: 02:28:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A7146578305A0A31F7E13104999495616A36C2AF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046327.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 217
+
+Britney Spears - Glory  2016  Deluxe Edition  Explicit  [FLAC|Lossless|WEB-DL|tracks] <Pop,
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Invitation  3:19 
+02. Make Me...  feat. G-Eazy   3:51 
+03. Private Show  3:55 
+04. Man On The Moon  3:46     Читать дальше...    Жанр: Pop, Electronic, Electro, Vocal, Ballad, SynthpopПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91754673CBD01BBA73CFE480A2BBD462264E0353
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 046 119
+
+Rob Thomas - The Great Unknown  2015  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. I Think We d Feel Good Together  Adrien Gough, Rob Thomas, Henry Walter  03:00
+ 02. Trust You  Ryan Tedder, Rob Thomas, Noel Zancanella  03:08
+ 03. Hold On Forever  Rob Thomas  03:35
+ 04. Wind It Up  Rob Thomas  03:09    Читать дальше...    Жанр: PopПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3D57F8607C6E569F006617D37A11392743E1F341
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1046119.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 045 024
+
+Britney Spears - Glory  2016  Deluxe Version [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Invitation  3:18 
+02. Make Me...  feat. G-Eazy   3:51 
+03. Private Show  3:54 
+04. Man On The Moon  3:46     Читать дальше...    Жанр: PopПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AF82A9E6ACF1AC5ADB9689C8F6603600CF7DE12D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1045024.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 044 933
+
+VA - The Best Nostalgia Album. In The World... Ever!  1997  Compilation [FLAC|Lossless|tracks +
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Fever  Peggy Lee  [03:22]
+02. Mona Lisa  Nat King Cole  [03:29]
+03. Volare  Dean Martin  [03:01]
+04. Spanish Eyes  Al Martino  [02:48]    Читать дальше...    Жанр: Retro, Pop, Pop RockПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:49785D97E822F6F4230992E06DBA246CD3D7E799
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044933.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 044 900
+
+Michael Jackson - Thriller: 25th Anniversary Edition  1982  Remastered, 2008, Epic Legacy [FLA
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Wanna Be Startin  Somethin   6:02 
+ 02. Baby Be Mine  4:20 
+ 03. The Girl Is Mine  3:42 
+ 04. Thriller  5:57     Читать дальше...    Жанр: Pop, SoulПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC30F5871375BF187FD1600A2E6901150A1EA309
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044900.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 044 687
+
+Trix - 2 Albums  1981, 1982  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Трио  Тrix  - это сёстры-близняшки, певицы и актрисы из Аргентины, более известны в Южной Америке и Испании под именем  Trillizas de Oro . Сёстры Maria Laura, Maria Emilia и Maria Eugenia Fernandez Roussee родились 5 июля 1960 г. Самые известные их песни -  C est La Vie  и  Fantasy  вышли в 1980 году. Близняшки также сыграли     Читать дальше...    01. Just Wanna Dance Tonight  3:46 
+02. Got To Get The Feeling Again  3:29 
+03. A Man With Attraction  3:36 
+04. A Lot More  3:05     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A083A0E04BD767956B024485D3FE08F38787ED21
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044687.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 044 629
+
+Snoopy - Snoopy  1979  LP [MP3|320 Kbps] <Electronic, Disco, Reggae, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. It s All In The Bible  3:11 
+02. Down The Bayou  3:06 
+03. Rain, Snow And Ice  2:47 
+04. Honolulu  3:04     Читать дальше...    Жанр: Electronic, Disco, Reggae, PopПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BAE595CF1C068EF653FFE3C16CEC111838CF4E4C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044629.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 044 426
+
+VA - Now That s What I Call Music 59  2016  [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Po
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Now That s What I Call Music 59 - является 59-ым изданием  серии Now! в Соединенных Штатах. Он был выпущен 5 августа 2016 года. Это сборник 22 треков и его особенность в том, что в нем собраны, в том числе, хиты номер один Billboard Hot 100, такие как,  Justin Timberlake - Can t Stop The Feeling, Sia & Sean Paul - Cheap Thrills с участием Шона Пола и Panda в исполнении     Читать дальше...    01. Justin Timberlake - Can t Stop The Feeling   3:54 
+02. The Chainsmokers & Daya - Don t Let Me Down   3:26 
+03. Sia & Sean Paul - Cheap Thrills   3:39 
+04. Meghan Trainor - No   3:31     Читать дальше...    Жанр: Pop, Electronic, Pop-RockПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D0B1E8F89F748C557E3A1912F33CB97135CE9810
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044426.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 044 307
+
+Grand Prix - Mach 1  1983  LP [MP3|320 Kbps] <Electronic, Italo-Disco, Electro>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Cruisin   5:21 
+02. Challenger  5:02 
+03. Crash Barrier  4:40 
+04. Grand Prix  4:51     Читать дальше...    Жанр: Electronic, Italo-Disco, ElectroПродолжительность: 00:29:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90C9B1C13A1366EF0F9FB3F7C1B4E1921AC1D580
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044307.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 044 157
+
+VA - Disco Tape Vol 4  2016  [MP3|320 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Firefly - You Make Me Happy  5:09 
+02. Change - Oh What a Feeling  12 Paul Hardcastle Remix   5:31 
+03. Styloo - Pretty Face  6:08 
+04. Peter Jacques Band - Everybody Have a Party  Peter Slaghuis Remix   6:27     Читать дальше...    Производство: RLT RecordsЖанр: DiscoПродолжительность: 01:56:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A6064EFEDC309FE22C8833A7CD52E4EE4C85AAB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044157.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 044 087
+
+Евгений Осин - Разлука  2016  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Любимая
+02. Белая метель
+03. На тропинке
+04. Рыбацкая    Читать дальше...    Жанр: PopПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:71BA0160926DF9A054C2E3B42093CF319A004F55
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044087.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 043 966
 
 Lake Street Dive - Side Pony  2016  [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Pop>
@@ -1418,582 +1993,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035308.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 035 236
-
-Dicte - Perfume  2016  [FLAC|Lossless|tracks + .cue] <Pop, Soul>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Don t Wanna Lie
-2. All I Want Is You
-3. Mama Said
-4. Stronger    Читать дальше...    Жанр: Pop, SoulПродолжительность: 0:38:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:92A3A5547956D83C1026C658679AF509141919D5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035236.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 035 151
-
-Bananarama - The Greatest Hits Collection  1999  [MP3|320 Kbps] <Europop, Euro House, Synth-pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01.  Venus  3:42
-02.  I Heard A Rumour  3:27
-03.  Love In The First Degree  3:31
-04.  I Can t Help It  3:31    Читать дальше...    Жанр: Europop, Euro House, Synth-popПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BE075337903DE1252871C6837D986DEB52EEDE8B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035151.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 035 128
-
-M People - Best Of  Unknown Year  Unofficial Release [APE|Lossless|image + .cue] <Progressive Ho
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Moving On Up
-02. Angel St.
-03. Dreaming
-04. One Night In Heaven    Читать дальше...    Жанр: Progressive HouseПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A9D054936C41571B8C2B92F2935EDBE25C9CE6E0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035128.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 034 953
-
-Ottawan - серия  Золотые хиты дискотек   2001  compilation [FLAC|Lossless|image + .cue] <Dis
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01.  You`re O.K  5:07
-02.  Zoo Zoo -  Bisquit   6:12
-03.  Hands Up  Give Me Your Heart   4:44
-04.  It`s All Music  It`s All Rock`n Roll   3:33    Читать дальше...    Жанр: DiscoПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13D8E02711063C58D58EB5B7FE7A5A9050B732F3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1034953.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 034 884
-
-Sydne Rome - Sydne Rome  1980  LP [MP3|320 Kbps] <Disco, Ballad, Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Sydne Rome - итальянская актриса и певица. Родилась в Огайо, США в семье президента промышленной корпорации по производству пластмассы. С 1970 года - в Италии. Дебют на большом экране - роль Флики в картине британского режиссёра Ральфа Томаса  Некоторые девушки   1969 . Предлагаемый альбом оказался популярным в мире и помимо синглов - единственным.01. Barbecue Ball  3:33 
-02. Milky Way  4:15 
-03. Barefoot Blues  3:28 
-04. When It Comes To You  3:38     Читать дальше...    Жанр: Disco, Ballad, Pop RockПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:58384886B9990921DB194DF819BDCC0FD48EA30A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1034884.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 034 858
-
-Jon Secada – Heart, Soul & A Voice  1994  [APE|Lossless|image + .cue] <RPop Rock, Rhythm & Blues
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Whipped
-02. Take Me
-03. If You Go
-04. Good Feelings    Читать дальше...    Жанр: RPop Rock, Rhythm & BluesПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ADF5D7F2B00441E737F7A716692DD23A171BD5F6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1034858.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 034 468
-
-Pino D Angio - 7 Albums  1981-1991  [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Настоящее имя артиста - Giuseppe Chierchia, он родился в небольшом городке Pompei на юге Италии 14 августа 1952 года.
-Первый успех пришел к нему в 1980 году после записи сингла  Ma Quale Idea , годом позже вышел первый альбом исполнителя, продажи которого превысили миллион экземпляров.
-Последующие альбомы Pino D angio имели гораздо меньший успех. Возможно,     Читать дальше...    Список альбомов:
-1981 - ...Balla!
-1982 - Ti regalo della musica
-1983 - Una notte maledetta    Читать дальше...    Жанр: Electronic, Disco, Funk-SoulПродолжительность: 04:38:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A963B3A585FAD9B518B00FEBAF99A17AF04E3AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1034468.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 940
-
-Александр Шевченко - Больше ничего  2009  [APE|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Больше ничего
-02. Я тебя не буду искать
-03. Никто не знает
-04. Сентябрь    Читать дальше...    Жанр: PopПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:277B8627CCCC7C3B70370C49B4E511D4157260EA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033940.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 875
-
-VA - DJ Hits Vol. 61  1996  Unofficial Release [APE|Lossless|image + .cue] <House, Europop, Euro
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Mr.President - Coco Jamboo
-02. Backstreet Boys - Get Down
-03. Carol Bailey+Alex Party - I Can t Make You Love Me
-04. Neuronic - Heaven    Читать дальше...    Жанр: House, Europop, Euro HouseПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:76635A46E49E0170A38D9FDE0BD0762CD1FF5ED0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033875.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 822
-
-На-На - Не женись  1991  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Пустынный Пляж  4:13 
-2. Не Женись  3:21 
-3. Свет В Окне  4:28 
-4. Юлия  3:59     Читать дальше...    Жанр: PopПродолжительность: 01:03:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81F9F09ED4F428A61B520967AA19837F366A8831
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033822.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 796
-
-VA - Woman In Love  1983  Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Sam Brown - Stop
-02. Elaine Page & Barbara Dickson - I Know Him So Well
-03. Terence Trent D Arby - Suddenly You Crossed My Heart
-04. Timmy T. - One More Try    Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:303D992444B9037C155D971212A103EB284CDD04
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033796.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 788
-
-Тамара Гвердцители - Избранное  2005  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Виват, король! 04:42
-02. Грузия 04:44
-03. Не ревнуй 03:02
-04. Мамины глаза 04:26    Читать дальше...    Жанр: PopПродолжительность: 01:14:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF5C9C6FD7A0F4F173DD4D194623C79E32581509
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033788.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 716
-
-Dirty Vegas - Photograph  2015  [MP3|320 Kbps] <Dance, Synth Pop, House>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Let the Night  Original Mix 
-02. Setting Sun  Original Mix 
-03. Do What You Feel
-04. Photograph    Читать дальше...    Жанр: Dance, Synth Pop, HouseПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9A234974E67481756C8E0A40313D8DCD066C687D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033716.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 648
-
-Олег Винник - 3 Альбома    2011 - 2015   3CD  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-2011. Ангел
-2013. Счастье
-2015. Я не устануЖанр: PopПродолжительность: 01:57:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4D0CCC9584B0629862E9673B40E50237F91F20D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033648.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 535
-
-Susan Wong - Woman In Love  2014  [MP3|320 Kbps] <Pop, Easy Listening, Vocal>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Woman In Love    03:41
-02.  I Honestly Love You    03:26
-03.  Chain Reaction    03:39
-04.  Can t You See  I m Falling In Love     03:39    Читать дальше...    Жанр: Pop, Easy Listening, VocalПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F5CB0E51F87A91F13F880E6CB72026A58ADFD1B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033535.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 448
-
-VA - The Best Ever: Summer  2016  [MP3|320 Kbps] <Disco, Pop, RnB>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Icona Pop feat. Charli XCX – I Love It 02:34
-02. Rudimental feat. John Newman – Feel The Love 03:37
-03. B.O.B – So Good 03:29
-04. CeeLo Green – Forget You 03:41    Читать дальше...    Жанр: Disco, Pop, RnBПродолжительность: 01:30:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8298CB61C08C0712E7DC532819273D246C3BE64F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033448.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 406
-
-Cellars - Phases  2016  [MP3|320 Kbps] <80 s Retro Pop, Synth Pop, Female Vocal>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Stircrazy
-02. Do You Miss Me?
-03. Real Good Day
-04. Still in Love    Читать дальше...    Жанр: 80 s Retro Pop, Synth Pop, Female VocalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2ECD544BAE06B47D9BA9C06D2C55C53C4529B0FB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033406.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 302
-
-VA - FitHits  2016  [MP3|256 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD 1
-Пpодолжительность: 01:11:52
-
-01. Avicii Ft Simom Aldred - Waiting For Love    Читать дальше...    Жанр: PopПродолжительность: 2:27:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73D1D3893BD1BFD4A85BF91C2DA7F09D0DEFFD9C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033302.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 208
-
-Coco Morier - Dreamer  2016  [MP3|320 Kbps] <Electropop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. No Pressure  2:51 
-02. World on Fire  3:44 
-03. Dreamer  3:16 
-04. Am I Normal  3:45     Читать дальше...    Жанр: ElectropopПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E24CE0A4C7510EA03DF90C58E9E89EFDB088DC2F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033208.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 033 154
-
-MAGIC! - Primary Colors  2016  [MP3|320 Kbps] <Pop, reggae>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Have It All  03:38 
-02. Lay You Down Easy  02:45 
-03. Gloria  03:47 
-04. Red Dress  03:21     Читать дальше...    Жанр: Pop, reggaeПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8D36ABAE02EABE0268AAB28C2EB58D2A8EBC9FC5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1033154.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 032 923
-
-Cristina - Contremano  1982  [MP3|320 Kbps] <Electronic, Pop, Italo-pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. La Lettera  3:39 
-02. Treno 5943  4:25 
-03. Storia Di Periferia  3:58 
-04. Per Noi  3:50     Читать дальше...    Жанр: Electronic, Pop, Italo-popПродолжительность: 00:32:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:88E6C4139C56D9E8BFBA4AB055823C2E05B32490
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032923.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 032 876
-
-Shura - Nothing s Real  2016  [MP3|320 Kbps] <80 s Synthpop, Indietronica, Female Vocal>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  i 
-02. Nothing s Real
-03. What s It Gonna Be?
-04. Touch    Читать дальше...    Жанр: 80 s Synthpop, Indietronica, Female VocalПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:953E409F6C8E32B9D47F37D390ECC68A55ABE5B4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032876.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 032 812
-
-Русский стилль - Ты позови меня...  2012  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Снег во дворе [04:46]
-02. А в саду ромашки [04:20]
-03. Уезжаешь [04:38]
-04. Ты позови меня  с Олегом Пахомовым  [03:50]    Читать дальше...    Жанр: PopПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7B0D240ED1CF4B84475948A955795A82BCC4F00A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032812.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

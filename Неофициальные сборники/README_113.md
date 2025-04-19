@@ -1,4 +1,854 @@
 ﻿
+###  Публикация: 1 181 411
+
+VA - All Stars: Singles Chart Hot 150  2017  [MP3|320 Kbps] <Pop, Dance, RnB>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Shawn Mendes - There s Nothing Holdin  Me Back
+002. Yo Gotti feat. Nicki Minaj - Rake It Up
+003. Ed Sheeran - Shape Of You
+004. Lil Uzi Vert - 004. XO TOUR Llif3  Y2K Remix     Читать дальше...    Жанр: Pop, Dance, RnBПродолжительность: 08:40:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:96A7D88F32837F27445DCE1F127D49E0AE169DC1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181411.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 402
+
+VA - Дискотека 2017 Dance Club Vol.170 от NNNB  2017  [MP3|320 Kbps] <Club, Deep House, Synth Po
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Part 1:
+
+01. Andrea - Vitamin  Dj David Dan Project Remix 
+02. Otilia - Prisionera  Radio Edit     Читать дальше...    Жанр: Club, Deep House, Synth Pop, Dance и другиеПродолжительность: 19:23:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:007D922B18DC04D18B627F505950AFFBC8EB5FDE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181402.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 380
+
+VA - Dance Charts - Dance 50  Dazu Tanzt Ganz Deutschland  05.11.2017 [MP3|320 Kbps] <Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Avicii feat. Sandro Cavazza - Without You
+02. Felix Jaehn X Mike Williams - Feel Good
+03. Stereoact, Voyce - So soll es bleiben
+04. Andrew Spencer - To Be With You 2.7    Читать дальше...    Жанр: DanceПродолжительность: 03:38:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C19244CEE233A7294D42367F5A971FE3B9E4B07C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181380.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 369
+
+VA - Lian Ross Projects  2009  2CD [MP3|320 Kbps] <Disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Lian Ross - Say You ll Never  6:36 
+02. Gina T. - Tokyo By Night  3:41 
+03. New Baccara - Fantasy Boy  Extended Version   6:56 
+04. Patty Ryan - You re My Love My Life  4:25     Читать дальше...    Жанр: DiscoПродолжительность: 02:35:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C1B0A8E9AE2D7330A50A2995943D92BDEEF5306
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181369.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 344
+
+VA - Infatuation Blues  2017  [MP3|320 Kbps] <Blues, Rock Blues>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Paul Black - Sister Sadness
+002. Rob Tognoni - Time Changes
+003. Jim Allchin - Healing Ground
+004. Lazy 50 - Catch My Train    Читать дальше...    Жанр: Blues, Rock BluesПродолжительность: 11:46:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6EFB8481C5FA2B8E9FD9F70A6949DF6A1B0EA67F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181344.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 308
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 015  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Антонов Юрий - Не Забывай   1980  
+02. Сладкий Сон   Сергей Васюта   - На Белом Покрывале Января   2012  
+03. Чекалин Сергей - Журавли И Синицы   1989  
+04. Верасы - Малиновки Заслыша Голосок   1981      Читать дальше...    Жанр: PopПродолжительность: ~01:17:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5C3B674A474280DD8ED45A4E09B8CF5E9F2FA36C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181308.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 287
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 014  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Маленький Принц - Прощай   1989  
+02. Журавлёва Марина - Белая Черёмуха   1991  
+03. Ласковый Май   Юрий Шатунов   - Седая Ночь   1989  
+04. Жуков Рома - Слепой Рассвет   1991      Читать дальше...    Жанр: PopПродолжительность: ~01:19:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E6B9CAA9942E9B38AFEE6E0ED0D42DC2EEA9859C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181287.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 284
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 013  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Звёздный Дождь   Сергей Иванов   - Звёздный Дождь   1992  
+02. Ночной Ангел - Вьюга   1992  
+03. Летний Вечер - Московский Мальчик   1990  
+04. Бисквит   Ольга Москвина   - Роман С Камнем   1992      Читать дальше...    Жанр: PopПродолжительность: ~01:19:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2BAB37DD24DC2221A815FF500ABB1719F7D086B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181284.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 257
+
+VA - Лучшие клубные новинки Vol.3  2017  [MP3|320 Kbps] <House, Trance, Club>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001.  BLR, Rave & Crave - Taj  Extended Mix   5:14
+002.  Paul Van Dyk & Pierre Pienaar - Stronger Together  Extended   7:32
+003.  Terror Squad feat. Fat Joe & Remy - Lean Back  Tony Junior & Jimmy Clash Bootleg   3:17
+004.  Da Hool - Meet Her At The Love Parade  Matt Watkins Bootleg   3:23    Читать дальше...    Жанр: House, Trance, ClubПродолжительность: 10:28:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ECC802C578AA68C5C3AA7E21108EA85E13271BFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181257.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 236
+
+VA - Mark Knopfler & Dire Straits  2017  [MP3|320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Mark Knopfler & Dire Straits -  Fade to Black   03:47  
+02. Mark Knopfler & Dire Straits -  Heavy Fuel   05:07  
+03. Mark Knopfler & Dire Straits -  Iron Hand   03:07  
+04. Mark Knopfler & Dire Straits -  Lady Writer   03:43      Читать дальше...    Жанр: RockПродолжительность: 04:52:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:255BD477ACCCDDEDD4D79B6428994F137B2C3693
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181236.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 201
+
+VA - Empire Records - Dancenudisco 16  2017  [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Block & Crown - You Started The Fire  Original Mix 
+02. M83 vs Kygo & Selena Gomez - It Ain t Midnight  DJ Nasa Mashup 
+03. Zayn & Taylor Swift - I Don t Wanna Live Forever  Eldar Stuff, Tim Cosmos Remix 
+04. Dj Ti-S - Take On Me  Radio Version     Читать дальше...    Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0AA56C0F21015E743FCACF3E11A9B29701F5B75
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 195
+
+VA - Deep House Collection Vol.143  2017  [MP3|320 Kbps] <Deep House, Club House, Minimal>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.7even  GR  - Never Seen  Doru M Remix 
+02.A-Mase - The Autumn  Original Mix 
+03.A.V.O. - Before  Gleb Rubens Remix 
+04.Alex Hobson - Minds  Radio Edit     Читать дальше...    Жанр: Deep House, Club House, MinimalПродолжительность: 14:07:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C25688948DBE711FC93EDC149328B9AD8039A1CF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181195.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 192
+
+VA - Deep House Collection Vol.142  2017  [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. al l bo - Fickle High  Artful Fox Remix  5:50
+02. Ahmet Kilic & Ilkay Sencan - Am I Wrong  Original Mix  3:57
+03. Akola - Under Reflection  Original Mix  6:07
+04. Alice Clark - Traverse  Markus Homm Remix  7:30    Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:28:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1DE0796030312B9B0B5070FF646D81CB0BF5EA84
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181192.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 150
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 012  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Хромов Олег - Первый Дождь   1991  
+02. Финиш - Розовые Рожи   1990  
+03. Ночной Вояж - Джулия   1989  
+04. Лукьянов Александр - Падает Снег   1989      Читать дальше...    Жанр: PopПродолжительность: ~01:19:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ADD2713F8720863E3E239801A9FC26FF2307C691
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181150.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 148
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 011  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Шторм Анна - Франция   Далекая Страна     1994  
+02. Картышев Владимир - Ночь После Трудного Дня   1991  
+03. Рок-Сентябрь и DDT - Танцует Робот   1983   
+04. Кристина Corp. - Снег На Розах   2005      Читать дальше...    Жанр: PopПродолжительность: ~01:16:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45DF7DDA4B9B68D7713814CC885154B5486C670F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181148.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 146
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 010  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Шоколад-Виктория - Алло, Алёнка   1989  
+02. Восьмой День - Прощай   Первый Снег     1991  
+03. Николаев Игорь - Малиновое Вино   1994  
+04. Электроклуб - Ягодный Сезон   1987      Читать дальше...    Жанр: PopПродолжительность: ~01:18:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A7FBB3A51CD537F5D5737B62803172C3E3B9D3CC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181146.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 181 007
+
+VA - Rock Homily  2017  [MP3|192-320 Kbps] <Alternative, Hard Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Goldfrapp - Anymore
+002. Maverick - Free
+003. All but One - For the Waiting Good
+004. Slowdive - Slomo    Читать дальше...    Жанр: Alternative, Hard RockПродолжительность: 08:57:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5466B77B52539A9A173BAC34BA8F917908B473AC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1181007.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 936
+
+VA - По волне моей памяти P.S  Постскриптум   диск 2  Compiled by Виктор31RUS   2017  [M
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Николай Трубач - Научись играть на гитаре  4:10
+02.  Александр Кальянов - Старое кафе  3:44
+03.  Игорь Иванников - Мила моя  4:27
+04.  Александр Мураев - Птица счастья  3:20    Читать дальше...    Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:50:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:56EB4D5B98DB1E00947C0F003C7B87158F11C3FD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180936.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 920
+
+VA - Deep House Collection Vol.141  2017  [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. 9 Грамм feat. Alina Orlova - Ласковый Зверь  Ilya Calvados Radio Remix  4:13
+02. A-Frey - I Want Bass 4:41
+03. Adam Knight - I ve Got The Gold  Shoby Remix  3:50
+04. Aivarask X Gaullin - Close Your Eyes 3:15    Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:56:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E6412181D0D34D15B63078334B5496049CFB2E1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180920.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 916
+
+VA - Beatport Top 100 Deep House September  2017  [MP3|320 Kbps] <Deep House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Patrice Baumel, Audiofly - Atacama  Original Mix   7:32 
+002. ARTBAT - Tabu  Original Mix   8:13 
+003. Red Axes - Sun My Sweet Sun  Konstantin Sibold Afro Tech Mix   7:01 
+004. Andhim - Amene  Original Mix   6:28     Читать дальше...    Жанр: Deep HouseПродолжительность: 12:32:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EC1092067C173768593594564034D8CEAC324C31
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180916.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 881
+
+VA - 120 Beatport EDM  2017  [MP3|320 Kbps] <House, Techno, Trance, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Ralphi Rosario feat. Linda Clifford - Wanna Give It Up
+002. DJ Vantigo - Kill Monster  Original Mix 
+003. Neil Hunter - Phoenix  Original Mix 
+004. MAKJ & Michael Sparks feat. Fatman Scoop - Space Jam    Читать дальше...    Жанр: House, Techno, Trance, ElectroПродолжительность: 12:13:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B24F4C5007F1C3A9CD1A0369BA441EBCABEB551F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180881.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 875
+
+VA - По волне моей памяти P.S  Постскриптум  диск 1  Compiled by Виктор31RUS   2017  [MP
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Саша Айвазов - Лилии  3:55
+02.  Кай Метов - На сердце грусть  4:18
+03.  Марина Журавлёва - На сердце рана у меня  4:11
+04.  Александр Барыкин - Больше не встречу  3:46    Читать дальше...    Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:32:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BD52FFF45A854BDB1996F75A2B4065EB1AAB5404
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180875.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 871
+
+VA - Pop Sampler Chart: November Hits Collection  2017  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Portugal. The Man - Feel It Still
+002. Cardi B - Bodak Yellow
+003. Post Malone - rockstar
+004. Ed Sheeran - Shape of You    Читать дальше...    Жанр: PopПродолжительность: 09:03:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3BFF3785237BA5E3D30018966F9C4A38245A6ABF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180871.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 765
+
+VA - Record Super Chart #510  2017  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.  Malaa - Notorious  3:58
+02.  EKTONIX - Vuono Matyn  2:30
+03.  Tiesto feat. StarGate & Aloe Blacc - Carry You Home  Tiesto s Big Room Mix   3:47
+04.  Mari Ferrari feat. Miss Mary - Maria Maria  3:31    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 01:58:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DBB2058CEDE99976E4AA0A034277BC337C7DA703
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180765.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 724
+
+VA - 150 Dubstep Miscellany  2017  [MP3|320 Kbps] <Dubstep, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. ENiGMA Dubz - The Way You Move
+002. Dabin - Hold  ft. Daniela Andrade 
+003. Excision - With You  feat. Madi 
+004. Jens Buchert - Pulse    Читать дальше...    Жанр: Dubstep, ElectroПродолжительность: 09:39:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21EC1447B876029BB89F3425B65D68DADCA89303
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180724.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 671
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 009  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Плей Бой - Танцуй, Танцуй   1992  
+02. Денди - Ночной Экспресс   1992  
+03. Стеклянные Крылья - Снова Быть Одной   1991  
+04. Баскаков Алексей - Прощай   1993      Читать дальше...    Жанр: PopПродолжительность: ~01:18:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C3124DB487E6584E2329B33079A94D14227C9A73
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180671.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 650
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 008  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Дискотека Альянс и Дмитрий Волков - Дискотека   Попурри     1991  
+02. Руки Вверх - Малыш   1997  
+03. Автопилот - Негодная Девчонка   1991  
+04. Пассажир - Танцуем Все   1991      Читать дальше...    Жанр: PopПродолжительность: ~01:18:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B31C85F33FC3C2BA13656CDB136B92A6851BDF37
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180650.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 639
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 007  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Яковлев Александр - Московские Улицы   1994  
+02. Планета Икс   Владислав Агафонов   - Не Верю, Я Не Верю   1993  
+03. Белянин Валерий - Кооперация   1989  
+04. Вице-Президент - Девушка Инна   1991      Читать дальше...    Жанр: PopПродолжительность: ~01:19:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5CE4E9B6C86E3AE50F4A2090F3AF33D98EF995BB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180639.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 556
+
+VA - Time Never Tells: Synthwave Electronic Music  2017  [MP3|320 Kbps] <Synthwave, Synthpop, El
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. After The Rain - Future Will Be Fine
+002. Lazer Station - rising
+003. Torul - Monday
+004. Garth Knight - Activate the Cage    Читать дальше...    Жанр: Synthwave, Synthpop, ElectronicПродолжительность: 08:08:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CF42B48E1353CD8E84FE881D4329B0CC15BE07B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180556.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 520
+
+VA - Top 100 Зайцев.Нет Октябрь  2017  [MP3|320 Kbps] <Pop, Rap, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001.  Альбина - Я с Тобою  3:45
+002.  ЛСП - Монетка  3:20
+003.  Егор Крид - Потрачу  3:05
+004.  Элджей - Ecstasy  3:38    Читать дальше...    Жанр: Pop, Rap, DanceПродолжительность: 05:56:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:48039C8382494B45D5E7BEADA15F602913449718
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180520.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 498
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 006  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. До 16 И Старше - Танцы-Обжиманцы   1991  
+02. Шериф - Скорый Поезд   1990  
+03. Новые Амазонки - Эй, Ямщик   1990  
+04. Двое - Зной   1997      Читать дальше...    Жанр: PopПродолжительность: ~01:18:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE0D3CBF53AD0F3C9EF01BA13F15B8BE9A1CEEA9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180498.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 496
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 005  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Голицын Александр - Не Уходи...   1991  
+02. Агеев Сергей - Чёрная Ночь   1991  
+03. Ида - Реку Перейти   1991  
+04. Технология - Всё, Что Ты Хочешь   1991      Читать дальше...    Жанр: PopПродолжительность: ~01:19:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0742E994260C60A2F5F7687DFB1A4257153203B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180496.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 494
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 004  2017  [MP3|320 Kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Приступко Алексей - Слышишь, Маша   1991  
+02. DJ Вовочка - Бамбарбия   1998  
+03. Жуков Рома - Девчонки, Мои Девчонки   Remix 2000  
+04. Флаерс - Карие Глаза   1992      Читать дальше...    Жанр: PopПродолжительность: ~01:17:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CFA8FFBE8177908EFABCFB139DF5208855012D0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180494.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 180 441
+
+VA - ЕвроХит Топ 40 Europa Plus 03.11.2017 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Robin Schulz feat. James Blunt - OK
+02. J Balvin Ft Willy William - Mi Gente
+03. Zayn Malik feat. Sia - Dusk Till Dawn
+04. AJR - Week    Читать дальше...    Жанр: PopПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65926C7E165B266BF42AEA60E93B6193EF827CE3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180441.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 180 287
 
 VA - German Top 100 Single Charts 03.11.2017  2017  [MP3|320 Kbps] <Pop>
@@ -1145,856 +1995,6 @@ VA - По волне моей памяти: Том 18  Compiled by Виктор3
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178366.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 178 328
-
-VA - По волне моей памяти: Том 17  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретр
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Владимир Кузьмин - Симона 4:08
-02.  Юрий Лоза - Сто часов 3:33
-03.  Алла Пугачёва - Ты возьми меня с собой 2:49
-04.  Наталья Штурм - Школьный роман 3:37    Читать дальше...    Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:11:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B5469ACBEF2C962DB8CFBE822B2871DC14D5482D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178328.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 178 223
-
-VA - По волне моей памяти: Том 16  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретр
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Дмитрий Маликов - Сторона Родная 3:55
-02.  Ирина Аллегрова - Я улыбнусь тебе сквозь слёзы 4:40
-03.  Женя Белоусов - Дуня-Дуняша 3:32
-04.  Юрий Антонов - Крыша Дома Твоего 2:57    Читать дальше...    Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:16:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1630C15B116FA48850979973F322956300D98FCD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178223.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 178 189
-
-VA - Для Тех, Кто Помнит! Русский Рок Vol.6 от Ovvod7  2017  [MP3|320 Kbps] <Рок>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01.  ДДТ - Что такое осень 4:57
-02.  Кузьмин Владимир - Когда я стану другим 4:09
-03.  Альфа - Воробей 4:19
-04.  Воскресение - Воскресение 6:50    Читать дальше...    Жанр: РокПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B15447E7AEBBB905502208D9ED046CC94768DF7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178189.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 178 139
-
-VA - Hardstyle Top 100  2017  [MP3|320 Kbps] <Techno, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01 Wildstylez & Noisecontrollers & Bass Modulators ft. Gabs - Bad Habits [03:28]
-02 DJ Isaac - Down With Me [02:28]
-03 Major Lazer & Showtek - Believer  Frontliner Remix  [03:38]
-04 Sickddellz & Exilium ft. Sebastian Hansson - Away From You [03:07]    Читать дальше...    Жанр: Techno, DanceПродолжительность: 08:34:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:32AE3768196FDCBF1E9606623AA319D1F7AEE41E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178139.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 178 134
-
-VA - Popular Dance 90s  2017  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Dj Aligator - Doggy Style
-002. In Colour - I Wanna Give It To You
-003. Cheyenne - The Money Man
-004. Waldo - Take Me Higher    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:44:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:679335A1D2F71939898A6CCF256A6CA836B4F332
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178134.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 177 441
-
-VA - Hot Jazz in Denmark Vol.3  2017  [MP3|320 Kbps] <Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Liller - Ice Cream  5:41 
-02. Vestre Jazzvжrk - After You ve Gone  5:05 
-03. Papa Bue s Viking Jazzband - Blueberry Hill, Pt. 1  4:44 
-04. Kansas City Stompers - Blueberry Hill, Pt. 2  3:55     Читать дальше...    Жанр: JazzПродолжительность: 01:35:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F56E82B51BD050254DF4FA2D270141220EE7E62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1177441.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 177 348
-
-VA - Music For Everyone - Chillstep & Dubstep Vol.5  2017  [MP3|320 Kbps] <Chillstep, Dubstep, F
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-1. Oh Wonder - Midnight Moon  Melvv Remix 
-2. Electus - The Sky Inside  Original Mix 
-3. Kaskade feat. Ilsey - Disarm You  Bvrnout Remix 
-4. Equalize - Nightsky  Original Mix     Читать дальше...    Жанр: Chillstep, Dubstep, Future BassПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:29B1991B19ED554B8E87153CBFB11AD4D621AE7C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1177348.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 833
-
-VA - По волне моей памяти: Том 14  2017  [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Михаил Боярский - Песенка мушкетёров  3:12
-02.  Алла Пугачева - Миллион Роз  5:32
-03.  София Ротару - Костер  3:47
-04.  Лев Лещенко - Родительский дом  3:14    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:32:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02C585D2A13F23451C813183B75AA9A92072C854
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176833.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 778
-
-VA - По волне моей памяти: Том 13  2017  [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Игорь Саруханов - Желаю тебе  4:34
-02.  Лев Лещенко - Родительский дом  3:35
-03.  Алла Пугачева - Маэстро  5:38
-04.  Владимир Кузьмин - Позвони Мне Среди Ночи  4:54    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:19:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5D7C5B01947A91C993A8A35A38548E64BB8EFF05
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176778.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 750
-
-VA - По волне моей памяти: Том 12  2017  [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Ренат Ибрагимов - Листья жёлтые  3:54
-02.  Валерий Леонтьев - Исчезли солнечные дни  4:09
-03.  Лев Лещенко - Привет  3:57
-04.  Вячеслав Добрынин - Кто тебе сказал  3:29    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:19:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F67E543EA59B262D0F2CAA8F518581A055F3AAE7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176750.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 718
-
-VA - По волне моей памяти: Том 11  2017  [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Ефрем Амирамов - Молодая  4:32
-02.  Лев Лещенко - Белая береза  3:25
-03.  Алла Пугачёва - Ленинград  Памяти Лидии Клемент   3:10
-04.  Вахтанг Кикабидзе - Цыганочка  3:19    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF21A5E0A8C5A8A208F3DDCEE349DCCFA0D93825
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176718.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 668
-
-VA - По волне моей памяти: Том 10  2017  [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Вахтанг Кикабидзе - Проводы любви  3:26
-02.  Таня Буланова - Говорила моя мама  5:02
-03.  Алиса Мон - Подорожник-трава  3:46
-04.  Юрий Антонов - Анастасия  3:07    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:11:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1E5DD536510627E06F65DE617B0DE6F4EB8C7D73
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176668.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 615
-
-VA - По волне моей памяти: Том 9  2017  [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Вахтанг Кикабидзе - Пожелание  3:15
-02.  Леонид Агутин - Парень чернокожий  3:41
-03.  Нина Кирсо и Фристайл - Кораблик любви  4:59
-04.  Валентина Толкунова - У беды глаза зелёные  3:33    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:25:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:89EA67F96723D067B026710393FDD1E134CBAD0E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176615.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 579
-
-VA - По волне моей памяти: Том 8  2017  [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Игорь Тальков - Память  5:42
-02.  Юрий Антонов - Жизнь  5:00
-03.  Алла Пугачёва - Женщина, которая поёт  4:15
-04.  Михаил Боярский - Дрессировщик  4:01    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:21:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:30FF415AFA11239B78B3134B3A77190183472C08
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176579.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 540
-
-VA - По волне моей памяти: Том 7  2017  [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Владимир Кузьмин - Когда меня ты позовёшь  5:31
-02.  Максим Леонидов - Не забудь  4:07
-03.  Юрий Антонов - Если пойдем вдвоем  3:05
-04.  Алла Пугачёва - До свиданья, лето  4:40    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:22:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A2CA9D1094F2B9842E9D81A7E03CFFD3B2431E47
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176540.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 473
-
-VA - По волне моей памяти: Том 6  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретро
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Владимир Кузьмин - Ещё вчера  3:37
-02.  М.Боярский - Дворик  3:21
-03.  Олег Даль - Купидон  2:13
-04.  Вячеслав Добрынин - Все, что в жизни есть у меня  3:46    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:20:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:645B8A90798900688E6C8924EAB8047C5615A63B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176473.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 433
-
-VA - Record Super Chart #508  2017  [MP3|320 Kbps] <House, Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  CamelPhat & Elderbrook - Cola  Denis First Remix   2:30
-02.  Twoloud vs. DJ Kuba & Ne!tan - Mirror On The Wall  2:30
-03.  EKTONIX - Vuono Matyn  2:30
-04.  Mari Ferrari feat. Miss Mary - Maria Maria  3:31    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 01:53:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6085F1522D0E3A368B6810735461CDA36CD46C89
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176433.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 344
-
-VA - По волне моей памяти: Том 5  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретро
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Игорь Саруханов - Ящики почтовые  3:39
-02.  Михаил Боярский - Городские цветы  4:05
-03.  Владимир Кузьмин - Если бы ты знала  5:10
-04.  Евгений Осин - Плачет девушка  2:43    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:19:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F410711D2289B1DA62B74A181BB111A9122B7722
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176344.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 295
-
-VA - По волне моей памяти: Том 4  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретро
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Олег Даль - Есть Только Миг  3:23
-02.  Игорь Иванов - Облака в реке  3:01
-03.  Михаил Муромов - Яблоки на снегу  4:28
-04.  Юрий Лоза - Зима  4:05    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:583EB5E28BE800E5B1041F6A875DAB0B0F26E131
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176295.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 222
-
-VA - По волне моей памяти: Том 3  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретро
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Михаил Боярский - Вот и расстались  5:54
-02.  Алла Пугачёва - Песня на бис  7:13
-03.  Игорь Тальков - Бывший подъесаул  5:59
-04.  Александр Барыкин - Букет  3:40    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:30:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA41FC622B2F014D22FCD19D146BECB2D1EADB66
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176222.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 208
-
-VA - По волне моей памяти: Том 2  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретро
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Добрынин Вячеслав - Ах, какая женщина  4:35
-02.  Юрий Антонов - Берегите женщин  4:38
-03.  Владимир Кузьмин, Алла Пугачева - Две звезды  3:57
-04.  Игорь Скляр - Старый рояль  2:21    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:20:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BE66B78EE47A189AB0DEFC93157AC2B04F6110FB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176208.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 203
-
-VA - По волне моей памяти: Том 1  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретро
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Александр Барыкин - 20.00  4:07
-02.  Юрий Лоза - Девочка в баре  3:24
-03.  Евгений Осин - Любовь одна виновата  3:30
-04.  Алла Пугачёва - Не отрекаются любя  4:15    Читать дальше...    Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:17:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:130BA9C14318C0413E47E49DC9C2AF57CAF6FB99
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176203.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 167
-
-VA - Miss Caramelle: Classic Vocal House  2017  [MP3|320 Kbps] <Vocal House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Solid Stone & Michael Gin - Xonic
-002. Disco Fries - Moving On  Original Mix 
-003. One Second For Chill - We See the Light
-004. Forerunners - Watercolour    Читать дальше...    Жанр: Vocal HouseПродолжительность: 08:59:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73FFC8F1F01746D1409167D280E982D5C34A9C62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176167.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 100
-
-VA - Cosmotronica Vol.4  Compiled by ZeByte   2017  [MP3|320 Kbps] <Ambient, Psybient, Futur
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  Pensees - Morfin  3:56
-02.  One Arc Degree - Kraken Mare  6:53
-03.  Alone - One  5:28
-04.  CatchAll - Cosmic Symptoms  7:34    Читать дальше...    Жанр: Ambient, Psybient, Future GarageПродолжительность: 02:42:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D8D2E56443A26AE2899A4AA3771AC9822BCD0433
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176100.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 175 945
-
-VA - Gold Remixes Italo Disco Vol.2  2017  [MP3|320 Kbps] <Italo Disco>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001.  Boris Zhivago - Deep In My Heart  Radio Vintage Mix   4:57
-002.  Mode One - Ocean Of Love  Original Mix   7:02
-003.  Cliff Turner - Moonlight Affair  12   Version   6:17
-004.  Birizdo I Am - Love Paradise  Extended Version   4:49    Читать дальше...    Жанр: Italo DiscoПродолжительность: 09:19:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:20DE02AD03269FCAE94024B22A9EF58141C252A7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175945.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 175 856
-
-VA - Cosmic Interference  2017  [MP3|320 Kbps] <Techno, Minimal, Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Chasing Kurt - Sumatra Rain  Club Mix 
-002. Batteriebetrieb - Vibrations  Hellmekanism Remix 
-003. Atix - Pendola  Original mix 
-004. Fractal Vibe - C Song  Fly Mix     Читать дальше...    Жанр: Techno, Minimal, ElectronicПродолжительность: 11:23:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:368FEBCAAD36D5AFDF26558D4166C3CA62F8C380
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175856.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 175 822
-
-Паскаль - Лучшее от ALEXnROCK  2017  [MP3|320 Kbps] <Pop-Rock>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-В сборник вошли лучшие композиции этого классного музыканта. Лирика и поэзия в музыке. Все треки взяты с оригинальных CD альбомов, Да прибудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK01 Красная лента
-02 100% любви
-03 Боже, как долго  дуэт с Константином Арсеневым 
-04 Лето, лето    Читать дальше...    Жанр: Pop-RockПродолжительность: 01:22:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D59A57E61AE81BD243E06A0456BCA0E8FCDF5073
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175822.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 175 819
-
-VA - Beautiful Messes: Country Soul  2017  [MP3|320 Kbps] <Folk Blues, Country>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01.  Kenny Rogers - I ll Be Home For Christmas  2:45
-02.  Les Cowboys Fringants - Bye Bye Lou  3:42
-03.  Florida Georgia Line - Dig Your Roots  3:35
-04.  Luke Combs - Memories Are Made Of  3:37    Читать дальше...    Жанр: Folk Blues, CountryПродолжительность: 01:42:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ACC41ABA52AC9C88CAA4217C6860D5256A897420
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175819.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 175 768
-
-VA - Italo & Space Disco  2017  [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobeat>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Electric City Cowboys - Fly With Me
-02. Antsen Kirill - Planet Earth
-03. Maria Mendiola & Cristina Sevilla - I Belong To Your Heart
-04. Dreamline - Hasta Luego    Читать дальше...    Жанр: Italo Disco, Spacesynth, EurobeatПродолжительность: 07:03:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7CC48A5D636D464CD7595446569A5071524EA8C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175768.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 175 715
-
-VA - Beatport Top 100 Progressive House August  2017  [MP3|192-320 Kbps] <Progressive House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Cristoph - Feel feat Jem Cooke  Original Mix 
-02. Victor Ruiz - Dying Of The Light  Victor s Interstellar Remake 
-03. Supacooks - Aftermath  Original Mix 
-04. Rolo Green - Napier    Читать дальше...    Жанр: Progressive HouseПродолжительность: 12:55:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:903E98F434D080D65E0B6AE73B86CF5F7083A87B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175715.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 175 696
-
-VA - The Groove Deep House Project  2017  [MP3|320 Kbps] <Deep House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Dahu & MPathy - Shattered
-002. Fernando Olaya - Saint germain
-003. The Messenger - Ground Floor
-004. Cosmic Cowboys - Samba    Читать дальше...    Жанр: Deep HouseПродолжительность: 10:32:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:15DD0ADB9F174DF089C1F7772D30D67D1E17C0B6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175696.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 175 671
-
-VA - The Best Of Trance 61  2017  [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  Robert Miles - Fable  Lepi Remix   6:37
-02.  Alex Leavon - Ogma  Extended Mix   6:11
-03.  Rene Ablaze - Go Get It  Original Mix   7:03
-04.  Simon McCann - Cohesion  Uplifting Mix   6:36    Читать дальше...    Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 02:49:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:417DDA57D8EF8437BE88C43933DC3F5EB32CDE79
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175671.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 175 651
-
-VA - Deep House Collection Vol.140  2017  [MP3|320 Kbps] <Deep House, Club House, Tech House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. 1Kilo & LIVA - Deixe-Me Ir  LIVA Remix  4:45
-02. 5prite - Tinstaafl  Original Mix  5:29
-03. 8150 - Nature  Original Mix  7:06
-04. Aaliyah - Try Again  Idyl Cover - Gurkan Asik Remix  4:16    Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:98:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:35589BFBB4E2B3517E2E1E0FA02FA55C4C0899D1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175651.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 175 642
-
-VA - Men Blues  2017  [MP3|320 Kbps] <Blues, Blues Rock>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01.  Peter Green Splinter Group - Crawlin  King Snake  5:38
-02.  Boogie Beasts - Coming Home To You  4:58
-03.  United Rhythms Of Brazil - Missing  2:50
-04.  Steve Fawcett - Shadows  2:20    Читать дальше...    Жанр: Blues, Blues RockПродолжительность: 04:13:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E5B4D41CB4F276ED8492A1312B2877EE6A6FE039
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175642.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

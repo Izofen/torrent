@@ -1,4 +1,702 @@
 ﻿
+###  Публикация: 612 579
+
+Madonna - The Best Songs  2013  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Girl Gone Wild
+02. Gang Bang
+03. I Don t Give A  feat Nicki Minaj 
+04. Love Spent
+05. Falling Free
+06. Beautiful Killer
+07. Best Friend
+08. I m a Sinner
+09. Candy Shop Medley
+10. Devil Wouldn t Recognize You    Читать дальше...    Жанр: PopПродолжительность: 03:44:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:422BA1F07E9930F99E23F0253A0DAED32A8DEFB9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_612579.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 612 349
+
+Chilly & Cherry Laine - Stars Of A World Disco  3CD   2011  [MP3|320 кб с]<поп, диско>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD101. Play Me A Classic Symphony
+02. Runaround
+03. Showbiz
+04. Ten Million Dollar Baby
+05. Rock  n  Roll Sally
+06. The Sun Ain t Gonna Shine Anymore
+07. Come On And Sing
+08. Dance With Me
+09. Energy
+10. Get Up And Move    Читать дальше...    Жанр: поп, дискоПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CFB93048F20603B77925CB1B686880CF010218FD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_612349.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 611 944
+
+Haddaway - 2 Albums  1993,1995    BMG Victor,Inc. Japan  [FLAC|Lossless]<Eurodance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Fly Away  4:06 
+02. I Know  4:31 
+03. Breakaway  4:41 
+04. Lover Be Thy Name  3:50 
+05. Waiting For A Better World  4:24 
+06. Give It Up  4:17 
+07. Catch A Fire  4:13 
+08. Desert Prayer  5:53 
+09. The First Cut Is The Deepest  4:25 
+10. Baby Don t Go  3:55     Читать дальше...    Жанр: Eurodance,Europop,Euro-House,BalladПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_611944.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 611 651
+
+Ricchi E Poveri - Perdutamente Amore  2012  [FLAC|Lossless]<Pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Amore E Odio
+02. Mamma Maria
+03. Cosa Sei
+04. Dimmi Che Mi Ami
+05. Voulez Vous Dancer
+06. Made in Italy
+07. Musica Vita Mia
+08. Piccolo Amore
+09. Acapulco
+10. Sara Perche Ti Amo    Читать дальше...    Жанр: PopПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_611651.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 611 284
+
+Alizee - The Best Songs  2013  [MP3|320 кб с]<pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Moi... Lolita
+02. Lui ou toi
+03. L Alize
+04. Mon Maquis
+05. Parler tout bas
+06. Veni Vedi Vici
+07. Abracadabra
+08. Gourmandises
+09. I m Fed Up!
+10. Youpidou    Читать дальше...    Жанр: popПродолжительность: 01:46:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:511F5984966CC50F56B89418E843B956E5E439ED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_611284.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 611 265
+
+Юрий Антонов - Легендарные песни  1973 - 1979  [MP3|320 кб с]<поп, ретро>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Третий день
+ 02. У берёз и сосен
+ 03. Не грусти пожалуйста
+ 04. Отчего
+ 05. Забыть бы
+ 06. Это Москва
+ 07. Всё на совесть
+ 08. Потеряешь - я найду
+ 09. Зеркало
+ 10. Влюбиться может каждый    Читать дальше...    Жанр: поп, ретроПродолжительность: 01:20:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:12D7D052AE1ECE169D262D5BEA607947E251084D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_611265.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 611 200
+
+Мираж - Звёздная коллекция  2000  [FLAC|Lossless]<Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:645196E5B780BE60596581BE5815FFADA5E4C907
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_611200.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 609 807
+
+Наталья Бучинская - Ночи любви  2011  [MP3|320 кб с]<pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Назначенный судьбой
+02. Алло, кохання  на укр.яз. 
+03. Кому как не нам
+04. Полюбила
+05. Счастье
+06. Червоний мак  на укр.яз. 
+07. Первая любовь  feat. Гордон Д. 
+08. Ночи любви
+09. Река любви
+10. Ой, не говори  feat. Гаврилюк О.     Читать дальше...    Жанр: popПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:55EAC0A15AB36B1DBFB316C11E5D9586FBCBBFA7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_609807.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 608 657
+
+Екатерина Семенова - И примерь эти крылья  2010  [MP3|320 кб с]<pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Белый ангел  Е.Семёнова - А.Таусенева 
+02. Графиня  Е.Семёнова - Е.Семёнова 
+03. Где-то там  Е.Семёнова - Ю.Старостина 
+04. Новогодняя  Е.Семёнова - Е.Семёнова, Ю.Старостина 
+05. Роман  Е.Семёнова - Ю.Старостина 
+06. Падает снег  Е.Семёнова - А.Ордынец 
+07. Свеча  Е.Семёнова - А.Минасян 
+08. Теми дорогами  Е.Семёнова - А.Таусенева 
+09. Зачем  Е.Семёнова - Ю.Старостина 
+10. На моей руке  Е.Семёнова - Ю.Старостина     Читать дальше...    Жанр: popПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4FA97A4824E7E04C4BC8A3B7058421ACD62FD4A8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_608657.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 607 673
+
+Женя Белоусов - Звездная серия  2003  [MP3|256-320 кб с]<pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Подожди меня 04:14
+ 2. Вечером на лавочке 04:15
+ 3. Ночное такси 04:50
+ 4. Девчонка-девчоночка 04:49
+ 5. Алешка 03:54
+ 6. Голуби целуются 04:30
+ 7. Карина 03:59
+ 8. Слушай, девчонка 04:59
+ 9. Вечерок 05:24
+ 10. Облако волос 05:31    Читать дальше...    Жанр: popПродолжительность: 01:43:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B8B3DA68B010965A1F7101B159B032C401EB57F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_607673.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 607 662
+
+Демо - Звездная серия  2001  [MP3|320 кб с]<pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Я делаю вдох  05:16 
+ 02 - 2000 лет  04:58 
+ 03 - Давайте петь!  04:01 
+ 04 - Солнышко  04:17 
+ 05 - Выше неба  03:55 
+ 06 - Я мечтаю  04:23 
+ 07 - Всё просто!  05:14 
+ 08 - Время меняет  05:35 
+ 09 - На краю света  03:47 
+ 10 - Место над землёй  05:12     Читать дальше...    Жанр: popПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7AF50155B9CA568BA36928B88F04643BFB346E2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_607662.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 607 650
+
+Hi-Fi - Звездная серия  2008  [MP3|320 кб с]<pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Про лето  2:58 
+ 2. Арабика  4:47 
+ 3. Черный ворон  4:00 
+ 4. Somebody  3:45 
+ 5. Не дано  3:06 
+ 6. Doctor Sex  4:48 
+ 7. Беспризорник  3:38 
+ 8. Куба  2:52 
+ 9. Fly  2:33 
+ 10. New York  2:20     Читать дальше...    Жанр: popПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:72ECD7E0B368F7609B9BC044F64321E45FAEE1D1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_607650.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 606 751
+
+Ольга Зарубина - Не случайно  2012  [MP3|320 кб с]<pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Не случайно  дуэт с Сергеем Переверзевым 
+02. Заговорные слова
+03. Я – снег
+04. Возьми меня с собой
+05. Ты целовал мои следы
+06. Разгуляй
+07. Так не должно быть  дуэт с Михаилом Боярским 
+08. С Днем рождения!
+09. Новогодняя
+10. Слова заветные    Читать дальше...    Жанр: popПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D10B370410B571444C880ACAB1E3FF27B35EFA7D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_606751.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 606 007
+
+ВИА Советский Союз - Советский Союз  2006  [MP3|128 кб с]<поп, ретро>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01.Раз, и два, и три...
+02.Десять дней
+03.Между мною и тобою
+04.Горько
+05.Вишня
+06.Возьми свои слова обратно
+07.Воскресенье
+08.Вот опять сентябрь
+09.Ох! Эти танцы!
+10.Бременские музыканты    Читать дальше...    Жанр: поп, ретроПродолжительность: 00:54:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0BC130F5D55E1BD6527C63ED45DBC1FAD4982643
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_606007.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 605 927
+
+Верка Смердючка - 6 альбомов  2003-2006  [FLAC|Lossless|image + .cue] <Pop   Parody>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01 | Мы весело гуляем | 02:57
+02 | Пылесос | 02:36
+03 | Цибуля | 02:35
+04 | Йоги рекетиров не бояться | 03:12    Читать дальше...    Жанр: Pop   ParodyПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CEE210CCF5BBCF83ECA9E12EED42CF48D053C909
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_605927.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 605 829
+
+Diana Ross - Love & Life - The Very Best Of Diana Ross  2CD   2001  [MP3|320 кб с]<pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 1 - Life1. You Are Everything
+2. Touch Me In The Morning
+3. Theme From Mahogany  Do You Know Where You re Going To? 
+4. I m Still Waiting
+5. Ain t No Moutain High Enough
+6. I m Gonna Make You Love Me
+7. Someday We ll Be Together
+8. Remember Me
+9. Stop, Look, Listen  To Your Heart 
+10. Good Morning Heartache    Читать дальше...    Жанр: popПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9EBA22A09948AF56CDB8CAE38B2D68E0E92E3762
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_605829.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 605 036
+
+Gazebo - Greatest Hits  1991  [MP3|320 кб с]<pop, disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 Lunatic
+02 Love In Your Eyes
+03 London-Paris
+04 Masterpiece
+05 I Like Chopin
+06 Midnight Cocktail
+07 Gimmick!
+08 Telephone Mama
+09 Alice In Wonderland
+10 Coincidence    Читать дальше...    Жанр: pop, discoПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E4F8388D01480757DCF2A566036A2AF24DD92C49
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_605036.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 604 561
+
+Francesco Napoli - Disco Italiano  2010  [MP3|~225 кб с  V1 ]<pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Americano 03:28
+02. Balla... Balla Vol. 1 05:43
+03. Balla... Balla Vol. 2 06:44
+04. Ma Quale Idea 04:28
+05. Lady Lay 03:12
+06. Torner· 03:04
+07. Hay L amore 03:07
+08. Lady Fantasy 03:09
+09. Marina 02:44
+10. Vamos A La Playa 03:43    Читать дальше...    Жанр: popПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:635044622E30383A77728FBB5E9FDF8374265CF2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_604561.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 604 158
+
+Joe Dolan - 4 альбома  1975-1993  [MP3|320 кб с]<pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1975 - Crazy Woman1	The Answer To Everything	02:46
+2	My Own Peculiar Way	02:22
+3	Aching Breaking Heart	02:46
+4	Pretty Brown Eyes	02:53
+5	Tar And Cement	03:20
+6	The House With The Whitewashed Gable	02:15
+7	Love Of Common People	02:57
+8	Westmeath Bachelor	03:00
+9	Unchained Melody	03:36
+10	Make Me An Island	02:56    Читать дальше...    Жанр: popПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3F70BE60905AFB7E2DBAA2635CB408DAF3144599
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_604158.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 603 817
+
+VA - Hits Of The 60 s - 250 Hits Of The Supersixties  2009  10CD[MP3|320 кб с]<Pop, Disco, R
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Shangri-Las - Leader Of The Pack [02:50]
+02. Foundations - Build Me Up, Buttercup [02:40]
+03. Crystals - Da Doo Ron Ron [02:21]
+04. Eric Burdon - Don t Let Me Be Misunderstood [02:19]
+05. Small Faces - Tin Soldier [03:21]
+06. Van Morrison - Brown Eyed Girl [03:04]
+07. Gerry & The Pacemakers - Ferry  cross The Mersey [02:46]
+08. Helen Shapiro - Walking Back To Happiness [02:32]
+09. Lee Dorsey - Working In A Coal Mine [02:45]
+10. Canned Heat - On The Road Again [04:32]    Читать дальше...    Жанр: Pop, Disco, RetroПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EB50E14EBE2ADA83A9A7BF5ACC3A78D16D913CC5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_603817.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 603 220
+
+Eros Ramazzotti - All The Best  2012  [MP3|320 кб с]<pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1.Inevitabile  feat. Giorgia 
+2.Respiro Nel Blu
+3.Andare... In Ogni Senso
+4.Oggi Che Giorno E 
+5.Cantico
+6.Cara Prof
+7.Canzoni Lontane
+8.Amarti E  L Immenso Per Me
+9.Dolce Barbara
+10.Taxi Story    Читать дальше...    Жанр: popПродолжительность: 03:36:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:17942AF06991724855ED6361D11B7194AEB32F7D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_603220.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 603 212
+
+Варвара - 4 альбома  2001-2008  [MP3|320 кб с]<pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+2001 - Варвара01. Выше любви
+02. Грёзы
+03. Варвара
+04. Две стороны одной луны
+05. Тихо таял снег
+06. Сердце мое не плачь
+07. Я живая
+08. Два сердца
+09. Бабочка
+10. Прогони    Читать дальше...    Жанр: popПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_603212.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 603 201
+
+Army of Lovers - The Best Of  1999  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01.Hands Up
+02.Let The Sunshine In
+03.Sexual Revolution
+04.I Am
+05.My Army Of Lovers
+06.Israelism
+07.Lit De Parade
+08.Give My Life
+09.La Place De Saint Tropez
+10.Carry My Urn To Ukraine    Читать дальше...    Жанр: PopПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1239168E50B54B3E032F85778B10EB8630FC5F24
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_603201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 602 902
 
 Андрей Заблудовский - Шагает парень  2004  [MP3|320 кб с]<поп, ретро>
@@ -1690,660 +2388,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_588754.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 587 885
-
-Леонид Утесов - 11 альбомов  1995-1997  [FLAC|Lossless]<Retro>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Вокруг Европы за 3.80
-02. Вокруг Европы за 3.80 — Два сольди
-03. Вокруг Европы за 3.80
-04. Вокруг Европы за 3.80 — Одесский порт    Читать дальше...    Жанр: RetroПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F93BA6F5C98623FFC3F221E2622049FCD0368F26
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_587885.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 587 398
-
-Wilson Phillips - Wilson Phillips  1990  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Hold On
-02. Release Me
-03. Impulsive
-04. Next To You  Someday I ll Be     Читать дальше...    Жанр: PopПродолжительность: 00:46:03
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_587398.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 587 074
-
-V.A. - Суперхиты дискотеки 90-х - Золотые баллады  2011  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Haddaway - I Miss You
-02. East 17 - Thunder
-03. Seal - Crazy
-04. Simply Red - Stars
-05. Rialto - Monday Morning
-06. Chris Rea - The Road To Hell  Part II 
-07. Coolio - Gangsta s Paradise
-08. Sarah Brightman - Eden
-09. Shakespears Sister - Stay
-10. East 17 ft. Gabrielle - If You Ever    Читать дальше...    Жанр: PopПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_587074.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 587 057
-
-Joe Dassin - Grand Collection  2001  [MP3|320 кб с]<Chanson, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 Salut
-02 L ete indien
-03 Les Champs-Elysees
-04 Et si tu n existais pas
-05 Il faut naitre a Monaco
-06 A Toi
-07 Ca va pas changer le Monde
-08 L equipe a Jojo
-09 Salut les Amoreux
-10 L amerique    Читать дальше...    Жанр: Chanson, PopПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E21F8D2FBFE3681E484CCF53E30E9368A55E45B6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_587057.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 586 961
-
-Tina Turner - The Collected Recordings - Sixties To Nineties [3CD Box Set]  1994  [MP3|320 кб 
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Let s Stay Together  5:17 
- 2. What s Love Got To Do With It  3:46 
- 3. Better Be Good To Me  5:10 
- 4. Private Dancer  7:11 
- 5. I Can t Stand The Rain  3:43 
- 6. Help  4:30 
- 7. We Don t Need Another Hero  Thunderdome   4:15 
- 8. Typical Male  4:15 
- 9. What You Get Is What You See  4:27 
- 10. Paradise Is Here  5:29     Читать дальше...    Жанр: Pop, Rock, SoulПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:64BD959B68E06B01E766A179BBD63F410A3E1466
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_586961.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 586 716
-
-Adriano Celentano - Live Adriano  2012  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Новый двойной альбом Адриано Челентано, запись концерта проходившего 8-9 октября в Вероне, маэстро дополнил его еще девятью отличными студийными композициями в виде бонуса...1. Solo da un quarto d ora  5:45 
- 2. Io sono un uomo libero  5:48 
- 3. Quel casinha  Il ragazzo della via Gluck   4:28 
- 4. 24.000 baci  2:19 
- 5. Nata per me - Remix  2:58 
- 6. Dormi amore  5:31 
- 7. Tir  4:29 
- 8. Per sempre  5:10 
- 9. Gelosia  4:31 Жанр: PopПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2AE7ABE0DA4263C6DFEE11D628829D1EB179DCEB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_586716.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 586 556
-
-Tina Turner - All The Best  2012  [MP3|320 кб с]<Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Steamy Windows
-02. The Best
-03. Private Dancer
-04. In Your Wildest Dreams
-05. I Don t Wanna Lose You
-06. Something Beautiful Remains
-07. Be Tender With Me Baby
-08. Why Must We Wait Until Tonight
-09. Help!
-10. Goldeneye    Читать дальше...    Жанр: Pop-RockПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0A63CBED7E7346C5B7142BA09B289410D468242A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_586556.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 586 394
-
-Amanda Lear - All Very Best  2012  [MP3|320 кб с]<Pop,Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. - Desire
- 02. - L Ecole D Amour
- 03. - The Sphinx
- 04. - Ragazzino
- 05. - Aphrodisiac
- 06. - This Man  Dali s Song Remix 
- 07. - Fashion Pack  Studio 54 
- 08. - Blue Tango
- 09. - Queen Of Chinatown
- 10. - Love Me, Love Me Blue    Читать дальше...    Жанр: Pop,DiscoПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D44994C52EA6A52E69753C8112A38C8BCF587D6E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_586394.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 586 222
-
-Dan Balan - Freedom. Part 1  2012  [FLAC|Lossless]<Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Chica Bomb [3:29]
-02. Freedom [3:33]
-03. 24th Letter [4:23]
-04. Lonely [3:11]    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:038EC327FB266AC745B4ABF5DE4ACC88135C027E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_586222.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 586 139
-
-Cascada - It s Christmas Time  iTunes Version   2012  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Let It Snow  1:50 
-02. Have Yourself a Merry Little Christmas  2:39 
-03. Last Christmas  3:52 
-04. Jingle Bell Rock  2:45 
-05. Santa Clause Is Coming to Town  2:55 
-06. I ll Be Home for Christmas  2:56 
-07. Away in a Manger  3:29 
-08. Somewhere At Christmas Time  3:33 
-09. Winter Wonderland  3:05 
-10. Christmas Song  3:28     Читать дальше...    Жанр: PopПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:88A12E9C80632E41673AC4A4C50526E30CB886F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_586139.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 585 580
-
-Тамара Миансарова - Звёзды советской эстрады. Хиты 60-70-х  2010  [APE|Lossless]<Retro>
-Pop (сборники)
-Советская эстрада, Ретро (Lossless)
-
-###  Подробнее
-
-1. Чёрный кот  Ю.Саульский - М.Танич 
-2. Парасольки  Зонтики   Хертель - Словяковский 
-3. Идут дожди  И.Шамо - Л.Смирнов 
-4. Песня о песнях  Т.Миансарова - И.Хлебников     Читать дальше...    Жанр: RetroПродолжительность: 01:12:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:095F622E0975B78B13D1B68848AE80080316CC5F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_585580.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 584 849
-
-Secrets In Stereo - 2 альбома  2007-2008  [MP3|128 кб с]<Power Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Secrets In Stereo:
-1. Not Today  3:23 
-2. All the Things I Hate  3:03 
-3. Again  4:04 
-4. Starting to Rain  3:23 
-5. Beautiful  3:26 
-6. Step Outside  4:07 
-7. Quit and Go Home  2:04 
-8. Take You Away  3:01 
-9. No Such Thing  2:51     Читать дальше...    Жанр: Power PopПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E7298428DE7B622225D8899EE956D9160B00417A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 584 763
-
-Владимир Макаров - Поёт Владимир Макаров  1996  [APE|Lossless]<Retro>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-1 Сон в дороге 2:51
-2 Дождь 3:44
-3 Буфер бьётся пятаком зелёным 2:36
-4 Мне б только знать 2:19    Читать дальше...    Жанр: RetroПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AB85EBF6CA937DED6EAC1F134A01E5CBE8123FB5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_584763.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 584 666
-
-V.A. - Комсомольская Юность Моя  2008  [FLAC|Lossless]<Pop, Retro>
-Pop (сборники)
-Советская эстрада, Ретро (Lossless)
-
-###  Подробнее
-
-01. Иосиф Кобзон - Мы поём о Комсомольске
-02. Лев Лещенко - Начало
-03. Валентина Левко - Орлёнок
-04. Иван Савчук и Константин Герасимов - Комсомольцы-добровольцы
-05. Иосиф Кобзон - Мне доверена песня
-06. Валентина Левко - А годы летят
-07. Виктор Берковский и Дмитрий Богданов - Гренада
-08. Марк Бернес - Москвичи
-09. Николай Рыбников - Когда весна придёт
-10. Юрий Мазурок - Россия - Родина моя    Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C23E94C197B7AEE2185DE4B9E2DDD4F2CB4A954A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_584666.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 584 482
-
-Adriano Celentano - Il Migliore  2012  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Attraverso Me  5:10 
- 2. Pay Pay Pay  4:25 
- 3. Stivali E Colbacco  4:17 
- 4. Soli  4:06 
- 5. Confessa  5:10 
- 6. Azzuro  3:44 
- 7. Angel  5:12 
- 8. 24 000 Baci  2:24 
- 9. I Passi Che Facciamo  5:42 
- 10. Susanna  4:45     Читать дальше...    Жанр: PopПродолжительность: 01:45:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:88065ADC98487D0B2D94E6930B6B905A00DDA211
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_584482.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 584 258
-
-VA - Песни 70-х  2 CD   2005  [FLAC|Lossless]<Retro>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Машина времени  Поворот 
-02. Весёлые ребята  Уходило лето 
-03. Синяя птица  Клён 
-04. Песняры  Вологда     Читать дальше...    Жанр: RetroПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:908E4E2FD83E0248ED5BD15CE6D9E3D652E1626F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_584258.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 584 200
-
-Fancy - 37 альбомов + 35 синглов  1985 - 2011  [MP3|320kbps]<EuroDisco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Жанр: EuroDiscoПродолжительность: 00:17:43
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 583 940
-
-PUPO - 1996  1996  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. La Notte
-02. Solo Con Te
-03. Sara
-04. L Angelo Postino
-05. Tu
-06. Per Angela
-07. Tu Vincerai
-08. Sempre Tu
-09. Torna Presto
-10. Senza FortunaЖанр: PopПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A974FC78418F4FB09F5C387C496796048ECF36CB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_583940.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 583 771
-
-Anastacia - It s A Man s World  2012  [FLAC|Lossless]<Pop, Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Ramble On  Led Zeppelin 
-02. Best Of You  Foo Fighters 
-03. Sweet Child O  Mine  Guns N  Roses 
-04. You Can t Get Always Get What You Want  Rolling Stones 
-05. One  U2 
-06. Back In Black  AC DC 
-07. Dream On  Aerosmith 
-08. Use Somebody  Kings Of Leon 
-09. You Give Love A Bad Name  Bon Jovi 
-10. Wonderwall  Oasis Жанр: Pop, Pop-RockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 583 746
-
-Mylène Farmer - Monkey Me  2012  [MP3|320 kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Elle a dit  03:52 
-02. À l ombre  04:51 
-03. Monkey Me  04:13 
-04. Tu ne le dis pas  04:22 
-05. Love Dance  04:06 
-06. Quand  04:07 
-07. J ai essayé de vivre...  04:40 
-08. Ici-bas  04:33 
-09. A-t-on jamais  03:47 
-10. Nuit d hiver  05:24     Читать дальше...    Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D90B6361795CEBCA7BF32CC291296BE6E74E7A8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_583746.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 583 331
-
-Frank Duval - Touch My Soul  1989  [MP3|320 кб с]<Pop-Rock>
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-01. Touch My Soul  To Sai Baba  7:31
-02. Avedana  Instrumental  4:20
-03. Life Will Go On 4:12
-04. He Came From Space 4:29
-05. And At The End Of Every Street 4:02
-06. Children Of Our Time 4:15
-07. And One Day 5:05
-08. Closer To Heaven 5:13
-09. Help Me 5:25Жанр: Pop-RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3DF0D0CEAAB2E7301FCB7DD74B0A4900770E7A02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_583331.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 583 277
-
-Марк Бернес - Лучшее  2CD   2011  [FLAC|Lossless]<Retro>
-Pop (сборники)
-Советская эстрада, Ретро (Lossless)
-
-###  Подробнее
-
-01 - С чего начинается Родина
-02 - Темная ночь
-03 - Журавли
-04 - Я люблю тебя, жизнь    Читать дальше...    Жанр: RetroПродолжительность: Трек лист:
-01 - Когда разлюбишь ты
-02 - Песенка моего друга
-03 - Рабочий Человек    Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99608B4825504CEF22136D46F1B88DD2FED9D29A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_583277.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 583 255
-
-Supermax - Hello, Kurt!  2011  [MP3|320 кб с]<Funk,Disco,Reggae>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Жанр: Funk,Disco,ReggaeПродолжительность: 02:05:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44C3971DB0B674B081C2EE4727879E08CA4B4876
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_583255.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

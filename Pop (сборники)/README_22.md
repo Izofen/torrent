@@ -1,4 +1,578 @@
 ﻿
+###  Публикация: 1 582 800
+
+Lara Fabian - Greatest Hits  2010  2CD [OGG Vorbis|480 Kbps] <Pop, Ballad, Chanson>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Demain n  existe pas
+02. Amoureuse
+03. La lettre
+04. Toccami    Читать дальше...    Жанр: Pop, Ballad, ChansonПродолжительность: 02:39:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE37DA59DC19068402BAFFDB7C77BE98513D6D4F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582800.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 777
+
+Barbra Streisand - Walls  2018  [OGG Vorbis|480 Kbps] <Pop, Vocal>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. What s on My Mind
+02. Don t Lie to Me
+03. Imagine  What a Wonderful World
+04. Walls    Читать дальше...    Жанр: Pop, VocalПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E2DABEFF969DB4134060D67714400FB144A308CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582777.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 704
+
+Mariah Carey - Music Box  1993  [OGG Vorbis|480 Kbps] <Electronic, Funk   Soul>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Dreamlover
+02. Hero
+03. Anytime You Need a Friend
+04. Music Box    Читать дальше...    Жанр: Electronic, Funk   SoulПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6ECEB34BA7C5BC7C29236DCCBB9A4B76ED31154E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582704.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 498
+
+VA - Now Yearbook 85  2022  4CD, Compilation, Special Edition [MP3|320 Kbps] <Pop, Synth-Pop, Re
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1
+01. Queen - One Vision
+02. Philip Bailey & Phil Collins - Easy Lover  LP version 
+03. Eurythmics, Annie Lennox, Dave Stewart - There Must Be An Angel  Playing With My Heart     Читать дальше...    Жанр: Pop, Synth-Pop, Reggae, RockПродолжительность: 01:19:12 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65040901EFC82B99D67FD082E9C7D9B4D3D06012
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582498.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 248
+
+Sarah Brightman - Dreamchaser  2013  [OGG Vorbis|484 Kbps] <Pop, Classical>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Angel
+02. One Day Like This
+03. Glosoli
+04. Lento E Largo From Symphony No. 3, Op. 36  Symphony Of Sorrowful Songs     Читать дальше...    Жанр: Pop, ClassicalПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7C28080549BD9D1F713E66D37DB245E76BD9DC6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582248.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 216
+
+Sarah Brightman - A Winter Symphony  2008  [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Arrival
+02. Colder Than Winter
+03. Ave Maria  Duet With Fernando Lima 
+04. Silent Night    Читать дальше...    Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F5ECAC121ACBEEA1A813617C4619156BECC31DAB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582216.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 197
+
+Sarah Brightman - Symphony  2007  [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Gothica
+02. Fleurs Du Mal
+03. Symphony
+04. Canto Della Terra  Duet With Andrea Bocelli     Читать дальше...    Жанр: Electronic, Pop, ClassicalПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7341D82EA3F41F260F6F3364196E66EEDFBCD03E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582197.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 100
+
+Sarah Brightman - Harem  2003  [OGG Vorbis|484 Kbps] <Electronic, Classical, Ambient>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Harem
+02. What A Wonderful World
+03. It s A Beautiful Day
+04. What You Never Know    Читать дальше...    Жанр: Electronic, Classical, AmbientПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6C1E9F62EA8ABF110AF5944B182B0E1DC8E5014C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582100.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 094
+
+Sarah Brightman - Classics  2001  [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ave Maria  New Recording 
+02. La Wally
+03. Winter Light  New Recording 
+04. Anytime, Anywhere    Читать дальше...    Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:47595C5B9CABB7A10882F2D15208E014A440405F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582094.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 066
+
+Sarah Brightman - The Very Best Of 1990-2000  2001  [OGG Vorbis|484 Kbps] <Electronic, Pop, Synt
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. A Question Of Honour  Part 2 - Radio Edit 
+02. Heaven Is Here
+03. Who Wants To Live Forever  With The London Symphony Orchestra 
+04. Time To Say Goodbye  Con Te Partiro   With Andrea Bocelli     Читать дальше...    Жанр: Electronic, Pop, Synth-popПродолжительность: 01:03:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:785E130CC682AAFF6AF321160E349008FE65B095
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582066.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 046
+
+Sarah Brightman - La Luna  2000  [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. La Lune
+02. Winter In July
+03. Scarborough Fair
+04. Figlio Perduto    Читать дальше...    Жанр: Electronic, Pop, ClassicalПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2DB608A038921A0A06570FA50D6F5E3FABD70BF0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582046.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 997
+
+VA - Top Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+001. Glass Animals - Heat Waves  3:58 
+002. Justin Bieber - Ghost  2:33 
+003. Olivia Rodrigo - good 4 u  2:58 
+004. Elton John, Dua Lipa - Cold Heart  PNAU Remix   3:22     Читать дальше...    Жанр: PopПродолжительность: 06:03:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EBE4543506DF0116922017D842CCCC7A1CD6BAA9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581997.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 988
+
+Sarah Brightman - Eden  1998  Reissue, 1999, EastWest [OGG Vorbis|484 Kbps] <Electronic, Rock, S
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. In Paradisum
+02. Eden
+03. So Many Things
+04. Anytime, Anywhere    Читать дальше...    Жанр: Electronic, Rock, Synth-popПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:253D5EEBE8A7B3F4EDC7F6AAA78C1DA93D9288A2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581988.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 939
+
+Sarah Brightman - Fly  1996  [OGG Vorbis|484 Kbps] <Rock, Pop, Classical>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Time To Say Goodbye  Con Te Partiro   Featuring Andrea Bocelli 
+02. The Fly
+03. Why
+04. Murder In Mairyland Park    Читать дальше...    Жанр: Rock, Pop, ClassicalПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CEE711268CAEBDACA0DD2A1AC9A562379CE289CC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581939.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 787
+
+Sarah Brightman - Dive  1993  [OGG Vorbis|484 Kbps] <Pop, Downtempo, Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Dive
+02. Captain Nemo
+03. The Second Element
+04. Ship Of Fools    Читать дальше...    Жанр: Pop, Downtempo, Synth-popПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2489F02AA8A7E8512D8070C4658C1D94B0D4BAC6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581787.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 773
+
+Celine Dion - My Love  Ultimate Essential Collection   2008  2 CD, Reissue, 2008, Sony Music
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. My Heart Will Go On  Love Theme From   Titanic   
+02. Think Twice
+03. It s All Coming Back To Me Now
+04. A New Day Has Come  Radio Remix     Читать дальше...    Жанр: Pop, BalladПродолжительность: 02:38:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:83285718DF2A68E447B6C311FBC9D5645F64FD02
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581773.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 751
+
+Kylie Minogue - Disco  Guest List Edition   2020  3 CD, Reissue, 2021, BMG [OGG Vorbis|484 K
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Magic
+02. Miss a Thing
+03. Real Groove
+04. Monday Blues    Читать дальше...    Жанр: Electronic, Pop, DiscoПродолжительность: 02:26:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:10232DEB28C3DAD42E13AF796023F187FA1C8D27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581751.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 716
+
+Laura Branigan - Self Control  1984  2 CD, Reissue, Remastered, 2020, Cherry Pop [OGG Vorbis|484
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. The Lucky One
+02. Self Control
+03. Ti Amo
+04. Heart    Читать дальше...    Жанр: Electronic, Pop, Synth-popПродолжительность: 01:27:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E11AE38C30658BE876C5DF9D70BA836E79932651
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581716.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 509
+
+Richard Marx - Songwriter  2022  [FLAC|Lossless|image + .cue] <Pop, Rock, Country...>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Richard Marx. Одно только его имя вызывает в воображении необыкновенные мелодии и его песни, исполненные с сердечной искренностью и достоверностью. Отмеченный наградами певец, автор песен, музыкант и автор, он ворвался в поп- и рок-чарты, чтобы завоевать сердца каждого ребенка 80-х, и с тех пор продолжает творить чудеса. Так что на самом деле неудивительно, что его     Читать дальше...    01. Same Heartbreak Different Day  3:09 
+02. Only A Memory  3:02 
+03. Anything  2:38 
+04. Moscow Calling  4:53     Читать дальше...    Жанр: Pop, Rock, Country...Продолжительность: 01:09:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:993B5BDD948ECB3C1D8A58A85AF6EB1A5489EB6A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581509.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 301
+
+Dido - Greatest Hits  2013  2 CD [OGG Vorbis|484 Kbps] <Electronic, Pop, Ballad>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Here With Me
+02. Thank You
+03. Hunter
+04. White Flag    Читать дальше...    Жанр: Electronic, Pop, BalladПродолжительность: 02:22:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B16A3141A1856FE0EABE475531FD4C1B8C5CFFA3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581301.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 259
+
+Milou - Change Your Mind  1990  [OGG Vorbis|485 Kbps] <Electronic, Synth-pop, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Change Your Mind  Dance Floor Version 
+02. Change Your Mind  Instr. Version 
+03. Change Your Mind  Radio Version Жанр: Electronic, Synth-pop, Euro-DiscoПродолжительность: 00:15:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C4BE5785AE316D842A8EAD3F2C102153FD1381F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581259.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 195
+
+Performance - Hi-Fi Performance  1976  LP [MP3|320 Kbps] <Disco, Instrumental, Easy Listening>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Hong-Kong Connection  4:10 
+02. Dynamite Dragster  3:30 
+03. Daytona  4:44 
+04. Headline  3:19     Читать дальше...    Жанр: Disco, Instrumental, Easy ListeningПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0BB540BCB423C19E9F4A4CC6D1634C8FBC30961A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581195.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 145
+
+Robbie Williams - Heavy Entertainment Show  2016  [OGG Vorbis|484 Kbps] <Rock, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. The Heavy Entertainment Show
+02. Party Like a Russian
+03. Mixed Signals
+04. Love My Life    Читать дальше...    Жанр: Rock, PopПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2968BF4B23BE5684F8C2F1872089EFE418FE5F7B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581145.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 581 122
 
 VA - Best Radio Tracks, Vol. 23  2022  [MP3|320 Kbps] <Dance, Pop, Electronic>
@@ -1417,579 +1991,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574885.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 574 799
-
-Elen Cora - House Of Cards  2012  [OGG Vorbis|485 Kbps] <Electronic>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Tell Me Why
-02. Forgive Me
-03. Astronomers in China
-04. Wanna Be Real    Читать дальше...    Жанр: ElectronicПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B1EABD81972792ECE3DB5FEFA5728D01C99D8B42
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574799.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 574 647
-
-23rd Underpass - Real Life  2014  [OGG Vorbis|485 Kbps] <Electronic>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Real Life  Start Living, Living Again 
-02. Planet 21
-03. Running  Thousand Miles Away 
-04. Tears In My Mind - Dream Version    Читать дальше...    Жанр: ElectronicПродолжительность: 01:33:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF81F9E9491148C21657D53E2DFD89231962A8C4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574647.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 574 638
-
-Milou - Sentimental Lover  1987  [OGG Vorbis|485 Kbps] <Electronic>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Sentimental Lover	3:33
-02. Sentimental Lover  Instrumental 	3:35Жанр: ElectronicПродолжительность: 00:07:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF03E3561F2A51AAF4437B697254D7D04CA301BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574638.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 574 172
-
-Caro - 2 Albums  1980, 1983  LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco, New Wave>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Wanderlust  3:16 
-02. My Boy  3:37 
-03. Be Somebody  3:46 
-04. Don t Knock The Rock  2:45     Читать дальше...    Жанр: Electronic, Pop Rock, Disco, New WaveПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9288FFA2D66E326F026A42A40B83FFADF880AF89
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574172.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 574 112
-
-Blue System - Deja Vu  1991  [OGG Vorbis|485 Kbps] <Electronic>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Déjà Vu	3:39
-02. It s All Over  3:37
-03. New York - Berlin - Paris	3:50
-04. Mrs. Jones	4:05    Читать дальше...    Жанр: ElectronicПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7520DE0C519A18612C6865EBCF85751F2C600B90
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574112.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 574 076
-
-Hot Bush - Hot Bush  1980  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Get In The Groove  4:21 
-02. Flight   69    5:13 
-03. Tell Me What You Will  5:56 
-04. L.O.V.E. F.U.S.E.  5:07     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:29:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FCD78A6A644E5AA625400B22508029D1DB6BF09D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574076.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 871
-
-Ken Laszlo - Greatest Hits & Remixes Vol. 2  2022  [OGG Vorbis|485Kbps] <Electronic>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Hey Hey Guy	3:21
-02. Tonight	4:10
-03. Black Pearl	4:06
-04. Glasses Man	3:40    Читать дальше...    Жанр: ElectronicПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25283DBE153C83D165CB89AE5C776054D95E2A44
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573871.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 796
-
-Sandra - Stay In Touch  2012 ,  2CD  [OGG Vorbis|485 Kbps] <Electronic, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Stay In Touch
-02. Infinite Kiss
-03. Between Me And The Moon
-04. Maybe Tonight    Читать дальше...    Жанр: Electronic, PopПродолжительность: 01:43:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:41ACF15E4A9842163282E8A9418F9F0B8DE2359F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573796.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 784
-
-The Flirts - 6LP+2CD Albums  1982-2014  Collection [MP3|320 Kbps] <Electronic, Disco, Hi NRG, Sy
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Группа была создана продюсером Бобби Орландо в 1980 году. Он занимался подбором участниц, писал для группы песни и играл на инструментах. В составе группе было три участницы. С каждым новым альбомом в группе происходила смена состава, и через группу прошло более десятка вокалисток, не считая бэк-вокала, в том числе Линда Джо Риццо, позже переехавшая из США в Германию     Читать дальше...    Список альбомов:
-1982 - 10¢ A Dance
-1983 - Born To Flirt
-1983 - Flirt With The Flirts    Читать дальше...    Жанр: Electronic, Disco, Hi NRG, Synth-popПродолжительность: 05:50:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F614C8CA61A1244AB9705D6DFF38A3B81AAE05A6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573784.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 766
-
-Modern Talking - In The Middle Of Nowhere - The 4th Album  1986  [OGG Vorbis|485 Kbps] <Electron
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Geronimo s Cadillac	3:16
-02. Riding On A White Swan	3:52
-03. Give Me Peace On Earth	4:11
-04. Sweet Little Sheila	3:03    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:522C021F848BB4C14D8E3AAB6AE6DEDC3A01E647
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573766.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 285
-
-Various - The Best Of Italo-Disco Vol. 4  1985  [OGG Vorbis|485 Kbps] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Betty Miranda – Dance	6:17
-02. Max-Him – Lady Fantasy  Remix    6:33
-03. Koto – Visitors	6:18
-04. Camaro s Gang – Fuerza Major	5:36    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:38:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A7DA0F3099DAA596BECE05EFDDB8F96B10801311
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573285.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 246
-
-FIZICA - Доппельгангер  2022  Deluxe Edition [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Intro
-2. Доппельгангер  Intro 
-3. Бизнес-класс  Intro 
-4. Бизнес-класс    Читать дальше...    Жанр: PopПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:424106AA7759937776F04158A6334B176448AAB3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573246.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 212
-
-Mr.President - Up n Away - The Album  1995  Remastered, 2022, Maschina Records [OGG Vorbis|485
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. Intro                                                    	1:20
-02. Up n Away                                           	3:53
-03. 4 On The Floor                                   	3:17
-04. On My Mind                                         	3:55    Читать дальше...    Жанр: ElectronicПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8EE1746965386AF0FC806BC9ED8D51A8B266A303
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573212.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 018
-
-Mylene Farmer - Ainsi Soit Je...  1988  [OGG Vorbis|485 Kbps] <Electronic, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. L Horloge	5:03
-02. Sans Contrefaçon	4:07
-03. Allan	4:46
-04. Pourvu Qu Elles Soient Douces	4:52    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB1F7F0F87BF59FF96740DC75DFD0D65E4C4EDB1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573018.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 756
-
-Pisces - Disco 6  1977  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. I Feel Love  5:25 
-02. Touch Me  4:40 
-03. Superman  6:16 
-04. Magic Flight  3:21     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81A79578CCF21BDFC662941F7F046516023B1B21
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572756.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 631
-
-Bee Gees - The Many Faces Of  2020  3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Rock, So
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Братья Barry, Maurice и Robin Gibb, более известные как Bee Gees, являются одними из самых успешных вокальных групп в истории рок-н-ролла. Немногие группы могут сказать, что они держались вместе более сорока лет, не говоря уже о том, что за это время было продано более 200 миллионов пластинок. У братьев Gibb было почти сверхъестественное чутье на создание первых     Читать дальше...    CD 1 The Bee Gees In Concert:
-01. This Is Where I Came In  4:01 
-02. Massachusets  2:32 
-03. To Love Somebody  2:45     Читать дальше...    Жанр: Pop Rock, Soft RockПродолжительность: 02:10:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9905A0C9E921A73F2CCB387D5F54AFAA41DCCC6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572631.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 495
-
-Celine Dion - Courage  2019  [OGG Vorbis|485 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Flying On My Own  3:32 
-02. Lovers Never Die  2:51 
-03. Falling In Love Again  3:51 
-04. Lying Down  3:59     Читать дальше...    Жанр: PopПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:08751BEC023E8A744292DADD8F64CD7EA9B4F077
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572495.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 386
-
-C.C.Catch - Big Fun  1988  [OGG Vorbis|485 Kbps] <Electronic, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Backseat Of Your Cadillac	3:24
-02. Summer Kisses	3:42
-03. Are You Serious	2:57
-04. Night In Africa	4:11    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:34:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF897FDC7EA5602F37959FFEEC2E3FEEBD93822F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572386.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 332
-
-C.C.Catch - Like A Hurricane  1987  [OGG Vorbis|485 Kbps] <Electronic, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Good Guys Only Win In Movies  Long Version 	5:42
-02. Like A Hurricane	3:13
-03. Smoky Joe s Café	3:41
-04. Are You Man Enough	3:36    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3F43473BFF17E7D354B5D77A76A50EB7B057D1CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572332.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 279
-
-C.C.Catch - Welcome To The Heartbreak Hotel  1986  [OGG Vorbis|485 Kbps] <Electronic, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Heartbreak Hotel	3:33
-02. Picture Blue Eyes	3:30
-03. Tears Won t Wash Away My Heartache	4:19
-04. V.I.P.  They re Callin  Me Tonight 	3:27    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C86D613F33578E99FA2F0326C507D475A38B413
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572279.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 246
-
-ABBA - On And On  2003  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Waterloo
-02. Rock Me
-03. Love Isn t Easy
-04. Gonna Sing You My Lovesong    Читать дальше...    Жанр: PopПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18FC31F4D37F28B454AF62479D9C1E48E617DAEA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572246.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 144
-
-The Cars - Heartbeat City  1984  [OGG Vorbis|485 Kbps] <Electronic>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Hello Again	3:47
-02. Looking For Love	3:52
-03. Magic	3:57
-04. Drive	3:55    Читать дальше...    Жанр: ElectronicПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:68689E77A023156F4D771A8FE330414BD6FA0B93
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572144.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 034
-
-Мираж 2 - Снова Вместе  1994  Remastered, 2020, J.S.P. [OGG Vorbis|485 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Музыка Нас Связала	4:29
-02. Наступает Ночь	4:23
-03. Снова Вместе	5:37
-04. Где Я	4:35    Читать дальше...    Жанр: PopПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F2F91D1734260D66EF522E9456B0847A15B9F4AE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572034.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

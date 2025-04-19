@@ -1,2007 +1,1996 @@
 ﻿
-###  Публикация: 1 537 738
+###  Публикация: 1 545 923
 
-FM - Thirteen  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Hard Rock>
+U.D.O. - Steelfactory  2018  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Heavy Metal>
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Shaking the Tree  5:22 
-02. Waiting on Love  4:51 
-03. Talk is Cheap  3:45 
-04. Turn This Car Around  4:43     Читать дальше...    Жанр: Hard RockПродолжительность: 00:53:51
+01. Tongue Reaper  4:26 
+02. Make the Move  4:04 
+03. Keeper of My Soul  4:02 
+04. In the Heat of the Night  4:52     Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:08:54
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:07DADFF687E61A976928E00DA594A1F9E9F20670
+    magnet:?xt=urn:btih:F970059ED5FE48439C9443B9714875B7CA046FD5
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537738.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545923.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 537 736
+###  Публикация: 1 545 915
 
-Stabbing Westward - Chasing Ghosts  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Industrial Rock, A
+Audrey Horne - Devil´s Bell  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Hard Rock>
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. I Am Nothing  4:04 
-02. Damaged Goods  4:42 
-03. Cold  3:48 
-04. Push  7:29     Читать дальше...    Жанр: Industrial Rock, Alternative MetalПродолжительность: 00:51:08
+01. Ashes to Ashes  6:49 
+02. Animal  4:10 
+03. Break Out  5:23 
+04. Return to Grave Valley  4:26     Читать дальше...    Жанр: Hard RockПродолжительность: 00:48:13
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:510FCAEC0B4B2751499B34C27BF6063B7A929161
+    magnet:?xt=urn:btih:59FA38A06444438A659315A015DFDC809F8E9DBF
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537736.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545915.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 537 731
+###  Публикация: 1 545 911
 
-Dark Funeral - We Are The Apocalypse  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Black Metal>
+Somali Yacht Club - The Space  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Psychedelic Rock, Stoner
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Nightfall  5:14 
-02. Let the Devil In  4:40 
-03. When Our Vengeance Is Done  4:20 
-04. Nosferatu  4:41     Читать дальше...    Жанр: Black MetalПродолжительность: 00:43:47
+01. Silver  5:16 
+02. Pulsar  9:08 
+03. Obscurum  5:06 
+04. Echo of Direction  9:46     Читать дальше...    Жанр: Psychedelic Rock, Stoner Rock, Space RockПродолжительность: 00:45:19
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:660FDC6E57024B2DE2B9B43615D51A8058E61BD0
+    magnet:?xt=urn:btih:682C6D7CF798B3B586BE896F330F3A4DDF4D6E06
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537731.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545911.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 537 730
+###  Публикация: 1 545 907
 
-Ronnie Atkins - Make It Count  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Hard Rock>
+Die Apokalyptischen Reiter - Wilde Kinder  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Melodic Death
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. I ve Hurt Myself  By Hurting You   5:21 
-02. Unsung Heroes  4:19 
-03. Rising Tide  4:43 
-04. Remain to Remind Me  3:54     Читать дальше...    Жанр: Hard RockПродолжительность: 00:54:16
+01. Von Freiheit will Ich singen  3:36 
+02. Volle Kraft  4:22 
+03. Alles ist gut  3:38 
+04. Wilde Kinder  4:23     Читать дальше...    Жанр: Melodic Death Metal, Neue Deutsche HarteПродолжительность: 00:43:09
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:BE14C32C1B50CBD4F33773C316B5422AD7FAF374
+    magnet:?xt=urn:btih:406EA00D98BAF4E756A3323C0B6819026CB13360
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537730.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545907.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 537 384
+###  Публикация: 1 545 906
 
-Stray - This Is Stray  1971  renamed album Saturday Morning Pictures, 1976 [FLAC 2.0|192 24|im
+King Gizzard & The Lizard Wizard - Omnium Gatherum  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Prog
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. The Dripping Tap  18:17 
+02. Magenta Mountain  6:05 
+03. Kepler-22b  3:13 
+04. Gaia  5:11     Читать дальше...    Жанр: Progressive RockПродолжительность: 01:20:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F4DB534B0371F5A63A406281D9148082ED9178F7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545906.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 545 901
+
+Stone Broken - Revelation  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Alternative, Hard Rock, Pos
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Black Sunrise  3:23 
+02. The Devil You Know  3:28 
+03. Revelation  3:10 
+04. Make It Out Alive  5:04     Читать дальше...    Жанр: Alternative, Hard Rock, Post GrungeПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D38941EFCC281B4084FD7CC213742B1843146741
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545901.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 545 899
+
+Dorothy - Gifts From The Holy Ghost  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. A Beautiful Life  3:36 
+02. Big Guns  3:32 
+03. Rest In Peace  3:37 
+04. Top Of The World  4:04     Читать дальше...    Жанр: RockПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:331BBFA4E42A7C15E057CE6A17FBB7B8E62F89C8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545899.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 545 898
+
+Skull Fist - Paid In Full  2022  [FLAC 2,0|96 24|WEB-DL|tracks] <Heavy Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Paid In Full  5:34 
+02. Long Live The Fist  3:41 
+03. Crush Kill Destroy  4:13 
+04. Blackout  4:58     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:133B2F86658EDAD22371F5F884E2BE5D78F31DF8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545898.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 545 893
+
+Caliban - Dystopia  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Dystopia  feat. Christoph Wieczorek of Annisokay   4:24 
+02. Ascent of the Blessed  4:10 
+03. VirUS  feat. Marcus Bischoff of Heaven Shall Burn   3:55 
+04. Phantom Pain  4:03     Читать дальше...    Жанр: Metalcore, Post-HardcoreПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D59841C4F8BC029F7F6B3F7E5409E3C9D9F081C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545893.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 545 676
+
+Father John Misty - Chloë and the Next 20th Century  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Ind
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Chloë  3:28 
+02. Goodbye Mr. Blue  5:00 
+03. Kiss Me  I Loved You   3:57 
+04.  Everything But  Her Love  4:16     Читать дальше...    Жанр: Indie Folk, Singer-SongwriterПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5ACA3C07824C72DDF10E50093F1894FB318473A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545676.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 545 424
+
+Die Apokalyptischen Reiter - The Divine Horsemen  2021  [FLAC 2.0|48 24|WEB-DL|tracks] <Melodi
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Tiki  2:32 
+02. Salus  2:11 
+03. Amma Guru  2:27 
+04. Inka  9:19     Читать дальше...    Жанр: Melodic Death Metal, Neue Deutsche HarteПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1A04345284CB3E0EE7DEC56D1A6C5805299718F6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545424.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 545 410
+
+Undeath - Lesions of a Different Kind  2020  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Death Metal, Do
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Suitably Hacked to Gore  2:25 
+02. Shackles of Sanity  2:33 
+03. Lesions of a Different Kind  3:08 
+04. Entranced by the Pendulum  3:35     Читать дальше...    Жанр: Death Metal, Doom MetalПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80C508F4323E3F086EFCC0BE548DCD1DCD4A3F79
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545410.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 545 032
+
+Middle Of The Road - Acceleration  1972  Expanded Edition, 2021, Remaster [FLAC 2.0|192 24|WEB
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01 - Sacremento  A Wonderful Town   3:00 
+02 - On This Land  3:51 
+03 - Queen Bee  2:58 
+04 - Love Sweet Love  3:35     Читать дальше...    Жанр: Pop Rock, Bubblegum, GlamПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A61E025C851EAE13EF9D0F7580AB0DF4872F44E8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545032.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 544 792
+
+Eldest 11 - Коллекция  9 Albums   2009 - 2020  hand made [restored, declipped] [FLAC 2.0|44<
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-A1 Our Song
-A2 After The Storm
-A3 Sister Mary
-A4 Move That Wigwam    Читать дальше...    Жанр: Prog Rock, Psychedelic RockПродолжительность: 00:42:28
+Eldest 11 - группа загадка. Группа, не дающая концерты и интервью. Группа, от года к году не меняющая свое звучание, при этом умудряющийся оставаться самобытной и уникальной в плане создаваемой атмосферы и эмоций.2009 - Worst Part of a Decade
+2010 - Lovers & Haters
+2011 - Message to U
+2013 - The Morning StarЖанр: Nu Metal, Modern RockПродолжительность: 08:15:23
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:E47247469E0A25306EB49CF100F5E6AFA75D7969
+    magnet:?xt=urn:btih:57CEE9CAA13EAC236CCC8BCD874806ECBD9B116D
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537384.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544792.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 537 191
+###  Публикация: 1 544 669
 
-Moon Halo - Together Again  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Progressive Rock>
+Blackberry - Stoned  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Blues Rock, Pop Rock>
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Light in the World  6:12 
-02. Together Again  5:30 
-03. Embrace This Life  5:55 
-04. If This Is All There Is  4:22     Читать дальше...    Жанр: Progressive RockПродолжительность: 01:09:52
+01. All Down The Line [00:04:11]
+02. Sway [00:03:59]
+03. Can t You Hear Me Knocking [00:06:58]
+04. Tumbling Dice [00:04:13]    Читать дальше...    Жанр: Blues Rock, Pop RockПродолжительность: 00:31:54
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:7B03FA7D81AE8018D01FDCBEED6A1B008EA05208
+    magnet:?xt=urn:btih:B8AD443F749B2BB5E984AF70CB3DAF8983858B5D
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537191.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544669.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 537 164
+###  Публикация: 1 544 595
 
-Oscar - Oscar  1974  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Pop Rock>
+The Crystal Method - The Trip Out  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Breakbeat, Electronic
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+1. Watch Me Now  feat. Koda & VAAAL   3:21 
+2. House Broken  feat. Naz Tokio   4:20 
+3. Let s Trip Out  feat. King Green   5:33 
+4. Chemical Mentalist  feat. Wenzday   2:59     Читать дальше...    Жанр: Breakbeat, Electronic, Big BeatПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD0AFDD75A7478EE406603EA4C458F5C3C6F60B8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544595.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 544 581
+
+Beth Hart - A Tribute To Led Zeppelin  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Blues Rock, Ele
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Whole Lotta Love  5:55 
+02. Kashmir  8:15 
+03. Stairway To Heaven  7:54 
+04. The Crunge  3:20     Читать дальше...    Жанр: Blues Rock, Electric BluesПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EAEA008E140853910A2B789F210114B2DD795398
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544581.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 544 576
+
+Beth Hart - Better Than Home  2015  Deluxe Edition, 2022, Provogue Records [FLAC 2.0|44.1 88.2
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Might As Well Smile  04:01 
+02. Tell  Em To Hold On  04:25 
+03. Tell Her You Belong To Me  05:56 
+04. Trouble  04:43     Читать дальше...    Жанр: Blues Rock, Electric BluesПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4AA5E0814D368BD23131A25D8A3C8B1142998C2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544576.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 544 291
+
+Monuments - In Stasis  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Djent, Math Metal, Progressive Me
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. No One Will Teach You  feat. Neema Askari   4:59 
+02. Lavoss  feat. Mick Gordon   4:10 
+03. Cardinal Red  feat. Mick Gordon   4:42 
+04. Opiate  4:18     Читать дальше...    Жанр: Progressive Metal, Metalcore, ElectronicПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:46DB3391AE6EC071CC5C4BD001A45D0285F922F3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544291.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 544 280
+
+Лариса Долина - Песня Нептуна  из к-ф «Танцплощадка»   1986  Серия: По Вашим Письмам [FLAC 2
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-A1 Well Known Lady
-A2 Good Loving Woman
-A3 Encore After Encore
-A4 Hugo    Читать дальше...    Жанр: Glam Rock, Pop RockПродолжительность: 00:36:52
+A Песня Нептуна
+ Е. Дога - М. Танич 
+B На Последнем Сеансе Кино
+ Е. Дога - М. Танич     Читать дальше...    Жанр: SoundtrackПродолжительность: 00:07:49
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
+    magnet:?xt=urn:btih:500BF53E0757A5064D6012EAF2F0FF6152D4A9EA
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537164.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544280.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 537 150
+###  Публикация: 1 544 239
 
-Wes Montgomery - A Day In The Life  1967  1984 [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Jazz>
+Joe Satriani - Дискография  26 releases   1984 - 2022  hand made [restored, declipped] [FLAC
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-A1 A Day In The Life
-A2 Watch What Happens
-A3 When A Man Loves A Woman
-A4 California Nights    Читать дальше...    Жанр: JazzПродолжительность: 00:35:12
+Джозеф «Джо» Сатриани  англ. Joseph  Joe  Satriani; род. 15 июля 1956 года, Вестбери, Нью-Йорк, США  — американский гитарист-виртуоз. Учитель таких гитаристов, как Стив Вай, Кирк Хэммет, Алекс Сколник, Дэвид Брайсон, Чарли Хантер, Ларри ЛаЛондэ и многих других.1986 - Not of This Earth
+1987 - Surfing with the Alien
+1989 - Flying in a Blue Dream
+1992 - The ExtremistЖанр: Instrumental Rock, Hard RockПродолжительность: 29:23:48
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:136C5507E207F16C4F3C12B39B404209A033BEA4
+    magnet:?xt=urn:btih:9398D67AC129A855AA4B648B1BA340AF247D609B
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537150.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544239.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 537 060
+###  Публикация: 1 544 227
 
-King Gizzard & The Lizard Wizard - The Dripping Tap  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Psy
+Kurt Vile -  watch my moves   2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Alternative, Indie Roc
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. The Dripping Tap [18:17]Жанр: Psychedelic RockПродолжительность: 00:18:17
+01. Goin on a Plane Today  2:30 
+02. Flyin  like a fast train   4:47 
+03. Palace of OKV in Reverse  2:54 
+04. Like Exploding Stones  7:18     Читать дальше...    Жанр: Alternative, Indie RockПродолжительность: 01:13:54
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A2F9A5F53F2DC366BF3A3B62FCEE485C1F1145F3
+    magnet:?xt=urn:btih:BDECB7EA640EE26298675AC7C4C93D82C1E67EFA
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537060.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544227.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 536 795
+###  Публикация: 1 544 213
 
-Konvent - Call Down the Sun  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Death Doom Metal>
+Rush - Moving Pictures  1981  2CD, 40th Anniversary Super Deluxe, 2022, Mercury Records [FLAC 2.
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Into the Distance  5:23 
-02. Sand is King  4:12 
-03. In the Soot  4:52 
-04. Grains  6:05     Читать дальше...    Жанр: Death Doom MetalПродолжительность: 00:45:25
+01. 2112 - Overture  4:26 
+02. 2112 - The Temples of Syrinx  2:17 
+03. Freewill  5:51 
+04. Limelight  4:47     Читать дальше...    Жанр: Progressive rockПродолжительность: 2CD, 02:39:18
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:3CD37A70841818ED5ABEA4C1A7CBED1B627A1398
+    magnet:?xt=urn:btih:04FA9D75020CA091DA748E46AE6A847E20EBCFFF
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536795.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544213.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 536 784
+###  Публикация: 1 544 205
 
-Cloven Hoof - Time Assassin  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Heavy Metal>
+Semblant - Vermilion Escape  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Gothic Metal>
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Guardians of the Universe  4:34 
-02. Liquidator  3:20 
-03. Lords of Death  4:24 
-04. After Forever  4:06     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:41:30
+01. Enrage  4:49 
+02. Destiny in Curse  4:03 
+03. Purified  4:33 
+04. The Human Eclipse  4:09     Читать дальше...    Жанр: Gothic MetalПродолжительность: 01:00:51
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:89D0A425FBCAC2B17483705226FA2156C5037BA8
+    magnet:?xt=urn:btih:A20D9113E474A3F6E3D44539C9AF484CF54CD2B7
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536784.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544205.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 536 657
+###  Публикация: 1 544 204
 
-Bryan Adams - Pretty Woman - The Musical  2022  [FLAC 2.0|48 24|tracks|WEB-DL] <Pop Rock, Soft
+Poison Rose - Little Bang Theory  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Melodic Metal>
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01 Welcome To Hollywood  3:38 
-02 Anywhere But Here  2:58 
-03 Something About Her  2:33 
-04 Luckiest Girl In The World  2:57     Читать дальше...    Жанр: Pop Rock, Soft RockПродолжительность: 00:50:50
+01. Inner Wolf  3:21 
+02. Your Eyes Again  3:50 
+03. Devil  Knock on My Door   3:52 
+04. Hearts Beat Loud  3:52     Читать дальше...    Жанр: Melodic MetalПродолжительность: 00:42:52
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:B5207EB5FD163DEA5D6B5B6C2857D11445571AF1
+    magnet:?xt=urn:btih:EC0FA9FE3BE6BE890E2CF4147167ED9C97460216
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536657.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544204.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 536 625
+###  Публикация: 1 544 194
 
-Within Temptation - Shed My Skin  2021  EP [FLAC 2.0|96 24|tracks|WEB-DL] <Alternative Metal,
+Edgar Winter - Brother Johnny  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Blues Rock>
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01 Shed My Skin
-02 The Purge
-03 Entertain You
-04 Shed My Skin  Instrumental     Читать дальше...    Жанр: Alternative Metal, Symphonic MetalПродолжительность: 00:24:39
+01. Mean Town Blues  5:05 
+02. Still Alive and Well  3:43 
+03. Lone Star Blues  3:57 
+04. I’m Yours and I’m Hers  4:49     Читать дальше...    Жанр: Blues RockПродолжительность: 01:15:54
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:70CBD3579CFD08AF86B60AA68E224E8525F91C7F
+    magnet:?xt=urn:btih:B40960B4FCD3D3B15458FEBF9EBD6528EAC61410
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536625.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544194.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 536 612
+###  Публикация: 1 544 189
 
-Within Temptation & The Metropole Orchestra - Black Symphony  Live   2008  2CD, reissue 2021
+Ronnie Romero - Raised on Radio  2022  Cover album [FLAC 2.0|44.1 24|WEB-DL|tracks] <Melodic H
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Our Solemn Hour [00:05:22]
-02. The Other Half  Of Me  [00:05:03]
-03. Frozen [00:04:31]
-04. The Promise [00:08:14]    Читать дальше...    Жанр: Symphonic-MetalПродолжительность: 2CD, 02:02:48
+01. Sin s A Good Man s Brother  Grand Funk Railroad   4:30 
+02. Backstreet Love Affair  Survivor   3:59 
+03. No Smoke Without A Fire  Bad Company   4:22 
+04. I Was Born To Love You  Queen   3:43     Читать дальше...    Жанр: Melodic Hard RockПродолжительность: 00:49:03
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:3DBC0B294154606B5EB257F470FADE4E2FABDBA1
+    magnet:?xt=urn:btih:5A1A6B799568DFF01855606141042A04CFDEB084
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536612.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544189.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 536 559
+###  Публикация: 1 544 188
 
-Jukin  Bone - Whiskey Woman  1972  remastered reissue 2022, RCA [FLAC 2.0|192 24|tracks|WEB-
+Nazareth - Surviving The Law  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Hard Rock>
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Jungle Fever
-02. Candy Man
-03. Spirit In The Dark
-04. Can t Judge What You Miss    Читать дальше...    Жанр: Blues Rock, Classic RockПродолжительность: 00:37:43
+01. Strange Days [00:03:22]
+02. You Gotta Pass It Around [00:03:21]
+03. Runaway [00:03:33]
+04. Better Leave It Out [00:03:33]    Читать дальше...    Жанр: Hard RockПродолжительность: 00:48:10
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:B44A8FF6DD1C261CC181D41707E52D646B4B6896
+    magnet:?xt=urn:btih:2D802157A63EE09C7D02C0A21A4750D9C7453F50
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536559.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544188.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 536 471
+###  Публикация: 1 544 156
 
-David Essex - Rock On  1973  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Pop Rock>
+Kreator - Endorama  1999  2CD, 2021, Ultimate Edition, Remastered, AFM Records [FLAC 2.0|44.1 
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Golden Age  4:51 
+02. Endorama  3:21 
+03. Shadowland  4:28 
+04. Chosen Few  4:30     Читать дальше...    Жанр: Thrash MetalПродолжительность: 2CD, 01:43:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D21FA69738E432434C2F89C0D37D3E0C1A3F10A4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544156.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 544 087
+
+3rd Secret - 3rd Secret  2022  [FLAC 2.0|44.1,96 16,24|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Rhythm of the Ride  4:33 
+02. I Choose Me  4:30 
+03. Last Day of August  5:27 
+04. Winter Solstice  4:22     Читать дальше...    Жанр: Alternative rockПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F27026DE1DC195FD903F13F0C6813EC0863B7FDC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544087.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 544 002
+
+Axel Rudi Pell - Lost XXIII  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Lost XXIII Prequel  Intro   1:47 
+02. Survive  5:01 
+03. No Compromise  4:57 
+04. Down on the Streets  4:46     Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:40F65EA8E7E7A8E26B7F4DC32036D40C52451D11
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544002.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 998
+
+DeVicious - Black Heart  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Hard Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Afterlife  4:49 
+02. Heroines  6:10 
+03. A Special Mind  5:40 
+04. Liar  3:46     Читать дальше...    Жанр: Hard RockПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6DAAD35D7839A1DCC11E0F238F257BC7FC367613
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543998.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 956
+
+Killing Joke - Lord Of Chaos  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Post Rock, Industrial>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Lord Of Chaos  3:59 
+02. Total  4:24 
+03. Big Buzz  Motorcade Mix   5:57 
+04. Delete In Dub  Youth s Disco 45 Dystopian Dub   7:21 Жанр: Post Rock, IndustrialПродолжительность: 00:21:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1E79C54E8DC4BE1451B1B954F727A7DEF612FF1A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543956.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 805
+
+Red Hot Chili Peppers - Дискография  16 releases   1983 - 2022  hand made [restored, declipp
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-A1 Lamplight
-A2 Turn Me Loose
-A3 On And On
-A4 Streetfight    Читать дальше...    Жанр: Pop RockПродолжительность: 00:32:35
+Red Hot Chili Peppers  RHCP  — американская рок-группа, образованная в 1983 году в Калифорнии вокалистом Энтони Кидисом, басистом Майклом Бэлзари  больше известным как Фли , гитаристом Хиллелом Словаком и барабанщиком Джеком Айронсом.1984 - The Red Hot Chili Peppers
+1985 - Freaky Styley
+1987 - The Uplift Mofo Party Plan
+1989 - Mother s MilkЖанр: Alternative Rock, Funk RockПродолжительность: 21:13:07
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:DDDB6FEEFB2105AEBD52597198BD5C62A11236A5
+    magnet:?xt=urn:btih:E6A11D77E3D0177B2967C16310A58FC22C6C064B
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536471.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543805.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 536 392
+###  Публикация: 1 543 465
 
-Wolves at the Gate - Eulogies  2022  [FLAC 2.0|44.1 24|tracks|WEB-DL] <PostHardCore>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Shadows  3:23 
-02. Peace That Starts the War  2:48 
-03. Kiss the Wave  3:49 
-04. Lights & Fire  3:31     Читать дальше...    Жанр: PostHardCoreПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3075615A269D335FD957BB21164D780DFD5DC2B6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536392.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 357
-
-Meteor - Voyage Into Fear  2018  [FLAC 2.0|96 24|WEB-DL|tracks] <Synthwave, Retrowave, Cyberpu
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Sleep Mode: Off [01:36]
-02. E-Class System [03:46]
-03. No Return [04:31]
-04. Hostile Worlds [01:55]    Читать дальше...    Жанр: Synthwave, Retrowave, 80 s, Outrun, CyberpunkПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90C4697C6F0DC015A0AE7604DB664B0B6E0990FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536357.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 298
-
-New Horizon - Gate of the Gods  2022  [FLAC 2.0|44.1 24|tracks|WEB-DL] <Power Metal>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. A New Horizon  Intro   1:27 
-02. We Unite  5:46 
-03. Stronger Than Steel  3:44 
-04. Cry for Freedom  5:26     Читать дальше...    Жанр: Power MetalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7FC14964A9D17D5A7217F329AA42A4B96A70759
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536298.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 295
-
-Radioactive - X.X.X.  2022  [FLAC 2.0|44.1 24|tracks|WEB-DL] <Melodic Rock, AOR>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Monkey on Our Backs  4:27 
-02. The Deed is Done  3:41 
-03. Remember the Ghosts  3:54 
-04. Written in the Scars  4:49     Читать дальше...    Жанр: Melodic Rock, AORПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D79C7001B91FAEB9BC88A86F67BCB8701E6682E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536295.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 288
-
-Rust N  Rage - One for the Road  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Hard Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Prisoner  4:28 
-02. Ghost Town  2:50 
-03. One for the Road  3:47 
-04. The Future is for the Strong  4:18     Читать дальше...    Жанр: Hard RockПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F821CA671A382DBBAE2CF474C0B796FF8333B78A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536288.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 287
-
-Find Me - Lightning In A Bottle  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Melodic Rock, AOR>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Survive  4:10 
-02. Far from Over  4:14 
-03. Sail Away  3:54 
-04. Back to You  4:19     Читать дальше...    Жанр: Melodic Rock, AORПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E0136A58DAB8CC46A8551E6B5F2409284C4C6379
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536287.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 211
-
-Ghost  Ghost B.C.  - Impera  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Heavy Metal>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Imperium  1:40 
-02. Kaisarion  5:02 
-03. Spillways  3:17 
-04. Call Me Little Sunshine  4:44     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA58E5608574CCD4EFCD3E0DB9BA3A8A0A748A23
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536211.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 181
-
-Paul McCartney - Pipes Of Peace  1983  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Soft Rock, Pop
+Муслим Магомаев - Сумерки Зеленые Прощай, Любовь Моя  1983  [FLAC 2.0|96 24|tracks|Vinyl-Rip
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-A1 Pipes Of Peace
-A2 Say Say Say
-A3 The Other Me
-A4 Keep Under Cover    Читать дальше...    Жанр: Soft Rock, Pop RockПродолжительность: 00:39:27
+01. Сумерки Зеленые
+ А. Мажуков - Е. Митасов 
+02. Прощай, Любовь Моя
+ А. Мажуков - О. Шамхалов, перевод Н. Горохова     Читать дальше...    Жанр: PopПродолжительность: 00:10:08
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:F58EC3C3A96884ACFF9C82E25F0F8B9AFD2A1FE2
+    magnet:?xt=urn:btih:C85997CC5FC2605B8D46AABA8C767540C76C0B98
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536181.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543465.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 535 539
+###  Публикация: 1 543 349
 
-Pink Floyd - Wish You Were Here  1975  reissue remastered 2011 [FLAC 2.0|192 24|image+.cue|Vin
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Shine On You Crazy Diamond  1-5 
-A1a Part 1
-A1b Part 2
-A1c Part 3    Читать дальше...    Жанр: Art Rock, Prog RockПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C26097F61DDA28D9D630E168DF71A30EF284270B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1535539.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 535 530
-
-Led Zeppelin - Led Zeppelin III  1970  reissue remastered 2014 [FLAC 2.0|192 24|image+.cue|Vin
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Immigrant Song
-A2 Friends
-A3 Celebration Day
-A4 Since I ve Been Loving You    Читать дальше...    Жанр: Classic Rock, Hard RockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:19E726ADD03EEBA1282DB65883602298D6B2960F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1535530.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 535 212
-
-Machine Head - Studio Albums  10 releases   1994 - 2022  hand made [restored, declipped] [FL
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Machine Head — американская грув-метал-группа, образованная гитаристом и вокалистом Роббом Флинном 12 октября 1991 года в Окленде, Калифорния1994 - Burn My Eyes
-1997 - The More Things Change
-1999 - The Burning Red
-2001 - SuperchargerЖанр: Thrash Groove Metal, Nu-MetalПродолжительность: 12:48:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA8C8AE74C623A8C791B210A2721926492962637
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1535212.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 675
-
-The Beatles - The Beatles  White Album   1968  1977 [FLAC 2.0|192 24|image+.cue|Vinyl-Rip]
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Back In The U.S.S.R.
-A2 Dear Prudence
-A3 Glass Onion
-A4 Ob-La-Di, Ob-La-Da    Читать дальше...    Жанр: Pop Rock, Psychedelic RockПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2A2AAA4FD7082BA267DE6AA85CF1AFA0C6F3B14B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534675.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 515
-
-Scorpions - Rock Believer  2022  [WavPack 2.0|32 192|image + .cue|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Gas In The Tank
- A2. Roots In My Boots
- A3. Knock  Em Dead
- A4. Rock Believer    Читать дальше...    Жанр: RockПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:822F139309BF725B1322410F9AECF02A80566D20
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534515.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 495
-
-Marillion - An Hour Before It s Dark  2022  [FLAC 2.0|96 24|tracks|WEB-DL] <Progressive Rock
+Tord Gustavsen Trio - Opening  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Contemporary Jazz>
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Be Hard on Yourself  I  the Tear in the Big Picture  3:52 
-02. Be Hard on Yourself  II  Lust for Luxury  2:07 
-03. Be Hard on Yourself  III  You Can Learn  3:29 
-04. Reprogram the Gene  I  Invincible  3:32     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:54:20
+01. The Circle  3:57 
+02. Findings   Visa från Rättvik  3:23 
+03. Opening  3:25 
+04. The Longing  2:36     Читать дальше...    Жанр: Contemporary JazzПродолжительность: 00:48:41
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:CA350BE84C9DD966EC20902E9FCBEF57A3484D20
+    magnet:?xt=urn:btih:4B6C95C77FBEA4F6DBAEC61DA23AD3DA59FA7936
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534495.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543349.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 534 456
+###  Публикация: 1 543 215
 
-VA - The Absolute Sound  2014  [DSD64 2.0|1bit 2822,4kHz|SACD-R] <Classical, Folk>
+Аида Ведищева и Ансамбль п у В. Людвиковского - Александр Зацепин – Музыка Из Кинофильма «Кавказск
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+А1 Аида Ведищева – Песенка О Медведях
+А2 Ансамбль под упр. В. Людвиковского – Дорога
+В1 Ансамбль под упр. В. Людвиковского – Встреча
+В2 Ансамбль под упр. В. Людвиковского – На Танцевальной Площадке    Читать дальше...    Жанр: Soundtrack, Theme, ScoreПродолжительность: 00:10:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C8CF10AA50B300402F89823344E282237B761DDB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543215.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 106
+
+Sasami - Squeeze  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Skin A Rat  00:02:41 
+02. The Gratest  00:03:20 
+03. Say It  00:03:35 
+04. Call Me Home  00:03:46     Читать дальше...    Жанр: Alternative Rock, Indie RockПродолжительность: 00:32:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D0051F8A8293C0C7FC8000CB1BBF0AB6029E1945
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543106.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 918
+
+Joe Satriani - Shapeshifting  2020  [FLAC 2.0|96 24|WEB-DL|tracks] <Instrumental Guitar Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Shapeshifting  3:55 
+02. Big Distortion  4:14 
+03. All for Love  2:32 
+04. Ali Farka, Dick Dale, an Alien and Me  3:42     Читать дальше...    Жанр: Instrumental Guitar RockПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2C85D350D53CDB286C2FE87590EE9C3F19FAEB81
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542918.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 916
+
+Joe Satriani - Surfing with the Alien  1987  Deluxe Edition, 2020, Epic - Legacy [FLAC 2.0|96 
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+1. Surfing with the Alien  04:24 
+2. Ice 9  04:08 
+3. Crushing Day  05:14 
+4. Always with Me, Always with You  03:22     Читать дальше...    Жанр: Instrumental Guitar RockПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D305E1D91FCE0BF3BDC66872360C295B402E320F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542916.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 898
+
+Destruction - Diabolical  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Thrash Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Under the Spell  1:13 
+02. Diabolical  4:09 
+03. No Faith in Humanity  4:17 
+04. Repent Your Sins  4:09     Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:82AA50707ACFB66AED6C7BF14BAC000F13EE0D7F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542898.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 894
+
+Mors Principium Est - Liberate The Unborn Inhumanity  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Cleansing Rain  4:12 
+02. Eternity s Child  3:36 
+03. The Unborn  3:47 
+04. The Lust Called Knowledge  4:31     Читать дальше...    Жанр: Melodic Death MetalПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4B017E51C033E94E219C683BEF03486292FB69C2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542894.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 892
+
+Envy Of None - Envy Of None  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Progressive rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Never Said I Love You  4:06 
+02. Shadow  3:21 
+03. Look Inside  4:44 
+04. Liar  3:13     Читать дальше...    Жанр: Progressive rockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F00C87EADAAF1B381F28EAD58E1B822E71777193
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542892.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 887
+
+Aerosmith - 1971: The Road Starts Hear  2022  [FLAC 2.0|192 24|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Intro  1971: The Road Starts Hear   1:59 
+02. Somebody  4:35 
+03. Reefer Head Woman  5:38 
+04. Walkin’ The Dog  4:53     Читать дальше...    Жанр: RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E479B125379938B2B05709E428D5C5988367B5A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542887.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 875
+
+Papa Roach - Ego Trip  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Alternative Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Kill The Noise  3:08 
+02. Stand Up  3:48 
+03. Swerve  feat. FEVER 333 & Sueco   2:48 
+04. Bloodline  2:26     Читать дальше...    Жанр: Alternative MetalПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7C276DD5ECD5D526274A2102BACD3F8902B6D701
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542875.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 867
+
+Hallas - Isle of Wisdom  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Hard Rock, Prog Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Birth Into Darkness  6:09 
+02. Advent of Dawn  4:27 
+03. Earl s Theme  4:42 
+04. The Inner Chamber  6:42     Читать дальше...    Жанр: Hard Rock, Prog RockПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E2451B8BB7150E478A8BC76939E4B9C4D89E9E3C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542867.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 720
+
+Bryan Adams - Classic  Classic Version   2022  [FLAC 2.0|96 24|tracks|WEB-DL] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Summer of 69  Classic Version   04:08 
+02. Everything I Do  I Do It For You   Classic Version   06:27 
+03. Heaven  Classic Version   04:23 
+04. Run To You  Classic Version   04:17     Читать дальше...    Жанр: RockПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8AECD77CE597C8693E8BF759BF743F7B883B9D67
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542720.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 705
+
+Лейся, Песня - Сегодня и Вчера  1982  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Всё Не Так
+A2 Обручальное Кольцо
+A3 Зачем Переживаешь?
+A4 Танцевальный Час    Читать дальше...    Жанр: PopПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B058376EFD4E4B8C25934F2487C1A27D6CBAD09
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542705.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 665
+
+Jack White - Fear Of The Dawn  2022   [FLAC 2.0|96 24|tracks|WEB-DL] <Alternative Rock, Blues
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Taking Me Back  3:59 
+02. Fear Of The Dawn  2:03 
+03. The White Raven  2:44 
+04. Hi-De-Ho  3:57     Читать дальше...    Жанр: Alternative Rock, Blues RockПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D73CF7617A3ADE9C38CD3A3628175BCE5DC7C18F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542665.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 330
+
+VA - The Absolute Sound  2013  Compilation [DSD64 2.0|1bit 2822,4kHz|SACD-R] <Classical, Folk>
 HD Audio и Многоканальная Музыка
 SACD-R
 
 ###  Подробнее
 
-01. Paganini: Sonata With Variations M.S. 132 - Variation No. 2  01:25  - Stefano Delle Donne, Marco Scicli, Adriano Sebastiani, Damiano Puliti
-02. Aheyla - I Rejoice  05:09  - Carl Cleves & Parissa Bouas
-03. Caledonia  04:47  - Dougie Maclean & Royal Scottish National Orchestra
-04. Can’t Believe You Just Did It Again  04:47  - Ned Ferm & Kira Skov    Читать дальше...    Жанр: Classical, FolkПродолжительность: 01:07:18
+01. Propinan De Melyor  02:00  - New London Consort
+02. The Blackwood  02:42  - Emily Barker & The Red Clay Halo
+03. Looking For You  04:26  - Allan Taylor
+04. Ancient Air ~ Chopin: Krakowiak, Op. 14 In F Major  02:12  - John Di Martino s Romantic Jazz Trio    Читать дальше...    Жанр: Classical, FolkПродолжительность: 00:49:23
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:9DC8526BFEE1F2A5F18C1D181292BD77A2999D35
+    magnet:?xt=urn:btih:41B3E020726A7F6877B076B1DBADB06842FADEC5
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534456.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542330.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 534 184
+###  Публикация: 1 542 187
 
-Lou Gramm - Ready Or Not  1987  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Hard Rock, Pop Rock>
+Lindemann  Rammstein, Pain  - Studio Albums  2015-2019  hand made [restored, declipped] [FLA
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-A1 Ready Or Not
-A2 Heartache
-A3 Midnight Blue
-A4 Time    Читать дальше...    Жанр: Hard Rock, Pop RockПродолжительность: 00:41:09
+Lindemann — метал-проект, образованный 4 января 2015 года Тиллем Линдеманном и Петером Тэгтгреном.2015 - Skills in Pills
+2019 - F & MЖанр: Industrial MetalПродолжительность: 01:39:17
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:8309D8D21EC3FADFB102F752FB0DD3C6C2DDD7B2
+    magnet:?xt=urn:btih:7060F8A74B2559AFB208A06482390AC0A41CCF58
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534184.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542187.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 533 870
+###  Публикация: 1 542 027
 
-Кипелов - Легенды русского рока. КИПЕЛОВ  2022  [FLAC 2.0|44 24|tracks|WEB-DL] <Heavy Metal>
+Motorhead - Motorhead  1977  Remastered, Reissue, 2008, Ace Records [FLAC 2.0|48 24|WEB-DL|tra
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Реки Времён  4:57 
-02. Белый ад  4:07 
-03. Не сейчас  4:55 
-04. Я свободен  7:15     Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:25:26
+01. Motorhead [03:09]
+02. Vibrator [03:34]
+03. Lost Johnny [04:14]
+04. Iron Horse   Born to Lose [05:19]    Читать дальше...    Жанр: Classic Rock, Hard RockПродолжительность: 00:32:27
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:697EED991BAD6BF0543E3815F9E3093613DECF49
+    magnet:?xt=urn:btih:E95F6ED17E58ACF82448F01B73A8748D6F625A63
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533870.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542027.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 533 726
+###  Публикация: 1 541 977
 
-Lacuna Coil - Studio Albums  11 releases   1999 - 2022  hand made [restored, declipped] [FLA
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Lacuna Coil — итальянская готик-метал группа, созданная в Милане в 1994 году.
-Прежние названия: Sleep of Right и Ethereal. По словам участников группы, на их творчество оказали сильное влияние такие команды как Paradise Lost, Tiamat, Septic Flesh и Type O Negative.1999 - In A Reverie
-2001 - Unleashed Memories
-2002 - Comalies
-2006 - KarmacodeЖанр: Gothic Alternative MetalПродолжительность: 11:21:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1DD066BE12BD9F5CB91E9F1CFC42ADD7E7FFA56C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533726.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 533 246
-
-Marc-Andre Hamelin - C.P.E. Bach - Sonatas & Rondos  2022  [FLAC 2.0|96 24|tracks|WEB-DL] <Cla
+Laibach - Wir Sind Das Volk  Ein Musical Aus Deutschland   2022  [FLAC 2.0|96 24|WEB-DL|tr
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-Bach, Carl Philipp Emanuel  1714–88  :
-Keyboard Sonata in A minor, Wq. 57   2  H247  9:21
-01. I. Allegro 3:23
-02. II. Andante 1:50    Читать дальше...    Жанр: ClassicalПродолжительность: 02:21:01
+01 Philoktet
+02 Der Vater
+03 Medea Material
+04 Ich Bin Der Engel Der Verzweiflung    Читать дальше...    Жанр: Industrial, Ambient, Spoken WordПродолжительность: 01:23:25
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:72ABD40E97F73D9278968BDADE1B98CD17EC397C
+    magnet:?xt=urn:btih:C51B5D4E747DDA9D39F8B6620A35167DD4CD6505
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533246.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541977.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 531 726
+###  Публикация: 1 541 970
 
-Status Quo - Hello!  1983  Series: Priceless [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Pop Rock>
+Pain (Peter Tagtgren) - Studio Albums (9 releases) (1997-2021) hand made [restored, declipped] [FLAC
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-A1 Roll Over Lay Down
-A2 Claudie
-A3 A Reason For Living
-A4 Blue Eyed Lady    Читать дальше...    Жанр: Pop RockПродолжительность: 00:39:21
+Pain — индастриал-метал проект шведского музыканта, основателя Hypocrisy — Петера Тэгтгрена.1997 - Pain
+2000 - Rebirth
+2002 - Nothing Remains The Same
+2005 - Dancing With The DeadЖанр: Electronic/Industrial MetalПродолжительность: 07:26:16
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A4006D6B0C0D7BC77834AD252777502E6502AF3B
+    magnet:?xt=urn:btih:0A217DF2048D0EE1929B07D203B5C3190899F63D
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1531726.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541970.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 531 686
+###  Публикация: 1 541 688
 
-Slash feat. Myles Kennedy and The Conspirators - 4  2022  [FLAC 2.0|96 24|tracks|WEB-DL] <Hard
+VVitchesmoon - Lilith, Star of Sorrow  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Melodic Death,
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. The River Is Rising  03:42 
-02. Whatever Gets You By  03:40 
-03. C est la vie  04:38 
-04. The Path Less Followed  03:40     Читать дальше...    Жанр: Hard RockПродолжительность: 00:43:31
+01 Garden of Death [00:05:09]
+02 Fallen Light of Eden [00:08:00]
+03 Grail  Lucifer s Descent  [00:05:52]
+04 It Comes at Dusk [00:07:30]    Читать дальше...    Жанр: Melodic Death, Gothic MetalПродолжительность: 00:37:30
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:07D77B2A7CA8BB65283F64903FF0181FC19BF258
+    magnet:?xt=urn:btih:790F02BC7A5B9EF50C8A8B443769363F9160FF98
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1531686.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541688.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 531 657
+###  Публикация: 1 541 548
 
-Адриано Челентано. Три лицензионных альбома  Мелодия   1979, 1986, 1987  Ariola, CLAN  Ита
+R.E.M. - Studio Albums  15 releases   1983 - 2011  restored, declipped [FLAC 2.0|44 16|tra
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-A1 Праздник на лугах • Una Festa Sui Prati
-A2 Самая красивая пара в мире • La Coppia Piu Bella Del Mondo
-A3 Нас было сто тысяч • Eravamo In 100 000
-A4 Работа и любовь • Lavoro E Amore    Читать дальше...    Жанр: Pop, DiscoПродолжительность: 01:57:51
+R.E.M. — американская рок-группа, сформированная в городе Атенс  штат Джорджия  в 1980 году музыкантами Майклом Стайпом  вокал , Питером Баком  гитара , Майком Миллзом  бас-гитара  и Биллом Берри  ударные и перкуссия . Один из наиболее важных и авторитетных коллективов, оказавших влияние на альтернативный рок.1983 - Murmur
+1984 - Reckoning
+1985 - Fables Of The ReconstructionЖанр: Alternative RockПродолжительность: 13:04:00
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:7E66FC4899DA353B42A646A81B632A6E5B5E2D8E
+    magnet:?xt=urn:btih:C5AF3C863EF7DBB37F68DC963EB71091C3550880
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1531657.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541548.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 531 634
+###  Публикация: 1 541 469
 
-Adriano Celentano - Disco Dance  1977  [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Disco>
+Phil Collins & Genesis - Collection  11 Albums   1981 - 2010  restored, declipped [FLAC 2.0|
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-A1 A Woman In Love   Rock Around The Clock
-A2 Preghero 
-A3 Ma Che Freddo Stasera  Such A Cold Night Tonight 
-B1 Don t Play That Song  You Lied     Читать дальше...    Жанр: DiscoПродолжительность: 00:34:14
+Фил Ко́ллинз  англ. Phil Collins; полное имя Фи́лип Дэ́вид Ча́рльз Ко́ллинз, Philip David Charles Collins; 30 января 1951, Лондон  — английский рок поп певец, барабанщик и автор песен, актёр, продюсер.1981 - Face Value
+1982 - Hello, I Must Be Going!
+1985 - No Jacket Required
+1989 - ...But SeriouslyЖанр: Pop, RockПродолжительность: 10:10:27
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A41E74384ACE9E515F8694C7D181492BB55BC4BB
+    magnet:?xt=urn:btih:265FC7EDDC3705EE2B5C48647E1EA823F44A1131
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1531634.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541469.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 531 363
+###  Публикация: 1 541 151
 
-Mudvayne - Studio Albums  5 releases   2000 - 2009  hand made [restored, declipped] [FLAC 2.
+Britney Spears - Circus  2008  Deluxe Version [FLAC 2.0|44.1 24|WEB-DL|tracks] <Pop>
 HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
+WEB-DL-Audio
 
 ###  Подробнее
 
-Mudvayne — американская ню-метал-группа из Пеория  штат Иллинойс , образовавшаяся в 1996 году.
-Музыкальный коллектив известен своим нестандартным подходом к структуре песен и особым визуальным стилем.2000 - L.D. 50
-2002 - The End of All Things to Come
-2005 - Lost And Found
-2008 - The New Game    Читать дальше...    Жанр: Nu Progressive Alternative MetalПродолжительность: 04:26:32
+01. Womanizer
+02. Circus
+03. Out From Under
+04. Kill The Lights    Читать дальше...    Жанр: PopПродолжительность: 00:53:11
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:15988A681858B2419594CD33AE9736AE52DFC8F6
+    magnet:?xt=urn:btih:4CAEEDE1C98C1897368BAE0B6894A1A02A8DB7EA
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1531363.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541151.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 531 077
+###  Публикация: 1 541 137
 
-Hellyeah - Studio Albums (6 releases) (2007 - 2019) hand made [restored, declipped] [FLAC |16/44.1|t
+Miley Cyrus - Attention: Miley Live  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Pop>
 HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
+WEB-DL-Audio
 
 ###  Подробнее
 
-Hellyeah — американская грув-метал-группа из Далласа, штат Техас, представляющая собой «супергруппу». Коллектив был основан в 2006 году вокалистом Чедом Греем, гитаристом Грэгом Триббеттом из Mudvayne, гитаристом Томом Максвеллом из Nothingface, басистом Бобом Зилла из Damageplan и ударником Винни Полом из Pantera, Damageplan и Rebel Meets Rebel.
-В 2014 году группа (   Читать дальше...   )2007 - Hellyeah
-2010 - Stampede
-2012 - Band Of Brothers
-2014 - Blood For Blood(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 04:10:42
+01. ATTENTION  01:36 
+02. We Can t Stop X Where Is My Mind?  Live   05:35 
+03. Plastic Hearts  Live   03:27 
+04. Heart of Glass  Live   03:08     Читать дальше...    Жанр: PopПродолжительность: 01:22:12
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:9D56803B2EA75FD2EB4705BE79094586D72417EC
+    magnet:?xt=urn:btih:1C0B75404D46E9BAB33DBEFF080D74CA565A337F
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1531077.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541137.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 531 020
+###  Публикация: 1 541 097
 
-Halestorm - Дискография  1999-2022  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.c
+X-Wild - So What!  1994  Reissue, 2022, Rock Of Angels Records [FLAC 2.0|44.1 24|WEB-DL|tracks
 HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
+WEB-DL-Audio
 
 ###  Подробнее
 
-Halestorm — американская хард-рок-группа, образованная в маленьком городке
- Рэд Лайон округа Йорк  штат Пенсильвания .1999 - Don t Mess With the Time Man
-2001 - Breaking the Silence
-2009 - Halestorm
-2012 - The Strange Case of...Жанр: Hard Rock, Alternative MetalПродолжительность: 09:12:25
+01. Can t Tame The Wild  5:22 
+02. Dealing With The Devil  3:40 
+03. Scarred To The Bone  4:33 
+04. Wild Frontier  5:08     Читать дальше...    Жанр: Power Metal, Speed MetalПродолжительность: 00:52:14
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:CC37BB5B6577C0D874FDE42B4A49952E360A5DC8
+    magnet:?xt=urn:btih:0B5A60CF028FCE6319DC7D261B8755DE7AB6D829
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1531020.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541097.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 530 402
+###  Публикация: 1 541 026
 
-Jethro Tull – The Zealot Gene  2022  [DSD128 2.0|tracks|Vinyl-Rip] <Prog Rock>
+Aldo Nova - The Life and Times of Eddie Gage  2022  A Rock Opera [FLAC 2.0|44.1 16, 24|WEB-DL|
 HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
+WEB-DL-Audio
 
 ###  Подробнее
 
-01. Mrs Tibbets  5:53 
- 02. Jacob s Tales  2:13 
- 03. Mine Is The Mountain  5:40 
- 04. The Zealot Gene  3:53     Читать дальше...    Жанр: Prog RockПродолжительность: 00:46:51
+01. Hey Ladi Dadi  5:27 
+02. Free Your Mind  4:49 
+03. Follow the Road  4:04 
+04. King of Deceit  6:39     Читать дальше...    Жанр: Melodic Hard RockПродолжительность: 00:51:27
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:88B246F3D9053A5C3C39ACCB57FD00A839BC6131
+    magnet:?xt=urn:btih:83D890DD9586E9E5CF8356B45E0D9EC81622716A
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1530402.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541026.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 530 365
+###  Публикация: 1 540 892
 
-Damageplan - New Found Power  2004  hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.c
+Gov t Mule - Heavy Load Blues  2021  Deluxe Edition, 2022 [FLAC 2.0|96 24|WEB-DL|tracks] <Bl
 HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
+WEB-DL-Audio
 
 ###  Подробнее
 
-01. Wake Up  4:29 
-02. Breathing New Life  3:49 
-03. New Found Power  3:25 
-04. Pride  4:17     Читать дальше...    Жанр: Groove Trash MetalПродолжительность: 01:06:51
+01. Blues Before Sunrise  3:44 
+02. Hole In My Soul  4:29 
+03. Wake Up Dead  5:55 
+04. Love Is A Mean Old World  4:56     Читать дальше...    Жанр: Blues RockПродолжительность: 02:00:28
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:8FC1F78641F347A47BC02D632787DC0CA4DA3B05
+    magnet:?xt=urn:btih:82524EA4955EE1EC810E24A4242AC5F14508AD7A
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1530365.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540892.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 530 351
+###  Публикация: 1 540 872
 
-Pantera - Дискография  7 releases   1988 - 2000  hand made [restored, declipped] [FLAC 2.0|4
+Evil Invaders - Shattering Reflection  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Speed Metal>
 HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
+WEB-DL-Audio
 
 ###  Подробнее
 
-Pantera — американская метал-группа из Арлингтона, штат Техас.1988 - Power Metal
-1990 - Cowboys From Hell
-1992 - Vulgar Display Of Power
-1994 - Far Beyond DrivenЖанр: Groove Trash MetalПродолжительность: 07:00:51
+01. Hissing in Crescendo  4:26 
+02. Die for Me  3:43 
+03. In Deepest Black  4:52 
+04. Sledgehammer Justice  4:37     Читать дальше...    Жанр: Speed MetalПродолжительность: 00:42:59
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:4B1EC3C0F768E3195609389D1563F3D754661D03
+    magnet:?xt=urn:btih:C7D4679E73A0843D1150ECC60B8761D58488C1F7
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1530351.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540872.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 530 261
+###  Публикация: 1 540 871
 
-Scorpions - Best Of Scorpions Vol.1&2  1991 1974-1978, 2LP Compilation Unofficial Release [FLAC
+Pattern-Seeking Animals - Only Passing Through  2022  Bonus Track Edition [FLAC 2.0|96 24|WEB-
 HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
+WEB-DL-Audio
 
 ###  Подробнее
 
-A1 Steamrock Fever
-A2 Pictured Life
-A3 Robot Man
-A4 Backstage Queen    Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 01:23:57
+01. Everdark Mountain  2:50 
+02. I Can t Stay Here Anymore  6:05 
+03. Time Has a Way  13:15 
+04. Rock Paper Scissors  5:01     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:59:34
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:36BAF2742085A2C793E1AEFF658DE1E3B3A075D2
+    magnet:?xt=urn:btih:72E6F8ED36991ED22DA239DDD37FC5A23A806074
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1530261.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540871.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 530 226
+###  Публикация: 1 540 868
 
-ДДТ - Я Получил Эту Роль  1989  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Blues Rock, Classic Ro
+The Hellacopters - Eyes Of Oblivion  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Hard rock>
 HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
+WEB-DL-Audio
 
 ###  Подробнее
 
-A1 Поэт  1985 
-A2 Мальчики-мажоры  1985 
-A3 Конвейер  1987 
-A4 Не Стреляй!  1982     Читать дальше...    Жанр: Blues Rock, Classic RockПродолжительность: 00:37:17
+01. Reap A Hurricane  3:15 
+02. Can It Wait  1:59 
+03. So Sorry I Could Die  4:21 
+04. Eyes Of Oblivion  3:59     Читать дальше...    Жанр: Hard rockПродолжительность: 00:34:31
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A7A38E00B185EEA503AC903D3D22F951017B5460
+    magnet:?xt=urn:btih:FDFE19F3273965F32350B0EEE03C9CF14C3BFE43
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1530226.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540868.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 530 138
+###  Публикация: 1 540 861
 
-Slipknot - Studio Albums  8 releases   1997 - 2022  hand made [restored, declipped] [FLAC 2.
+Dreamtale - Everlasting Flame  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Melodic Power Metal>
 HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
+WEB-DL-Audio
 
 ###  Подробнее
 
-Slipknot — американская ню-метал-группа, образованная в сентябре 1995 года в Айове, США.1997 - Mate.Feed.Kill.Repeat
-1999 - Slipknot  10th Anniversary Edition 
-2001 - Iowa  10th Anniversary Edition 
-2004 - Vol. 3  The Subliminal verses Жанр: Nu Metal, Groove MetalПродолжительность: 09:28:53
+01. King of Kings  4:53 
+02. Blood of the Morning Star  5:25 
+03. Last Goodbyes  3:22 
+04. Ghostride  6:10     Читать дальше...    Жанр: Melodic Power MetalПродолжительность: 01:00:44
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:1050291E06C2252D8BA123877438EB18260F506E
+    magnet:?xt=urn:btih:09E3A74EAA829985604DC5E6C1D93D19BA45B5B8
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1530138.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540861.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 530 107
+###  Публикация: 1 540 858
 
-Telarc Heads Up SACD Sampler - Sound&Vision  2006  [DTS 5.1 CD-Audio|44.1 16|image+.cue|SACD]
+Trick Or Treat - Creepy Symphonies  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Power Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Trick or Treat  1:07 
+02. Creepy Symphony  4:39 
+03. Have a Nice Judgment Day  4:32 
+04. Crazy  4:17     Читать дальше...    Жанр: Power MetalПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:46A11BDB830027CB3E3AFCC58A1394A5DCE68AD8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540858.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 540 852
+
+Meshuggah - Immutable  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Extreme metal, Groove metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Broken Cog  5:35 
+02. The Abysmal Eye  4:56 
+03. Light The Shortening Fuse  4:28 
+04. Phantoms  4:54     Читать дальше...    Жанр: Extreme metal, Groove metalПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6CE4A3FC3F4F8F5A0C88070E8674FB95ACA46F67
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540852.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 540 851
+
+Wolf - Shadowland  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Heavy Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Dust  4:43 
+02. Visions for the Blind  5:38 
+03. The Time Machine  6:11 
+04. Evil Lives  3:34     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7AAB7299FCE37F3392AF7887702F73FC045A8971
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540851.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 540 837
+
+Satan - Earth Infernal  2022  [FLAC 2.0|44 24|tracks|WEB-DL] <Heavy Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Ascendancy  5:04 
+02. Burning Portrait  5:51 
+03. Twelve Infernal Lords  5:16 
+04. Mercury s Shadow  2:50     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7502B94B659A400F925BBDE01E6CC01683EE32A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540837.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 540 783
+
+Red Hot Chili Peppers - Unlimited Love  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Alternative Rock
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Black Summer  3:52 
+02. Here Ever After  3:50 
+03. Aquatic Mouth Dance  4:21 
+04. Not the One  4:26     Читать дальше...    Жанр: Alternative RockПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C7F314532651B127121E6176C0FA9DB0423C0D59
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540783.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 540 717
+
+Jack Lancaster & Robin Lumley - Marscape  1976  Expanded & Remastered Edition, 2022, Esoteric [F
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Take-Off  3:09 
+02. Sail On Solar Winds  2:48 
+03. Arrival  1:51 
+04. Phobos And Deimos  4:46     Читать дальше...    Жанр: Fusion, Jazz-RockПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04560F584397EB0CDC32223DD40AC34D1B3ADD0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540717.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 540 709
+
+Marc Bolan & T. Rex - Star King  2021  Remastered Version [FLAC 2.0|44.1 24|WEB-DL|tracks] <Gl
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Born to Boogie  Working Version   2:44 
+02. Dreamy Lady  Re-Record for Tv Performances   3:04 
+03. The Groover  Demo   3:25 
+04. Blackjack  Earlier Master Version   3:18     Читать дальше...    Жанр: Glam Rock, Hard RockПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:71FF16902B2B0AF9C55648542249FA6FE077850E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540709.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 540 601
+
+Robert Johnson - Crossroad: The Legendary Recordings  2009  Remastered, 2021, RevOla [FLAC|24 
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01 - Kind Hearted Woman Blues  00:02:55 
+02 - I Believe I ll Dust My Broom  00:03:02 
+03 - Sweet Home Chicago  00:03:01 
+04 - Ramblin  On My Mind  00:02:25     Читать дальше...    Жанр: BluesПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:816244C2BBF5A42A3493839A26C06A5CCEFACAB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540601.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 540 582
+
+Демонстрационный диск DTS 5.1 CD-Audio #9  2022  [DTS 5.1 CD-DA| 44.1 16|image+.cue|DVD-Audio]
 HD Audio и Многоканальная Музыка
 DTS-Audio
 
 ###  Подробнее
 
-Один из релизов, который должен был доказать превосходство сигма-дельты перед писиэм во время так называемой  войны форматов   SACD против DVD-Audio 01. Los Angeles Guitar Quartet - Icarus 3:35
-02. Al Di Meola - Flesh On Flesh 5:56
-03. Eric Bibb   Rory Block   Maria Muldaur - Don t Ever Let Nobody Drag Your Spirit Down 3:25
-04. Ladysmith Black Mambazo - Wenyukela  Raise Your Spirit Higher  4:50    Читать дальше...    Жанр: VariousПродолжительность: 01:06:46
+01. KRAFTWERK - Elektro kardiogramm
+02. BRYAN FERRY - Windswept
+03. GILLIAN WEIR - Pierre Petit: concerto for organ
+04. BILLIE MYERS - Kiss the Rain    Читать дальше...    Продолжительность: 01:00:10
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:50B0E4708338C09DCABD3442743935B3EB87E5B7
+    magnet:?xt=urn:btih:3E95577421439156E4685A6BA4DA0467C0E5498A
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1530107.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540582.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 529 997
+###  Публикация: 1 540 441
 
-Madeleine Peyroux – Half The Perfect World  2006  2008 [DSD128 2.0|tracks|Vinyl-Rip] <Jazz>
+Psycho Attack Over Europe!  3CD set   1991-1994  hand made [restored, declipped] [FLAC |16<3
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-01. I m Allright  3:27 
- 02. Summer Wind  3:56 
- 03. Blue Alert  4:11 
- 04. Everybody s Talking  5:10     Читать дальше...    Жанр: JazzПродолжительность: 00:49:14
+«Психобилли», или, как правильно произносится название этого музыкального жанра, «сайкобилли», — жанр рок-музыки, сочетающий экспрессию и агрессивность панк-рока с мелодикой кантри и рокабилли. Жанр появился в 1975 г.
+В 1986 году голландаская фирма грамзаписи  Kix 4 U  выпускает первый сборник из серии  Psycho Attack Over Europe! . Он объединяет     Читать дальше...    1991 - Psycho Attack Over Europe!  part 1 
+1992 - Psycho Attack Over Europe!  part 2 
+1994 - Psycho Attack Over Europe!  part 3 Жанр: Psychobilly, Rockabilly, PunkПродолжительность: 03:25:36
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:27F1EEF69DD3F4DDE3910F40BFE4D2F86CDE9D9B
+    magnet:?xt=urn:btih:4CFE00208ECB83C0A81BD6E48D9A7608A1DE8267
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1529997.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1540441.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 529 945
+###  Публикация: 1 539 789
 
-Cate le Bon - Pompeii  2022  [FLAC 2.0|96 24|tracks|WEB-DL] <Psychedelic Rock, Folk Rock, Indi
+The Rolling Stones - Tattoo You  1981  Series: Nice Price, 1987 [FLAC 2.0|192 24|image+.cue|Vi
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Start Me Up
+A2 Hang Fire
+A3 Slave
+A4 Little T & A    Читать дальше...    Жанр: Classic RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1539789.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 539 713
+
+Kavinsky - Reborn  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Synthpop, Electro Pop, French Touch
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01 - Dirt on the Bed
-02 - Moderation
-03 - French Boys
-04 - Pompeii    Читать дальше...    Жанр: Psychedelic Rock, Folk Rock, Indie RockПродолжительность: 00:43:22
+1. Pulsar [3:34]
+2. Reborn  feat. Romuald  [3:42]
+3. Renegade  feat. Cautious Clay  [3:19]
+4. Trigger [3:40]    Читать дальше...    Жанр: Synthpop, Electro Pop, French TouchПродолжительность: 00:47:24
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:FC43719D6B2FD458FFE263DB625642E79F1E0A51
+    magnet:?xt=urn:btih:64159B4DE9EBD0CB7880278AC91A540DE8A4EC5F
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1529945.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1539713.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 529 435
+###  Публикация: 1 539 710
 
-Evergrey - Studio Albums  13 releases   1998 - 2022  hand made [restored, declipped] [FLAC 2
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Evergrey — шведская прогрессив-метал-группа, созданная в 1995 году в городе Гётеборг.1998 - The Dark Discovery
-1999 - Solitude • Dominance • Tragedy
-2001 - In Search of Truth
-2003 - Recreation DayЖанр: Progressive Power MetalПродолжительность: 13:09:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5578B1A2496BB76250483C33F79486C3DE8D0EE6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1529435.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 529 118
-
-VA - This Is Stereo  J. Last, L. Geisler, A. Alguero, K. Edelhagen, R. Delgado, H. Scachtner, K. W
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Augusto Alguero And His Orchestra – La La La  P  1968
-A2 Kurt Edelhagen – Try A Little Tenderness  P  1967
-A3 Roberto Delgado – Andulucia  P  1968
-A4 Hans Schachtner – The More I See You  P  1968    Читать дальше...    Жанр: Jazz, Easy ListeningПродолжительность: 00:29:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:450EAA5DE15D15A2E6E3D5AB423B376C44AEA2DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1529118.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 968
-
-Diana Ross & The Supremes - Baby Love  1973  Compilation 1963-1966, Czechoslovak pressing [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Baby Love  P  1964
-A2  I m So Glad  Heartaches Don t Last Always  P  1965
-A3 Ask Any Girl  P  1964
-A4 Mother Dear  P  1965    Читать дальше...    Жанр: SoulПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:781F141E8F72A0370848ACD82AC6439534ACCC05
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528968.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 911
-
-Zaz - Isa  2021  [DSD128 2.0|tracks|Vinyl-Rip] <Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Les jours heureux  4:04 
- 02. Imagine  2:53 
- 03. De couleurs vives  3:29 
- 04. Ce que tu es dans ma vie  3:03     Читать дальше...    Жанр: Pop RockПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A0CCF8D79D7C52A924D1CB27CD5F388049250EFB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528911.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 857
-
-Fear Factory - Studio Albums (10 releases) (1992 - 2021) hand made [restored, declipped] [FLAC 2.0|4
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Fear Factory — американская метал-группа из Лос-Анджелеса.
-Группа сформировалась в 1989 году. За время своей музыкальной карьеры, музыканты сумели выработать собственное оригинальное звучание представляющее собой сочетание индастриал-метала и грув-метала.1992 - Soul Of A New Machine
-1995 - Demanufacture
-1998 - Obsolete
-2001 - DigimortalЖанр: Death/Groove/Industrial MetalПродолжительность: 10:00:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E1DD418EE05A8201FD441B1A0834476C3C809005
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528857.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 773
-
-Saxon - Carpe Diem  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <NWOBHM, Heavy-Metal>
+Michael Jackson - Thriller 25  1982  Super Deluxe Edition, Reissue, Remastered, 2018 [FLAC 2.0|4
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Carpe Diem  Seize The Day  04:42
-02. Age Of Steam 04:08
-03. The Pilgrimage 06:28
-04. Dambusters 03:19    Читать дальше...    Жанр: NWOBHM, Heavy-MetalПродолжительность: 00:44:19
+01. Wanna Be Startin  Somethin  [00:06:02]
+02. Baby Be Mine [00:04:20]
+03. The Girl Is Mine [00:03:41]
+04. Thriller [00:05:57]    Читать дальше...    Жанр: Interview, Soul, Disco, Funk, Neo Soul, Spoken Word, VocalПродолжительность: 01:56:32
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:71F311F51B528AD16455B2DC003A313422CB9916
+    magnet:?xt=urn:btih:815528CFDF193ED80D457276467C3AD6EFE48FF0
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528773.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1539710.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 528 767
+###  Публикация: 1 539 677
 
-Korn - Requiem  2022  [FLAC 2.0|96 24|tracks|WEB-DL] <Alternative-Metal, Nu-Metal>
+Kraftwerk - Remixes  2020  Remastered, Reissue [FLAC 2.0|48, 44.1 16, 24|tracks|WEB-DL] <Elect
 HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 ###  Подробнее
 
-01. Forgotten  3:17 
-02. Let The Dark Do The Rest  3:40 
-03. Start The Healing  3:28 
-04. Lost In The Grandeur  3:50     Читать дальше...    Жанр: Alternative-Metal, Nu-MetalПродолжительность: 00:32:41
+01. Non Stop [00:08:32]
+02. Robotnik   Kling Klang Mix  [00:07:58]
+03. Robotronik   Kling Klang Mix  [00:05:05]
+04. Radioactivity   William Orbit Hardcore Remix - Kling Klang Edit  [00:05:35]    Читать дальше...    Жанр: Electronic, synth-pop, krautrockПродолжительность: 02:06:34
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:3E682741942453B80C72FB0B34C73A5DD43DB26A
+    magnet:?xt=urn:btih:6BC6CD1C9D1352C645A8EED5D343F7F128B1F5F5
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528767.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 380
-
-Terror Universal - Make Them Bleed  2018  hand made [restored, declipped] [FLAC 2.0|44 16|trac
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Passage Of Pain  3:57 
-02. Welcome To Hell  3:42 
-03. Spines  3:18 
-04. Make Them Bleed  3:33     Читать дальше...    Жанр: Groove Metal Metalcore Nu-MetalПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A4FE99F1112FFEE0A43EEEAA77D20869BC78967
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528380.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 269
-
-The Police - Ghost In The Machine  1981  Reissue 1982 [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Spirits In The Material World
-A2 Every Little Thing She Does Is Magic
-A3 Invisible Sun
-A4 Hungry For You  J Aurais Toujours Faim De Toi     Читать дальше...    Жанр: Pop RockПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528269.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 254
-
-The Police - Zenyatta Mondatta  1980  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <New Wave, Pop Ro
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Don t Stand So Close To Me
-A2 Driven To Tears
-A3 When The World Is Running Down, You Make The Best Of What s Still Around
-A4 Canary In A Coalmine    Читать дальше...    Жанр: New Wave, Pop RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C9DB0F5B870D7837767EBF598662E29FA2A7E7B5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528254.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 217
-
-Leo Sayer - Northern Songs  2022  [FLAC 2.0|48 24|tracks|WEB-DL] <Pop-Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01 - Eleanor Rigby  00:03:15 
-02 - Strawberry Fields Forever  00:03:53 
-03 - Revolution  00:03:42 
-04 - Get Back  00:03:38     Читать дальше...    Жанр: Pop-RockПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F049CC3521E553476E1BCF7DD02E9ECF12C3D9E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528217.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 134
-
-Mindfeed - Studio albums  1997-1998  hand made [restored, declipped] [FLAC 2.0|Lossless|44 16|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Mindfeed — британская альтернативная метал-группа, основанная в 1996 году при участии Джея Миччича и Глинна Моргана, двух бывших участников прогрессив-метал-группы Threshold.1997 - Perfect Life
-1998 - Ten Miles HighЖанр: Groove Metal, Progressive MetalПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:41A231979F755B099A6C2B336267244181176891
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528134.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 527 908
-
-Testament - Studio Albums (13 releases) (1987-2020) hand made [restored, declipped] [FLAC 2.0|44/16|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Testament — американская трэш-метал группа из города Беркли (Калифорния).1987 - The Legacy
-1988 - The New Order
-1989 - Practice What You Preach
-1990 - Souls Of BlackЖанр: Thrash MetalПродолжительность: 10:49:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B2D69CA7D737C854A0126EFDFC0A23829BE448E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527908.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 527 582
-
-Mike Morton Non Stop Party Show Vol. 1  1973  30 Great Sounds [FLAC 2.0|192 24|image+.cue|Viny
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Candy Man
-A2 Come On Over To My Place
-A3 All I Ever Need Is You
-A4 You Can Do Magic    Читать дальше...    Жанр: Pop, Sound-alikeПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A69961196FD21E552FF986E80E9303672D6A3F03
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527582.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 527 545
-
-VA - The Absolute Sound  2015  Japanese Edition [DSD64 2.0|1bit 2822,4kHz|SACD-R] <Classical,
-HD Audio и Многоканальная Музыка
-SACD-R
-
-###  Подробнее
-
-01. A Red Dragonfly  01:55  - Gary Karr
-02. Silver Dagger  04:21  - Shannon Lambert-Ryan
-03. Here Comes The Sun  03:12  - Nicki Parrott
-04. I Just Wasn t Made For These Times  04:43  - Joe Stilgoe & Liane Carroll    Читать дальше...    Жанр: Classical, FolkПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:496B270DF427F35C4076D7A78DB3CCDA17BFAAC1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527545.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 527 478
-
-Bob James Trio - Feel Like Making Live!  2022  [FLAC 2.0|96 24|tracks|WEB-DL] <Jazz>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01 - Angela  06:57 
-02 - Rocket Man  04:50 
-03 - Maputo  04:42 
-04 - Topside  05:48     Читать дальше...    Жанр: JazzПродолжительность: 01:22:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:62CABC79A1FC28977B7C6FB9B98DF34D87D5A10B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527478.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 527 273
-
-Armin van Buuren - Imagine  2008  2LP Reissue 2021 [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] ] <
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Armin van Buuren - Imagine
- A2. Armin van Buuren - Going wrong  with Dj Shah feat. Chris Jones 
- B1. Armin van Buuren - Unforgivable  feat. Jaren 
- B2. Armin van Buuren - Face to face    Читать дальше...    Жанр: Trance, Progressive TranceПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B9931F04827987327DCDE77C50042EC63C316FBC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527273.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 527 262
-
-Stone - Studio Albums  1988 - 1991  hand made [restored, declipped] [FLAC 2.0|Lossless|44 16|t
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Stone - финская трэш-метал-группа, образованная в Кераве в 1985 году.1988 - Stone
-1989 - No Anaesthesia!
-1990 - Colours
-1991 - Emotional PlaygroundЖанр: Speed Thrash MetalПродолжительность: 03:20:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE6EECB4FD1BFAAE3121B78F44340EB12F02333B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527262.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 527 207
-
-Steve Vai - Inviolate  2022  [FLAC 2.0|96 24|tracks|WEB-DL] <Instrumental Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Teeth of the Hydra  5:13 
-02. Zeus in Chains  4:39 
-03. Little Pretty  6:26 
-04. Candlepower  3:31     Читать дальше...    Жанр: Instrumental RockПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:85A521668CEE9F84254B6D4F5A41A7B28B2527B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527207.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 527 127
-
-Kiss - Destroyer  45th Anniversary Super Deluxe   1976  remix 2021 [DTS-ES Discrete 6.1 CD-A
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-Легенды хард рока - группа KISS - в 2021 году отметили  45-летие выхода альбома  Destroyer  выпуском обновленной версии, получившей название  KISS – Destroyer 45th , в виде супер-пупер-мульти-делюкс-бокс-сета   из 4 компакт-дисков, Blu-ray Audio и кучи бумаги - вплоть до подтвержденного членства в Армии Кисс :mrgreen: .
-Для наполнения контента     Читать дальше...    01. Detroit Rock City  5:15 
-02. King Of The Night Time World  3:20 
-03. God Of Thunder  4:16 
-04. Great Expectations  4:25     Читать дальше...    Жанр: Hard RockПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:331280F3E3E6C692114FA5562272C3F804E5E5BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527127.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 527 110
-
-The Police - Дискография  1978 - 1983, 1993  hand made [restored, declipped] [FLAC 2.0|Lossless|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-The Police — британская рок-группа, сформированная в Лондоне в 1977 году. Трио состояло из британцев Гордона Самнера  Стинг   вокал, бас-гитара  и Энди Саммерса  гитара, вокал  и американца Стюарта Коупленда  ударные, перкуссия, вокал .1978 - Outlandos d Amour
-1979 - Reggatta de Blanc
-1980 - Zenyatta Mondatta
-1981 - Ghost In The MachineЖанр: New Wave, Pop Rock, Classic RockПродолжительность: 08:11:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4B693B7D9C33DD0FC7BAB201C09B0CF8FCDF97E0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527110.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 526 539
-
-The Chemical Brothers - Dig Your Own Hole  1997  2016 [FLAC 2.0|96 24|tracks +.cue|Vinyl-Rip]
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Block Rockin  Beats
-A2 Dig Your Own Hole
-B1 Elektrobank
-B2 Piku    Читать дальше...    Жанр: Big BeatПродолжительность: 01:03:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:798232F5F6E616E33A9AB2792F6BEC003A32D96C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1526539.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 526 466
-
-Kandia - Quaternary  2022  [FLAC 2.0|48 24|tracks|WEB-DL] <Heavy Metal, Modern Metal>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Anthropocene  1:02 
-02. Obliterate  4:08 
-03. The Flood  3:46 
-04. Fight or Flight  3:37     Читать дальше...    Жанр: Heavy Metal, Modern MetalПродолжительность: 00:44:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80FD9C0A34F3C797E061D36D5DAD9C8590910FA4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1526466.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 526 002
-
-Creedence Clearwater Revival - Gold  1972  1975 [DTS 4.1 CD-Audio|44.1 16|image+.cue|Q8-DTSWAV
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-Давно хотел взяться за Криденсов... :mrgreen:
-Несомненная часть эпохи 70-х - Уби Дуби, Видели дождь, Молина - ну какой советский школьник тех лет не млел от этих волшебных звуков!
-Знал, что единственным официальным многоканальным релизом группы был сборник GOLD, от 1972 года. Нашел в Сети уже довольно давний, 13-ти летний давности  , материал от уважаемого01. Proud Mary
-02. Down On The Corner
-03. Bad Moon Rising
-04. I Heard It Through The Grape Vine    Читать дальше...    Жанр: Pop RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7608CDAD3A6216436CCAAF79AF151291455CBD2D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1526002.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 525 950
-
-Clannad - Studio Albums  15 releases   1973 - 2020  hand made [restored, declipped] [FLAC 2.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Clannad  Кла́ннад  — ирландская музыкальная группа.
-Музыку Clannad можно охарактеризовать как синтез кельтского фолка, рока, нью-эйдж и джаза. Поют на гэльском  ирландском  и английском языках.
-В состав группы входят Máire Brennan, её родные братья Ciarán и Pól Brennan, и двоюродные дяди Noel и Pádraig Duggan. Все они родом из городка Гвидор,     Читать дальше...    1973 — Clannad  The Pretty Maid 
-1975 — Clannad 2
-1976 — Dúlamán
-1980 — Crann ÚllЖанр: Traditional Irish folk, Celtic, new-ageПродолжительность: 12:08:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AC52BE136B946722DF25A6D535CD6B961199E943
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1525950.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 525 536
-
-Suburban Tribe - Дискография  10 Albums   1994 - 2011  hand made [restored, declipped] [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Suburban Tribe — рок-группа из Финляндии. Группа примечательна тем, что в ее состав входят участники двух самых известных финских трэш-метал-групп Stone и Airdash. Басист Янне Йоутсенниеми играл в группе Stone, а гитарист Руп Сирен играл в Airdash.
-В марте 2011 года было объявлено о  роспуске группы.1994 - Primitive
-1995 - Purity
-1997 - Panorama
-1998 - Elektro 57Жанр: Alternative Rock, Alternative Metal, Nu MetalПродолжительность: 09:24:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5176F3BFD3765BAFF54447851939BF157DE39BB8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1525536.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 525 434
-
-The Beatles - Abbey Road  1969  remix 2019 remaster [DTS-ES Discrete 6.1 CD-Audio|44.1 16|imag
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-Расширяем дискографию многоканальных переизданий альбомов Битлз!
-В 2019 году вышел юбилейный бокс-сет с блюром внутри, ремикс для которого делал сын Джорджа Мартина - Джайлс. Из Атмос-дороги этого блюра я, в свою очередь, сделал семиканальный DTS CD-Audio, рассчитанный на обладателей полноценной 7.1 системы.01. Come Together 04:20
-02. Something  George Harrison  03:02
-03. Maxwell’s Silver Hammer 03:28
-04. Oh! Darling 03:27    Читать дальше...    Жанр: Pop RockПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:68EFA62E499BE777B4052C6A83DD7283CFA08C78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1525434.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 525 239
-
-Devin Townsend - Empath  2019  2020 [DTS 5.1 CD-Audio|44.1 16|image+.cue|BD-Audio] <Progressiv
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-Несмотря на то, что поклонником Металла не являюсь, мне эта музыка показалась интересной. Чувствуется стиль большого мастера, даже на таком материале.
-Первоначально альбом вышел в марте 2019 года, на CD. В июне 2020 года состоялось переиздание - 4-х дисковый The Ultimate Edition, в состав которого входил блюр с многоканальным звуком, из которого, собственно, и сделан     Читать дальше...    01. Castaway 2:29
-02. Genesis 6:06
-03. Spirits Will Collide 4:40
-04. Evermore 5:30    Читать дальше...    Жанр: Progressive Metal, Symphonic RockПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7DCB2DF173AA2E6C2404A0686CBFEB2BB4B1117E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1525239.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 525 209
-
-Battle Beast - Circus Of Doom  2022  [FLAC 2.0|44.1 24|tracks|Web-DL] <Melodic Heavy Metal, Fe
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Circus of Doom [00:04:57]
-02. Wings of Light [00:04:07]
-03. Master of Illusion [00:04:08]
-04. Where Angels Fear to Fly [00:03:56]    Читать дальше...    Жанр: Melodic Heavy Metal, Female VocalПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2921FB762C8AA22F946F5CDD6D5E5BB96FB800FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1525209.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1539677.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

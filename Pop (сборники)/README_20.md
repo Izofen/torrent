@@ -1,4 +1,576 @@
 ﻿
+###  Публикация: 1 598 811
+
+Abba - Voyage  2021  [OGG Vorbis|600 Kbps] <Pop, Vocal>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. I Still Have Faith In You
+02. When You Danced With Me
+03. Little Things
+04. Don t Shut Me Down    Читать дальше...    Жанр: Pop, VocalПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:33FEA4AF60D838C3D36136B3BD525A212611C9FD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598811.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 598 217
+
+Patric Cowley - Malebox  2022  [FLAC|Lossless|image + .cue] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+Patrick Joseph Cowley  19.10.1950 – 12.11.1982  был американским композитором танцевальной музыки в стиле disco и hi-NRG. Наряду с Giorgio Moroder ом его часто называют пионером электронной танцевальной музыки. Его ранняя смерть лишь подогрела интерес к его творчеству, которое полностью не раскрыто до сих пор. Но Patrick Cowley, наиболее известный своими диско-гимнами,     Читать дальше...    1. If You Feel It  4:40 
+2. Floating  6:34 
+3. Love & Passion  6:02 
+4. feat. Jeanie Tracy - Low Down Dirty Rhythm  7:56     Читать дальше...    Жанр: DiscoПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 598 012
+
+Vanessa Mai - Für Immer Tour Live 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Augenblick Landebahn  4:28 
+02. Sommerwind  2:35 
+03. Meine Größte Schwäche  3:40 
+04. Melatonin  2:43     Читать дальше...    Жанр: PopПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BE7FE6DEDA355ACA1599A7DBC01385A84D48751A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598012.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 597 864
+
+VA - Sensation 80s - The Ultimate Funk & Disco Classics  2022  2CD, Compilation [MP3|320 Kbps] <
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1
+01. Earth, Wind & Fire - Fantasy  Single Version 
+02. Dan Hartman - Relight My Fire  Single Version 
+03. Midnight Star - Midas Touch  DJ Bronco Mix     Читать дальше...    Жанр: Post-Disco, Electro, Dance, Euro-DiscoПродолжительность: 01:17:51 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:933C6FC7B7E4401715E71B743588E4825C8F0E44
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597864.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 597 827
+
+Моя Мишель - Из цветов и темноты  2022  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Время течёт река
+2. Снегири
+3. Ветер меняет направление
+4. Из другого города    Читать дальше...    Жанр: PopПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9D600DA9121F54C03C80F9A567ED739A12177B60
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597827.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 597 772
+
+Chester - Hold The Line  1987  [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Hold The Line  Extended Version 
+02. Hold The Line  Dub Version Жанр: Electronic, Italo-DiscoПродолжительность: 00:12:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EBD8FD7FCD414E8C2D5A310763B51B8DE7A1D4CC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597772.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 597 558
+
+Jennifer Lopez - This Is Me...Then  2022  20th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks]
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Still
+02. Loving You
+03. I m Glad
+04. The One    Читать дальше...    Жанр: Pop, Dance, R&BПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2C6524F0A4DEC8D77A6E4FDAA3C57AE32B8F1B50
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597558.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 597 516
+
+VA - Dance Dance  Best of 2022 [MP3|320 Kbps] <Pop, Dance, House>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Nils van Zandt & Pakito - Are You Ready  2:46 
+02. Singa - The Night Train  2:55 
+03. Amari - Bring the Fire  3:23 
+04. Alexander Merlin - Butterfly  2:38     Читать дальше...    Жанр: Pop, Dance, HouseПродолжительность: 01:21:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5D869147CF17ADD69E142E5FBA0F6325763FC559
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597516.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 597 330
+
+Black Eyed Peas - Elevation  2022  [MP3|320 Kbps] <Rap, Reggae, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - SIMPLY THE BEST [00:03:56]
+02 - MUEVELO [00:04:14]
+03 - AUDIOS [00:03:40]
+04 - DOUBLE D Z [00:03:20]    Читать дальше...    Жанр: Rap, Reggae, DanceПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FC7E90867053E8AF8AED8642FC6D311D42B7DA2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597330.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 597 218
+
+Cerrone - Cerrone by Cerrone  2022  [FLAC|Lossless|image + .cue] <Disco, Dance, Electroic>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+После того, как ему исполнилось 70 лет, французский диско-новатор и крестный отец disco музыки 70-х, Marc Cerrone отпраздновал полвека в музыкальном бизнесе, выпустив Cerrone by Cerrone, mixed set переработанных хитов всей его легендарной карьеры. Первоначально он сделал обновленные версии этих песен для своих диджейских сетов, сохранив суть композиций нетронутой,     Читать дальше...    01. Give Me Love  5:13 
+02. My Desire  2:54 
+03. Got To Have Lovin   4:07 
+04. Look For Love  3:25     Читать дальше...    Жанр: Disco, Dance, ElectroicПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:97ABE0BD26FBBB68C5FEC381A134E453948AE8A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597218.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 597 205
+
+ВИА  Пламя  - Время   пик    1982  LP [MP3|320 Kbps] <Pop, Rock, Disco>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Снег кружится  4:09 
+02. Лабиринт  4:16 
+03. Сказка  3:44 
+04. Колосок золотой  3:52     Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8860FAE91AB1C710458FC15F65B27C8A7B4B5ED7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597205.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 777
+
+A Studio - A’21  2022  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Волосы
+2. Avenue
+3. Завтрак без тебя
+4. Это всё она    Читать дальше...    Жанр: PopПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E8C13E092613446EE78E90BA20EB8AC55A3AA13E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596777.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 725
+
+ВИА  Самоцветы  - 4 Albums  1973-1983  LP Collection [MP3|320 Kbps] <Pop, Pop Rock, Beat>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+ВИА «Самоцветы» - советский и российский вокально-инструментальный ансамбль  ВИА , музыкальная группа. Создатель и бессменный руководитель - Народный артист России Юрий Маликов. Наиболее известен исполнением таких песен, как «Увезу тебя в тундру», «Мой адрес - Советский Союз», «Вся жизнь впереди», «Всё, что в жизни есть у меня».Список альбомов:
+1973 - Самоцветы
+1975 - У нас молодых
+1980 - Путь к сердцу    Читать дальше...    Жанр: Pop, Pop Rock, BeatПродолжительность: 02:17:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04A3B8F31E6DA7F435734C8B8D0C1AACDBF77839
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596725.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 681
+
+Полина Гагарина - Вдох  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Бабочки
+02. Вдох
+03. Тени
+04. Плакали    Читать дальше...    Жанр: PopПродолжительность: 00:29:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D595A714DFDDF2A9B0EEE45F55A7C724D216EA3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596681.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 561
+
+Melanie Payer - Herzuber  2022  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Papillon  03:06 
+02. Unsichtbar  03:42 
+03. Wer weiss  03:32 
+04. Seit du nicht mehr da bist  04:04     Читать дальше...    Жанр: PopПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:42F238CDCAA7BD3B5F142BBEEA5E3B84345D897C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596561.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 520
+
+Blue System - Behind The Silence 2002  2002  Unofficial Release [OGG Vorbis|480 Kbps] <Electroni
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Behind The Silence  Oliver Leadline Add 
+02. Behind The Silence  South Cinematronics Meet Sea Side Edit 
+03. Behind The Silence  South Cinematronics Meet Sea Club Mix Жанр: Electronic, Synth-pop, Euro-DiscoПродолжительность: 00:16:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7C797F7E56669E88656BF223D78EAAF9AFC9CA39
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596520.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 290
+
+Fancy - Diamonds Forever Part I  2022  [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco, Euro-D
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Slice Me Nice  2022 
+02. Running Man  2022 
+03. Bolero  2022 
+04. Chinese Eyes  2022     Читать дальше...    Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:27BF87BD3624B19F303CD6CB233148549B79DFAB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596290.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 285
+
+Юлия Савичева - Стихия  2022  EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Скажи мне
+02. Жёлтое такси
+03. От его голоса
+04. Незнакомец    Читать дальше...    Жанр: PopПродолжительность: 00:16:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E75DD2DAFAB472D28F1CD1755773EB31FB7AED3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596285.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 262
+
+C.C.Catch - In The Mix - 80 s Best  2002  [OGG Vorbis|480 Kbps] <Electronic, Synth-pop, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Soul Survivor   98 Rap Version 
+02. I Can Lose My Heart Tonight  Extended Club Remix 
+03. Strangers By Night  Maxi-Version 
+04. One Night s Not Enough  Maxi-Version     Читать дальше...    Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1274D348E94C5BDB305F4854858380049E7A8A50
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596262.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 236
+
+Стас Михайлов - Код да Винчи  2022  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Код да Винчи
+2. Одной тебе
+3. Летят самолёты
+4. Самая лучшая женщина    Читать дальше...    Жанр: PopПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:119F85B0757E622FE84D2E4ED187CF0FBE3BD3C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596236.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 166
+
+VA - Romantic DANCE  2022  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+1. Swanky Tunes Асия - Это Всё
+2. TRITICUM MURANA - Her Love Story
+3. DJ JEDY - Passion on the Candle Light
+4. Lost Knights - U&I    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBCD022E8C7212135A1B05DACDB276884F8C8F03
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596166.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 595 997
+
+VA - DMC Essential Hits 2022 UK & USA Number Ones  2022  CD, Compilation [MP3|320 Kbps] <Dance,
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Adele - Easy On Me
+02. Beyonce - Break My Soul
+03. Carolina Gaitan Mauro Castillo Adassa Rhenzy Feliz Diane Guerrero Stephanie Beatriz & Encanto Cast - We Dont Talk About Bruno
+04. David Guetta & Bebe Rexha - Im Good  Blue   Extended Clean     Читать дальше...    Жанр: Dance, Disco, Synthpop, R&BПродолжительность: 01:14:51 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:14FFAF3C09D1579CBCB3B2CF689B2CDA280EE215
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1595997.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 595 994
+
+VA - DMC Essential Hits 2022 December  2022  3CD, Compilation [MP3|320 Kbps] <Dance, Nu-Disco, P
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1
+01. A1 & J1 & Tion Wayne - Night Away  Dance   Clean 
+02. Alok Ella Eyre & Kenny Dope Fe. Never Dull - Deep Down  Radio 
+03. Atb & Topic & A7s - Your Love  9pm   Clean     Читать дальше...    Жанр: Dance, Nu-Disco, Progressive, Synth-popПродолжительность: 01:19:11 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1595994.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 595 960
 
 C.C.Catch - The Best Of C.C. Catch  2000  3 CD [OGG Vorbis|480 Kbps] <Electronic, Disco, Eurodan
@@ -1406,583 +1978,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590403.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 366
-
-VA - Happy New Year 1995!  1994  Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Eurodanc
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Mo-Do - Eins, zwei, Polizei  03:16 
-02. Army of Lovers - Sexual Revolution  03:50 
-03. Marie Claire D Ubaldo - The Rhythm Is Magic  04:03 
-04. DJ BoBo - Deep in the Jungle  03:53     Читать дальше...    Жанр: Eurodance, Pop, RockПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B4EE31919B1CC2335E9BB4DA600530D5C7DA0D6D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590366.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 262
-
-Андрей Губин - Только ты  1998  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Андрей Губин - Зима-холода  03:55 
-02. Андрей Губин - Я знаю, ты знаешь  03:52 
-03. Андрей Губин - Милая моя далеко  04:15 
-04. Андрей Губин - День и ночь  04:01     Читать дальше...    Жанр: PopПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7F134AEBE482D87A012B05B49E6B3F2508013E8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590262.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 073
-
-Юлия Савичева - Стихия  2022  EP [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Скажи мне
-2. Жёлтое такси
-3. От его голоса
-4. Незнакомец    Читать дальше...    Жанр: PopПродолжительность: 00:16:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FB464733AA541E1BB725306A9D0B7115075EC193
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590073.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 893
-
-DJ Bobo - Evolut30n  Evolution   2022  [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Pop>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Evolut30n  Evolution 
-02. Better Days
-03. Together We Fly
-04. Love    Читать дальше...    Жанр: Eurodance, PopПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE670C2BCA3B6BC02AE969B68479B41060E9D3A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589893.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 459
-
-The Laser Cowboys - Radioactivity  1986  Remastered, Unofficial Release, 2018, VR [OGG Vorbis|48
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Overture
-02. Radioactivity  From The Ucraine 
-03. Ultra Warp  Armaged Don Mix 
-04. Theme From Knight Rider    Читать дальше...    Жанр: Electronic, Disco, Italo-DiscoПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9AC3F93B9F2FC7818E92D82C7ADF7C0396F27E4B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589459.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 454
-
-Genghis Khan - Greatest Hits  1980  Japanese Edition, Compilation, Reissue, 1992, Victor Musical
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-Dschinghis Khan  с нем.«Чингисхан»  — западногерманская диско-группа, созданная в 1979 году музыкальным продюсером Ральфом Зигелем в ФРГ, для участия в международном песенном конкурсе «Евровидение», где заняла четвёртое место. Наиболее известна исполнением таких песен, как «Dschinghis Khan», «Moskau», «Rocking son of Dschinghis Khan».
-
-Многие песни группы посвящены     Читать дальше...    01. Machu Picchu
-02. Hadschi Halef Omar
-03. Madagaskar
-04. Kaspar Hauser    Читать дальше...    Жанр: DiscoПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EECFDD5F4F096F55E4B93B66CC7DE3E93708789C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589454.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 366
-
-Blue System - The History Of Blue System  2009  2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Dis
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Sorry Little Sarah  7   Version 
-02. Big Boys Don t Cry  Long Version 
-03. Love Me More
-04. G.T.O.    Читать дальше...    Жанр: Electronic, Pop, DiscoПродолжительность: 02:37:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F2024AC43F92E4CF761703D909DB8283D69433E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589366.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 333
-
-Master Genius - The Album  1984  LP [MP3|320 Kbps] <Electronic, Hip Hop, Disco, Electro>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Nervous Breakdown  Multa-Extra-Mix   Includes Let s Break Into The 80 s   14:35 
-02. Master Bonus Part 1  1:12 
-03. Nervous Electric Boogie Rhythm Track  3:04 
-04. Atomic Extra Super Break  Includes Let s Break   16:19     Читать дальше...    Жанр: Electronic, Hip Hop, Disco, ElectroПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:56DAC7300343E4483313326C97C6E32780B43404
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589333.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 305
-
-Blue System - Greatest Hits  2009  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Under My Skin
-02. Magic Symphony
-03. Deja Vu
-04. Sorry Little Sarah    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6DF5CA3D9A8D8C50031626814E391EDBC4F182DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589305.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 095
-
-Various Artists - ZYX Italo Disco New Generation Vol. 20  2022  [FLAC|Lossless|image + .cue] <It
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-CD - 1:
-01. Den Harrow Feat. Orlando Johnson– Shine On  Flemming Dalum Remix  5:30
-02. Ken Laszlo– Leather Man  Swedish Remix  5:56
-03. Flemming Dalum– Walking In The Neon  Special ZYX Remix  6:52    Читать дальше...    Жанр: Italo DiscoПродолжительность: 02:31:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7793434535665F8A703814F5C54F916E20CA024
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589095.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 822
-
-Blue System - 40 Jahre ZDF Hitparade  2009  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurod
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Intro Dieter Thomas Heck
-02. Sorry Little Sarah  Maxi Version 
-03. My Bed Is Too Big
-04. Under My Skin    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:24AD74779A68C37B0506B8F6DFA4FF24A5F35072
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588822.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 709
-
-Blue System - When You Are Lonely  1997  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodanc
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. When You Are Lonely
-02. Sorry Little Sarah
-03. Silent Water
-04. When Sarah Smiles    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3C8B405152525F59F6D24B75CA9E3E0342FAF00B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588709.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 688
-
-Joe Dassin - Joe Dassin Éternel...  2022  Edition deluxe [FLAC|Lossless|WEB-DL|tracks + .cue] <P
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Siffler sur la colline  2:36 
-02. Dans les yeux d Emilie  3:43 
-03. Les Champs-Elysées  2:37 
-04. Et si tu n existais pas  3:25     Читать дальше...    Жанр: Pop, French MusicПродолжительность: 01:21:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D1D0E84376C151C60644D818AA173A824B76EB39
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588688.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 624
-
-Blue System - Seeds Of Heaven  1991  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. La Serenata  Overture 
-02. Lucifer
-03. Testemente D Amelia
-04. Is She Really Going Out With Him    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DBD8BDDA6F9B6E5F0DBDEE3D6B6B946CDED002BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588624.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 612
-
-Blue System - Hello America  1992  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Romeo & Juliet
-02. Crossing The River
-03. I Will Survive
-04. I Like Your Sexy Body    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4697F0C9B0B68821306171D22BE5E75DA7B059D5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588612.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 526
-
-Blue System - Backstreet Dreams  1993  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. History
-02. Operator
-03. Backstreet Heaven
-04. You Are An Angel    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D3FF47974EC6587E0C71875DD9BAFBEE545CA1DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588526.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 468
-
-Blue System - 21st Century  1994  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Welcome To The 21st Century
-02. 6 Years - 6 Nights
-03. Venice In The Rain
-04. If I Will Rule The World    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18078C874ADD0C7ED91093F93DF01A2562ED5417
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588468.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 411
-
-Blue System - X - Ten  1994  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Dr. Mabuse
-02. If There Is A God In Heaven
-03. How Will I Know
-04. Goodnight Marielin    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0504CB6AABC0C3E6DDC292053F8FEC38CA974190
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588411.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 383
-
-Blue System - Forever Blue  1995  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Laila
-02. I Wanna Smile
-03. Baby Jealousy
-04. Taxi Girl    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EEDF11845316BA09C1EB12289EFCC67BE042C227
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588383.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 268
-
-Blue System - Body To Body  1996  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Body To Body  Radio Version 
-02. Only With You  Radio Version 
-03. For The Children
-04. It s For You    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BC5E3EB3180E1E2E63708624D9D789F985801400
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588268.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 217
-
-Blue System - Here I Am  1997  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Love Will Drive Me Crazy
-02. Anything
-03. I Miss You
-04. I Love The Way You Are    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AC240FA638920FF4361604266B41CEF3DA9C84AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588217.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 173
-
-Маленький Принц - Мы Встретимся Снова  1994  Reissue, 2022, Maschina Records [OGG Vorbis|480 Kbp
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Я не знаю, зачем мне ты
-02. Голос в ночи
-03. Прощай
-04. Не знаю я тебя    Читать дальше...    Жанр: Disco, PopПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA26DE828DD95EB03482E2415B54A2F26922EF6B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588173.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 008
-
-VA - Keep It Disco Vol. 05  2022  CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disc
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. D.P.V. - Boogying  Original Mix 
-02. Vinny Terranova - I m The Same Boy  Original Mix 
-03. DJ Patisso - Hold On  Original Mix 
-04. HP Vince - Funky Africa  Original Mix     Читать дальше...    Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:05:27 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D97D7FFC94C56C4FA5A55AE32340B524AD9069D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588008.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

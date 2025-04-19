@@ -1,4 +1,28 @@
 ﻿
+###  Публикация: 1 162 604
+
+Ubuntu 17.10 Artful Aardvark Beta I [i386, amd64] 10xDVD
+Linux, Unix и другие ОС
+ОС *Nix  Alpha, Beta, RC 
+
+###  Подробнее
+
+Представлены первые бета версии дистрибутива Ubuntu 17.10 Artful Aardvark, которые доступны для тестирования и это означает что Ubuntu переходит на стадию заморозки пакетов.
+
+Так, для загрузки доступны следующие сборки: Lubuntu, Lubuntu Next, Ubuntu Mate, Kubuntu, Ubuntu Studio, Ubuntu Budgie, Xubuntu, Ubuntu Kylin. Здесь в релизе только пять рабочих окружений для     Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5506ED10DFB46F6379411D5C9979E9B730CF5D1C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1162604.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 162 176
 
 BlackArch Linux 2017.08.30 [Хакинг, аудит, безопасность] [i686, x86-64] 2xDVD, 2xCD
@@ -1773,28 +1797,6 @@ Linux, Unix и другие ОС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1073994.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 073 988
-
-OpenSuse Leap 42.2 [x86_x64] 1xDVD, 1xCD
-Linux, Unix и другие ОС
-ОС Linux
-
-###  Подробнее
-
-Проект openSUSE анонсировал релиз openSUSE Leap 42.2. Это второй выпуск на базе новой архитектуры, совмещающей вклад сообщества с разработками для корпоративных систем - основой openSUSE Leap выступают наработки промышленного дистрибутива SUSE Linux Enterprise 12SP2, поверх которых поставляются свежие выпуски рабочего стола и новых версий пользовательских приложений.     Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80F051CBDBE21DBE7D7FB7333CAC932F861F78EC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1073988.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

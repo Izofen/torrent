@@ -1,4 +1,579 @@
 ﻿
+###  Публикация: 1 217 887
+
+Marsius - ..... Save The Tiger  1977  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Save The Tiger  5:17 
+02. Suite For Lovers  10:54 
+03. Chiricahua  4:55 
+04. Look At Me Babe  4:19     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:30:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D3D23B3144F24BEE87D7234DABB9CD4C01CD0AAA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217887.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 854
+
+Юрий Чернавский - Золотая Коллекция, 2CD  2003  [APE|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Лунное Кино
+02. Если Ты Помнишь
+03. Капитан
+04. Фараон    Читать дальше...    Жанр: PopПродолжительность: 01:50:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5DD553DF48CCFD2C31E06BA22CF1C298B96FC3F6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217854.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 791
+
+Lisa Stansfield - Deeper  2018  [FLAC|Lossless|image + .cue] <Pop, Sou, Disco>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Everything
+02. Twisted
+03. Desire
+04. Billionaire    Читать дальше...    Жанр: Pop, Sou, DiscoПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E34F1312CB772DE3FF824AA3677A80B52A42ACDC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217791.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 778
+
+Kylie Minogue - Golden  2018  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Dancing  2:59 
+ 02. Stop Me from Falling  3:02 
+ 03. Golden  3:08 
+ 04. A Lifetime to Repair  3:19     Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:510A530C1E2833059D93D477FB87E07F3F0056EE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217778.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 765
+
+Samantha Sang - 3 Albums  1975-1979  LP [MP3|320 Kbps] <Vocal, Ballad, Disco, Soul>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Австралийская певица, родилась 5 августа 1953 года.Настоящее имя Cheryl Gray. В создании второго альбома приняли активное участие братья  Barry и Robin Gibb из известной группы Bee Gees.Список альбомов:
+1975 - Samantha Sang and Rocked the World
+1978 - Emotion
+1979 - From Dance To Love    Читать дальше...    Жанр: Vocal, Ballad, Disco, SoulПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FF6387A548ACB5047F5606838D73B3A413017191
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217765.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 457
+
+Deana Carter  Дина Картер  - The Deana Carter Collection  2002  Capitol Records, Compilation
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно     Читать дальше...    01. Strawberry Wine 4:50
+02. We Danced Anyway 3:23
+03. Did I Shave My Legs for This? 3:13
+04. Count Me In 3:25    Читать дальше...    Жанр: Country, Alternative CountryПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E450A52678C1C371F7BA16F270DC41EEDFD45D0A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217457.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 445
+
+Deana Carter  Дина Картер  - Father Christmas  2001  Rounder Records [MP3|320 Kbps] <Country
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно     Читать дальше...    01. I ll Be Home for Christmas 4:47
+02. The Christmas Song 4:42
+03. Merry Christmas Darling 3:28
+04. Blue Christmas 3:54    Читать дальше...    Жанр: Country, Alternative CountryПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1F26258B6ED3ED69B321B429F7BAC3DDE496B9BA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217445.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 341
+
+Kylie Minogue - Golden  2018  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Dancing  02:59 
+02. Stop Me from Falling  03:02 
+03. Golden  03:08 
+04. A Lifetime to Repair  03:19     Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9D9185BB285687A31BB19BD8AB1BFF077703539F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217341.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 236
+
+Deana Carter  Дина Картер  - Everything s Gonna Be Alright  1998  Capitol Records Nashvill
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно     Читать дальше...    01. You Still Shake Me 2:48
+02. Ruby Brown 4:20
+03. Absence Of The Heart 3:31
+04. Brand New Key 3:18    Читать дальше...    Жанр: Country, Alternative CountryПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57500CF2BE259668C162668F295887C9A2440F60
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217236.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 232
+
+Deana Carter  Дина Картер  - Did I Shave My Legs for This?  1996  Capitol Nashville [MP3|320
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно     Читать дальше...    01. I ve Loved Enough To Know 3:24
+02. We Danced Anyway 3:23
+03. Count Me In 3:25
+04. If This Is Love 2:56    Читать дальше...    Жанр: Country, Alternative CountryПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69CCB7AD59B06A657C800CEE8C9F2778525B5DF3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217232.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 229
+
+Deana Carter  Дина Картер  - Did I Shave My Legs For This?  1995  Patriot Records [MP3|320 K
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно     Читать дальше...    01. Angel Without A Prayer 5:22
+02. Rita Valentine 3:30
+03. I ve Loved Enough To Know 3:27
+04. I Can t Shake You 3:17    Читать дальше...    Жанр: Country, Alternative CountryПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F1DBDF1A9BBBC8043399AEE6A539011E40C24199
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217229.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 995
+
+VA - Q-Music: Het Beste Uit De Top 500  2014  5CD [MP3|320 Kbps] <Pop, Rock, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+«Топ-500» 90-х годов - это ежегодный список хитов, который транслируется на Vlaamse радиоканале Q-music в феврале. Список впервые транслировался в 2013 году.CD1:
+01. ABBA - Dancing Queen
+02. 2 Unlimited - No Limit
+03. Bill Medley & Jennifer Warnes -  I ve Had  The Time Of My Life    Читать дальше...    Жанр: Pop, Rock, DanceПродолжительность: 06:25:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:470B7CD055C21FC76F4AB778363AB7CB2D608D36
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216995.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 992
+
+VA - Q-Music Top 500 van de 90 s Box  2013  6CD [MP3|320 Kbps] <Pop, Rock, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+«Топ-500» 90-х годов - это ежегодный список хитов, который транслируется на Vlaamse радиоканале Q-music в феврале. Список впервые транслировался в 2013 году.CD1:
+01. DJ Paul Elstak - Rainbow In The Sky
+02. Anouk - R U Kiddin  Me
+03. Whitney Houston - I Will Always Love You    Читать дальше...    Жанр: Pop, Rock, DanceПродолжительность: 07:20:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1116473E1EA9AF9C8C0BC46A2B6FE9C6903B2FF1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216992.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 887
+
+Надежда Кадышева и Золотое кольцо - Дуэты  2016  [FLAC|Lossless|image + .cue] <Pop, Pop-Folk>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Всё ушло  Feat. Волжский Хор 
+02. Ворожи не ворожи  Feat. Таисия Повалий 
+03. Ничего не получится  Feat. Витас 
+04. По ту сторону тумана  Feat. Дмитрий Маликов     Читать дальше...    Жанр: Pop, Pop-FolkПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1E97CFAB8C90705B66FD2E38D9B8862E8B4B764B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216887.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 882
+
+Boney M. - Dance Remixes  99  1999  [APE|Lossless|image + .cue] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Ma Baker  Extended Radio Edit 
+02. Boney M. Extended Medley
+03. Rasputin  Remix Version 
+04. Gotta Go Home  Remix Version     Читать дальше...    Жанр: DiscoПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:18082B4E99239E6268AF0C89E7885B074D6437A5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216882.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 753
+
+Сергей Лазарев  Sergey Lazarev  - The One  2018  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. You Put Out The Fire
+02. Eat You Up
+03. Going Under
+04. Deep Blue    Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2EB20EE5B4964EE74944C03CB0D70CA820960350
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216753.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 721
+
+VA - 80s Back To School  2018  [MP3|320 Kbps] <Pop, Dance, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 Wham - Young Guns  Go For It  03:40
+02 Cyndi Lauper - Girls Just Want To Have Fun 03:56
+03 Kc And The Sunshine Band - Give It Up 04:06
+04 Men At Work - Down Under 03:43    Читать дальше...    Жанр: Pop, Dance, RockПродолжительность: 03:44:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C2C60D2025EF21F2455C2F1F9904575036851A2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216721.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 659
+
+US Global DJ s - Back In The USSR  2008  Compilation [MP3|320 Kbps] <Pop, Electro-Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Intro  0:20 
+02. Не забывай  US Global Deejays Electro House Mix   5:38 
+03. Здравствуй и прощай  US Global Deejays Electro House Mix   4:38 
+04. Я выбираю тебя  Remix   6:35     Читать дальше...    Жанр: Pop, Electro-PopПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:48CDE78FEE44D28B3D7BD597DC3036BCB3A1F742
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216659.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 635
+
+Надежда Кадышева и Золотое кольцо - Всё как прежде  2018  [MP3|320 Kbps] <Pop, Pop-Folk>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Всё как прежде  2:32 
+02. Белый ветер  3:45 
+03. Чёрное море  2:22 
+04. Голубая ночь  3:05     Читать дальше...    Жанр: Pop, Pop-FolkПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B7EB4B0F5310E07745B3EC49B5B7EE694AB5412
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216635.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 572
+
+Потап и Настя - Не пара-альбом №1  2008  |Lossless|image + .cue]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Интро  яфшоке! 
+02. Икра
+03. Крепкие орешки
+04. Не пара    Читать дальше...    Жанр: PopПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:19F64A26420CEAB4EEF15DDBF1DFFA70753F81BD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216572.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 375
+
+Peggy March - Electrifying  1979  LP [MP3|320 Kbps] <Electronic, Pop, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Electrifying  4:13 
+02. Dancin  Daddy  4:45 
+03. Foolin  Around  4:17 
+04. I Love Making Love To You  4:07     Читать дальше...    Жанр: Electronic, Pop, DiscoПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBE0398A86D4183A7373F717BFED07439E0F6AE1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216375.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 278
+
+VA - Q-Music Top 500 Van 90 s  2015  6CD [MP3|320 Kbps] <Pop, Rock, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+«Топ-500» 90-х годов - это ежегодный список хитов, который транслируется на Vlaamse радиоканале Q-music в феврале. Список впервые транслировался в 2013 году.01. DJ Paul Elstak - Rainbow In The Sky [1995]  3:30 
+02. Michael Jackson - Earth Song [1995]  5:01 
+03. Backstreet Boys - Everybody  Backstreet s Back  [1996]  3:46 
+04. Robbie Williams - Let Me Entertain You [1997]  4:24     Читать дальше...    Жанр: Pop, Rock, DanceПродолжительность: 07:17:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:97E42A226B191B402D25EA20ED62E1CF17AF18AF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216278.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 277
+
+Peter Kent - 2 Albums, 1 Singles & EPs  1979-1982  Vinyl [MP3|320 Kbps] <Electronic, Pop, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+1979 - It s A Real Good Feeling
+1981 - Happy Weekend
+1982 - Non Stop Magic    Читать дальше...    Жанр: Electronic, Pop, DiscoПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9946133F865422DA4029DE0456A6F077F52620E5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216277.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 216 203
 
 Steps - Tears on the Dancefloor  2017  [FLAC|Lossless|WEB-DL|tracks] <Pop, Europop>
@@ -1420,581 +1995,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211682.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 636
-
-Андрей Губин - Всегда с тобой  2002  [FLAC|Lossless|image + .cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Танцы
-02. Будь со мной
-03. Я всегда с тобой
-04. Крошка    Читать дальше...    Жанр: PopПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E0033FD476F947C64EDCA8E557F0A8092A4E1A0F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211636.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 543
-
-Girls Aloud - Sound Of The Underground  2003  Polydor [MP3|320 Kbps] <Pop, Electronic>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин     Читать дальше...    01 Sound Of The Underground 3:41
-02 No Good Advice 3:48
-03 Some Kind Of Miracle 3:09
-04 All I Need  All I Don t  3:40    Читать дальше...    Жанр: Pop, ElectronicПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A4239AFB788C344C715F59068ED1FDD2B19CA94
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211543.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 508
-
-Venus Rising - Live On Venus  1977  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Let s Dance  5:11 
-02. Can t Get Enough  4:06 
-03. You Got Me Goin   4:41 
-04. So Wonderful, So Beautiful  3:06     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7C30ECC9813AC51E28FA3EEBB2A50176768A6F4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211508.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 449
-
-группа Запад - Холод в моей душе…  1999  [FLAC|Lossless|image + .cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Не остановить
-02. Холод в моей душе
-03. Может быть стать нам ближе?
-04. Пустой вокзал    Читать дальше...    Жанр: PopПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D5D7EDB90733F59F5A369132252DC3FBC51D798
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211449.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 382
-
-VA - NOW That s What I Call Remix  2018  [MP3|~281-292 Kbps] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-1. Rag n Bone Man - Human  Rudimental Remix 
-2. Bruno Mars - That s What I Like  PARTYNEXTDOOR Remix 
-3. Justin Bieber & BloodPop feat. Julia Michaels - Friends  Remix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:33:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:759116999EF0291011AC3EF93D81A12F04222AC7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211382.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 376
-
-VA - Hot Parade Dance Winter  2018  [MP3|320 Kbps] <Dance, Pop, Euro House>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01. Ofenbach & Nick Waterhouse - Katchi  Ofenbach Vs. Nick Waterhouse 
-02. Betta Lemme - bambola
-03. Lost Frequencies & Zonderling - Crazy    Читать дальше...    Жанр: Dance, Pop, Euro HouseПродолжительность: 2:24:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:276D39E91EF550AA1FD450FD4BE075764CF48138
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211376.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 370
-
-VA - Disco: Classic Singles  2018  [MP3|320 Kbps] <Disco, RnB, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Kc & The Sunshine Band -  Shake Shake Shake  Shake Your Booty 3:06
-02. The Trammps - Disco Inferno 3:34
-03. Chic - My Feet Keep Dancing  7  Version  3:44
-04. The Spinners - Are You Ready For Love  Single Version  3:44    Читать дальше...    Жанр: Disco, RnB, PopПродолжительность: 02:17:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E4293B75D34AB5D38A005F85D250BCF2B9BA5368
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211370.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 367
-
-VA - NOW That s What I Call Running  2018  [MP3|320 Kbps] <New Wave, Britpop, Dance Pop, Disco
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-  1. Calvin Harris feat. Pharrell Williams, Katy Perry & Big Sean - Feels
-  2. Camila Cabello feat. Young Thug - Havana
-  3. J. Balvin & Willy William - Mi Gente    Читать дальше...    Жанр: New Wave, Britpop, Dance Pop, DiscoПродолжительность: 03:32:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B99AA54C903F857FA6C58338C33296E5B1B1075C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211367.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 324
-
-Kállay Saunders - Grind  2018  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Rockstar  04:00 
-02. Hunger  03:28 
-03. I Don t Really Care  03:16 
-04. Why Can t  03:29     Читать дальше...    Жанр: PopПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FD28C25C0A64B50A37DB1F00EA646403D883F3BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211324.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 316
-
-The Flirts - Calling All Boys  1982  Unidisc, LP [MP3|320 Kbps] <Pop, Hi NRG, Synth-Pop, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-С начала 80-х годов маленькая независимая компания  O Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд  O Records, таких как Divine и The Flirts спродюсированные Бобби Орландо  Bobby ORLANDO  пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная     Читать дальше...    01. Juke Box  Don t Put Another Dime  3:44
-02. Boy Crazy 3:13
-03. On The Beach 3:03
-04. Passion 9:04    Читать дальше...    Жанр: Pop, Hi NRG, Synth-Pop, DiscoПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:67149EDC443CD977E9A66830F78F817DF52AA567
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211316.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 305
-
-The Flirts - 10c A Dance  1982   O  Records, LP [MP3|320 Kbps] <Pop, Synth-Pop, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-С начала 80-х годов маленькая независимая компания  O Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд  O Records, таких как Divine и The Flirts спродюсированные Бобби Орландо  Bobby ORLANDO  пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная     Читать дальше...    01. Jukebox  Don t Put Another Dime  3:48
-02. Boy Crazy 3:14
-03. On The Beach 3:05
-04. Passion 3:39    Читать дальше...    Жанр: Pop, Synth-Pop, DiscoПродолжительность: 00:29:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:04D4FE4EB01138AEB52242A435FB7012F138C133
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211305.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 241
-
-Plazma - Newer Again  2004  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Never Again  4:19 
-02. Power Of Your Spell  3:54 
-03. Boogie Red  3:16 
-04. You Know  My Recent Diserse   4:00     Читать дальше...    Жанр: PopПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:71597F02DCB9E88F908B5F2AD1D2991934B380EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211241.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 220
-
-VA - Disco 80 s: Special Edition  2018  [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Eddy Huntington - Physical Attraction  4:22 
-02. Eighth Wonder - I m Not Scared  10   Remix   5:42 
-03. Fancy - Moscow Is Calling  5:13 
-04. Italian Boys - Forever Lovers  3:54     Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73BCFDEB34E22C31939B8F9640E7AED3F0E7E197
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211220.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 217
-
-VA - Disco 80 s: Special Edition  2018  [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Eddy Huntington - Physical Attraction  4:22 
-02. Eighth Wonder - I m Not Scared  10   Remix   5:42 
-03. Fancy - Moscow Is Calling  5:13 
-04. Italian Boys - Forever Lovers  3:54     Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:275A496AAC431F084F775C93B817C97F7A709931
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211217.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 213
-
-Татьяна Буланова - Это Я  2017  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Это я  4:00 
-02. В доме, где живёт моя печаль  3:22 
-03. Не бойтесь любви  3:36 
-04. Апрель  4:15     Читать дальше...    Жанр: PopПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D2391A076E473C4D0EB82257CB71BFF521B3DD0E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211213.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 203
-
-Вячеслав Малежик - Альбом  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Вчерашние дети
-2. Эхо любви
-3. Утки крякали
-4. Конотоп    Читать дальше...    Жанр: PopПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:778CDECD1AF6723E31B4CC2F24BDDAB14E42FA79
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211203.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 131
-
-Amy Wadge - Keeping Faith  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Faith s Song
-02. We Fall Down
-03. Here I Go Again
-04. Pain    Читать дальше...    Жанр: Pop, AcousticПродолжительность: 00:15:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E4E31803EFE249E8F3AD04A6107A7A8221B0047
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211131.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 116
-
-Алёна Апина - Давай так  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Близость  3:49 
-02. Давай так  3:18 
-03. Елена  3:51 
-04. Девушка Бонда  3:50     Читать дальше...    Жанр: PopПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:172A4506B8937D2D78391F6693103F513BAF603B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211116.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 063
-
-VA - NRJ Extravadance  2018  [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01. Maitre Super Sako - Mi Gna
-02. Jahyanai & Bamby - Who Mad Again
-03. Camila Cabello - Havana    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:57:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:37B4F1783459D3FFDB8A377E94876FDC67EE10FB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211063.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 210 989
-
-Armenian Navy Band - How Much Is Yours?  2005  D. Svota Music [MP3|192 Kbps] <Folk, World, Count
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Let Factories Open 4:04
-02. Let s Not Become a Copy from a Copy 6:38
-03. Let s Try a New Road 4:42
-04. I Don t Forget My Faith 4:49    Читать дальше...    Жанр: Folk, World, CountryПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5586C104DB43ABE5FE9A9BEF10085EA86AC84A2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1210989.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 210 962
-
-Armenian Navy Band - Sounds Of Our Life - Part One: Natural Seeds  2004  Heaven And Earth [MP3|1
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Water 1:28
-02. River 5:46
-03. Ocean 3:29
-04. Sun 1:04    Читать дальше...    Жанр: Folk, AvantgardeПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:69686806CBD3A501036ECD1B0AE25FF9BEF5F591
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1210962.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 210 956
-
-Armenian Navy Band - New Apricot  1999  İmaj [MP3|192 Kbps] <Folk, World, Country>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. The Love Me From 15 Feet Away 7:18
-02. Rooster Run 3:22
-03. My Aunt Mari Doesnt Care About My Jacket 4:23
-04. Shadows Of Clean Spirits 5:22    Читать дальше...    Жанр: Folk, World, CountryПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AC6FEC2527197EFFA7902BBAB68B5E811B05B7EC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1210956.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 210 949
-
-Grivina - Я хочу  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. I Love Deep House 3:34
-2. Мало 3:16
-3. Не дети 3:41
-4. Каплями 3:40    Читать дальше...    Жанр: PopПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AFD3042972434065905FEBAAD2D6B4B55F8BC60E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1210949.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
