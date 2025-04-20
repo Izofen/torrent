@@ -1,4 +1,400 @@
 ﻿
+###  Публикация: 1 525 034
+
+Microsoft Windows 10.0.19042.1466, Version 20H2  Updated January 2022  - Оригинальные образы от
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 10 October 2020 Update  под кодовым названием  20H2   является десятым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за май 2020 года и имеет номер сборки 10.0.19042.
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1466.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:74A7076A5FF059226C12368541CD4812F3CA8000
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1525034.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 525 033
+
+Microsoft Windows 10.0.19042.1466, Version 20H2  Updated January 2022  - Оригинальные образы от
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 10 October 2020 Update  под кодовым названием  20H2   является десятым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за май 2020 года и имеет номер сборки 10.0.19042.
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1466.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BF991476D972DCFE9F6F576D4EC40B7213D73387
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1525033.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 918
+
+Windows Server 2022 LTSC, Version 21H2 Build 20348.405  Updated December 2021  - Оригинальные об
+ОС Windows
+Оригинальные версии Windows Server
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие     Читать дальше...    Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F5B98AA2076C5AF862CF135986AD55E3C3A3171
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518918.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 917
+
+Windows Server, Version 20H2  10.0.19042.1415   Updated December 2021  - Оригинальные образы
+ОС Windows
+Оригинальные версии Windows Server
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для     Читать дальше...    Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C0D5C589634CDF6AA0085435420194EA4C3E0651
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518917.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 916
+
+Microsoft Windows 11 [10.0.22000.376], Version 21H2  Updated December 2021  - Оригинальные образ
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как  операционную систему как службу , которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные     Читать дальше...    Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:853408AFA2702B12F2DB2318F06CB4B735E0847C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518916.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 915
+
+Microsoft Windows 11 [10.0.22000.376], Version 21H2  Updated December 2021  - Оригинальные образ
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как  операционную систему как службу , которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные     Читать дальше...    Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F8CDE51F93691BF6BF945A7ACEFC1E1F9ABF9565
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518915.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 914
+
+Microsoft Windows 10.0.19044.1415, Version 21H2  Updated December 2021   - Оригинальные образы о
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1415.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1BD3EE89B33363D7D4ED94F18CD82D3BB4B44A13
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518914.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 913
+
+Microsoft Windows 10.0.19044.1415, Version 21H2  Updated December 2021   - Оригинальные образы о
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1415.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B5B8DCAA1D9E3282708A2AE4F4B91682655E75C1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518913.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 912
+
+Microsoft Windows 10.0.19043.1415, Version 21H1  Updated December 2021  - Оригинальные образы от
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 10 May 2021 Update  под кодовым названием  21H1   является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
+
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1415.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:39CDBC747A73EDE5AB5CCFAF097E2E48BACDC86B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518912.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 911
+
+Microsoft Windows 10.0.19043.1415, Version 21H1  Updated December 2021  - Оригинальные образы от
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 10 May 2021 Update  под кодовым названием  21H1   является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
+
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1415.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE53106866E9FDD438D4AE23705C02CDFC8E7083
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518911.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 910
+
+Microsoft Windows 10.0.19042.1415, Version 20H2  Updated December 2021  - Оригинальные образы от
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 10 October 2020 Update  под кодовым названием  20H2   является десятым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за май 2020 года и имеет номер сборки 10.0.19042.
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1415.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:454860737F070C70669CFE92DA4ED77CA96ECE12
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518910.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 909
+
+Microsoft Windows 10.0.19042.1415, Version 20H2  Updated December 2021  - Оригинальные образы от
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 10 October 2020 Update  под кодовым названием  20H2   является десятым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за май 2020 года и имеет номер сборки 10.0.19042.
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1415.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5956DDC26D9401E4A1EF0C604780A92B81690D71
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518909.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 517 877
+
+Windows 8.1 6.3  9600.20207  86x64 Embedded Industry Enterprise + Pro  4in1  by Brux [Ru]
+ОС Windows
+Сборки Windows 8
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных образов windows_embedded_8.1_industry_Enterprise и windows_embedded_8.1_industry_pro от MSDN.
+Все изменения в сборке производились исключительно при помощи DISM.
+Были интегрированы обновления по 16 Декабрь 2021 года.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EC8C6F6349A050C379D8A9AAC343CCD588064F75
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1517877.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 510 550
+
+Windows Server 2022 LTSC, Version 21H2 Build 20348.350  Updated November 2021  Оригинальные обра
+ОС Windows
+Оригинальные версии Windows Server
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие     Читать дальше...    Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD1C21FBD6C7CCE9C1BC867C6C49127467C0AC1A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1510550.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 510 549
+
+Windows Server, Version 20H2  10.0.19042.1348   Updated November 2021  - Оригинальные образы
+ОС Windows
+Оригинальные версии Windows Server
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для     Читать дальше...    Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A18EF3BF8B3FAF979880A6996B11F6F07836E62
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1510549.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 510 548
+
+Microsoft Windows 11 IoT Enterprise [10.0.22000.318]  Updated November 2021  - Оригинальные обра
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 11 IoT Enterprise - это полная версия Windows 11, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 11 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 11 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает,     Читать дальше...    Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41904BC0B3288162184E9844AA4019BB1063927B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1510548.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 510 547
+
+Microsoft Windows 10 IoT Enterprise LTSC 2021, Version 21H2 - Оригинальные образы от Microsoft MSDN
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 10 IoT Enterprise LTSC 2021 основана на Windows 10 Pro версии 21H2  выпущена в ноябре 2021 года , добавляя дополнительные функции, предназначенные для удовлетворения потребностей крупных и средних организаций  включая крупные академические учреждения , такие как расширенная защита от современных угроз безопасности, полная гибкость развертывания ОС, возможности     Читать дальше...    Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29E10FD1688E053AA6A311C31847503BA730772E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1510547.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 510 546
 
 Microsoft Windows 10 IoT Enterprise, Version 21H2 - Оригинальные образы от Microsoft MSDN [En]
@@ -1435,395 +1831,6 @@ Microsoft Windows 10.0.17763.2114, Version 1809  Updated August 2021  - Ориг
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1489840.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 925
-
-Microsoft Windows 10.0.19043.1110, Version 21H1  Updated July 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1110.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A02A3338C916A21CA45B9D147C1FEC9E6B009C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484925.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 924
-
-Microsoft Windows 10.0.19043.1110, Version 21H1  Updated July 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1110.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D3A43E67E1A72A0B791FF87F80A8B3B2030D3E5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484924.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 923
-
-Windows Server, Version 20H2  10.0.19042.1110   Updated July 2021  - Оригинальные образы от
-ОС Windows
-Оригинальные версии Windows Server
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для     Читать дальше...    Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90583BFB316E614995471913034729596251A84F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484923.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 922
-
-Microsoft Windows 10.0.19042.1110, Version 20H2  Updated July 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1110.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E9E2C21072F7A4D60B55F1598AD975618955A40
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484922.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 921
-
-Microsoft Windows 10.0.19042.1110, Version 20H2  Updated July 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1110.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:890C5B214E3F278519D422B41688166D39BD0B3B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484921.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 919
-
-Microsoft Windows 10.0.19041.1110, Version 2004  Updated July 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1110.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F011063C7607DF212013DC37DE6FC58CD832FE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484919.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 918
-
-Microsoft Windows 10.0.19041.1110, Version 2004  Updated July 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1110.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:225BF5D932B66859AAE1C5E67B44AA062F17AE1F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484918.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 917
-
-Microsoft Windows 10.0.17763.2061, Version 1809  Updated July 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.2061.
-Оригинальные образы business_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D605E3FAB886098ABCFD77279DE4C3AFDC87EAAF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484917.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 916
-
-Microsoft Windows 10.0.17763.2061, Version 1809  Updated July 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.2061.
-Оригинальные образы business_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D5B28CCD81FEF4D59F4C3EECB22E1810F83B85C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484916.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 015
-
-Windows 10 21H1  Build 19043.1110   60in2  x86 x64 by Sergei Strelec [Ru]
-ОС Windows
-Сборки Windows 10
-
-###  Подробнее
-
-Образ Windows 10 с интегрированными обновлениями по 15.07.2021
-Интегрированы обновления исключительно средствами DISM.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E79E74B7C07FB34BA349379E4329684D2D029CB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484015.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 010
-
-Windows 8.1 6.3  Build 9600.20069   24in2  x86 x64 by Sergei Strelec [Ru]
-ОС Windows
-Сборки Windows 8
-
-###  Подробнее
-
-Образы Windows 8.1 с интегрированными обновлениями по 16.07.2021
-Интегрированы только обновления исключительно средствами DISM.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02B2C15C54270D991FD7A985A4942857226F0F6E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484010.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 484 008
-
-Windows 7 SP1 6.1  Build 7601.25661   13in2  x86 x64 by Sergei Strelec [Ru]
-ОС Windows
-Сборки Windows 7
-
-###  Подробнее
-
-Образ Windows 7 с интегрированными обновлениями по 16.07.2021
-Интегрированы обновления исключительно средствами DISM.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:42822ADBD686EA6BBC043AEAB1916B6BEC53C398
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484008.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 479 018
-
-Microsoft Windows 10.0.19043.1052, Version 21H1  Updated June 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1052.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13061C96EE841C7BB3339787AC1D545445DB545F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1479018.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 479 017
-
-Microsoft Windows 10.0.19043.1052, Version 21H1  Updated June 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1052.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BD075624D4171E000F2DFE0D2CA22204081CE790
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1479017.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 479 016
-
-Windows Server, Version 20H2  10.0.19042.1052   Updated June 2021  - Оригинальные образы от
-ОС Windows
-Оригинальные версии Windows Server
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для     Читать дальше...    Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:186788A9F4899A4F3D02609B779EE88D1183BC46
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1479016.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 479 015
-
-Microsoft Windows 10.0.19042.1052, Version 20H2  Updated June 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1052.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C0F4F07E61D0D9D03A7CBDF92CD1064EA23DDD88
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1479015.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 479 014
-
-Microsoft Windows 10.0.19042.1052, Version 20H2  Updated June 2021  - Оригинальные образы от Mic
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1052.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0FBE57E3DF31C86FBEF3B4C2BE2686B0E99475F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1479014.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
