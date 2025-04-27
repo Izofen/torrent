@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 366 833
+
+Аффинаж - Мимо. Ранен. Убит.  2020  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Пролог
+2. Ангел
+3. Такси
+4. Хостел    Читать дальше...    Жанр: RockПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C6434CE7362299D3376463A630DA086B489A9D62
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366833.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 624
+
+Король и Шут - Акустический альбом  1998  Remastered, 2019, Шумный Рекордс [MP3|320 Kbps] <Punk
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Кукла Колдуна
+2. Наблюдатель
+3. Бедняжка
+4. Прыгну со Скалы    Читать дальше...    Жанр: Punk RockПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0EB63FEB3C2443611880270CA8AAD8B5F31CF7D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366624.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 176
+
+Louna - Live Show Re:Public Minsk Belarus  2020  [MP3|320 Kbps] <Nu Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Intro 2019  Live 
+2. Мы — это LOUNA  Live 
+3. Бойцовский клуб  Live 
+4. Огня  Live     Читать дальше...    Жанр: Nu MetalПродолжительность: 01:41:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E138828973355ED91A00B491810B6BC12ED5661
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366176.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 142
+
+VA - Tribute to Смута - 15  2020  [MP3|320 Kbps] <Viking Metal, Folk Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 Ethnor - В путь  Смута Cover  [00:05:54]
+02 Mjød - Вслед За Марой  Смута Cover  [00:03:33]
+03 Изморозь - Встать, как Один!  Смута Cover  [00:03:26]
+04 Moon Far Away - Солнце Красное  Смута Cover  [00:04:44]    Читать дальше...    Жанр: Viking Metal, Folk MetalПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CC3BEDF21EC630B789B5FA2AC2578941F7DDD9CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366142.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 024
+
+Stay Away - Дисклеймер. Часть 2  2019  [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Рип
+2. На карусели
+3. Фэйворит шкура
+4. Майнер с порнохаб    Читать дальше...    Жанр: Punk RockПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C059B1D376D10B129FB74598106071E4652BFE2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366024.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 366 022
 
 Sergey Golovin - Satellite  2019  [MP3|320 kbps] <Progressive Metal, Djent, Instrumental Rock>
@@ -1833,128 +1958,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343444.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 049
-
-Antreib - Наши голоса I  2019  [MP3|320 Kbps] <Punk Rock, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Скользи  feat. Лу 
-2. Назад дороги нет  feat. Distemper 
-3. Кто, если не ты?  feat. Тараканы! 
-4. Nothing As Cruel  feat. Total Chaos     Читать дальше...    Жанр: Punk Rock, RockПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E7EA3F79562FB7B6DE94B7077ACF8D81ED8EEFB5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343049.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 342 995
-
-Борис Гребенщиков - Почему не падает небо  2019  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Почему не падает небо  feat. Vacio Жанр: RockПродолжительность: 00:02:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:802543B7EC6A4DD21D85BF2C3B06C0433CDD2339
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1342995.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 342 780
-
-Без Билета - Легенда  2019  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Я — легенда  Intro 
-2. Aloha
-3. Аляска
-4. Самолётом, поездом, кораблём!    Читать дальше...    Жанр: RockПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BEAEB4DAA6E5CD6C69BCA6B0484AB0F961AD667A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1342780.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 794
-
-Nagart - 3 Альбома, 4 Сингла  2017-2022  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Nagart в мире русского панк-рока с 2013 года. Стиль группы - это хоррор-панк-рок с элементами металлических риффов и узоров. От одного кавер-концерта музыканты пришли к записи песен собственного сочинения. В октябре 2014 год коллектив выпустил дебютный сингл «Ведьма». Несмотря на то, что песня «Ведьма» вызвала фурор, конец 2014 года начало 2015 считается для группы     Читать дальше...    2017 - О чём молчат мертвецы
-2019 - Секреты оборотня
-2019 - Чёрный человек  Single 
-2019 - Тайный клуб  Single Жанр: Punk RockПродолжительность: 02:21:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8276C58F5E96D370D8B79315C5C5CA60CF218441
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341794.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 780
-
-Пурген - Punk Destroyer  2019  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Как прекрасен этот мир
-2. Русская рулетка
-3. Боги спустились с небес
-4. Разговор с самим собой    Читать дальше...    Жанр: Punk RockПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:61FF36518AC82D57A951B6D82259F07B6118DE51
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341780.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

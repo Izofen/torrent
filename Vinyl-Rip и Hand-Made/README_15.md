@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 574 145
+
+Breaking Benjamin - Studio Albums  8 releases   2002 - 2020   hand made [restored, declipped
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Breaking Benjamin — американская альтернативная рок-группа из города Уилкс-Барре, основанная в 1998 году.2002 - Saturate
+2004 - We Are Not Alone
+2006 - Phobia  Asian Edition 
+2010 - Dear AgonyЖанр: Hard Rock, Post-Grunge, Nu MetalПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:19D080D0B3674103960C95AD979E7057B0A61E50
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574145.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 573 515
+
+Lake of Tears - Studio Albums  9 releases   1994 - 2021  hand made [restored, declipped] [FL
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Lake of Tears  с англ. — «Озеро слёз»  — шведская группа, играющая в жанрах готик-метал и дум-метал с элементами психоделического рока и прогрессивного метала.1994 - Greater Art
+1995 - Headstones
+1997 - A Crimson Cosmos
+1999 - Forever AutumnЖанр: Doom Gothic MetalПродолжительность: 06:18:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:48B2686D3E950699D7DFEE40C0A0AF91CE42D1DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573515.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 573 094
+
+Chimaira - Studio Albums  1999 - 2013  hand made [restored, declipped] [FLAC 2.0|44 16|tracks
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Chimaira  kaɪˈmɪərə  — американская грув-метал группа из Кливленда, Огайо, существовавшая с 1998 по 2014 год. Являлась представителем Новой волны американского хеви-метала. Музыкальный стиль группы сочетает грув-метал с элементами металкора. Название группа взяла из греческого написания слова «химера»  Χίμαιρα ,     Читать дальше...    1999 - This Present Darkness  EP 
+2001 - Pass Out Of Existence
+2003 - The Impossibility Of Reason
+2005 - ChimairaЖанр: Groove Nu-Metal MetalcoreПродолжительность: 08:46:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:15E93F0FDC99144E2A0CFE9E34A0F3F797E6DE39
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573094.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 572 826
+
+Disturbed - Studio Albums  8 releases   2000 - 2022  hand made [restored, declipped] [FLAC 2
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Disturbed — американская метал-группа, образованная в городе Чикаго  штат Иллинойс  в 1994 году под названием «Brawl». В 1996 году меняет своё название на «Disturbed», тогда в группу входили Дэн Дониган, Стив Кмак, Майк Венгрен и Дэвид Дрейман. С момента формирования группы они продали около 35 миллионов копий альбомов во всем мире, выпустили семь студийных альбомов,     Читать дальше...    2000 - The Sickness
+2002 - Believe
+2005 - Ten Thousand Fists
+2008 - IndestructibleЖанр: Nu Heavy Metal, Hard RockПродолжительность: 07:31:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:86D0FE147C277901E205131F8BF58FE3F9A23333
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572826.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 572 715
+
+Unleash the Archers - Studio Albums  6 releases   2009 - 2020  hand made [restored, declippe
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Unleash the Archers — канадская метал-группа, основанная в Ванкувере в 2007 году. Группа исполняет смесь традиционного хеви-метала с пауэр-металом и мелодичным дэт-металом.2009 - Behold The Devastation
+2011 - Demons Of The AstroWaste
+2015 - Time Stands Still
+2017 - ApexЖанр: Heavy Power Metal, Melodic Death MetalПродолжительность: 05:10:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C5D52BFC4E48E6BF1B8D3102956F1355FA7544F2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572715.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 572 611
+
+Europe - Дискография  14 albums   1983-2017  hand made [restored, declipped] [FLAC 2.0|44 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Europe — шведская рок-группа, основанная вокалистом Джоуи Темпестом и гитаристом Джоном Норумом. В первый период существования группа относилась к жанру глэм-метал, но после возрождения перешла на современные хард-рок и хэви-метал.1983 - Europe
+1984 - Wings of Tomorrow
+1986 - The Final Countdown
+1988 - Out of This World    Читать дальше...    Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 12:58:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9E1E4070308C69FA7EA93A66BD1ACB0DBB28783E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572611.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 572 601
+
+Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Myrath (араб. ميراث‎, наследие) — ориентал-метал-группа, основанная в 2001 году в Тунисе.2005 - Double Face
+2007 - Hope
+2010 - Desert Call
+2011 - Tales of the SandsЖанр: Oriental Progressive Metal, Power MetalПродолжительность: 07:44:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572601.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 572 589
+
+Seether - Studio Albums (10 releases) (2000 - 2021) hand made [restored, declipped] hand made [resto
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Seether — рок-группа, сформированная в ЮАР в мае 1999 года. Группа выступала под названием Saron Gas до 2002 года, когда было принято нынешнее название.2000 - Fragile (as Saron Gas)
+2002 - Disclaimer
+2004 - Disclaimer II
+2005 - Karma And EffectЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 09:32:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DFC44311DCF6F239DF69C525A2C8AD4ADA074450
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572589.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 572 453
 
 Korn - Studio Albums  15 releases   1994 - 2022  hand made [restored, declipped] [FLAC 2.0|4
@@ -1792,206 +1992,6 @@ Motörhead — британская хэви-метал-группа, оказа
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548439.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 427
-
-Arch Enemy - Дискография  15 albums   1996 - 2022  hand made [restored, declipped] [FLAC 2.0
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Arch Enemy  от англ. arch-enemy — заклятый враг  — шведская группа, играющая в стиле мелодичный дэт-метал. Была основана в 1996 году братьями Майклом и Кристофером Эмоттами.1996 - Black Earth
-1998 - Stigmata
-1999 - Burning Bridges
-2001 - Wages of SinЖанр: Melodic Death MetalПродолжительность: 14:34:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:83A096057ADD8A0D99DCA2EF7823E66443821868
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548427.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 547 993
-
-Frankie Laine - Frankie Laine s Greatest Hits  1975  Compilation [FLAC 2.0|192 24|image+.cue
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 I Believe
-A2 Your Cheatin  Heart
-A3 Jalousie
-A4 That s My Desire    Читать дальше...    Жанр: PopПродолжительность: 00:23:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2FF9E1DB1D9DCE6078A9FD746E47BC0C13154C04
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547993.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 547 919
-
-La Bouche - Greatest Hits  2006  2LP, Limited Edition, 2022, Sony Music [FLAC 2.0|192 24|image
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1		Sweet Dreams
-A2		Be My Lover
-A3		In Your Life
-A4		Take Me 2 Heaven 2 Night    Читать дальше...    Жанр: Electronic Eurodance, Euro HouseПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D2625F12AED6F73A14EE545FE87DC7634DEA1F16
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547919.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 547 850
-
-Людмила Сенчина - Аист На Крыше  1986  ЕР [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Бумажный Cамолетик
- В. Севастьянов – А. Римицан 
-02. Сновидение
- Л. Доброва – Н. Денисов     Читать дальше...    Жанр: Pop RockПродолжительность: 00:11:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:03BADACA99BB5CB1DF36ABC97B831A628AE4F280
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547850.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 547 836
-
-Оризонт - Между Нами Снег  1984  ЕР [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Между Нами Снег
- В. Шаинский - С. Алиханов, А. Жигарев 
-02. Песня Куклы
- В. Шаинский - С. Алиханов, А. Жигарев     Читать дальше...    Жанр: PopПродолжительность: 00:13:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6727DDBAB1C47846FA52E37E23D51591DA2BD391
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547836.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 547 522
-
-Форум - Три альбома  1987-1992  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Synth-pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Зови Меня, Иди Ко Мне
- В. Сайко – Л. Виноградова 
-A2 Серые Глаза
- В. Сайко – Д. Панфилов     Читать дальше...    Жанр: Synth-popПродолжительность: 01:56:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7CCDA5F64130E86C81410FDC4D0186C4D0B7964D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547522.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 547 377
-
-Sabaton - Studio Albums  11 releases   2005 - 2022  hand made [restored, declipped] [FLAC 2.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Sabaton — шведская хэви-пауэр-метал группа, основанная в декабре 1999 года. Основной темой для песен являются войны и отдельные сражения и подвиги. Название группы в переводе с английского означает латный ботинок, часть рыцарских доспехов.2005 - Primo Victoria
-2006 - Attero Dominatus
-2007 - Metalizer
-2008 - The Art Of WarЖанр: Heavy Power MetalПродолжительность: 10:40:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0921BA71FF8CBF8FF95A4E3A93796F8BCEF5D8D3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547377.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 546 722
-
-Ольга Вардашева и Людмила Невзгляд - Холодный Вечер  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Ri
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Холодный Вечер
- А. Морозов, обработка В. Литвиненко - М. Рябинин 
-02. Как Забыть Тебя
- музыка и слова В. Литвиненко     Читать дальше...    Жанр: PopПродолжительность: 00:12:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7F38F28C330AEAE26BED0BF0C52988A91D6394A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1546722.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

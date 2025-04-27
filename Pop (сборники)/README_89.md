@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 091 835
+
+Rinder & Lewis - 2 Albums  1977, 1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Laurin Rinder & W. Michael Lewis  полные имена  - продюсерский дуэт из Лос-Анджелеса. Выпускал Disco продукцию под разными вывесками, включая наиболее известные: Amrakus, Discognosis, In Search Of Orchestra, Saint Tropez, El Coco, Cheetah, Le Pamplemousse... В историю же вошли их сольные предлагаемые альбомы, близкие по звучанию к европейскому космик-диско, а     Читать дальше...    01. Lust   7:06 
+02. Sloth   7:52 
+03. Gluttony   7:07 
+04. Pride   5:42     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F980C938659189BBFF5330DBFD980C85B6C0B474
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1091835.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 091 164
+
+Лена Василёк и Белый День - Босиком по России!  2015  [MP3|320 Kbps] <Pop, Folk>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Вера-Надежда-Любовь
+02. Мамин юбилей
+03. Папина дочка
+04. Сладкий мёд    Читать дальше...    Жанр: Pop, FolkПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E2C6C424D2C1D7CC247141B395DBA4EA860E024C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1091164.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 091 084
+
+Rumer - The Magic of Sarah Joyce  2017  [MP3|320 Kbps] <Female vocal>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. John Sebastian s Girl  03:52 
+02. Aretha  03:17 
+03. Welcome Back  03:36 
+04. Slow  03:36     Читать дальше...    Жанр: Female vocal, Pop, Easy listening, Soul, Smooth JazzПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A67842DCA458188110E60B13B127EC5E53D071FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1091084.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 091 081
+
+Charlie Puth - Nine Track Mind  2016  Deluxe [MP3|320 Kbps] <Pop, R&B, Soul>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. One Call Away  03:15 
+02. Dangerously  03:19 
+03. Marvin Gaye  feat. Meghan Trainor   03:11 
+04. Losing My Mind  03:32     Читать дальше...    Жанр: Pop, R&B, SoulПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D565932AB96BE342B1A92F8BCD6DCE9D1F70E10
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1091081.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 090 956
+
+Ibiza Dance Party - Big Ibiza Dance Mix  2017  [MP3|320 Kbps] <Euro Dance, Pop Dance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01.  Pon De Floor  02:59
+02.  Applause  02:52
+03.  Just Give Me A Reason  03:55
+04.  One More Time  03:34    Читать дальше...    Жанр: Euro Dance, Pop DanceПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D264E3EB9A2C9881CE42575D367E7A0F49839DDD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1090956.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 090 690
+
+VA - Radio Maxitalo Present: BCR Instrumental Versions Vol. 1-5  2014-2016  [MP3|128-320 Kbps] <
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Linda Skywalker - Don t Fly Away  Instrumental Version 
+02. Lady Fantasy - You And Me  Instrumental Version 
+03. Modern Boots - Tears Of A Broken Heart  Fast Instrumental Version 
+04. Alan Brando - Love Is Always On My Mind  Instrumental Version     Читать дальше...    Жанр: Italo-Disco, InstrumentalПродолжительность: 07:14:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A5ADEDBC765DDF8AF7C514E71EBF0F98FB651396
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1090690.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 090 682
+
+Hypnosis - Greatest Hits & Remixes  2016  [MP3|320 Kbps] <Italo Disco, Spacesynth, Synthpop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Pulstar  Disco Mix  [08:15]
+02. Droid  Extended Swedish Remix  [08:25]
+03. Automatic Piano  Maxi Version  [05:10]
+04. Oxygene  Maxi Version  [08:10]    Читать дальше...    Жанр: Italo Disco, Spacesynth, SynthpopПродолжительность: 02:21:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FB4F3E7B5DFDBF6F05549542E68089E7643AA487
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1090682.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 090 339
+
+JohnnyM5 - Fantasy Of Love  Extended & Remixed   2009  [FLAC|Lossless|image + .cue] <Euro-Di
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. The Night  For You & Me   Extended Version   6:40 
+02. Take The Heat  Extended Mix   6:08 
+03. Fantasy Of Love  Maxi Version   5:08 
+04. Give Me Your Love  Obsession Remix   3:52     Читать дальше...    Жанр: Euro-Disco, Italo-Disco, Hi-NRGФормат: CD, AlbumПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F506D3B62DD719E9F1EC1FC23DAF18C51DC7D502
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1090339.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 090 286
+
+VA - Танцевальная зима 2017  2017  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Regi - Should Have Been There  Dj Antonio Extented Remix 
+02. Lost Frequencies - Send Her My Love
+03. Starley - Call On Me  Ryan Riback Remix 
+04. DJ Fresh - Bang Bang  feat. R. City, Selah Sue & Craig David     Читать дальше...    Жанр: PopПродолжительность: 01:46:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD87DC108CBB955BB0C748EB6573C04219AB77DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1090286.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 090 271
+
+David  Dato  Khujadze Давид  Дато  Худжадзе - Sand Dream  2005  [APE|Lossless|image +
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Это было летом
+02. Прости меня
+03. Верила
+04. Без сомнения    Читать дальше...    Жанр: PopПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DCB6F4ED5227F7EDB5D50801BA31D60B8D161FE1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1090271.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 089 792
+
+JohnnyM5 - Fantasy Of Love  2008  [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Helpless  Original Euro Mix   3:48 
+02. Loreen  5:49 
+03. I Need You  Album Mix   3:53 
+04. Flames Of Love  Album Version   3:57     Читать дальше...    Жанр: Italo-Disco, Synth-popФормат: CD, AlbumПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:273CCBB9F481533E4A6B515496C70678C923159B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1089792.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 089 731
 
 JohnnyM5 - Megamix 2  2013  [MP3|128 Kbps] <Italo-Disco, Synth-pop>
@@ -1714,278 +1989,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082392.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 082 050
-
-Ritual  Jillian Ann  - The Code Album  2015  [MP3|320 Kbps] <Alternative Pop, Ethereal, Symp
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Welcome to the Code
-02. The Code  feat. Jillian Ann 
-03. I:Root
-04. La Petite Mort  feat. Jillian Ann     Читать дальше...    Жанр: Alternative Pop, Ethereal, Symphonic BassПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5F3DC97A6616390B3CAE1FC438D5BAAE75EE08D7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082050.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 082 026
-
-Witch Queen - Witch Queen  1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop-Rock>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Студийная группа, собранная Gino Soccio и его сопродюсером - Peter Alves.
-Включены две кавер-диско-версии классических рок-песен:  Free  -  All Right Now   1970   и   T. Rex  -  Get It On   1971 .01. Witch Queen   6:27 
-02. All Right Now   9:46 
-03. Bang A Gong   9:49 
-04. Got The Time   6:46 Жанр: Electronic, Funk-Soul, Disco, Pop-RockПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CFB08AFAD1F810257FED7D6CE0DF471B9CF7268A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082026.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 081 830
-
-Modern Tracking - Disco Figter  2016  [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Нетающий лёд  Disco Figter Version 
-02. Огромный мир  Disco Edit 
-03. Танцы ярких улиц  Bright Remix 
-04. Экипаж  Disco House Edit     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0D397279701B981BAFEA509D3614A56099CB84E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1081830.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 081 650
-
-Tiziano Ferro - Il Mestiere Della Vita  2016  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Epic 2:55
-02.  Solo  e solo una parola 3:42
-03. Il mestiere della vita 3:18
-04. Valore assoluto 3:48    Читать дальше...    Жанр: PopПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:65CBB07BF7D9133897A7F67E15E781BBD9B2CAD6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1081650.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 081 591
-
-Katy Perry - Rise  2016  Single [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Katy Perry - Rise  Radio Edit  [00:03:24]
-02. Katy Perry - Rise  Instrumental  [00:03:23]Жанр: PopПродолжительность: 00:06:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A3C4D5CDC590E9EF4E8EBF6E1FDF6B624195BB9D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1081591.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 081 589
-
-Ёлка & Мегаполис - Звёзды, звёзды  2016  EP [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Звёзды, звёзды
-2. Посвящение Деннису Силку
-3. Dark Waltz
-4. Мы никогда не будем вдвоёмЖанр: PopПродолжительность: 00:16:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C53063C250CA5B3AF3A7DBB311A86AB6BE6F65ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1081589.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 081 587
-
-Алиса Вокс - VOX  2016  EP [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. 100 недель
-02. Вечная весна
-03. Не думай про завтра
-04. Пролюбовь  Guitar mix     Читать дальше...    Жанр: PopПродолжительность: 00:23:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:718A8186C857D45FA17ED63BDB5DC1C3698BC93E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1081587.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 081 416
-
-VA - Танцевальный рай: Only Hits  2016  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Kadebostany - Castle in the Snow  Bentley Grey Remix 
-02. Röyksopp - Here She Comes Again  Dj Antonio Remix 
-03. Lost Frequencies - Reality  feat. Janieck Devy 
-04. Willy William - Ego  Radio Edit     Читать дальше...    Жанр: PopПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B4688AC9BECF58A151F032E961D357072029F8F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1081416.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 081 390
-
-Grand Circuit - Roller Skate Symphony  1979  12  [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Roller Skate Symphony   7:05 
-02. Expert Lady   6:27 Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:13:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6C4CD60118EDE1472DC600E004E4A10ED0523A4C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1081390.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 081 071
-
-Baciotti - Black Jack  1977  LP [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Музыкант и певец из Тулузы, Франция. Стал знаменит, особенно в Италии, с его электронно-дискотечной песней  Black Jack .01. Black Jack   10:41 
-02. Ridin  The Rails   4:37 
-03. A Clown   3:49 
-04. Musical   3:26     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:32:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:48DC5F5E6703B83FC309C417C0A95844D6ADA1BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1081071.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 080 943
-
-Jain - Zanaka  2016  Deluxe Edition [MP3|320 Kbps] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Come  02:42 
-02. Heads Up  03:31 
-03. Mr. Johnson  03:02 
-04. Lil Mama  02:37     Читать дальше...    Жанр: Indie PopПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13782840306B801B05BCA22E8C096515CDF80AD6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1080943.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

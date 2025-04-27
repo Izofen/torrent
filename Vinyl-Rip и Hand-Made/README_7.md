@@ -1,4 +1,203 @@
 ﻿
+###  Публикация: 1 701 200
+
+Unheilig - Puppenspiel  2008  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Vorhang Auf
+02. Puppenspieler
+03. Spiegelbild
+04. Dein Clown    Читать дальше...    Жанр: Gothic MetalПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A83BC102CBADA30FB2BE3C0421948E5DD1F0F58
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1701200.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 860
+
+Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Metal, Industrial Meta
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Das Uhrwerk
+02. Luftschiff
+03. Ich Will Alles
+04. Goldene Zeiten(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0AE1702BD282D85C1C19285E9DC846C16F386EBB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700860.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 800
+
+Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Die Filmrolle
+02. Zauberer
+03. Hört Mein Wort
+04. Willst Du Mich(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:934A76C055C325057C9FB8071FCD2F2514063C86
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700800.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 717
+
+Unheilig - Das 2. Gebot  2003  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Eva
+02. Maschine
+03. Gib Mir Mehr
+04. Sternenschiff    Читать дальше...    Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0259EA072B97EE5E6B0AE74F96CFFDF13AD52C8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700717.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 673
+
+Unheilig - Frohes Fest  2002  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial M
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Sternzeit  1. Strophe 
+02. Kling Glöckchen Klingelingeling
+03. Leise Rieselt Der Schnee
+04. O Tannenbaum    Читать дальше...    Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E051C9F8E01C30629A8BB0A899F681DD9B7AFFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700673.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 658
+
+Mystic Prophecy - Studio Albums  12 releases   2001-2023  hand made [restored, declipped] [F
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Mystic Prophecy — немецкая пауэр-метал группа из Меммингена, Бавария, образованная в 2000 году.2001 - Vengeance
+2003 - Regressus
+2004 - Never Ending
+2006 - Savage SoulsЖанр: Power Speed Thrash MetalПродолжительность: 09:55:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700658.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 648
+
+Unheilig - Phosphor  2001  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Meta
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Die Macht
+02. Willenlos
+03. Ikarus
+04. Sage Ja!    Читать дальше...    Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F173CF113DF006299B249C8FA710A050ABA4816
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700648.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 462
+
+Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declipped] [FLAC |16/44.1|tr
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Группа Gardenian была основана в Швеции в 1996 году Тимом Бломом (ударные) и Джимом Кьеллом (гитара, вокал). Вскоре к группе присоединились Хокан Скогер (бас) и Никлас Энгелин (гитара).1997 - Two Feet Stand
+1999 - Soulburner
+2000 - SindustriesЖанр: Melodic Death MetalПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:52C4710E801238F3A9E8C3F166DD9A9DA4083C31
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700462.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 700 256
 
 Pain of Salvation - Panther  2020  [FLAC|24 192|tracks|Vinyl-Rip] <Progressive Rock, Metal>
@@ -1781,206 +1980,6 @@ B2 - Funeral Pyre    Читать дальше...    Жанр: NWOBHM, Heavy Met
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1685934.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 685 908
-
-Atomkraft - Future Warriors  1985  [FLAC|24 96|tracks|Vinyl-Rip]<NWOBHM, Heavy Metal, Speed Me
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Future Warriors
-A2. Starchild
-A3. Dead Man s Hand
-A4. Total Metal    Читать дальше...    Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1CD00F1A33906F55731AC18AD1B41DE8844088FA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1685908.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 685 769
-
-Demon Hunter - Studio Albums  12 releases   2002-2022  hand made [restored, declipped] [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Demon Hunter — американская группа, играющая  христианский метал , из Сиэтла, штат Вашингтон, основанная в 2000 году.2002 - Demon Hunter
-2004 - Summer Of Darkness
-2006 - The Triptych
-2007 - Storm The Gates Of HellЖанр: Nu Groove Metal, MetalcoreПродолжительность: 12:01:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2FF495D4F5487026CDBE883F3EFF9F88B3F0785A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1685769.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 807
-
-Astral Doors - Studio Albums  9 releases   2003-2019  hand made [restored, declipped] [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Astral Doors — шведская хеви-метал-группа, основанная в 2002 году.2003 - Cloudbreaker
-2005 - Evil Is Forever
-2006 - Astralism
-2007 - New RevelationЖанр: Heavy Power MetalПродолжительность: 08:28:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63CD309B2A7EB1466CEAF06DBBB17AADEE491ECE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1684807.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 782
-
-Phantasm - Keeper of Death  1993  [WavPack|32 176,4|image + .cue|Vinyl-Rip] <Thrash, Death Met
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Rotten Plague
-A2 Stick In Back
-A3 Brainsuckers Spiders
-A4 Night Of The Living Dead    Читать дальше...    Жанр: Thrash, Death MetalПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4012276DE02FF8FE2771B1FBCE4542D673D0A223
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1684782.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 524
-
-Silent Force - Studio Albums  5 releases   2000-2013  hand made [restored, declipped] [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Silent Force - немецкая группа Heavy Metal Power Metal, образованная в 1999 году.2000 - The Empire Of Future
-2001 - Infatuator
-2004 - Worlds Apart
-2007 - Walk The Earth    Читать дальше...    Жанр: Power MetalПродолжительность: 05:03:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:484BF8716C7638A6204B931744B24745E4C67367
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1684524.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 413
-
-System Of A Down - Mezmerize  2005   [FLAC|24 192|image + .cue|Vinyl-Rip]<Alternative Metal, N
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Soldier Side - Intro
-A2 B.Y.O.B.
-A3 Revenga
-A4 Cigaro    Читать дальше...    Жанр: Alternative Metal, Nu MetalПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:49C12326CA3DB194DC515C45E014467BC981000A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1684413.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 406
-
-Ayreon - The Source  2017  [FLAC|24 96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 - The Day That The World Breaks Down
-A2 - Sea Of Machines
-A3 - Everybody Dies
-B1 - Star Of Sirrah    Читать дальше...    Жанр: Progressive Metal, RockПродолжительность: 01:28:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1684406.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 684 362
-
-Stam1na - Studio Albums  12 releases   2005-2023  hand made [restored, declipped] [FLAC |16<
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Stam1na  «Стойкость»  — метал-группа из Леми, Южная Карелия, Финляндия. Их стиль можно определить как прогрессивный метал с элементами треш-, дет- и альтернативного метала. Тексты — на финском языке.2005 - Stam1na
-2006 - Uudet Kymmenen Kaskya
-2008 - Raja
-2010 - Viimeinen AtlantisЖанр: Progressive Thrash Heavy MetalПродолжительность: 09:33:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1684362.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

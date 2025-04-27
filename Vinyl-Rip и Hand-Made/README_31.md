@@ -1,4 +1,235 @@
 ﻿
+###  Публикация: 674 884
+
+Jean-Michel Jarre - Equinoxe  1979  Polydor Japan [FLAC|2.0 24 96|image  Vinyl-Rip ]<Exp
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Equinoxe Part 1
+A2. Equinoxe Part 2
+A3. Equinoxe Part 3
+A4. Equinoxe Part 4
+B1. Equinoxe Part 5
+B2. Equinoxe Part 6
+B3. Equinoxe Part 7
+B4. Equinoxe Part 8Жанр: Experimental Electronic, AmbientПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:71C9A88DC88A94E363CD7218E2B3750CE7D4466E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 674 062
+
+Шарль Азнавур - Шарль Азнавур  1973  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Шансон>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Изабелла  2:34 
+Шэнклин - Ш.Азнавур
+A2. Потому что  2:44 
+Вагенгейм - Ш.Азнавур
+A3. Жить с тобой  3:20 
+музыка и слова Ш.Азнавура
+A4. Ты была слишком красива  3:07 
+музыка и слова Ш.Азнавура
+A5. Прекрасный облик твой  3:04 
+Ш.Азнавур - ПатрикЖанр: ШансонПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CA12FD40010EB506368D1BD7A668952DA59840AE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 672 215
+
+Владимир Высоцкий - Коллекционное издание  8 LP Box Set   Vinyl-Rip   2013  [FLAC|2.0 24
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Рассказ о письмах слушателей [01:18]
+ 02. Я не люблю [02:00]
+ 03. Рассказ о слушателях, об аплодисментах, о друзьях, ответы на записки [05:05]
+ 04. Товарищи ученые [02:44]
+ 05. Поездка в город [02:52]
+ 06. Горизонт [03:06]
+ 07. Дорожная история [02:36]
+ 08. Песня автозавистника [03:13]
+ 09. Чужая колея [03:32]
+ 10. Песенка про козла отпущения [03:16]    Читать дальше...    Жанр: Авторская песняПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_672215.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 671 587
+
+Ария - Герой Асфальта  2013  Limited Edition  Vinyl-Rip  [FLAC|2.0 24 96]<Hard Rock, Heavy
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. На Службе Силы Зла [07:12]
+ 02. Герой Асфальта [05:12]
+ 03. Мёртвая Зона [06:37]
+ 04. 1100 [04:54]    Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 671 487
+
+Fausto Papetti - Фаусто Папетти  1984  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Jazz, Easy List
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Первая любовь  3:19 
+Primo Amore
+ Depsa 
+A2. Райская мелодия  3:18 
+Theme From Paradise
+ J.Diamond - L.Russel - Brown 
+A3. Память  3:36 
+Memory
+ A.L.Webber - T.Nunn Жанр: Jazz, Easy ListeningПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ADD414FA2D8D0842865133625C6C88DBAF6CD8D7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 670 907
+
+Jean Michel Jarre - Oxygene  1976  Polydor Japan [FLAC|2.0 24 96|image  Vinyl-Rip ]<Expe
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+«Oxygene»  Кислород  — музыкальный альбом Жана-Мишеля Жарра, вышедший в 1976 году. Этот альбом считается дебютным в дискографии Жарра: хотя тот и выпускал пластинки ранее, они были малотиражными и экспериментальными.
+Альбом является одним из ранних образцов музыки эмбиент — это медленная, лёгкая и медитативная электроника. Несмотря на то, что в прессе звучание Oxygene часто называют «космическим», сам Жан-Мишель в интервью рассказал, что пытался в музыке выразить движение атмосферы Земли, о чём и говорит название.Жанр: Experimental Electronic, AmbientПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F970FC0C9ECBFF10423175F1AC7AB19C83CF91C8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 670 528
+
+Jean Michel Jarre - Revolutions  1988  [FLAC|2.0 24 192|tracks  Vinyl-Rip <Experimental El
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Ouverture
+A2 Part 1
+A3 Part 2
+A4 Part 3
+A5 London Kid
+B1 Revolutions
+B2 Tokyo Kid
+B3 Computer Weekend
+B4 September
+B5 The EmigrantЖанр: Experimental Electronic, AmbientПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:366A3FB3D9D75EDD468F77BC3C427DBB8D1A6149
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 670 148
+
+Two Door Cinema Club - Beacon  2012  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Alternative Indi
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Next Year  4:10 
+02. Handshake  3:29 
+03. Wake Up  3:45 
+04. Sun  3:06 
+05. Someday  3:39 
+06. Sleep Alone  3:53 
+07. The World is Watching  with Valentina   3:34 
+08. Settle  3:51 
+09. Spring  3:23 
+10. Pyramid  3:07     Читать дальше...    Жанр: Alternative Indie RockПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D75AFD41382BCB422A422F6AB897CF77B354365
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 668 939
 
 Иоганн Себастьян Бах - Бранденбургские концерты №3 и №6  1979  [FLAC|2.0 24 96|tracks  Vinyl
@@ -2076,243 +2307,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_625617.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 623 832
-
-Helloween - Straight Out Of Hell  2013  [FLAC 2.0 24 96 | tracks  Vinyl-Rip ]<Power Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Power MetalПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:57345A83A43E05E54E31EAD9467B3F71363A11C7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 621 271
-
-Алиса - 5 альбомов, 6 LP  1986-1993  [WavPack 2.0 24 192|image + .cue  Vinyl-Rip ]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Театр  3:48 
-A2. Для тех, кто свалился с Луны  5:53 
-A3. Республика  7:43 
-A4. Камикадзе  4:47 
-B1. Кибитка  6:50 
-B2. Смутные дни  3:51 
-B3. Плач  6:05 
-B4. Пасынок звезд  8:06 Жанр: RockПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:21AC8283063FED7575AB0127A61047109F0B30D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_621271.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 620 802
-
-Laura Branigan - Self Control  1984  [FLAC 2.0 24 96 | image  Vinyl-Rip ]<Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. The Lucky One  Bruce Roberts  04:10
-02. Self Control  Giancarlo Bigazzi, Steve Piccolo, Raffaele Riefoli  04:08
-03. Ti Amo  Giancarlo Bigazzi, Umberto Tozzi, Diane Warren  04:17
-04. Heart  Marie Cain, Warren Hartman  04:04
-05. Will You Still Love Me Tomorrow  Gerry Goffin, Carole King  03:22
-06. Satisfaction  Bernd Dietrich, Gerd Grabowski, Engelbert Simons,
-Mark Spiro, Diane Warren  03:54
-07. Silent Partners  Diane Warren & The Doctor  04:08
-08. Breaking Out  Diane Warren & The Doctor  03:46
-09. Take Me  Steve Kipner, John Parker  3:43    Читать дальше...    Жанр: PopПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63A1C0C016B3CDDC5DF07B7919782951C3D80FB8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 620 125
-
-The Beatles - Blue Box Collection  12 LP, Without White Album   1978  [FLAC 2.0 24 192|ima
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-LP13-A1. Across The Universe  Alternate Version  2:51
-LP13-A2. Yes It Is 2:43
-LP13-A3. This Boy 2:16
-LP13-A4. The Inner Light 2:38
-LP13-A5. I ll Get You 2:07
-LP13-A6. Thank You Girl 2:05
-LP13-A7. Komm, Gib Mir Deine Hand 2:29
-LP13-A8. You Know My Name  Look Up The Number  4:21
-LP13-A9. Sie Liebt Dich 2:19
-LP13-B1. Rain 3:03    Читать дальше...    Жанр: RockПродолжительность: 45:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A2C72549FF8FA5BFAEDE0317EB64E10043DFA8A2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_620125.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 619 304
-
-Rammstein - 2 альбома  2001, 2009  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Industrial>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Rammlied 5:19
-A2. Ich Tu Dir Weh 5:05
-A3. Waidmanns Heil 3:35
-B1. Haifisch 3:43
-B2. B******** 4:11
-B3. Fruhling In Paris 4:46
-C1. Wiener Blut 3:52
-C2. Pussy 3:59
-C3. Liebe Ist Fur Alle Da 3:29
-D1. Mehr 4:10    Читать дальше...    Жанр: IndustrialПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:679D710E769F7DBFDF0D4054004758E29C439C09
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_619304.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 619 233
-
-Rammstein - 4 альбома  1995-2005  [FLAC 2.0 24 96|tracks + .cue  Vinyl-Rip]<Industrial>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Benzin 3:47
-A2. Mann Gegen Mann 3:52
-A3. Rosenrot 3:55
-A4. Spring 5:25
-A5. Wo Bist Du 3:57
-B1. Stirb Night Vor Mir 4:08
-B2. Zerstoren 5:30
-B3. Hilf Mir 4:45
-B4. Te Quiero Puta! 3:53
-B5. Feuer Und Wasser 5:13    Читать дальше...    Жанр: IndustrialПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D6C6E25C3139962F9AC2CDAA5D576253CBB1157
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_619233.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 618 847
-
-Mylene Farmer - Monkey Me  2012  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Elle A Dit 3:53
-A2. A L Ombre 4:50
-A3. Monkey Me 4:16
-B1. Tu Ne Le Dis Pas 4:22
-B2. Love Dance 4:07
-B3. Quand 4:06
-C1. J Ai Essayé De Vivre... 4:41
-C2. Ici Bas 4:33
-C3. A-T-On Jamais 3:47
-D1. Nuit D Hiver 5:25    Читать дальше...    Жанр: PopПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:78775AA202D728AE8E558B818CDCEAD99C9D88E6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 618 803
-
-System Of A Down - Toxicity  2001  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Nu Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Prison Song 3:21
-A2. Needles 3:14
-A3. Deer Dance 2:55
-A4. Jet Pilot 2:06
-A5. X 1:59
-A6. Chop Suey! 3:30
-A7. Bounce 1:54
-A8. Forest 4:01
-B1. ATWA 2:56
-B2. Science 2:43    Читать дальше...    Жанр: Nu MetalПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:85DE97EF1D07A8A1C837ED8619898CE06530A5B0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

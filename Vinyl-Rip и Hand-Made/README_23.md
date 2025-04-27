@@ -1,4 +1,205 @@
 ﻿
+###  Публикация: 1 137 527
+
+Юрий Антонов. Песни  коллекция виниловых пластинок   1971-1989  [FLAC 2.0|96 24|image+.cue
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+ Vinyl, LP, Мелодия - C50 28357-58 002, USSR 
+
+01. Инро
+02. Ю. Антонов - Живёт повсюду красота    Читать дальше...    Жанр: Pop, Pop Rock
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:243B89E81F1A943691317B1288DE6AD23D3FAD0A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1137527.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 136 158
+
+Михаил Круг - Жиган-лимон  1995  2014  remastered  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Электричка
+A2. Девочка-пай
+A3. Кольщик
+A4. Фраер    Читать дальше...    Жанр: ШансонПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C354E53981B27B79F50C89DC76B467A7461E3FF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1136158.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 134 776
+
+VA - RETROспектива часть XX. Зарубежные исполнители IV  1955-1962  [FLAC 1.0|48 24|tracks|Viny
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Джика Петреску  Румыния  - Тебя я полюбил, Москва
+02. Джика Петреску  Румыния  -Я тебя люблю  на румынском языке 
+03. Виктор Симон  Бразилия  - Карнавал в Рио  на португальском языке 
+04. Виктор Симон  Бразилия  - Площадка в Яйя  на португальском языке     Читать дальше...    Жанр: Pop, Retro
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BE66C27B17D5DF7B2609ED8FC6E6497062986E66
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134776.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 920
+
+Saraya - Saraya [LP]  1989  [WavPack 2.0|192 24|image +.cue|Vinyl-Rip] <Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Love Has Taken Its Toll
+A2 Healing Touch
+A3 Get U Ready
+A4 Gypsy Child    Читать дальше...    Жанр: Hard RockПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131920.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 738
+
+Toto Cutugno - L Italiano  1983  1984, Jugoton[FLAC|24 192|image + .cue|Vinyl-Rip]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. L Italiano  3:58 
+A2. Solo Noi  4:04 
+A3. Soli  4:04 
+A4. Donna, Donna Mia  3:01     Читать дальше...    Производство: Jugoton - LSY 10026Жанр: PopПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45463F8CF9286D4B7030D44C00B3B0DC00164888
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131738.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 721
+
+Zodiac: Disco Alliance  1980  & Music In The Universe  1983  2LPs [FLAC 2.0|96 24|image+.c
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 The Mysterious Galaxy
+A2 Laser Illumination
+A3 Silver Dream
+A4 Photo Finish    Читать дальше...    Жанр: Disco, Electronic, Space Rock, Synth-popПродолжительность: 00:31:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C0C3BDCABD7492FDE3F209F0B61AB2A16D06B6CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131721.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 204
+
+VA - В Помощь Любителям Грамзаписи. Для Проверки Работы Воспроизводящих Устройств  1968, 1973  [
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Кармен-Сюита. Вступление   Проверка Правильности Сторон 
+A2 Дорога Вдаль  Проверка Баланса Каналов 
+A3 Босса-Нова  Проверка Полярности Громкоговорителей 
+A4 Бронепоезд 14-69    Читать дальше...    Жанр: Field Recording, Technical, Classical, Baroque,
+Romantic, Modern, Contemporary, Jazz, LatinПродолжительность: 01:23:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8D8B783A92A7B1CB92854035CFDCC6B53FD27A81
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131204.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 128 403
+
+Jeff Lynne - Armchair Theatre  1990  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Every Little Thing  3:45 
+A2. Don t Let Go  2:59 
+A3. Lift Me Up  3:38 
+A4. Nobody Home  3:54     Читать дальше...    Производство: Reprise Records - 7599-26184-1Жанр: RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C66386E6A8D4786D67AF6FC32B3C01129F9B5963
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1128403.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 127 804
 
 Сергей Яковлевич Лемешев - Концерт: арии из опер и романсы П. И. Чайковского  1951  [FLAC 1.0|96
@@ -1801,206 +2002,6 @@ A4. Give Me Something  1:35     Читать дальше...    Производ
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1088514.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 088 306
-
-Uriah Heep - 12 Albums  1970-1978   USA release [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Clas
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1  One More Night  Last Farewell 
-A2  Falling In Love
-A3  Woman Of The Night
-A4  I m Alive    Читать дальше...    Жанр: Classic Rock, Prog RockПродолжительность: 04:32:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1088306.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 087 724
-
-Блестящие - Новое и лучшее  1999  [FLAC 2.0|44,1 16|tracks|MC-Rip] <Europop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Чао, Бамбино!
-02. Милый рулевой  RMX 
-03. Новый год
-04. Неоткрытое письмо    Читать дальше...    Жанр: EuropopПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087724.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 087 703
-
-П. Чайковский - Сюита из балета Лебединое озеро, Увертюра до минор  Е. Светланов   1991  [Wa
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-Сюита из балета Лебединое озеро
-01. Сцена 3:22
-02. Вальс 7:24    Читать дальше...    Жанр: ClassicalПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B46E827C6AD0E40FC2A61D1F1F05CA9090CBB33D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087703.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 087 489
-
-Barclay James Harvest - Eyes Of The Universe  1979  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<P
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Love On The Line  4:41 
-A2. Alright Down Get Boogie  Muala Rusic   3:58 
-A3. The Song  They Love To Sing   6:09 
-A4. Skin Flicks  6:50     Читать дальше...    Производство: Polydor - 2383 557Жанр: Progressive RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:03C3017D3851570D4A23384B1D49F2704036E06F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087489.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 086 523
-
-Manfred Mann s Earth Band - The Roaring Silence  1976  [FLAC 2.0|192 24|image + .cue|Vinyl-R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Blinded By The Light  7:09 
-A2. Singing The Dolphin Through  8:21 
-A3. Waiter Theres A Yawn In My Ear  5:40 
-B1. The Road To Babylon  6:53     Читать дальше...    Производство: Bronze - 27 870 XOTЖанр: Progressive RockПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1086523.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 086 353
-
-Демис  Руссос - Большой успех Демиса Руссоса  1980  2 LP [WavPack|192 32|tracks|Vinyl-Rip] <Po
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-01. Someday, Somewhere  Когда-то, где-то   3:00
-02. Forever And Ever  Навсегда, навсегда   3:36
-03. Velvet Mornings  Бархатные утра   3:34    Читать дальше...    Жанр: PopПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E1A8F531EF97CB518707B3E7245E308CBFD3F4EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1086353.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 085 375
-
-Александр Барыкин - Букет  1988  [WavPack|192 24|image + .cue|Vinyl-Rip] <Rock, New Wave>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Букет  3:38 
-02. Дождь И Снег  4:36 
-03. Осенний Парк  5:05 
-04. Голос Твой  5:26     Читать дальше...    Жанр: Rock, New WaveПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1085375.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 084 131
-
-Константин Сокольский - Старинные Романсы, Песни  1990  [FLAC 1.0|96 24|image+.cue|Vinyl-Rip]
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Когда любовь волнует кровь  вальс-бостон 
-02. Песня балалайки  танго 
-03. Свадебная тройка  фокстрот 
-04. Чужие города    Читать дальше...    Жанр: Chanson, VocalПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4BD76A19CBF2BB763BA09A1F594ADA7C2341A495
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084131.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

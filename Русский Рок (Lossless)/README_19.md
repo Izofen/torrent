@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 1 483 589
+
+Ногу свело! - ***beep***ЛАН  2021  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. ***beep***ЛАНЖанр: RockПродолжительность: 00:02:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F8464F2BC852061C85A6140334BC9437D0ED5E08
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1483589.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 482 821
+
+Алексей Чернышёв, Андрей Кустарёв - В твоих мирах  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Поздняя осень  03:33 
+ 02. Голос Долорес  05:37 
+ 03. Пришла весна  04:31 
+ 04. Я шпион  05:08     Читать дальше...    Жанр: RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:97ACC26DF2D8384527FB42964EE53DA855613BB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482821.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 482 276
+
+Молот Родины - Не Мир, но Меч  2021  [MP3|320 Kbps] <Русский боевой рок, Hardcore, Acoustic>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Мир вам [00:04:42]
+02 - Крепче Стали [00:03:09]
+03 - На Вечную Войну [00:03:20]
+04 - Враг    Кошка Сашка   cover  [00:04:38]    Читать дальше...    Жанр: Русский боевой рок, Hardcore, AcousticПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F8BE553A8D31D229B3A022604BFDAA4C448DBAB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482276.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 481 996
+
+Путь Солнца - 15... Что дальше?  2021  [MP3|320 Kbps] <Heavy Metal, Pagan Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Знак Победы  feat. Мастер 
+2. Северная Страна  feat. Rossomahaar 
+3. Победа или Смерть  feat. Пурген 
+4. Endless Night  feat. Amalgama     Читать дальше...    Жанр: Heavy Metal, Pagan MetalПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:514A29E0ABCB611F38A9D389E5F503AB3AF81CB8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1481996.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 481 877
+
+Heavy Raid - Железный марш  2021  [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Intro  01:08 
+ 02. На небесах или на дне  03:39 
+ 03. Последний отряд  04:07 
+ 04. Инквизитор  04:39     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B42C3E010C45D94131D90E23C00C828E640F9F07
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1481877.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 480 663
 
 2ва Самолёта - Лучшее, Часть 1  2021  [MP3|320 Kbps] <Rock>
@@ -1868,131 +1990,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462941.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 845
-
-Завтраккусто - Приют для мертвецов  2021  [MP3|320 Kbps] <Indie Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Анетта
-2. Волхонка
-3. Мёртвый матрос
-4. Моника Белуччи    Читать дальше...    Жанр: Indie RockПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:861E2B2D9A16D965DF47DEEE174A170D554BB98B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462845.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 842
-
-LOUNA - Обратная сторона  2021  [MP3|320 Kbps] <Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Путь к себе
-2. Искусство
-3. Сигнал в пустоте
-4. Штурмуя небеса    Читать дальше...    Жанр: AlternativeПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63055E3745872B8147D2D16F43C35ACEA4CF5F22
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462842.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 840
-
-Эпидемия - Эльфийская рукопись навсегда  2021  Live at Adrenaline Stadium [MP3|320 Kbps] <Power
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Золотые драконы  Live at Adrenaline Stadium 
-2. Час испытания  Live at Adrenaline Stadium 
-3. Рождённый для битвы  Live at Adrenaline Stadium 
-4. Пройди свой путь  Live at Adrenaline Stadium     Читать дальше...    Жанр: Power MetalПродолжительность: 02:02:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6E7BF7195F315F2951E38A38C51CD0332E067CF1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462840.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 838
-
-План Ломоносова - Панки на Арбате  2021  Live [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Москва-Питер
-2. Марш муравьёв
-3. Солдаты, удачи!
-4. Калинов Гр.Об.    Читать дальше...    Жанр: Punk RockПродолжительность: 01:13:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EBCDEB9FCF4F39B7C1F7B1F326EAAF633035E513
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462838.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 605
-
-Рекорд Оркестр - Мир самых добрых людей  2021  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Интро
-2. Полифем
-3. Деньги
-4. Лес    Читать дальше...    Жанр: RockПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F65B8913DC13BA3D984822DE15B5144944181FF0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462605.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

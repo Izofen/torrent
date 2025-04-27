@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 196 708
+
+VA - Ретро Шлягер  Зимний   2006  [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Зима  Э.Ханок - С.Островой  - Эдуард Хиль
+02. Бубенцы  А.Кублинскис - И.Кашежева  - ВК  Аккорд 
+03. А снег идёт  А.Эшпай - Е.Евтушенко  - Майя Кристалинская
+04. Гололёд  Э.Шварц - А.Дмоховский  - Лариса Мондрус    Читать дальше...    Жанр: Советская эстрада, РетроПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F26DA7E10B8B94AA56527642A0695FF129F4241
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196708.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 196 690
+
+Judy Cheeks - Mellow Lovin’  1977  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. The Little Girl In Me  3:51 
+02. Kiss Me Baby  5:38 
+03. Suspicious Minds  4:08 
+04. It s Just A Love Affair Gone  3:52     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A9A32706FEF296DA0CA3E40687497E47D1EDFCB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196690.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 196 643
+
+Zoom - Zoom  1978  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. La Carta  The letter   5:49 
+02. Rescate Espacial  Space Rescue   6:40 
+03. El Amor Es  Love Is   6:20 
+04. La Bruja De Salem  Salem s Witch   4:42     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0553613878F3C5BA0E0B17C64B68F83C203B2580
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196643.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 196 569
+
+ZOLOTO - Не переживай  2018  EP [MP3|320 Kbps] <Indie Pop, Synthpop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Танцы
+02. Рёбра
+03. Миллион
+04. Сверчки    Читать дальше...    Жанр: Indie Pop, SynthpopПродолжительность: 00:19:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:926258A82AB8A663952CB1727D9C55164B94A294
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196569.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 196 548
+
+Flagi - Оставь свой след  2017  [MP3|320 Kbps] <Indie Pop, Synthpop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Spritz
+02. Яд
+03. Мессенджер
+04. Велосипедия    Читать дальше...    Жанр: Indie Pop, SynthpopПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2FBFD09931DBF2CEE7374C4A6657BA3C66F332C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196548.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 196 324
+
+VA - Сборник советских песен Мой Мотив  2007  [FLAC|Lossless|image + .cue] <Советская эстрада, Р
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Москва майская - А. Соколов, Е. Кибкало
+02. Песня о Родине - И. Петров
+03. Гляжу в озёра синие - Е. Шаврина
+04. С чего начинается Родина - М. Бернес    Читать дальше...    Жанр: Советская эстрада, РетроПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4FB701A92FFB8E5CD9FAE6BA5A92211A07DC2AC5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196324.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 195 859
+
+Calderon - Disco  1979  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Dame Un Poco De Tu Amor  6:49 
+02. Mr. Pianoforte  5:22 
+03. Assassination  7:24 
+04. Latin Lover  7:12     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:49736A12E370D38357C9FBEB23C4B1585055FF31
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195859.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 195 833
+
+Андрей Миронов - Неизвестный Миронов  2005  [APE|Lossless|image + .cue] <Советская эстрада, Ретр
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Это было недавно  В.Баснер - М.Матусовский 
+02. Апельсины  П.Аедоницкий - Ф.Лаубе 
+03. Джон Грей  М.Блантер - В.Масс 
+04. А может быть  Я.Френкель - М.Долматовский     Читать дальше...    Жанр: Советская эстрада, РетроПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1111ECEE2DCD2DAEA12F4CBF75FA6B6046A12660
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195833.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 195 821
+
+Darren Hayes - Spin  2002  [FLAC|Lossless|tracks + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+1. Strange Relationship
+2. Insatiable
+3. Heart Attack
+4. I Miss You    Читать дальше...    Жанр: PopПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06BD30B7269D92B2C762DA5DA14608940CEFE7E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195821.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 195 811
+
+VA - Cafe Puls Italo Hits  17  2017  [MP3|320 Kbps] <Italo Disco, Pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Francesco Gabbani - Occidentali s Karma  Radio Edit  3:32
+02. Umberto Tozzi - Gloria 4:16
+03. Al Bano - Felicita 3:04
+04. Ricchi e Poveri - Mamma Maria 2:47    Читать дальше...    Жанр: Italo Disco, PopПродолжительность: 02:34:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E3BD88DB2369ABD79458AD1EE57424DA0C1EC0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195811.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 195 801
+
+Жанна Добровольская - Одна  1996  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01 Одна  4:49 
+02 Мартовская кошка  2:34 
+03 Останусь ветром вольным  4:46 
+04 Гавайская ночь  5:45     Читать дальше...    Жанр: PopПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6904143BF28855EE9E32B1E82AE68A973557F4CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195801.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 195 768
 
 VA - Planet Italo Disco Vol. 7  2017  [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -1717,281 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191641.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 623
-
-Alexandra Savior - Belladonna Of Sadness  2017  [FLAC|Lossless|tracks + .cue] <Alternative Pop,
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Mirage  03:25 
-02. Bones  02:48 
-03. Shades  03:50 
-04. Girlie  03:22     Читать дальше...    Жанр: Alternative Pop, Art Pop, Baroque Pop, Indie Pop, Dream Pop, Desert RockПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:17D539D9E06A43766469F999AEFBE5D7069F1C10
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191623.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 613
-
-Митя Фомин - Завтра будет всё по-другому  2016  [APE|Lossless|WEB-DL|tracks] <Рор>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Звёзды вселенной
-02. Чужие сны
-03. Нить из угля
-04. Завтра будет всё по-другому    Читать дальше...    Жанр: РорПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1FB66F12AAF96B2D9E269D575015A1C49B537DFE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191613.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 518
-
-Secret Service - 8 Studio Albums  1979-2022  [MP3|320 Kbps] <Electronic, Pop Rock, Euro-Pop, Syn
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-«Secret Service»  с англ. - «Тайная служба»  - одна из наиболее известных музыкальных групп Швеции в жанре популярной музыки в 80-х годах. Более полная информация о группе предложена в ..Список альбомов:
-1979 -  Oh Susie
-1981 - Ye Si Ca
-1982 - Cutting Corners    Читать дальше...    Жанр: Electronic, Pop Rock, Euro-Pop, Synth-popПродолжительность: 04:53:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D32747B6EFD086E59266F7DF4894F03DC5F7BDB3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191518.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 517
-
-Walk the Moon - What If Nothing  2017  [MP3|320 Kbps] <Indie Pop, Indie Rock, Electronic>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Press Restart
-02. Headphones
-03. One Foot
-04. Surrender    Читать дальше...    Жанр: Indie Pop, Indie Rock, ElectronicПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97A81DDE99C911469706B74536E32053CC9A84D2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191517.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 301
-
-VA - Italo Disco - The Lost Legends Vol. 7  2017  [MP3|320 Kbps] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Fockewulf 190 - Gitano  6:04 
-02. Middle Ages - Stop Your Lies  6:12 
-03. Nord Est - Overnight  6:08 
-04. Bandeaux - Black And White  6:44     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:82020FE3A1047608E7D1628703BD43C7408C2824
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191301.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 256
-
-VA - BBC Radio 2: The Piano Room  2017  [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Pian
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD1:
-01.  Ed Sheeran  -  This Year s Love  Recorded for BBC Radio 2   2:36
-02.  Sam Smith  -  Stay With Me  Recorded for BBC Radio 2   3:26
-03.  George Michael  -  Let Her Down Easy  Live From Prague Opera House, 2011   3:41    Читать дальше...    Жанр: Pop, Easy Listening, PianoПродолжительность: 02:06:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05D755AC0E12041C376EA38E90112BD80127E83D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191256.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 180
-
-Robbie Williams - Under The Radar Vol. 2  2017  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Po
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Satellites  4:07 
-02. 9 To 5  3:40 
-03. Ms Pepper  4:02 
-04. Bambi  3:21     Читать дальше...    Жанр: Pop, Pop Rock, Soft Rock, Brit Pop, Jazz, Singer SongwriterПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5362EC7E4AD2CBCD7993E854BE67FD590D10BA5F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191180.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 165
-
-St. Vincent - Masseduction  2017  Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Po
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Hang on Me  02:48 
-02. Pills  04:40 
-03. Masseduction  03:17 
-04. Sugarboy  04:01     Читать дальше...    Жанр: Alternative Pop, Art Pop, Baroque Pop, Electropop, New Wave, Ambient RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5E8920CC4363A7AB1F408F68E4C954FB61439B17
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191165.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 033
-
-Бамбинтон - Альбом года  2017  [MP3|320 Kbps] <Рор>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Зая
-02. Красавица и чудовище
-03. Созданы звёздами
-04. Камбэки    Читать дальше...    Жанр: РорПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:990A36C2846FB2D193A917F1DE0E4A5ED374D69D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191033.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 020
-
-Дима Билан - Эгоист  2017  [APE|Lossless|WEB-DL|tracks] <Рор>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Эгоист
-02. Держи
-03. Атом
-04. Прости    Читать дальше...    Жанр: РорПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:00CF45D7A20B34A5FC0FDCDAAF2ABEB1922637F2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191020.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 190 837
-
-VLNY - Ближе  2017  [MP3|320 Kbps] <Indie Pop, Synth Pop, Dream Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Предисловие
-02. Маяки
-03. Сломанные цветы
-04. Мост    Читать дальше...    Жанр: Indie Pop, Synth Pop, Dream PopПродолжительность: 00:23:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F5F48F1A9D6326334086049213B68796F672A976
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1190837.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

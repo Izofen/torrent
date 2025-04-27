@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 599 354
+
+Ария - Ballads  2022  [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Мечты
+2. Без тебя
+3. Всё, что было
+4. Ангельская пыль    Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5D0DC168F2002781350192443545FDAABAABE19
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599354.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 306
+
+Кино - 12_22  2022  [OGG Vorbis|480 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Нам с тобой
+02. Мама, мы все тяжело больны
+03. Троллейбус
+04. Сосны на морском берегу    Читать дальше...    Жанр: RockПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3CC8B48184E1A07976D5E55E35EC47DC1403FA07
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599306.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 236
+
+Кино - 12_22  2022  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Нам с тобой
+2. Мама, мы все тяжело больны
+3. Троллейбус
+4. Сосны на морском берегу    Читать дальше...    Жанр: RockПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A7765A792E9A1BF799F05DF3C22E7EBC965CA765
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599236.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 161
+
+Мыс Луны - Легенды острова Нантакет  2022  [MP3|320 Kbps] <Progressive Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Гены Гогена [00:02:54]
+02 - Среди песка и волн [00:02:15]
+03 - Нантакет [00:05:06]
+04 - Костяная шкатулка [00:01:27]    Читать дальше...    Жанр: Progressive RockПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C4237E8F58186AEFEB010E3EA670E941D2F852A0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599161.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 154
+
+Приятели Покойного - 2 Albums  2019-2022  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Введение [00:02:31]
+02. Мы любим петь [00:03:07]
+03. Мало места [00:03:40]
+04. Днём с огнём [00:02:57]    Читать дальше...    Жанр: RockПродолжительность: 2 CD, 01:14:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:775D75CEA49AFCAF1B1EA88C0B9A998EBE4FBFB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599154.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 599 042
 
 МУККА - 2 Albums  2021-2022  [MP3|320 Kbps] <Alternative, Abstract Hip-Hop>
@@ -1870,131 +1995,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592022.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 989
-
-The Silence - Angelus Custos  2022  [MP3|320 Kbps] <Post Metal, Post Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Crimson Dawn
-02. Shouts Of Silence
-03. Black Snow
-04. Angelus Custos    Читать дальше...    Жанр: Post Metal, Post RockПродолжительность: 00:30:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5117E373D10F8134F109AB7593AFF3E459E3744C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591989.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 984
-
-Экспонаты КунсткамерЫ - 2 Albums  2022  [MP3|320 Kbps] <Alternative Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Болото [00:03:10]
-02. Опасная жизнь [00:02:56]
-03. Всё против нас [00:02:50]
-04. Адововлечение [00:02:38]    Читать дальше...    Жанр: Alternative RockПродолжительность: 2 CD, 01:07:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:46333797DF57FE63847AD2CC1B0855BA5EFCC29E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591984.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 973
-
-Оркестр Однозначного Овна - 2 Albums  2019-2022  [MP3|320 Kbps] <Alternative, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Три звёздочки пять звёздочек! [00:04:01]
-02. Водолея [00:03:24]
-03. Дерево. Дерево. Предерево. [00:03:18]
-04. Спирали [00:03:00]    Читать дальше...    Жанр: Alternative, RockПродолжительность: 2 CD, 00:56:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2E5ED98203EFAC46D1BBABA98F31CE24BC809CC2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591973.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 969
-
-Ликёр Жара - 2 Albums  2017-2022  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Intro [00:00:42]
-02. Доступ закрыт [00:03:21]
-03. Устал [00:02:17]
-04. Между нами [00:04:16]    Читать дальше...    Жанр: RockПродолжительность: 2 CD, 00:58:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9735BB9B9FD7FDC828578CA80078D064932DFE3C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591969.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 595
-
-Сироткин - Тень первого облака  2022  [MP3|320 Kbps] <Pop Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Дрожит наш дом [00:03:25]
-02 - Призраки [00:04:16]
-03 - В панцирях черепах [00:03:17]
-04 - Вместе на раз два три [00:03:13]    Читать дальше...    Жанр: Pop RockПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:935DF86BC674CD29D1A6827D56E9DE9ED7EAB555
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591595.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

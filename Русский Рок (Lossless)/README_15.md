@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 1 573 100
+
+Lifeburn - Город греха  2022  [MP3|320 Kbps] <Hard & Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Опасные игры [00:05:23]
+02 - Ответы на вопросы [00:04:40]
+03 - Город греха [00:06:27]
+04 - Одиночество [00:07:31]    Читать дальше...    Жанр: Hard & Heavy MetalПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:554326732F08559E5D58DBBED9365ACD09D5B056
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573100.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 573 015
+
+Алексей Горшенёв - Калининград  2022  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Алексей Горшенев принял участие в записи песни «Калининград» в поддержку жителей региона, оказавшихся в сложной экономической и политической ситуации. Музыка - Владимир Корниенко, текст - Максим Кучеренко   Алексей Горшенев.1. КалининградЖанр: RockПродолжительность: 00:03:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D71FA25790D77B92D79E1760848C0F60C9F200D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573015.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 573 012
+
+Включай Микрофон! - Позывные ретритизма, Часть 1  2022  [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Выпили и погнали
+2. Улицы помнят каждого
+3. Никакой лирики!
+4. Хватит на всех!    Читать дальше...    Жанр: Punk RockПродолжительность: 00:15:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E50AB2D78F70C12E894593834DF53BD4212A698C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573012.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 572 866
+
+Salvation For Me - Memories  2022  [MP3|320 Kbps] <Metalcore>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Blind [00:03:19]
+02 - Lost [00:03:06]
+03 - Beast [00:03:32]
+04 - Line [00:03:36]    Читать дальше...    Жанр: MetalcoreПродолжительность: 00:30:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2421B090142ECC371CC89EA1C084609475A672E2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572866.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 572 795
+
+Демарш - Антивирус  2022  [MP3|320 Kbps] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Ногу на газ [00:04:49]
+02 - Люди-реки [00:04:11]
+03 - Ведают лишь Небеса [00:04:50]
+04 - Если б я был султан [00:03:33]    Читать дальше...    Жанр: Hard RockПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:664C4311D33C5B5F3C64B8EB37C789C00B98DDB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572795.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 572 596
 
 Imperial Age - New World  2022  [MP3|320 Kbps] <Symphonic Metal>
@@ -1851,128 +1973,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553953.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 553 952
-
-Ногу свело! - Буква Zю  2022  single [MP3|320 Kbps] <Rock, Pop-Punk, Alternative Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Буква ZюЖанр: Rock, Pop-Punk, Alternative RockПродолжительность: 00:01:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2711B53155A5BA72897BE2C686422A5F5D85F629
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553952.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 553 777
-
-Пилот - ТЫГЫДЫМ  2022  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Интро
-2. Апрель
-3. Иордань
-4. Заживо  Полная Версия     Читать дальше...    Жанр: RockПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:398EF1DB15C4F98B261CC57944CB021023E61D30
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553777.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 553 589
-
-Сектор Газовой Атаки - Ненависти вопреки  2022  [MP3|320 Kbps] <Russian Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Я не служил [00:03:09]
-02. Lips [00:03:10]
-03. Своей дорогой feat. ДМЦ, Наконечный [00:04:23]
-04. Все за тебя решено [00:04:01]    Читать дальше...    Жанр: Russian Punk RockПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99DC2462FFE1317AC94B54A858DA2E0646CCA70B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553589.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 553 383
-
-Fatal - Karmageddon  2022  [MP3|320 Kbps] <Russian Beatdown Hardcore>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Intro [00:01:06]
-02 - Obsessed [00:01:51]
-03 - Apathy [00:02:20]
-04 - Born to Lose [00:02:07]    Читать дальше...    Жанр: Russian Beatdown HardcoreПродолжительность: 00:19:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:35553C13F46F9C4C93E441FD52918434E7197A06
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553383.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 553 063
-
-Сруб - Веры Пиры  2022  [MP3|320 Kbps] <Post-Punk, Dark Folk, Occult Punk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Запивали росой
-2. Бесы
-3. Погосты
-4. Рожь    Читать дальше...    Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6378B3201136FBD10B12B148D9982AE515FAFAF4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553063.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

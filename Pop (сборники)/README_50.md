@@ -1,4 +1,278 @@
 ﻿
+###  Публикация: 1 349 870
+
+Estimado - The Escape to Heaven  2017  [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. I’m Dancing On My Own 5:19
+02. Faster 7:08
+03. Believe In Me 7:45
+04. I Want You Heaven 6:48    Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7E27CD7C56529450EB4E6C65B82E033268F4920E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349870.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 349 866
+
+Rewind Feat. Madame Denise - Video Killed The Radio Star  1993  [FLAC|Lossless|image + .cue] <Eu
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Video Killed The Radio Star  Radio Edit  4:03
+02. Video Killed The Radio Star  With An Eye 2 Techno  5:02
+03. Video Killed The Radio Star  Mother s Day  4:15
+04. Kaleidoscope  Coming Soon  2:17Жанр: Euro HouseПродолжительность: 00:15:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3836DC8A1172890128170394F2A99FAC8A1E9AFD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349866.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 349 849
+
+Chyp-Notic - Nothing Compares 2 U  1990  [FLAC|Lossless|image + .cue] <Euro House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Nothing Compares 2 U  The Ultimate Dance-Version  6:32
+02. Nothing Compares 2 U  The Techno Mix  5:09
+03. 1-4-U 5:32Жанр: Euro HouseПродолжительность: 00:17:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:84DD6D14CB61619C3A56D4C8E0CDEE78B8A03949
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349849.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 349 675
+
+Robbie Williams - The Christmas Present  2019  2CD [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Треклист CD1:
+01. Winter Wonderland
+02. Merry Xmas Everybody  feat. Jamie Cullum 
+03. Let It Snow! Let It Snow! Let It Snow!    Читать дальше...    Жанр: Pop |Продолжительность: 01:32:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6C657B23E6469EB3409219C3F5D6D7CEE10B2085
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349675.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 349 374
+
+NЮ - В сердце  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01.Веснушки
+02.В сердце
+03.Под кайфом
+04.Верь в меня    Читать дальше...    Жанр: PopПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6D9C4A9985ABFD37FF19EAF048895805620ADE00
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349374.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 349 362
+
+VA - 55 Hits 2020 [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01. Angele - Oui ou non
+02. Dadju - Ma vie
+03. Gradur - Ne reviens pas    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D6E05675D1B15623E7EC57FBC3719386DB298E7A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349362.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 349 149
+
+MONATIK - Мріяти не шкідливо  2019  EP [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Мріяти не шкідливо
+2. Свято наближається
+3. Батькам
+4. КрасаЖанр: PopПродолжительность: 00:12:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:73CB93B9F962B601CB571DCCC6751EA74FC7936F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349149.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 348 966
+
+VA - 100 Greatest Chillout  2019  [MP3|320 Kbps] <Pop, Relax, Easy Listening>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+001. Air - La femme d argent
+002. Otis Redding -  Sittin  On  the Dock of the Bay
+003. Morcheeba - The Sea
+004. Art of Noise - Robinson Crusoe    Читать дальше...    Жанр: Pop, Relax, Easy ListeningПродолжительность: 06:34:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C5F193E80A68EEBA892976E1A6628F983F0EAEDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1348966.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 348 948
+
+VA - 100 Greatest Indie: The Best Guitar Pop Rock  2019  [MP3|320 Kbps] <Indie, Pop-Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+001. Blur - Parklife
+002. The Smiths - This Charming Man  2011 Remaster 
+003. Liam Gallagher - Wall of Glass
+004. The Futureheads - Hounds of Love    Читать дальше...    Жанр: Indie, Pop-RockПродолжительность: 06:29:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FFBC89D472D20EA360E72CBD70F09985F70A2475
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1348948.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 348 794
+
+VA - Ibiza Day & Night  2010 - 2012  6 CD [FLAC|Lossless|tracks + .cue]<Eurodance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Musikk VS. Chiris Montana - Summer Lovin    Acapella  
+02. Martin Villeneuve - Come On Over   Up Jeet Remix  
+03. Rio Dela Duna & Dani Cohiba - El Cubano   Martin Villeneuve Remix  
+04. Do Santos - Noti Verisi    Читать дальше...    Жанр: EurodanceПродолжительность: 02:26:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91AB6704CF234239FE618AFEB5F1CDA26429AEE2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1348794.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 348 630
+
+VA - 100 Greatest 10s: The Best Songs of Last Decade  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+001. Coldplay - A Sky Full of Stars
+002. Dua Lipa - Be the One
+003. Tones and I - Dance Monkey
+004. Jason Derulo - Want to Want Me    Читать дальше...    Жанр: PopПродолжительность: 08:24:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0FBD909CF57B9836519C1CEFBF535E5376162BEC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1348630.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 348 623
 
 VA - 100 Greatest 00s The Best Songs from the Decade  2019  [MP3|320 Kbps] <Pop>
@@ -1716,279 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343185.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 180
-
-VA - Blow Up Disco Vol 4: A Taste Of Blow Up Disco & Italo Instrumentals  2019  [FLAC|Lossless|W
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Kaly – Empty Faces  Gianco mix   5:29 
-02. Kaly – Empty Faces  4:30 
-03. Loui$ – Computer Soul  6:54 
-04. Loui$ – Swimming  4:30     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A18E99AD519ADEBFA61AD47F5DA196EAE510206
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343180.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 176
-
-VA - Blow Up Disco Vol 3: Back To Italodisco  2019  [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Dis
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Loui$ – Magic Dance  Italo Club mix   8:32 
-02. Loui$ – Pink Footpath  Back To instrumental mix   6:08 
-03. Zanza s – This Is A Day  Mr.u.b. Italo instrumental mix   4:58 
-04. Zanza s – This Is A Day  Mr.u.b. Italo mix   5:26     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:98AFA117BD795FFB00162D4923680174824545A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343176.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 170
-
-VA - Blow Up Disco Vol 2: Twisted Italodisco  2019  [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Dis
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Miko Mission – The World Is You  Mission mix   9:14 
-02. Miko Mission – The World Is You  vocal mix   7:55 
-03. Sue Sadlow – My Man  Italodisko mix   6:12 
-04. Sue Sadlow – My Man  radio mix   5:56     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:24:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8409AC7574F83AA03BA1E14DE8C27E4C625A1783
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343170.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 168
-
-VA - Blow Up Disco Vol 1: Club Series Italodisco Grooves  2019  [FLAC|Lossless|WEB-DL|tracks] <D
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Miko Mission – How Old Are You  vocal mix   7:23 
-02. Miko Mission – How Old Are You  instrumental   5:57 
-03. The Breekout Krew – Matt s Mood  Rap-o-Version   6:02 
-04. The Breekout Krew – Matt s Mood  Rock Beats   5:15     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:20:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B1F469DCE1C8384904AE14330572730E1A7F53D5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343168.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 150
-
-VA - Superstars In Concert  1986-87-88 The Prince s Trust Concerts   1996  3CDSet [MP3|320
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Peter Gabriel – Sledgehammer  4:58 
-02. Rick Astley – Never Gonna Give You Up  4:05 
-03. Eric Clapton – Wonderful Tonight  4:21 
-04. Swing Out Sister – Breakout  3:56     Читать дальше...    Жанр: Rock, PopПродолжительность: 03:06:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C871BD8278D40575A5DABF87AC9E59A165B63A14
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343150.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 131
-
-VA - Best of 2019 - Frühlingshits  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01. Nico Santos - Unforgettable
-02. Ariana Grande - 7 Rings
-03. Sam Smith & Normani - Dancing With A Stranger    Читать дальше...    Жанр: PopПродолжительность: 02:29:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DDEA9E99F608D64FEF59BBDDEBE6183CCDF71AE6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343131.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 067
-
-VA - Bravo Hits Zima 2020  2019  2CD [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01. Spada vs. Prezioso - Tiger 2:38
-02. Tiesto & Mabel - God Is A Dancer 2:48
-03. Roxie - Half Of My Heart 3:04    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:01:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8A5C084675EFD925CBF0243E7908FFF92046BB4D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343067.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 032
-
-Drezden - Эдельвейс  2019  [MP3|320 Kbps] <Pop, Electronic>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. ЭДЕЛЬВЕЙС
-2. ДАВИДА ОЛЕНЬ
-3. О ХЕНРИ
-4. АЛАДДИН    Читать дальше...    Жанр: Pop, ElectronicПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:734EA067E7536DCAD292E3885913FBE07DBC454B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343032.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 342 993
-
-Алиса Вокс - Упругий поп концерт  2019  Live [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Выстрелы  Live 
-2. Мой  Live 
-3. Фейерверк  Live 
-4. Вечер  Live     Читать дальше...    Жанр: PopПродолжительность: 00:32:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:744CA0E9D1CBED8B03C7153404CB11EDD59BF125
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1342993.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 342 985
-
-Mo-Do - Was Ist Das?  1995  [FLAC|Lossless|tracks + .cue] <Eurodance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Eins, Zwei, Polizei  5:13 
-02. Hamlet  4:11 
-03. Gema Tanzen  4:14 
-04. Liebes Tango  4:12     Читать дальше...    Жанр: EurodanceПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2C3FA5C52B8E390CA097A86D15649BF455D24D07
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1342985.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 342 929
-
-Digital Emotion - You ll Be Mine   Run Away  2019  Single [FLAC|Lossless|WEB-DL|tracks] <Dis
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. You ll Be Mine
-02. Run AwayЖанр: Disco, ElectronicПродолжительность: 00:12:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BAF3498B22D854DB11411E904B8EE87A6CB2A3DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1342929.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

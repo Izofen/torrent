@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 623 359
+
+Геннадий Богданов и гр. Русские - 4 Альбома  1994 - 2008  [MP3|320 Kbps] <Pop Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Соколом
+02. Пустыня
+03. Мия
+04. Чёрным по белому    Читать дальше...    Жанр: Pop RockПродолжительность: 03:26:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:284856F5B0B8726B6930FD325D46D69070A5D994
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623359.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 126
+
+Sjotrollet - Relentless Cruelty of Fate  2023  [MP3|320 Kbps] <Apocalypse Black Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Dying Sun [00:05:49]
+02 - Relentless Cruelty of Fate [00:06:30]
+03 - Herlathing [00:06:14]
+04 - Time of Murderers [00:04:27]    Читать дальше...    Жанр: Apocalypse Black MetalПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9F893001FF8127AB43E1BF992D1D0549B3D9ACA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623126.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 023
+
+Мураками - В песнях навсегда (2023) Deluxe Edition [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Интро
+2. Везувий (интро)
+3. Везувий
+4. За стеной (интро)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:84CC5F9EF18ED5B0F37581F24E1DDA30BB00796B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623023.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 622 937
+
+Пионерлагерь Пыльная Радуга - ВОЙ (2023) [MP3|320 Kbps] <Grunge, Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. ПНВТ`23
+2. Можно
+3. Долбоящер
+4. Песня Маугли Против Людей(   Читать дальше...   )Жанр: Grunge, RockПродолжительность: 00:29:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CFED34D96649DEE4C17D66DD287E0F17444998AB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1622937.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 622 610
+
+8семь - Вечное сияние чистой луны (2020) [MP3|320 Kbps] <Punk-Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Паутина [00:03:27]
+02 - Слышно только эхо [00:03:15]
+03 - А ты привыкай [00:03:20]
+04 - Евангелие от Егора [00:03:08](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:33F60078C77AB3DADC8EB8462F26BBA168819BED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1622610.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 622 072
 
 Ярик Бро - 2 Albums (2021-2023) [MP3|320 Kbps] <Rock>
@@ -1864,131 +1989,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609844.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 609 759
-
-Рано - Коллекция Разбитых Ламп  2023  [MP3|320 Kbps] <Post-Punk, New-Wave>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - След [00:03:18]
-02 - Улетай [00:03:35]
-03 - Чужие Дела [00:02:58]
-04 - Угаснуть [00:04:04]    Читать дальше...    Жанр: Post-Punk, New-WaveПродолжительность: 00:29:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:10138FB1B106F4C8A91480EC9494F0CFE4FBF436
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609759.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 609 755
-
-Сибирский морг - 2 Albums  2022-2023  [MP3|320 Kbps] <Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Золотая нефть [00:03:14]
-02. Люди живут ради смерти [00:01:48]
-03. Тяжёлый трип [00:02:31]
-04. Продолжительность жизни [00:02:19]    Читать дальше...    Жанр: AlternativeПродолжительность: 2 CD, 00:31:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:22AB33C074BE6A3EEDBDF23F46F2B4F2EDBF7B91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609755.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 609 737
-
-Страна Идиотов - 27 пустоты. Часть 1-2  2021-2023  [MP3|320 Kbps] <Alternative Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Помолчим [00:02:53]
-02. Города [00:02:37]
-03. Шаг за шагом [00:03:38]
-04. Новое время [00:02:46]    Читать дальше...    Жанр: Alternative RockПродолжительность: 2 CD, 00:37:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E864A5E1015B49CA8A83BDFAB1373E093475F02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609737.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 609 735
-
-Азбука Борзых - Дартс  2023  [MP3|320 Kbps] <Punk-Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Слава селу [00:04:21]
-02 - Примочка [00:03:45]
-03 - Дартс [00:03:56]
-04 - Приют [00:03:20]    Читать дальше...    Жанр: Punk-RockПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B11635BB882602A28B594810B2E12B62ECEE0B9D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609735.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 609 713
-
-Poslanie - Котлован  2023  [MP3|320 Kbps] <Alternative Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Котлован [00:04:52]
-02 - Хорошим-плохим [00:04:58]
-03 - На свет [00:04:27]
-04 - Рухнет потолок [00:03:42]    Читать дальше...    Жанр: Alternative MetalПродолжительность: 00:26:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3BEB4629C75DEF70ED6A56ED9151C6BE1CB2B567
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609713.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

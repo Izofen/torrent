@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 663 667
+
+Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped] [FLAC |16/44.1|tra
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Sirenia — норвежский готик-метал-проект, основанный Мортеном Веландом в 2001 году2002 - At Sixes And Sevens
+2004 - An Elixir For Existence
+2007 - Nine Destinies And A Downfall
+2009 - The 13th FloorЖанр: Symphonic/Gothic MetalПродолжительность: 11:22:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3CFFCE365B756EE82FACC92DDF929812D27B4FE0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1663667.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 663 324
+
+The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell Ceremonial Theater An
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Trumpet Overture From «The Indian Queen»
+Suite From Abdelazer
+A2 (a) Overture - Allegro
+A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1663324.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 663 183
+
+Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/96|image + .cue|Viny
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+The Inspection
+A1 Blaydon Races
+A2 Shirley Bassey Showcase
+A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр: Brass & Military, MarchesПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1663183.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 662 977
+
+Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tra
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Heavenly — пауэр-метал-группа из Франции, основанная в 1994 году вокалистом Бенжамином Сотто и барабанщиком Максом Пило.2000 - Coming From The Sky
+2001 - Sign Of The Winner
+2004 - Dust To Dust
+2006 - VirusЖанр: Power MetalПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1662977.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 662 856
+
+Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-Rip]<Symphonic Power
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Song For Eden
+A2 Jerusalem Is Falling
+A3 Design The Century
+A4 Rise Of The 4th Reich(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B08F578F930294AF66E5AA2A0E22A33857C88674
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1662856.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 662 814
+
+VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Puccini, Berlioz and Biz
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Serbami Ognor (Semiramide, Act I)
+A2 Se M'Ami Ancor ... Al Nostri Monti Ritorneremo (Il Trovatore, Act IV)
+A3 Un Di Felice (La Traviata, Act I)
+A4 Ascoltai Le Porte Dell'Asil S'Apron Gia, Dio, Che Nell'Alma Infondere (Don Carlo, Act II)(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:870A41064ADDD114E0F45E11BFF88C53539B6227
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1662814.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 662 711
+
+Sylosis - Studio Albums (8 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|trac
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Sylosis — британская метал-группа из Рединга. Группа была основана в 2000 году гитаристом Джошем Миддлтоном и бас-гитаристом Карлом Парнеллом.2006 - Casting Shadows (EP)
+2007 - The Supreme Oppressor (EP)
+2008 - Conclusion of an Age
+2011 - Edge of the EarthЖанр: Melodic Death Metal, Thrash Metal, MetalcoreПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4CF79D02D17736E4B7169D0986B51AAE3BB4721E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1662711.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 662 444
+
+Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Seventh Wonder — прогрессив-метал группа, была создана в Стокгольме в 2000 году бас-гитаристом Андреасом Бломквистом, гитаристом Йоханом Лифвендалом и барабанщиком Джонни Сэндином.2005 - Become
+2006 - Waiting In The Wings
+2008 - Mercy Falls
+2011 - The Great EscapeЖанр: Progressive MetalПродолжительность: 06:24:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:434CC2B40B5BD6A7B47CC4DB3FA555D8965DB38A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1662444.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 662 007
 
 Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) hand made [restored,
@@ -1787,206 +1987,6 @@ A3 Ken Boothe – Everything I Own(   Читать дальше...   )Жанр: 
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1646379.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 645 674
-
-VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Country, Soul>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Hot Chocolate - You Sexy Thing
-A2 Silver Convention - Save Me
-A3 Chequers - Rock On Brother
-A4 Drifters - Hello Happiness(   Читать дальше...   )Жанр: Pop Rock, Glam, Country, SoulПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:23BBC4E9ACA3EF0514DC61B52F614085D892AE85
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1645674.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 645 475
-
-VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-Rip] <Funk, Pop Rock,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Manuel & The Music Of The Mountains - The Windmills Of Your Mind
-A2 Cliff Richard - Spanish Harlem
-A3 Bobbie Gentry - Ode To Billy Joe
-A4 Roger Whittaker - Dirty Old Town(   Читать дальше...   )Жанр: Funk, Country, Pop Rock, Easy ListeningПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FAD8D4E54EAE979C637F7A47C69564A37CD4CC0F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1645475.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 645 217
-
-Katatonia - Studio Albums (13 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|t
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Katatonia — шведская группа, основанная в 1991 году в Стокгольме Йонасом Ренксе и Андерсом Нюстрёмом. Раннее творчество коллектива принято характеризовать как дэт-дум-метал, а сама группа, наряду с My Dying Bride, Anathema и Paradise Lost, считается лидером этого жанра.1993 - Dance Of December Souls
-1996 - Brave Murder Day
-1998 - Discouraged Ones
-1999 - Tonight's DecisionЖанр: Doom/Death Metal; Gothic/Progressive RockПродолжительность: 14:29:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C484DD37B26F5F06B982CB204938193505EB5ACE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1645217.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 644 684
-
-Валерия - Звёздная Коллекция (2001) Compilation, Unofficial Release [FLAC|24/48|image + .cue|Tape-Ri
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. Не Обманывай
-02. Не Обижай Меня
-03. Рига-Москва(   Читать дальше...   )Жанр: Europop, Euro House, Pop RockПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:71F207E6629AC8C46C0C88C5F6B30D40BCA9CBD6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1644684.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 644 307
-
-Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Electronic,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1		I'm Your Baby Tonight	5:00
-A2		My Name Is Not Susan	4:38
-A3		All The Man That I Need	4:09
-A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1644307.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 643 972
-
-Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, Reissue, Gatefold 180
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-00:38:54
-
-A1 Atomic
-(A. Maratrat, G. L'Her)(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 03:11:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1643972.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 643 464
-
-Presto Ballet - Studio Albums (6 releases) (2005-2018) hand made [restored, declipped] [FLAC |16/44.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Presto Ballet — прогрессив-рок-группа, основанная гитаристом Metal Church Курдтом Вандерхофом.2005 - Peace Among The Ruins
-2008 - The Lost Art of Time Travel
-2011 - Invisible Places
-2012 - Relic of the Modern World(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 05:00:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:19A6E9A8F9E2B3623EB50A2D988D4F33686E3769
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1643464.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 642 992
-
-Emperor - Studio Albums  7 releases   1993-2001  hand made [restored, declipped] [FLAC|16 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Emperor — норвежская блэк-метал-группа, основанная в 1991 году и оказавшая значительное влияние на развитие жанра.1993 - Emperor  EP 
-1994 - As The Shadows Rise  EP 
-1994 - In the Nightside Eclipse
-1998 - Anthems To The Welkin At DuskЖанр: Symphonic Black MetalПродолжительность: 04:17:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6CC8EDBE9CC8A2E1A81A8C3BDD8F5C6ADA895EFC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1642992.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

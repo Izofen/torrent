@@ -1,4 +1,376 @@
 ﻿
+###  Публикация: 775 693
+
+Windows 8.1 with Update - Оригинальные образы от Microsoft MSDN [Ukr]
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 8.1 with Update - Оригинальные образы от Microsoft MSDNЯзык интерфейса: Украинский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C75A346D7B1BCF4E491CD98858C76809F8BFE6B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 775 689
+
+Windows 8.1 with Update - Оригинальные образы от Microsoft MSDN [Ro]
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Windows 8.1 with Update - Оригинальные образы от Microsoft MSDNЯзык интерфейса: Румынский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E78DFE22EE39AD5D050DB1F7835C8741ECA5C29
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 775 352
+
+Windows Embedded 8.1 with Update - Оригинальные образы от Microsoft MSDN [Ru]
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 8.1 — это еще большие возможности персонализации и новые, великолепные приложения и службы. Windows Embedded 8.1 Industry является новым продуктом в линейке так называемых «вертикальных» продуктов, к которым относится, также, Windows Embedded POSReady. Основное отличие от POSReady – ядро Windows 8.1Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B82A066337500BEB97236293EEC94A8D6BD0C6E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 775 332
+
+Windows 8.1 with Update - Оригинальные образы от Microsoft MSDN [Ru]
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 8.1 with Update - Оригинальные образы от Microsoft MSDNЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3D4890B013026DB56C5AB51D40D1E75E99248178
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 774 196
+
+Windows Embedded 8.1 with Update - Оригинальные образы от Microsoft MSDN [En]
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 8.1 — это еще большие возможности персонализации и новые, великолепные приложения и службы. Windows Embedded 8.1 Industry является новым продуктом в линейке так называемых «вертикальных» продуктов, к которым относится, также, Windows Embedded POSReady. Основное отличие от POSReady – ядро Windows 8.1Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CA6EFE5003C301BA4A177D05C7A59F684C872D5D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 774 153
+
+Recovery USB-flash for Asus X75A   Windows 8  х64  [Ru En]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Asus_X75A_W8.tib
+записанной на ноутбуке Asus X75A-TY117H  mb X75A 
+с помощью программы Asus BackTracker после первого включения.
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:33A21B74B56D931F536758C908AEE95707E501E5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 773 987
+
+Windows Server 2012 R2 with Update  x64  - Оригинальные образы от Microsoft MSDN [En]
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Windows Server 2012 R2 - это проверенная масштабируемая платформа корпоративного класса для облачных сред и центров обработки данных, на которой можно разместить самые ресурсоемкие рабочие нагрузки и использовать широкие возможности восстановления для защиты от перебоев в обслуживании. Это позволяет ускорить процесс получения прибыли за счет упрощения основной инфраструктуры, а также сократить издержки благодаря использованию оборудования отраслевого стандарта. Windows Server 2012 R2 помогает быстро разрабатывать,     Читать дальше...    Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D83F0F015F291F019091AE1ADEEA5F437CB2596A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 773 950
+
+Windows 8.1 N with Update - Оригинальные образы от Microsoft MSDN [En]
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 8.1 N with Update - Оригинальные образы от Microsoft MSDNЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C140C0E244B0D9D8C74D8FD6259D5426C256FEC0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 773 699
+
+Windows 8.1 with Update - Оригинальные образы от Microsoft MSDN [En]
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Windows 8.1 with Update - Оригинальные образы от Microsoft MSDNЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:302BF21D2EF94B20794166B61F0B08E91B70A05A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 767 505
+
+Recovery DVD for Asus K53SC   Windows 7 Home Basic Sp1  x64  [Ru]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+Образы DVD дисков созданные утилитой AiRecovery, позволяющие восстановить предустановленную систему с драйверами и сопутствующим программным обеспечением,а также раздел восстановления.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:463079BCF90B13B311D9D2642ED385D109A1B48B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 765 412
+
+Recovery USB-flash for Acer TravelMate B113   Windows 7 Pro  х64  SP1 [Ru En]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+в раздаче содержится образ USB-Recovery флешки, USB_Recovery_Acer_B113_W7Pro64.tib
+записанной на ноутбуке Acer TravelMate B113-E-10172G32Akk
+с помощью программы Acer eRecovery Management.
+Образ флешки создан программой Acronis True Image Home 2013.
+служит для восстановления ноутбука к заводским настройкам
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6E7B8ACCD6574332B149B2FF38419D4129C1408C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 758 886
+
+Acer Aspire P3-171 Recovery DVD Windows 8 Core [De]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+в раздаче содержится образ Recovery DVD  Acer Aspire P3-171, состоящий из двух оригинальных DVD, которые шли с планшетом при покупке.язык операционной системы -немецкий. ниже приведены действия как скачать и установить желаемый языковой пакет, в картинках.Язык интерфейса: немецкий
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A880B23692AD5532239122904D5E2EC5CF892DB7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 758 389
+
+Recovery Partition for ASUS X55VD   Windows 7 Home Basic  х64  SP1 [Ru En]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+В раздаче содержится образ разделов Recovery жесткого диска ноутбука ASUS X55VD-SX007R
+Образ Asus_X55VD_full_b1_s1_v*.tib содержит в себе оригинальный MBR и скрытые разделы восстановления
+Образ создан программой Acronis True Image Home 2014 после первого включения ноута.Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:07C010F5CC656FADCD9A812283CD7C3E2FC975E0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 757 697
+
+Recovery USB-flash for Packard Bell EasyNote TE 69-HW   Windows 8.1  х64  [Ru En]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+раздаче содержится образ USB-Recovery флешки, USB_Recovery_PackardBell_TE69HW_W81.tib
+записанной на ноутбуке Packard Bell EasyNote TE69HW-29572g32mnsk
+с помощью программы Packard Bell Recovery Management.
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления ноутбука к заводским настройкамЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E31C14EEE9571CBA8FB9395E3E8E520238721FE6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 742 298
+
+Recovery DVD for Dell Vostro 1015   Windows 7 Starter  х86  SP1 [Ru En]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+В раздаче содержится образ диска восстановления.Recovery_Dell_1015_W7.iso
+записанный на Dell Vostro 1015-5435 программой Dell BackUp and Recovery
+Производит восстановление ноутбука до заводских настроек.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:975A749629A3590BA2035406E90A5D4C45FF47E2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 740 738
+
+Recovery USB-flash for Microsoft Surface RT  Touch Cover    Windows 8 RT  х86  [Ru En]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Surface_RT_W8.tib
+записаннoй на планшете Surface RT 64Gb Touch Cover  Model 1515 ,
+программой Windows Recovery Media Creator после первого включения планшета.
+Образ флешки создан программой Acronis True Image Home 2013
+Предназначена для восстановления планшета к заводским настройкамЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FAE085DB51CEE9116D1EE719DC885D66D7755194
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 737 435
 
 Recovery USB-Flash for Lenovo B590   Windows 8  х64  [Ru En]

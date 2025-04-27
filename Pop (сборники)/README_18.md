@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 614 796
+
+Hortenzia - 4 Releases  2019-2023  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+Список альбомов:
+Hortenzia - 2019 - Скерцо
+Hortenzia - 2023 - В темных аллеях  Single 
+Hortenzia - 2023 - Когда вешаем наш флаг  Single     Читать дальше...    Жанр: PopПродолжительность: 4 CD, 01:06:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A4672D305C4A4843F2D43950E3E77A9BFBE701C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1614796.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 614 769
+
+VA - Mega Hit Mix 2022  2023  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Ed Sheeran - Shivers  3:27 
+2. Gayle - Abcdefu  2:48 
+3. The Walters - I Love You So  2:40 
+4. Jaymes Young - Infinity  3:57     Читать дальше...    Жанр: PopПродолжительность: 03:12:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:618BC19B9F07530A52EFDA84D5CC06AA0DD74221
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1614769.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 614 610
+
+Ариэль - 7 Albums, 1 Single  1975-1995  Vinyl Collection [MP3|320 Kbps] <Folk Rock, Pop, Rock>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+Вокально-инструментальный ансамбль  ВИА  «Ариэль» - советская и российская музыкальная группа из Челябинска, датой основания которой принято считать 17 октября 1967 года. Руководитель ансамбля до 1989 года - Валерий Ярушин. В разное время «Ариэль» работал в разных стилях, однако жанровой основой ансамбля всегда был русский вариант фолк-рока, подразумевавший обработки     Читать дальше...    Список альбомов:
+1975 - Ариэль  Зимы и вёсны 
+1977 - Русские картинки
+1980 - Ариэль  На острове Буяне     Читать дальше...    Жанр: Folk Rock, Pop, RockПродолжительность: 04:31:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:15301631AA9F6EDCD3ADFE90453AEABEA7029810
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1614610.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 614 576
+
+Silicon Dream - Time Machine  2022  2 CD 35th Anniversary Delux Expanded Editon, Maschina Record
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+CD1:
+01. Time Machine  You Are The Master Of Time-Age 
+02. Jimmy Dean Loved Marilyn-Film Ab  The Hollywood-Age 
+03. Corleone Speaking  The Chicago-Age     Читать дальше...    Жанр: Euro-Disco, New Beat |Продолжительность: 02:01:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D90330EAE952A6E0B2EE087E85F418511043C45E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1614576.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 614 342
+
+VA - Trending Top Hits Now!  2023  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Lil Uzi Vert - Just Wanna Rock  2:03 
+02. Lizzo - Special  feat. SZA   2:54 
+03. Ed Sheeran - Celestial  3:29 
+04. Bruno Mars - After Last Night  feat. Thundercat & Bootsy Collins   4:09     Читать дальше...    Жанр: PopПродолжительность: 02:35:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8DE6422C6E6ACC4219A33BB74166AA2CE491C68A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1614342.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 614 141
+
+Bad Boys Blue - 25  The Long Mixes - Extended Versions   2022  2xCD [FLAC|Lossless|image + .
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+CD1:
+01. You’re A Woman  New Long Version  6:56
+02. Gimme Gimme Your Lovin’  New Long Version With Trevor Vocals  6:02
+03. Lady In Black  New Long Version  5:09    Читать дальше...    Жанр: Euro-Disco, Synth-popПродолжительность: 01:46:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D80950ECD4549EACFD976676673512CDDA0EB742
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1614141.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 614 033
+
+VA - Romantic Collection. Instrumental 2000  2000  [OGG Vorbis|480 Kbps] <Instrumental>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Fausto Papetti - Emmanuelle
+02. Era - Flowers of the Sea
+03. Giorgio Moroder - Love Theme from  Flashdance 
+04. Jan Morks - You Don t Know How Much You Can Suffer    Читать дальше...    Жанр: InstrumentalПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8BB9C88824BA72517511880989BB785D9948749E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1614033.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 613 920
+
+VA - Romantic Collection. Golden Oldies  2000  [OGG Vorbis|480 Kbps] <Pop, Oldies, Folk>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Andy Williams -  Where Do I Begin  Love Story
+02. The Platters - Only You  And You Alone 
+03. Roy Orbison - Only The Lonely
+04. Charles Aznavour - Les deux Guitares    Читать дальше...    Жанр: Pop, Oldies, FolkПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:677D6BB832E70834415082323F07AB4EF3BDC9DB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1613920.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 613 860
+
+VA - 80s Gold  2023  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Chaka Khan - Ain t Nobody  4:05 
+02. Michael McDonald - I Keep Forgettin  Every Time You re Near   3:42 
+03. Tina Turner - The Best  5:29 
+04. Fleetwood Mac - Little Lies  2018 Remaster   3:39     Читать дальше...    Жанр: PopПродолжительность: 03:08:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4291B4DD394CE96B79BA37192B33B16E0D63F9FD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1613860.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 613 739
+
+Mylene Farmer - L’emprise  2022  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Двенадцатый студийный альбом. В музыке Милен Фармер всегда было много печали, но на «L’Emprise» она зашкаливает. Это ее личный, откровенный альбом.01. Invisibles
+02. À Tout Jamais
+03. Que L’aube Est Belle
+04. L’emprise    Читать дальше...    Жанр: PopПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0D341659188EC9A9704BE4356D67C252421E4A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1613739.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 613 709
+
+VA - Vintage Café – The Remixes  2023  [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Loung
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Os Digitalistas - Grizzly Bear  Javier Penna Remix   3:12 
+02. Nenei - Just the Two of Us  Luxury Remix   4:01 
+03. Bellestar - Can t Get You out of My Head  Nu Disco Mix   2:36 
+04. Natty Bong - No Rain  Ronan Remix   2:45     Читать дальше...    Жанр: Pop, Easy Listening, LoungeПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B75D0EC3EDE00A3E3194364E0A3C7E0D92CADE03
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1613709.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 613 708
 
 VA - Romantic Collection. Golden 80s  2000  [OGG Vorbis|480 Kbps] <Rock, Pop>
@@ -1722,281 +1997,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608133.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 608 128
-
-Mylene Farmer - Dance Remixes  1992  2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, House>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. We ll never die  Techno remix 
-02. Sans contrefacon  Boy remix 
-03. Tristana  Remix club 
-04. Sans logique  Illogical club remix     Читать дальше...    Жанр: Electronic, Pop, HouseПродолжительность: 01:50:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B8D632BFC67E3137B22E09D2CD36DFF727C09796
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608128.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 607 982
-
-Stars On 45 - 40 Years Anthology  2022  2CD, Remastered [FLAC|Lossless|WEB-DL|tracks] <Disco, Po
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. The Superstars  The Greatest Rock  n Roll Band In The World   RM.   16:02 
-02. Stars On Stevie  Remastered   7:44 
-03. It s Not A Wonder, It s A Miracle  Remastered   6:56 
-04. Stars On Jingle  Remastered   0:11     Читать дальше...    Жанр: Disco, Pop, Retro-Schlager, Post-Rock, R&B |Продолжительность: 01:13:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6B3ADD7C12F80D85B9BE6176F7AF7A26F22BC820
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607982.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 607 972
-
-Аида Ведищева - Звёзды советской эстрады. Хиты 60-70-х  2011  [MP3|320 Kbps] <Советская эстрада,
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-01. Помоги мне
-02. Дорожная песня
-03. Песенка о медведях
-04. Песенка вполголоса    Читать дальше...    Жанр: Советская эстрада, РетроПродолжительность: 01:05:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:65B331CC9B50275D699C22B9B3E4C832831AF667
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607972.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 607 956
-
-VA - А у нас во дворе...  2005  [MP3|320 Kbps] <Рор>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Секрет - Моя любовь на пятом этаже
-02. Лицей - Осень
-03. Воскресение - Кто виноват?
-04. Ивана Купала - Галя    Читать дальше...    Жанр: РорПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3F2936C987A709B355913160228BFEE3F0999B58
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607956.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 607 900
-
-VA - Best Of Nu Disco 2022, Vol. 1-2  2022-2023  Disco Balls Records [MP3|320 Kbps] <Disco, Nu-D
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Stefan Torres, Alex Djette - Can t Help Me No More  Harvey Ross Remix   05:22 
-02. Franco Sciampli - It s Falling  Frank Virgilio Rethink   06:40 
-03. Rawkey - Like You Love Me  05:37 
-04. Umby - Call This Number  05:31     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 03:31:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D8996F95E23E6BE52327323C0C41F8727C0B7176
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607900.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 607 711
-
-Sam Smith - Gloria  2023  [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Love Me More [00:03:23]
-02. No God [00:03:17]
-03. Hurting Interlude [00:00:18]
-04. Lose You [00:03:10]    Читать дальше...    Жанр: Pop, R&B, SoulПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AC63C866ED0FA08D60D4EF64DD63D0C8BBB569AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607711.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 607 683
-
-VA - Старые песни о главном 2  1996  [MP3|320 Kbps] <Рор>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. В. Сюткин - Как провожают пароходы
-02. Л. Долина - Стоят девчонки
-03. И. Аллегрова - Белый свет
-04. В. Меладзе - Ямайка    Читать дальше...    Жанр: РорПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:43B35BACC95B401A52AFA821CC462A16FDAC2BBF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607683.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 607 675
-
-The Cars - Candy-O  1979  Reissue, Remastered, 2012, Elektra [OGG Vorbis|480 Kbps] <Rock, Pop Ro
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Let s Go
-02 - Since I Held You
-03 - It s All I Can Do
-04 - Double Life    Читать дальше...    Жанр: Rock, Pop Rock, New WaveПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF7F23EFDC6D2AA0C15802899D74E190439E60C5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607675.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 607 590
-
-Steps - Platinum Collection  2022  2xCD [FLAC|Lossless|image + .cue] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Группа Steps была сформирована в мае 1997 в Лондоне, Великобритания. Она была одним из самых популярных британских музыкальных поп коллективов. Это был коммерческий проект, в который после долгих кастингов и проб вошли Lee Latchford-Evans, Claire Richards, Lisa Scott-Lee, Faye Tozer и Ian Watkins. Именно в таком составе группа просуществовала до её окончательного     Читать дальше...    CD - 1:
-01. Scared Of The Dark  3:47 
-02. Deeper Shade Of Blue  3:41 
-03. One For Sorrow  4:21     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:35:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5D3B864AE328165524CBCABA028FADBC5129C506
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607590.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 607 546
-
-Mylene Farmer - L Autre...  1991  [OGG Vorbis|480 Kbps] <Electronic, Pop, Chanson>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Agnus Dei
-02. Desenchantee
-03. L autre
-04. Je t aime melancolie    Читать дальше...    Жанр: Electronic, Pop, ChansonПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1546CF45AAD106B6EAE7A755032BFDCE6A085704
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607546.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 607 465
-
-VA - GANGSTER MUSIC, Vol. 7  2023  [MP3|320 Kbps] <Eurodance, Technopop>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-1. Slider & Magnit - Stacked
-2. TRITICUM - Petrunko 2.0
-3. NVTION PVNIC KDDK - Hypnotizes
-4. VUDOO Kolya Funk - Kruzak  Kolya Funk Remix     Читать дальше...    Жанр: Eurodance, TechnopopПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70B4E7B8EC45290AB32D245096DFA0B70754761C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607465.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

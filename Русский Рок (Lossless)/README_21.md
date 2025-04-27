@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 1 447 026
+
+МАЧЕТЕ - News Time  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Мистика
+2. Взрослые и дети
+3. Ангелы
+4. Рассвет    Читать дальше...    Жанр: RockПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D50D0D114E66042D89DA07E00596992E252A5739
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447026.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 446 980
+
+Гран-Куражъ - Эпохи, Герои И Судьбы  2021  [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Царство диких людей  05:01 
+ 02. Эра пустоты  05:43 
+ 03. Без потерь  04:46 
+ 04. Город-призрак  04:35     Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8BFA9ED10D22504BEB440C74BC6ED0AB165399AA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1446980.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 445 688
+
+VA - Трибьют Сергей  Чиж  Чиграков  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Василий Уриевский - День рождения
+2. Мураками - О.К.
+3. РокфоР - Скучная история  Крокодил 
+4. Дядя Ваня - Я подобно собаке    Читать дальше...    Жанр: RockПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A129A44F67E02FEE578BF26D2D643A5FF44FAA96
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1445688.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 445 286
+
+Виталий Дубинин, Сергей Маврин - Герой асфальта 2021  2021  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Герой асфальта 2021Жанр: RockПродолжительность: 00:05:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D6D139C6364BEC077EEA2CE04E467B75AC2C957
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1445286.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 445 285
+
+Ploho - Фантомные чувства  2021  [MP3|320 Kbps] <Post Punk, New Wave>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Между нами
+2. Прости
+3. Добрые люди
+4. Камни    Читать дальше...    Жанр: Post Punk, New WaveПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9FD652F3F513D68F254ACD63E7FA5FE413CE423
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1445285.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 445 229
 
 ЧайФ - Оранжевое настроение-III  2021  [MP3|320 Kbps] <Rock>
@@ -1850,131 +1972,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430296.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 429 809
-
-Ночные Снайперы - REMIXES  2020  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. актриса  remix 
-2. инстаграм  remix 
-3. раскаленные  remix 
-4. нелюбовь  remix     Читать дальше...    Жанр: RockПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D6427CEF208B9BCF357D3362749D4BAD3D5DE33D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1429809.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 429 553
-
-Харизма - Делай рок  2020  [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Цусима
-2. Царь  Интро 
-3. Верный
-4. Прав или нет  Интро     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BBBE1C3D7376D981C3B41FC11D96531265433883
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1429553.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 429 551
-
-#####  5diez  - Новые пророки  2020  [MP3|320 Kbps] <Nu-Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Кибер-диктат
-2. Новые пророки
-3. Холивар
-4. Джохацу    Читать дальше...    Жанр: Nu-MetalПродолжительность: 00:22:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9BBF127A0C7D2801A0193AF7F88DB8216DE464FE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1429551.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 428 855
-
-Дайте два - Золото  2020  [MP3|320 Kbps] <Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Джекилл и Хайд
-2. Против всего
-3. В роуминге
-4. Свитер с оленями    Читать дальше...    Жанр: AlternativeПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:040ACEBD9C6026194A3C0C8AD1E02E7A60703CA0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428855.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 428 851
-
-Мумий Тролль - ПОСЛЕ ЗЛА  2020  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Солист
-2. Собаки
-3. Лира
-4. Лето без Интернета    Читать дальше...    Жанр: RockПродолжительность: 00:26:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B18D50BEBD401129CB8AEA91EAF557889764B6C1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428851.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

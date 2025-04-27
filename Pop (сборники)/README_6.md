@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 738 470
+
+Макс Фадеев - Танцуй На Битом Стекле (1992) Reissue, 1998,  J.S.P. [WavPack|Lossless|image + .cue] <
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Время Диких Зверей
+ 02. Иди На Свет
+ 03. Кокаин
+ 04. Иди!(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A9039C533900A311269A876CE16237232DF0FB2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738470.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 460
+
+VA - ZYX Italo Disco Dub Versions (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Paul Paul - Good Version (Instrumental) 05:06
+02. Ken Laszlo - Tonight (Instrumental) 05:41
+03. Swan - Don't Talk About It (Instrumental) 06:11
+04. Felli - Diamond In The Night (Instrumental) 05:24(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:20:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1159B2C786C615F7539EEC01CD7A1AC542997587
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738460.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 394
+
+Fun Fun - Have Fun! & More... (2006) Remastered [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Hi N
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Give Me Your Love
+02. Sing Another Song
+03. Tell Me
+04. Living In Japan(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Hi NRGПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:72C99E05273DAD3E9811C3E30B64329841601E92
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738394.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 283
+
+Various Artists - Emozioni 2 (2007) [WavPack|Lossless|image + .cue] <Easy Listening, Italiano Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Fausto Leali – Bagno d'amore
+ 02. Ann Chigi – La regina delle api
+ 03. Flavia Fortuneto – Rincontrarsi
+ 04. Enzo Belmonte – Piccola canzone(   Читать дальше...   )Жанр: Easy Listening, Italiano PopПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0E045A04241D6282C08F29F04DFCFBD6F744850
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738283.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 258
+
+VA - Crazy Disco Show Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Sir Easy D. - Don't You Ever
+02. Corona - The Rhythm Of The Night
+03. Vangelo - Can U See
+04. Bliss Team feat. Jeffrey Jey - Go!(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE1ECB4B5DB4833E66FB8440778B2D42EDD99927
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738258.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 231
+
+VA - Twelve Inch Eighties Can You Feel It (2016) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Jacksons - Can You Feel It
+02. Odyssey - Inside Out (12? Version)
+03. Imagination - Body Talk (Album Version)
+04. Alexander O'neal - (What Can I Say) To Make You (Hateful Club Mix)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 03:22:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90A86AB28E86D3810C29DC8FBE1BDB09F6A78778
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738231.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 188
+
+Fancy - Greatest Hits & Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodisco, Eurodance, Pop>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Chinese Eyes (3:51)
+02. Flames Of Love (3:38)
+03. Fools Cry (3:46)
+04. Lady Of Ice (3:00)(   Читать дальше...   )Жанр: Eurodisco, Eurodance, PopПродолжительность: 02:08:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:648C683DF01AFB9170BF35E6832FA6D3DAC97A63
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738188.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 090
+
+VA - Super Hits 80's Volume 1 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italodance>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Boney M. - Happy Song
+02. Modern Talking - Atlantis Is Calling (S.O.S. for Love)
+03. Kelly Family - Who’ll Come With Me (David’s Song)
+04. Spagna - Call Me(   Читать дальше...   )Жанр: Electronic, Pop, ItalodanceПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:062A61F7DD9A4AC9A2839775BDE42E94D00E0A47
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738090.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 082
+
+Алла Браун - 9 Albums (2023-2024) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+Алла Браун - 2023 - Грешная любовь
+Алла Браун - 2023 - Лучшие хиты
+Алла Браун - 2023 - Май(   Читать дальше...   )Жанр: PopПродолжительность: 9 CD, 03:50:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B65CB5B418CB2B2F1868FCF0970027D42CF7934B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738082.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 737 993
+
+Пётр Лещенко - Любимые песни (2024) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01 - Всё, что было [00:02:49]
+02 - У самовара [00:03:01]
+03 - Моё последнее танго [00:03:12]
+04 - Чёрные глаза [00:03:12](   Читать дальше...   )Жанр: PopПродолжительность: 01:22:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E9B0940C0B41FA17E731B6BEF8DF5B4087AF460F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737993.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 737 990
+
+Вадим Ягала - Мой цветок (2024) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Под твоим окном сирень цветёт [00:03:59]
+02 - С тобой [00:03:56]
+03 - Я летал в облаках [00:05:18]
+04 - Мой цветок [00:04:28](   Читать дальше...   )Жанр: PopПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3400CB91322875C38926522DF0CC7E0A68E25AEB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737990.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 737 973
 
 Игорь Кибирев - Перекрёстки (2024) [MP3|320 Kbps] <Pop>
@@ -1719,281 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731779.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 448
-
-Cream & Sugar - Cream & Sugar (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Just Like You Do Always (4:21)
-02. Sweet ''Cafe'' Song (7:02)
-03. Loosen' Up (3:26)
-04. Dance On America (3:34)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FA92574BB13F1C9DC19356C32F1B07EFE7FC3C14
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731448.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 369
-
-VA - DJ Hits Vol. 87 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Black Machine - U Make Me Come A Life.(Simply Mix)
-02. Dana E - I Only Wanna Be With You.(Cube Version)
-03. Maxima - You Set My World On Fire.(Radio Mix)
-04. Joyce Sims - Who's Crying Now(Radio Version)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5CC1B7326F86C61508C3D2AC1933A1DE279BC159
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731369.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 367
-
-VA - DJ Hits Vol. 82 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Rotation - Let The Music Play (RadioVideo Mix)
-02. Coming Out Grew - Free, Gay & Happy (Deep Throat Edit)
-03. Pet Shop Boys - Se A Vida E (That's The Way Life Is) (Single Version)
-04. 911 - Body Shakin (Radio Edit)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B9CC284CB98002BB5B111DD4B616DA30563C749B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731367.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 314
-
-VA - DJ Hits Vol. 81 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. The Beloved - Easy To Pressure
-02. Coolio - It's All The Way Live (Now)
-03. C.O.D. - Funk Me
-04. New Edition - Hit Me Off(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:357EF5CAC84F89BC18FB99B9137528DAB9F715AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731314.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 310
-
-VA - DJ Hits Vol. 80 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Black Groove - Jumping Upside Down
-02. Maxi Priest - That Girl feat. Shaggy
-03. Nightcrawlers - Keep On Pushing Our Love feat. John Reid & Alisha Warren
-04. Umboza - Sunshine(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4F14EB595647C401AA126BDB8CE5E7481C4726A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731310.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 307
-
-VA - DJ Hits Vol. 78 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Freshmaker - Cry For Love
-02. Dreamer - The Adventures Of David Balfore
-03. Caballero - Love Is A Shield (Spinx Mix)
-04. General Base - Thank U (For Your Love)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9544AAE3DA5D848215D1E16996842F3E0A2FA5C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731307.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 209
-
-VA - DJ Hits Vol. 77 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Bushman - No 1 Else
-02. Sold Out - Hey Hoh (12' Eurodance Mix)
-03. Gale Robinson - Love, Joy & Passion
-04. K.C. Flightt - Bang! (Mixmaster Club - F. Edit)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EB9D4999AFCFCF03CF93335511890B3426D38F02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731209.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 199
-
-VA - DJ Hits Vol. 70 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Captain Jack - Soldier, Soldier
-02. Whigfield - Sexy Eyes
-03. Sqeezer - Blue Jeans
-04. Blue System - Only With You(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3CECAEB2D9AAB608EAC2B4D4DBE708AF30015CCE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731199.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 166
-
-Мираж - Звёзды нас ждут (1987) Reissue, 1999, JAM Group International [OGG Vorbis|480 Kbps] <Electro
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Солнечное лето
-02. Звезды нас ждут
-03. Безумный мир
-04. Я не хочу(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2172C250AFAC01097D9776C4342B5F97DF8715E6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731166.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 131
-
-VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Techno>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Scooter - Rebel Yell
-02. Awex - Wicked Plasticman
-03. Klubbheads - Klubbhapping
-04. Blьmchen - Boomerang(   Читать дальше...   )Жанр: Electronic, Euro House, TechnoПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14D051CE0D667D9DE5F8D3F8C6836773DB1D7D02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731131.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 025
-
-Leah Kate - Super Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Super Over (2:45)
-02. Space (2:49)
-03. Unbreakup (3:18)
-04. Desperate (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AB33419368225BDAF36DE31C1DDFB0B26164D728
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731025.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 763 557
+
+Ундервуд & К. Хабенский - Проект О. Часть 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Часовые любви
+2. Давайте восклицать...
+3. Не бродяги, не пропойцы…
+4. Песенка о Моцарте(   Читать дальше...   )Жанр: RockПродолжительность: 00:18:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBA0AE75FE203FC8664749C7E906C98BDA59589F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1763557.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 763 553
+
+Ундервуд & К. Хабенский - Проект О. Часть 2 (2024) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Часовые любви
+2. Давайте восклицать...
+3. Не бродяги, не пропойцы…
+4. Песенка о Моцарте(   Читать дальше...   )Жанр: RockПродолжительность: 00:18:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7FD265BCDAB64FFCE0E28C37AAEFDE0301948C99
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1763553.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 763 069
+
+Сансара - OBLAKODER (2024) [MP3|320 Kbps] <Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Вода-Вино
+2. Сон уральца
+3. Мы все уйдём по одному
+4. Алкоголь Москва Круглосуточно(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FF33E8A1E7EE464D1D50F6539D40C20F651AC6C3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1763069.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 763 065
+
+Ленинград - Синяя Богиня (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Дела
+2. Эксклюзив
+3. Богиня
+4. Гусь(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1F3DFEAC36F7AC448AC87E785CDB963EE9CC9E73
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1763065.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 763 009
+
+Нуки - Терапия (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Миллионы
+2. Зомби-зомби
+3. Не нужны
+4. Хочу быть звуком(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE6F142F11814B2249C3282F0B64D1B0470D1444
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1763009.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 763 008
 
 Нуки - Терапия (2024) [MP3|320 Kbps] <Alternative Metal>
@@ -1858,131 +1983,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751831.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 751 798
-
-Борис Гребенщиков - √☼ (Square Root Sun) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Ангел
-2. Плохая Песня
-3. Бог Зимогоров
-4. У Нимфодоры(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3634BF45EA150470A0E38BEFC2E027DA1D2782BD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751798.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 751 796
-
-Александр Барыкин - Неизданное (2024) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Москва - Нью-Йорк
-2. Что же ты не рад
-3. Возвращайся, солнце
-4. Джульетта(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A7C411DD336A88DA28CF10BB339D1BB943D510B6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751796.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 751 795
-
-Танцы Минус - Дальше будет (2024) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Не рассказывай
-2. Косы
-3. Дальше будет
-4. Алтайка(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A2625F69BAC865E996784B68998B3085CE4E1C72
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751795.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 751 794
-
-Борис Гребенщиков - √☼ (Square Root Sun) (2024) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Ангел
-2. Плохая Песня
-3. Бог Зимогоров
-4. У Нимфодоры(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75253A6D33132BBCE694D4769A73A2572A4ACF56
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751794.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 751 739
-
-Калинов Мост - Дастояр (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Ребенком звонким
-02. Сон наградой
-03. Одинокий мир
-04. Белая вода(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:93B4AB659631AA93A33F65852C6B0E29B2BA90BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751739.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

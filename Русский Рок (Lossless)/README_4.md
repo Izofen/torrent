@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 720 812
+
+Солнышко - 3 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Sludge Metal, Doom Metal
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. I: Стерт (Intro) [00:01:02]
+02. II: Распят [00:06:30]
+03. III: Утоплен [00:05:12]
+04. IV: Раздавлен [00:07:42](   Читать дальше...   )Жанр: Black Metal, Sludge Metal, Doom Metal, IndustrialПродолжительность: 3 CD, 01:57:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FB8044F3B185FCDD87C66965BB9E5D8059B7F035
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1720812.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 720 777
+
+Allcharters - AllCharters (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcore>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Песня подкроватных монстров [00:03:17]
+02. Лжизнь [00:03:50]
+03. Лето [00:04:04]
+04. Прятки [00:04:00](   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:27:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EB7CE7B779807CBEF70C084011E1E309081B06C8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1720777.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 720 730
+
+Депрессивный Психоз - Карма носит ирокез (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Reggae, S
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Карма носит ирокез [00:05:31]
+02. Ядрёный октябрёнок [00:03:05]
+03. С финансами не чётко [00:03:19]
+04. КГБ [00:03:10](   Читать дальше...   )Жанр: Indie Rock, Reggae, SkaПродолжительность: 00:23:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FAA5FB6AB48A2E55B1105609D8C88B1059BF8E94
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1720730.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 720 723
+
+Имбирный DED - Час пик (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Две белых полосы [00:03:55]
+02. Час пик [00:04:06]
+03. Капитан [00:03:41]
+04. Когда [00:04:27](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:731B64829B7633958B19FFB1C73F3AB1D65C50A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1720723.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 720 609
+
+soundlea - Юность под землёй (2024) [MP3|320 Kbps] <Indie Rock, Slacker Rock, Emo Punk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Внезапное воспоминание о лете [00:03:09]
+02 - По шоссе [00:03:08]
+03 - Ближе [00:02:42]
+04 - Мусорная шлюха [00:02:50](   Читать дальше...   )Жанр: Indie Rock, Slacker Rock, Emo PunkПродолжительность: 00:36:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FEEE0CBA7C493ED900CC45B5CFCF2C45D7E5C681
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1720609.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 720 606
 
 Рэтор - Мы останемся... (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -1862,131 +1987,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708771.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 708 769
-
-Слот - Мэшап  2024  [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Танцуй, Вселенная  feat. 7000$ 
-2. Марсово поле  feat. Нейромонах Феофан 
-3. Северный Слот  feat. Северный Флот 
-4. Жесть и чернуха  feat. ТАйМСКВЕР & Гарри Топор     Читать дальше...    Жанр: AlternativeПродолжительность: 00:28:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8282997BC790D5AEB6C59A8AF667EB9F59806780
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708769.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 708 680
-
-Слот - Мэшап (2024) [MP3|320 Kbps] <Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Танцуй, Вселенная (feat. 7000$)
-2. Марсово поле (feat. Нейромонах Феофан)
-3. Северный Слот (feat. Северный Флот)
-4. Жесть и чернуха (feat. ТАйМСКВЕР & Гарри Топор)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:28:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A84DDB3C636375C39C9CAAEF4AC5BFA2233A77BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708680.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 708 623
-
-The Aquarius - Страшные сказки (2017) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Туда и обратно 02:19
-02. У дракона на спине 03:14
-03. Записки маньяка 05:15
-04. На северо-юг 05:09(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6B912602F97155E486B41FA6C97A828D7368426E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708623.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 708 615
-
-Trust X - Перевёрнутые Сны  2017  [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Очнись ото сна 04:45
-02. Верни свою жизнь 04:37
-03. Перевёрнутые сны 07:01
-04. Мы ещё вернёмся 06:19    Читать дальше...    Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6778DDEBCE4BE5049F2F590101F9CD368FE96A19
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708615.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 708 608
-
-Схоластика - На Абордаж (2013) Reissue, 2018, Narcoleptica Prod; More Hate Productions; United By Ch
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. На абордаж 03:26
-02. Самоволка 05:23
-03. Рокенрол, В.М. 04:20
-04. Я не устал 04:38(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:07FE918F54092368419075F0BAE1FC992E427C29
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708608.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

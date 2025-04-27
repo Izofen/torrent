@@ -1,4 +1,208 @@
 ﻿
+###  Публикация: 1 598 981
+
+H.E.A.T - Studio Albums  7 releases   2008 - 2022  hand made [restored, declipped] [FLAC |16
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+H.E.A.T — шведская рок-группа из Upplands Väsby, играющая в стиле Melodic Rock и AOR.
+Группа возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году был выпущен дебютный альбом H.e.a.t.
+Группа выступала на Melodifestivalen 2009 — шведском этапе Евровидения - но не одержали победу в финале.
+После долгих летних     Читать дальше...    2008 - H.E.A.T
+2010 - Freedom Rock
+2012 - Address The Nation
+2014 - Tearing Down The WallsЖанр: Arena Rock, Hard RockПродолжительность: 06:09:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F67D57393B9F7B51789D45C7B56DF307AC85CAC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598981.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 598 761
+
+Sunstorm - Studio Albums  7 releases   2006 - 2022  hand made [restored, declipped] [FLAC 2.
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Sunstorm — американский музыкальный проект AOR , первоначально в котором участвовали ведущий вокалист Джо Линн Тернер, басист вокалист Деннис Уорд , клавишник Йохен Вейер, а также гитарист Уве Рейтенауэр и барабанщик Крис Шмидт. В альбомах также участвовали такие исполнители, как Дэнн Хафф и Джим Петерик , в качестве дополнительных авторов песен.2006 - Sunstorm
+2009 - House Of Dreams
+2012 - Emotional Fire
+2016 - Edge Of Tomorrow    Читать дальше...    Жанр: Melodic Heavy Metal Hard RockПродолжительность: 06:03:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0C84ACC8EAF2E56EBCB4407ADD534444459A811A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598761.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 598 626
+
+Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made [restored, declipped
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Ронни Аткинс (имя при рождении - Пол Кристенсен, 16 ноября 1964 года) - датский певец, наиболее известный как соучредитель, ведущий вокалист и основной автор песен хэви-метал группы Pretty Maids2021 - One Shot
+2021 - 4 More Shots (The Acoustics) (EP)
+2022 - Make It Count
+2023 - TrinityЖанр: Hard Rock, Heavy MetalПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7D67D9705AEE695FE8DEBAE596892AD2401AAE73
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598626.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 598 477
+
+Negative - Studio Albums  6 releases   2003 - 2010  hand made [restored, declipped] [FLAC 2.
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Negative — финская глэм-рок-группа, основанная в конце 1997. Уже на первых ступенях своего пути Negative получила репутацию живой группы, которая даёт публике запоминающиеся мелодии и риффы гитары. Звучание группы сравнимо с ранними исполнителями глэм-рока и группами как David Bowie и Queen. Сама группа называет свой стиль «эмоциональный rock’n’roll». В последние     Читать дальше...    2003 - War Of Love
+2004 - Sweet And Deceitful
+2006 - Anorectic
+2008 - Karma KillerЖанр: Glam Rock, Hard RockПродолжительность: 05:32:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:82DBE18EB7CD94DC5496D2003782CE9E21B1C26F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598477.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 598 370
+
+HIM - Studio Albums  10 releases   1997 - 2013  hand made [restored, declipped] [FLAC 2.0|44
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+HIM — финская рок-группа, созданная в 1991 году вокалистом Вилле Вало, гитаристом Микко Линдстремом и басистом Микко Паананеном. Первоначальное название коллектива было His Infernal Majesty  Его дьявольское Величество , но его заменили аббревиатурой HIM, когда начались обвинения в пропаганде сатанизма. Некоторое непродолжительное время во время гастролей по США и     Читать дальше...    1997 - Greatest Lovesongs Vol. 666
+2000 - Razorblade Romance
+2001 - Deep Shadows And Brilliant Highlights
+2003 - Love Metal    Читать дальше...    Жанр: Gothic Rock, Gothic MetalПродолжительность: 10:13:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9CE846906E176701A8A43C083589F4D1D55E0035
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598370.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 597 443
+
+Fozzy - Studio Albums  8 releases   2000 - 2022  hand made [restored, declipped] [FLAC 2.0|4
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Fozzy — американская хэви-метал группа.
+В 1999 году рестлер Крис Джерико и гитарист группы  Stuck Mojo  Рич Уорд создали кавер-группу  Fozzy Osbourne . Вскоре название сократилось до  Fozzy , а в 2000 году на лейбле  Megaforce Records  вышел одноименный дебютный альбом.2000 - Fozzy
+2002 - Happenstance
+2005 - All That Remains
+2009 - Chasing The GrailЖанр: Heavy Metal, Hard RockПродолжительность: 06:20:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:46559443E0979F542F4D933AF84E9D407EA52E82
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597443.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 795
+
+Nordic Union - Studio Albums  3 releases   2016 - 2022  hand made [restored, declipped] [FLA
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+За названием  Nordic Union  скрывается созданный президентом компании  Frontiers Records  Serafino Perugino совместный проект Ронни Аткинса  Ronnie Atkins  из легендарной датской мелодик-хард н хэви группы  Pretty Maids  и подающего большие надежды шведского автора песен и продюссера Эрика Мартенсона  Erik Martensson  известного по таким     Читать дальше...    2016 - Nordic Union
+2018 - Second Coming
+2022 - Animalistic
+.Жанр: Melodic Heavy Metal Hard RockПродолжительность: 02:15:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9864A331F5B3E71184626604B124A9E0ACD6B449
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596795.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 596 711
+
+Audioslave - Studio Albums  3 releases   2002 - 2006  hand made [restored, declipped] [FLAC
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Audioslave — супергруппа, состоявшая из бывших инструменталистов группы Rage Against the Machine Тома Морелло  гитарист , Тима Коммерфорда  бас-гитарист и сопровождающий вокал  и Брэда Уилка  ударные , а также Криса Корнелла  бывший ведущий вокалист и ритм-гитарист группы Soundgarden  в качестве ведущего вокалиста. Группа сформировалась после распада Rage Against     Читать дальше...    2002 - Audioslave
+2005 - Out Of Exile
+2006 - Revelations
+.Жанр: Hard Rock, Post-GrungeПродолжительность: 03:15:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596711.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 596 639
 
 Tarja  Nightwish  - Studio Albums  5 releases   2007 - 2019  hand made [restored, declip
@@ -1805,206 +2009,6 @@ Mr. Tambourine Man
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574673.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 574 145
-
-Breaking Benjamin - Studio Albums  8 releases   2002 - 2020   hand made [restored, declipped
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Breaking Benjamin — американская альтернативная рок-группа из города Уилкс-Барре, основанная в 1998 году.2002 - Saturate
-2004 - We Are Not Alone
-2006 - Phobia  Asian Edition 
-2010 - Dear AgonyЖанр: Hard Rock, Post-Grunge, Nu MetalПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:19D080D0B3674103960C95AD979E7057B0A61E50
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574145.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 515
-
-Lake of Tears - Studio Albums  9 releases   1994 - 2021  hand made [restored, declipped] [FL
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Lake of Tears  с англ. — «Озеро слёз»  — шведская группа, играющая в жанрах готик-метал и дум-метал с элементами психоделического рока и прогрессивного метала.1994 - Greater Art
-1995 - Headstones
-1997 - A Crimson Cosmos
-1999 - Forever AutumnЖанр: Doom Gothic MetalПродолжительность: 06:18:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:48B2686D3E950699D7DFEE40C0A0AF91CE42D1DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573515.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 094
-
-Chimaira - Studio Albums  1999 - 2013  hand made [restored, declipped] [FLAC 2.0|44 16|tracks
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Chimaira  kaɪˈmɪərə  — американская грув-метал группа из Кливленда, Огайо, существовавшая с 1998 по 2014 год. Являлась представителем Новой волны американского хеви-метала. Музыкальный стиль группы сочетает грув-метал с элементами металкора. Название группа взяла из греческого написания слова «химера»  Χίμαιρα ,     Читать дальше...    1999 - This Present Darkness  EP 
-2001 - Pass Out Of Existence
-2003 - The Impossibility Of Reason
-2005 - ChimairaЖанр: Groove Nu-Metal MetalcoreПродолжительность: 08:46:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:15E93F0FDC99144E2A0CFE9E34A0F3F797E6DE39
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573094.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 826
-
-Disturbed - Studio Albums  8 releases   2000 - 2022  hand made [restored, declipped] [FLAC 2
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Disturbed — американская метал-группа, образованная в городе Чикаго  штат Иллинойс  в 1994 году под названием «Brawl». В 1996 году меняет своё название на «Disturbed», тогда в группу входили Дэн Дониган, Стив Кмак, Майк Венгрен и Дэвид Дрейман. С момента формирования группы они продали около 35 миллионов копий альбомов во всем мире, выпустили семь студийных альбомов,     Читать дальше...    2000 - The Sickness
-2002 - Believe
-2005 - Ten Thousand Fists
-2008 - IndestructibleЖанр: Nu Heavy Metal, Hard RockПродолжительность: 07:31:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:86D0FE147C277901E205131F8BF58FE3F9A23333
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572826.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 715
-
-Unleash the Archers - Studio Albums  6 releases   2009 - 2020  hand made [restored, declippe
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Unleash the Archers — канадская метал-группа, основанная в Ванкувере в 2007 году. Группа исполняет смесь традиционного хеви-метала с пауэр-металом и мелодичным дэт-металом.2009 - Behold The Devastation
-2011 - Demons Of The AstroWaste
-2015 - Time Stands Still
-2017 - ApexЖанр: Heavy Power Metal, Melodic Death MetalПродолжительность: 05:10:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5D52BFC4E48E6BF1B8D3102956F1355FA7544F2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572715.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 611
-
-Europe - Дискография  14 albums   1983-2017  hand made [restored, declipped] [FLAC 2.0|44 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Europe — шведская рок-группа, основанная вокалистом Джоуи Темпестом и гитаристом Джоном Норумом. В первый период существования группа относилась к жанру глэм-метал, но после возрождения перешла на современные хард-рок и хэви-метал.1983 - Europe
-1984 - Wings of Tomorrow
-1986 - The Final Countdown
-1988 - Out of This World    Читать дальше...    Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 12:58:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E1E4070308C69FA7EA93A66BD1ACB0DBB28783E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572611.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 601
-
-Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Myrath (араб. ميراث‎, наследие) — ориентал-метал-группа, основанная в 2001 году в Тунисе.2005 - Double Face
-2007 - Hope
-2010 - Desert Call
-2011 - Tales of the SandsЖанр: Oriental Progressive Metal, Power MetalПродолжительность: 07:44:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572601.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 589
-
-Seether - Studio Albums (10 releases) (2000 - 2021) hand made [restored, declipped] hand made [resto
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Seether — рок-группа, сформированная в ЮАР в мае 1999 года. Группа выступала под названием Saron Gas до 2002 года, когда было принято нынешнее название.2000 - Fragile (as Saron Gas)
-2002 - Disclaimer
-2004 - Disclaimer II
-2005 - Karma And EffectЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 09:32:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DFC44311DCF6F239DF69C525A2C8AD4ADA074450
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572589.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

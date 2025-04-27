@@ -1,4 +1,201 @@
 ﻿
+###  Публикация: 1 717 775
+
+Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Spectre Of Devastation
+02. Pestilence
+03. Rat King
+04. Left To Rot(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2824F01F2C95FC9787A4AA945F737EE835F2DD44
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1717775.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 717 401
+
+Виталий Дубинин - Бал-Маскарад (3 издания) (2022-2023) hand made [restored, declipped] [FLAC |16/44.
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Бал-Маскарад - сольный проект Виталия Дубинина с участием Сергея Маврина и Михаила Бугаева (Гран-Куражъ)2022 - Бал-Маскарад
+2023 - Live-маскарад
+2023 - Бал-Маскарад. ПостскриптумЖанр: Heavy Metal, Hard RockПродолжительность: 02:16:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C1003AE418AA6C52FD362413FC35BAE7970E9DB1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1717401.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 716 779
+
+Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <He
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1:
+01. Heart Of Steel
+02. Garden Party
+03. Let My Of Myself(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:95CB92998D1079A31829EBE1339C27B851B056E8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1716779.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 716 321
+
+Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Pop, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 I'm In The Mood For Dancing
+A2 Spirit, Body And Soul
+A3 Out Of Love With Love
+A4 Bright Eyes(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:07EC8D2C89127596138BE1695609EE8CF166CB91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1716321.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 716 189
+
+Хаме-леоН - Студийные альбомы  5 изданий   2013-2024  hand made [restored, declipped] [FLAC
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Хаме-леоН — российская пауэр-метал-группа из Курска.2013 - Попробуй на вкус эту душу!
+2016 - Ночь шальных машин в городе тьмы
+2020 - К.О.Д
+2022 - Крики!Жанр: Heavy Power MetalПродолжительность: 05:09:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C925C43513A5D6ADC300B8DBB208AD210E064B78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1716189.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 715 848
+
+S-Tool  Severing Tool  - Studio Albums  2 releases   2017-2020  hand made [restored, dec
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+S-Tool  или Severing Tool  — финская хэви-метал группа, базирующаяся в Оулу Лахти Хельсинки. Основана в 2015 году бывшим фронтменом2017 - Tolerance 0
+2020 - ExitusЖанр: Groove MetalПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8980719678D04F84F44C138422433D0A65FC56F8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715848.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 715 639
+
+Poisonblack - Studio Albums (6 releases) (2003-2013) hand made [restored, declipped] [FLAC |16/44.1|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Poisonblack — финская метал-группа, возглавляемая бывшем фронтменом2003 - Escapexstacy
+2006 - Lust Stained Despair
+2008 - A Dead Heavy Day
+2010 - Of Rust And BonesЖанр: Heavy/Groove/Gothic MetalПродолжительность: 05:22:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4C2594363B9035A13F3A27CFCB0A75CF11EE2FD1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715639.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 714 946
+
+Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tr
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Periphery — американская группа, играющая в жанре прогрессивный метал. Возникла в 2005 году в городе Бетесда. Группа популяризовала современный прогрессивный метал, в особенности поджанр джент.2010 - Periphery
+2011 - Icarus (EP)
+2012 - Periphery II: This Time It's Personal
+2014 - Clear (EP)Жанр: Progressive/Math Metal, DjentПродолжительность: 08:15:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BFC09D39B5C765154131DE943D3A59AD10BBD084
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1714946.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 714 835
 
 Storm - Nordavind (1995) [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking, Folk Metal>
@@ -1792,206 +1989,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708171.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 708 169
-
-VA - Эстрадная орбита (1974) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1:
-01. Волшебники (Капуано) — Шейла
-Les rois mages (L. Stott, G. Capuano, M. Capuano – C. Carrere, J. Schmitt) — Sheila 1971
-02. Беззаботный (Д. Хартфорд) — Элвис Пресли(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A39791309F904E0D8D047E95DAFCD43EF6E69010
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708169.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 707 846
-
-VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1.
-01. Байконур (нар. мелодия) – "Гунеш"
-02. Двадцать третий век (Д.Тухманов – С.Кирсанов) – "Веселые ребята"
-03. Колыбельная (О.Фельцман) – "Мелодия"(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:362FEC8518B298EFCCBD0863A8736D22758C888E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707846.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 707 844
-
-VA - От мелодии к мелодии (5 серия) - Концерт итальянской эстрады (1960) [FLAC 24/96|Lossless|tracks
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Карина (Поэс);
-02. Нет (Пинбени);
-03. Синьор (Мустаки);
-04. Донна (Крамер);(   Читать дальше...   )Жанр: Pop, Retro, ItaloПродолжительность: 00:16:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FEACDB4145B524CA3CB294A092BD2825C47152FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707844.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 707 843
-
-Давид Тухманов. Александр Барыкин - Ступени (1985) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1:
-01. Ступени (Д.Тухманов - И.Кохановский)
-02. Элегия (Д.Тухманов - И.Кохановский)
-03. Но все-таки лето! (Д.Тухманов - В.Харитонов)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75090211A0F7566C92B566FC3D3FB67DB392F90D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707843.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 707 834
-
-Группа "Лабиринт" - Возьми мое сердце. Песни Сергея Муравьева (1988) [FLAC 24/192|Lossless|tracks] <
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1:
-01 - Обещаю (С. Муравьев — Л. Козлова)
-02 - Горизонт (С. Муравьев — Л. Козлова)
-03 - Возьми мое сердце (С. Муравьев — Л. Козлова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:41C5A92C810EFB082E0C0779B98530F1E9DB149E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707834.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 707 832
-
-Группа «Маки» - Одесса (1988) [FLAC 24/192|Lossless|tracks] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-01. Одесса (В. Матецкий — М. Танич)
-02. Так случилось (В. Матецкий — М. Шабров)
-03. Когда, когда (В. Добрынин — Л. Дербенев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F71F79F5739AE2FBB65E834F0709359F539181A8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707832.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 707 767
-
-Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Transilvanian Hunger
-A2 Over Fjell Og Gjennom Torner
-A3 Skald Av Satans Sol
-A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707767.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 707 660
-
-M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Land Of The Free
-A2 Devolution
-A3 Repent
-A4 The Angry Man(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80DB94CAB33BABA1A705F146B9CFEAD888DB5471
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707660.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

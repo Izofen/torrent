@@ -1,4 +1,277 @@
 ﻿
+###  Публикация: 1 301 192
+
+Music Sun Love - Mo  Horizons  2019  [FLAC|Lossless|WEB-DL|tracks] <Groove, Jazz, World, Latin
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Wagabunga Dance  feat. Stoyan Royanov 
+02. Rhythm Is A Dancer  feat. Conneccíon Bogotá 
+03. Mo Space  Part 2   feat. Tricky Pantrick 
+04. La Vida Es Solo Hoy  feat. Ivan Camelo     Читать дальше...    Жанр: Groove, Jazz, World, LatinПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D0BB781F1CBE1A8FCDDDD3A066E93E6F0E3B22CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1301192.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 769
+
+Sarah Brightman - Hymn   World Tour Limited Edition   2019  [FLAC|Lossless|tracks + .cue] <P
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Hymn Overture  00:01:02 
+02. Hymn  00:04:27 
+03. Sogni  00:04:18 
+04. Sky and Sand  00:04:12     Читать дальше...    Жанр: Pop, Classical CrossoverПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6471B9E2E6C29B626D02CF8E51FB66DD05106762
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300769.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 646
+
+VA - Energy Hits 2019  2019  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 01:
+
+01. Dermot Kennedy - Power Over Me
+02. Ava Max - Sweet but Psycho    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:24:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5C4FEB1D55D628CC666483A5060C81E53FFFE9D1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300646.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 601
+
+Крис Кельми И Рок-Ателье - «Замыкая круг» & «Мы знаем»  2003  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+«Замыкая круг» 1986
+
+01. Не торопись  04:29 
+02. Человек-часы  04:27     Читать дальше...    Жанр: PopПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A37F582835533C9BC58C761B74DB97D89F82CDA0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300601.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 598
+
+АЛЕКСИН - Платиновая Коллекция  2005  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Вверх-вниз  feat. Горячие головы   03:32 
+02. Папочка, папа.  feat. Колючки   03:22 
+03. Шалавы  04:46 
+04. Мозоли  03:29     Читать дальше...    Жанр: PopПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:385BF68FD2D3539CEAD86DD805A73651E72262E8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300598.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 541
+
+Cyclades - Fire To Desire  1979  12   [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Продюсер и аранжировщик - Max Berlin.01. Fire To Desire  6:46 
+02. Ah! Ah!...Encore  6:19 Жанр: Electronic, DiscoПродолжительность: 00:13:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D62250849C82DE90B4D15E51F04BCE0531D48B6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300541.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 509
+
+Денис Майданов - Командиры  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. ВДВ
+2. Тишина
+3. Танкист-летёха
+4. Командиры    Читать дальше...    Жанр: PopПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:865D7CFAB67C97A3497D2270C384A7D31F803927
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300509.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 235
+
+Vicky Brown - The Collection  1993  [FLAC|Lossless|image + .cue] <Pop, Classical Crossover>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Can t let go  4:16 
+02. The nearness of you  4:17 
+03. Stay with me til the morning  3:50 
+04. Jesu, joy of man s desiring  3:11     Читать дальше...    Жанр: Pop, Classical CrossoverПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED50949303E9470EFC5D442096A1B89396FB8F3E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300235.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 228
+
+VA - 538 Hitzone 89  2019  [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Ava Max – Sweet But Psycho  03:05 
+02. Calvin Harris & Rag n Bone Man – Giant  03:49 
+03. P!NK – Walk Me Home  02:53 
+04. Duncan Laurence – Arcade  03:03     Читать дальше...    Жанр: Pop, Dance-popПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E8D8595B48B3671695DCD8AA336AA7E95E429EF6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300228.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 152
+
+Barrabas - 3 Albums  1981-1983  2LP+CD [MP3|320 Kbps] <Electronic, Pop, Disco, Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Испанская funk-rock группа. В раздаче представлены наиболее известные альбомы.Список альбомов:
+1981 - Piel De Barrabas
+1982 - Bestial
+1983 - Forbidden    Читать дальше...    Жанр: Electronic, Pop, Disco, Pop RockПродолжительность: 02:06:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DC92119C8EFEFFF7C1DA69C4A28EC613E4542FA5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300152.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 098
+
+Koolmatch - The Album  1999  [FLAC|Lossless|image + .cue] <Euro House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. I Like It, I Luv It
+02. Koolmatch Is Bang Bang
+03. Spirit Of Father
+04. Everyday Life    Читать дальше...    Жанр: Euro HouseПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F5F56994FB1876951A065EB3107D060281B09FE3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300098.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 299 998
 
 VA - Танцы, шманцы, обжиманцы 1  1997  [FLAC|Lossless|image + .cue]<Pop, Dance>
@@ -1717,281 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295618.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 505
-
-VA - The Definitive Harem Records 12     1997  2CD [MP3|320 Kbps] <Electronic, Disco, Hi-NRG
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Диско сборник хитов конца 70х - начала 80х от британского DJ, автора и продюсера Simon Soussan, выпущенных на студии Harem Records  - дочерней фирме  Polydor .01. Pattie Brooks - After Dark  7:57 
-02. Arpeggio - Love And Desire  8:57 
-03. Simon Orchestra - Mr.Big Shot  8:02 
-04. Jessica Williams - Queen Of Fools  8:27     Читать дальше...    Жанр: Electronic, Disco, Hi-NRGПродолжительность: 02:35:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:61031E234E8F0F9FB48DFBD70856DBF02E912E0F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295505.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 479
-
-VA - Sunlover Records Compilation Vol.3 - Italowave  2017  [FLAC|Lossless|WEB-DL|tracks] <Italo-
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. A Space Love Adventure - Let s Go!  3:27 
-02. Andy Fox feat. Miko Low - Days of Love  4:29 
-03. Javarnanda - Pitagora  4:14 
-04. Abobo feat. Veronica - The Rhythm of Life  5:55     Читать дальше...    Жанр: Italo-Disco, Synth-popПродолжительность: 00:29:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B3DAD15352FE6CBD2F210E019EABDCE32EAB725E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295479.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 476
-
-Boris Zhivago - The Best of Boris Zhivago  2019  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eur
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. One day  New Vocal Mix  09:03
-02. In A World Of Fantasy  Vocal Fantasy Mix  06:46
-03. Another Life  Vocal Extended Lost Remix  08:22
-04. Rainy day  New Vocal Mix  06:42    Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 03:00:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AAE8C0F187E4FBF5170C241E6B412A1A9738D345
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295476.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 417
-
-Culture Beat - Inside out  1995  [FLAC|Lossless|tracks + .cue] <Euro House>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-1 Intro 2:24
-2 Walk The Same Line 5:58
-3 Get It Right 4:10
-4 Troubles 5:27    Читать дальше...    Жанр: Euro HouseПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:814AD0E246402F2F3725CA0960E0338DBE82F2C2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295417.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 407
-
-Белый орёл - Всё лучшее в одном  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Потому что нельзя быть красивой такой
-2. Я куплю тебе новую жизнь
-3. Я не хочу тебя ни с кем делить
-4. А я тебя помню    Читать дальше...    Жанр: PopПродолжительность: 01:21:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1CC8E8FD1248DE1728F7448AC2FA1C45BD5F4DA7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295407.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 333
-
-Sara Bareilles - Amidst the Chaos  2019  [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Pop Rock
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Fire  03:49 
-02. No Such Thing  03:57 
-03. Armor  04:27 
-04. If I Can t Have You  04:13     Читать дальше...    Жанр: Pop, Indie Pop, Pop RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81986A3FB5FC03342DF4C5A13CD4CC26DDD92B8B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295333.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 327
-
-VA - Now That s What I Call Music! 102  2019  2CD, UK Series [FLAC|Lossless|tracks + .cue] <Po
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved  3:03 
-02. Lady Gaga & Bradley Cooper - Shallow  3:35 
-03. Keala Settle & The Greatest Showman Ensemble - This Is Me  3:54 
-04. Jess Glynne - Thursday  3:36     Читать дальше...    Жанр: Pop, Dance, ReggaeПродолжительность: 2:38:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:58373F8CC3F9B5B49EDDC88CEBEE8BC01FCF52CC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295327.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 245
-
-Юрий Шатунов - Любимые песни  2019  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. А лето цвета
-2. Белые розы
-3. Седая ночь
-4. Детство    Читать дальше...    Жанр: PopПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A6E06267E9EEF42624C15C3BC0C5F522FC9306DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295245.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 109
-
-Goodnight Suzie - Boombox  2019  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Redheads & Scorpios  04:08 
-02. Wannabe Hipster  02:40 
-03. Sunkissed  02:58 
-04. Boombox  03:01     Читать дальше...    Жанр: PopПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D07D4A128837CAE1306BB67349349B030D194606
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295109.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 024
-
-Юрий Шатунов - Любимые песни (2019) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. А лето цвета
-2. Белые розы
-3. Седая ночь
-4. Детство(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D900FA2FBDC826BAE7F981F8C1AB2B3ADBEFF2C7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295024.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 012
-
-Captain & Tennille - Come In From The Rain  1977  CD, Album, Remastered, 2005, Universal Music S
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Come In From The Rain
-02. Sad Eyes
-03. Let Mama Know
-04. Easy Evil    Читать дальше...    Жанр: Pop, Soft Rock, Female VocalПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D60B13559D39BCED48B51BD38F79F1F787B3B589
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295012.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

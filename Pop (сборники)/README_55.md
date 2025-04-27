@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 316 437
+
+Руки Вверх! - The Best  2013  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+1. Крошка моя
+2. Чужие губы
+3. Я тебя украду
+4. Ну где же вы, девчонки    Читать дальше...    Жанр: PopПродолжительность: 02:03:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E92C3F55E6C605E257E821DF8E41E843024B8977
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316437.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 316 382
+
+Нэнси - The Best  Deluxe Version   2015  Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Чистый лист  5:17 
+ 02. Ива  3:46 
+ 03. Как любил я тебя - Remix  4:50 
+ 04. Серый дождь  3:39     Читать дальше...    Жанр: PopПродолжительность: 04:33:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C82C977D734D547264C20146E1BA368603491A40
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316382.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 316 290
+
+VA - Ministry Of Sound - I Love 00 s  2019  [MP3|320 Kbps] <Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Basement Jaxx - Where s Your Head At
+02. Groove Armada - I See You Baby  Fatboy Slim Radio Edit   feat. Gramma Funk 
+03. Calvin Harris - Acceptable In the 80 s
+04. Justice - We Are Your Friends  Radio Edit     Читать дальше...    Жанр: Pop, Dance, DiscoПродолжительность: 06:48:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:957952C999105C15E692E54DC73180C62726B875
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316290.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 316 289
+
+Of Monsters And Men - FEVER DREAM  2019  [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Alligator  03:04 
+02. Ahay  02:56 
+03. Róróró  04:21 
+04. Waiting For The Snow  03:43     Читать дальше...    Жанр: Indie PopПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C0860860F773BA7954EE8C4509F2D2D5F40F6E8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316289.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 316 210
+
+K.Flay - Solutions  2019  [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. I Like Myself  Most Of The Time 
+02. Bad Vibes
+03. This Baby Don’t Cry
+04. Sister    Читать дальше...    Жанр: Indie PopПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9D039626AFF6D851105996DF469335B431F538DE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316210.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 316 002
+
+Benjamin Gibbard - Bandwagonesque  2017  Death Cab for Cutie [FLAC|Lossless|WEB-DL|tracks] <Indi
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Concept
+02. Satan
+03. December
+04. What You Do To Me    Читать дальше...    Жанр: Indie PopПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D814DC62DA98FA77E30E7487A668C838CD2B85FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316002.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 983
+
+Вячеслав Малежик - Октябрь  2019  [FLAC|Lossless|WEB-DL|tracks] <Pop, Авторская песня>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+1. Однажды  Когда-нибудь 
+2. Ночной звонок
+3. Превратности любви  Про вора 
+4. Бред мой    Читать дальше...    Жанр: Pop, Авторская песняПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F0427AE1F6D6A32C51CC232297A56B06CA8E90B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315983.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 970
+
+Antonia - Dance With Me  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Dance With Me  4:39 
+02. Come On And Samba  4:10 
+03. Besame  7:43 
+04. Las Brisas  4:44     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F61B94619FC77184146D7971900330B5AAE9F347
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315970.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 942
+
+PAUL ANKA - Swings For Young Lovers + My Heart Sings  2013  1958, 1959, 1960, Jackpot Record [FL
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Album - Swings For Young Lovers - 1960
+
+01. Hello, Young Lovers  02:36 
+02. You Made Me Love You  02:36     Читать дальше...    Жанр: PopПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0981E1777F45B90C0DE9B6FE9EC94B16F6B5B050
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315942.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 910
+
+F.R. David - The Best Of  2002  [FLAC|Lossless|image + .cue] <Electronic, Italo-Disco, Synth-pop
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Words  03:26 
+02. Pick Up The Phone  03:10 
+03. Girl  You Are My Song   03:40 
+04. Take Me Back  03:06     Читать дальше...    Жанр: Electronic, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F0DF2B3DCE4750B7AC3EF1F7E2222E169D04827A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315910.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 890
+
+Andrea Schroeder - Where The Wild Oceans End  2014  [MP3|320 Kbps] <Pop-Nuar>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Dead Man’s Eyes
+02. Ghosts Of Berlin
+03. Until The End
+04. Helden    Читать дальше...    Жанр: Pop-NuarПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B333B176880F60CA747EBBF25709F0F5C3FEBF70
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315890.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 315 887
 
 Andrea Schroeder - Blackbird  2012  [MP3|320 Kbps] <Pop-Nuar>
@@ -1715,282 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311407.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 381
-
-Carrara - 2 Albums  1985  LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Alberto Carrara  р. 1958 , наиболее известный как Carrara и King Carrara , итальянский певец, композитор, аранжировщик, музыкальный продюсер и диск-жокей. Родился в Бергамо, Каррара начал свою карьеру в качестве диск-жокея в 15 лет. Музыкант-самоучка, в 1983 году его сингл  Disco King  принес первый успех, а через год он получил свой главный успех хитом     Читать дальше...    01. Dancin  Family  5:53 
-02. Driving  5:03 
-03. Follow Me  5:31 
-04. Welcome To The Sunshine  3:42     Читать дальше...    Жанр: Electronic, Italo-DiscoПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7DFE50E53EF215255597363B51D91298BE1FBDD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311381.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 339
-
-VA - Sternstunden der Volksmusik  2019  [MP3|320 Kbps] <Pop, Schlager>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD 01:
-01. Kastelruther Spatzen;Walter Widemair;Manuela Pirkner;Sepp Safrin - Eine weie Rose
-02. Die Zillertaler - Der liebe Gott muss a Tiroler sein
-03. Slavko Avsenik Und Seine Original Oberkrainer - Trompetenecho    Читать дальше...    Жанр: Pop, SchlagerПродолжительность: 02:19:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:378F24A46C3C927D5031349EAC67CC72B24F153C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311339.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 223
-
-Kylie Minogue - Step Back in Time: The Definitive Collection  2019  [FLAC|Lossless|WEB-DL|tracks
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Can t Get You Out Of My Head
-02. Spinning Around
-03. Love at First Sight
-04. Dancing    Читать дальше...    Жанр: PopПродолжительность: 02:30:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:48110138649C3F6A4580101B3EEDFF8DE3C0BF66
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311223.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 191
-
-Helen Shapiro - Sensational  Uncollected Helen Shapiro   2003  [FLAC|Lossless|image + .cue]
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. A Teenager Sings the Blues
-  02. Blues in the Night
-  03. Are You Lonesome Tonight?
-  04. Tearaway Johnny    Читать дальше...    Жанр: Pop, Blues, SoulПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F3D654E906DBA075A4E95EF6B60D5AEC09504AFB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311191.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 174
-
-Братья Грим - Необитаемый остров  2019  EP [MP3|320 Kbps] <Pop Rock>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Лелею
-2. Ближе
-3. Робинзон
-4. По дороге домой    Читать дальше...    Жанр: Pop RockПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0DE57667CF9D2DBDFFCC11BAB135F06D58705768
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311174.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 090
-
-VA - Top Of The Pops  1983  2017  Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1980s, Pop, Rock
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Возвращаемся к продолжению путешествия по победителям топов прошлого века  ссылки на предыдущие релизы смотрите внизу .
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского     Читать дальше...    CD1
-01. Duran Duran - Is There Something I Should Know   4:11 
-02. Kajagoogoo - Too Shy   3:45 
-03. The Human League -  Keep Feeling  Fascination   3:44     Читать дальше...    Жанр: 1980s, Pop, RockПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EEC13BEA75AC6E46F003FFDC932804272D690E7F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311090.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 024
-
-Budka Suflera - Zlote Przeboje  Unknown  [FLAC|Lossless|image + .cue] <Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Twoje radio  5:16 
-02. Ona przyszla prosto z chmur  4:36 
-03. Samotny noca  3:00 
-04. Martwe morze  4:42     Читать дальше...    Жанр: Pop RockПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02B57C3B8F82DA97E197167076170ADD3303DC60
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311024.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 013
-
-Helen Shapiro -  Tops  With Me   Helen Hits Out!  2000  [FLAC|Lossless|tracks + .cue] <Roc
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Little Devil
-02. Will You Love Me Tomorrow?
-03. Because They re Young
-04. The Day The Rains Came    Читать дальше...    Жанр: Rock, PopПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4906B09A338BF459967994F5C364F351C29F87F4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311013.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 009
-
-Madonna - Madame X  2019  Japanese Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Medellin with Maluma  4:58 
-02. Dark Ballet  4:15 
-03. God Control  6:19 
-04. Future ft. Quavo  3:54     Читать дальше...    Жанр: PopПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C969713A847ACC2FAE29C753077F909530667763
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311009.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 310 997
-
-Chocolat s - 3 Albums  1977-1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Chocolat s - музыкальная группа тропических и Карибских жанров, образованная французами и бельгийцами.Список альбомов:
-1977 - Baby, Let s Do It The French Way Cubanita
-1977 - Kings Of Clubs
-1979 - Senorita Por Favor    Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:40:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:215AB13E1E8471A2BAC845352F7ACA0CB33D7A12
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1310997.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 310 994
-
-Helen Shapiro - At Abbey Road 1961-1967  1998  [FLAC|Lossless|tracks + .cue] <Blues, Pop, Soul,
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Don t Treat Me Like A Child  Mono   02:36 
-02. You Don t Know  Mono   03:12 
-03. Walkin  Back To Happiness  Take 2 Plus Studio Conversations   Stereo   02:51 
-04. Walkin  Back to Happiness  Take 13 Master   Stereo   02:34     Читать дальше...    Жанр: Blues, Pop, Soul, FunkПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5EE4B3F3ECEA801D89EC0057BA363DF844CEC3ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1310994.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

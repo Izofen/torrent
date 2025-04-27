@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 708 169
+
+VA - Эстрадная орбита (1974) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1:
+01. Волшебники (Капуано) — Шейла
+Les rois mages (L. Stott, G. Capuano, M. Capuano – C. Carrere, J. Schmitt) — Sheila 1971
+02. Беззаботный (Д. Хартфорд) — Элвис Пресли(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A39791309F904E0D8D047E95DAFCD43EF6E69010
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708169.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 707 846
+
+VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1.
+01. Байконур (нар. мелодия) – "Гунеш"
+02. Двадцать третий век (Д.Тухманов – С.Кирсанов) – "Веселые ребята"
+03. Колыбельная (О.Фельцман) – "Мелодия"(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:362FEC8518B298EFCCBD0863A8736D22758C888E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707846.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 707 844
+
+VA - От мелодии к мелодии (5 серия) - Концерт итальянской эстрады (1960) [FLAC 24/96|Lossless|tracks
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Карина (Поэс);
+02. Нет (Пинбени);
+03. Синьор (Мустаки);
+04. Донна (Крамер);(   Читать дальше...   )Жанр: Pop, Retro, ItaloПродолжительность: 00:16:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FEACDB4145B524CA3CB294A092BD2825C47152FF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707844.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 707 843
+
+Давид Тухманов. Александр Барыкин - Ступени (1985) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1:
+01. Ступени (Д.Тухманов - И.Кохановский)
+02. Элегия (Д.Тухманов - И.Кохановский)
+03. Но все-таки лето! (Д.Тухманов - В.Харитонов)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:75090211A0F7566C92B566FC3D3FB67DB392F90D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707843.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 707 834
+
+Группа "Лабиринт" - Возьми мое сердце. Песни Сергея Муравьева (1988) [FLAC 24/192|Lossless|tracks] <
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1:
+01 - Обещаю (С. Муравьев — Л. Козлова)
+02 - Горизонт (С. Муравьев — Л. Козлова)
+03 - Возьми мое сердце (С. Муравьев — Л. Козлова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41C5A92C810EFB082E0C0779B98530F1E9DB149E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707834.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 707 832
+
+Группа «Маки» - Одесса (1988) [FLAC 24/192|Lossless|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+01. Одесса (В. Матецкий — М. Танич)
+02. Так случилось (В. Матецкий — М. Шабров)
+03. Когда, когда (В. Добрынин — Л. Дербенев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F71F79F5739AE2FBB65E834F0709359F539181A8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707832.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 707 767
+
+Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-R
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Transilvanian Hunger
+A2 Over Fjell Og Gjennom Torner
+A3 Skald Av Satans Sol
+A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707767.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 707 660
+
+M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Land Of The Free
+A2 Devolution
+A3 Repent
+A4 The Angry Man(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80DB94CAB33BABA1A705F146B9CFEAD888DB5471
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1707660.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 707 658
 
 VA - Музыкальный телетайп 2 (1987) [FLAC 24/192|Lossless|tracks] <Pop>
@@ -1792,206 +1992,6 @@ Side One.
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705383.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 359
-
-Marisol - Поёт Марисоль (1980) [FLAC 24/192|Lossless|tracks] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1.
-01 - Расскажи мне о море, моряк. - Hablame del mar, marinero. (M.Alejandro - A.Magdalena)
-02 - Скажи ему, чтобы он вернулся. - Dile que vuelva. (M.Alejandro - A.Magdalena)
-03 - В нее влюбленный. - Emanorado de ella. (M.Alejandro - A.Magdalena)(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:818913F9BEF39B25346C102BA73D3B6ECA1BE660
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705359.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 358
-
-VA - Для вас, женщины. Принцесса (1989) [FLAC 24/192|Lossless|tracks] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-01. Сон про Джанет (музыка и слова М. Ангеловой)
-Ирина Отиева
-02. Лето (музыка и слова С. Кузнецова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:84EEA9E903E5694F6E032CA5D6301619560864CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705358.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 356
-
-VA - Для вас, женщины! Деловая женщина (1988) [FLAC 24/192|Lossless|tracks] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-01 - Эй, гражданка... (А. Укупник — В. Гин)
-Ирина Понаровская
-02 - 20.00 (А. Барыкин — М. Пушкина)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A51DA18CE547C93F9EB9C7F779BB758908DAC2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705356.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 259
-
-Thundermother  & The Gems  - Studio Albums  6 releases   2014-2024  hand made [restored,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Thundermother - шведская рок-группа, основанная в 2010 году.2014 - Rock  n  Roll Disaster
-2015 - Road Fever
-2018 - Thundermother
-2021 - Heat WaveЖанр: Hard RockПродолжительность: 04:40:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5D41054576605DD82826326C0DA0820418CE933F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705259.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 133
-
-ВИА «Веселые ребята» - Любовь – огромная страна (1974) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1:
-01. Любовь - огромная страна (Б. Рычков - Л. Дербенев)
-02. Я к тебе не подойду (Д. Тухманов - Л. Дербенев, И. Шаферан)
-03. Отчего (Ю. Антонов - Т. Сашко)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:348E0649E7AD1689907C815E75B331D5FF881676
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705133.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 130
-
-ВИА «Ариэль» - Ариэль (1975) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-01. Зимы и весны (музыка и слова В. Ярушина)
-02. Где ждет любовь (музыка и слова А. Богословского)
-03. Старая пластинка (Н Богословский — Я. Родионов)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F530D53B5C3ED438FB08183E4BB596948282DED6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705130.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 095
-
-Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossless|tracks] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1:
-01 - Кто идет (Д.-Б. Бембо — С. Бардотти — Н. Джакомелли — И. Форсман) — на шведском яз.;
-02 - Тайные влюбленные (П. Хочкисс — С. Джонсон):
-03 - Кто-то другой (А. Гленмарк — Т. X. Майнор):(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EABA8D20A0F7CA8D0B54EEB2CB5386CDCB3B8A49
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705095.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 705 093
-
-Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|tracks] <Country, Pop-Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1
-01. Люсиль
-Lucille (R. Bowling - H. Bynum)
-02. Игрок(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:77FE250003184A4909CE652CBD7B59D2542D7DCA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705093.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

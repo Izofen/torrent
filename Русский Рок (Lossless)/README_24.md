@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 1 386 720
+
+Александр Ф. Скляр - Песни во время чумы  2020  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. На Молдаванке 4 апреля
+2. Не влюбляйтесь 5 апреля
+3. Годы мчатся 6 апреля
+4. Глупо я и сделал 7 апреля    Читать дальше...    Жанр: RockПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6CAA193F375940B2BF772E79DC64B3A01B77B81E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1386720.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 386 446
+
+Би-2 - Депрессия  2020  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Депрессия
+2. Депрессия  Tesla Boy 80’s remix 
+3. Депрессия  Куртки Кобейна summer remix 
+4. Депрессия  Elliot Moss remix     Читать дальше...    Жанр: RockПродолжительность: 00:19:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A7FE625B96B9F33933EB0E8BB9852C6727902BC6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1386446.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 385 230
+
+Babooshka - Православный Аватар  2020  [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Отмороженные во Христе
+2. How Do You Do
+3. Вата
+4. Душевные терзания    Читать дальше...    Жанр: Punk RockПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E3A8F6CB2697549C6465BA036C5635E71C9F68BE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385230.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 385 134
+
+666 - Мясо с кровью  2020  [MP3|320 Kbps] <Thrash Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Пули в тело - деньги в дело
+2. Летучие мыши
+3. Под прицелом
+4. Ад    Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:26:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:600D27C868143ECCB1CF5F78C7486D808F9BB513
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385134.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 385 130
+
+7Б - Майская звезда  2020  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Майская звездаЖанр: RockПродолжительность: 00:03:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C67C99FACA45902DECEAB70DA95718DBE90FA638
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385130.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 384 852
 
 KUZMIN Absolute Band - Я - твой рокенрол  2020  [MP3|320 Kbps] <Rock>
@@ -1816,131 +1938,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366918.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 366 833
-
-Аффинаж - Мимо. Ранен. Убит.  2020  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Пролог
-2. Ангел
-3. Такси
-4. Хостел    Читать дальше...    Жанр: RockПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6434CE7362299D3376463A630DA086B489A9D62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366833.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 366 624
-
-Король и Шут - Акустический альбом  1998  Remastered, 2019, Шумный Рекордс [MP3|320 Kbps] <Punk
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Кукла Колдуна
-2. Наблюдатель
-3. Бедняжка
-4. Прыгну со Скалы    Читать дальше...    Жанр: Punk RockПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0EB63FEB3C2443611880270CA8AAD8B5F31CF7D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366624.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 366 176
-
-Louna - Live Show Re:Public Minsk Belarus  2020  [MP3|320 Kbps] <Nu Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Intro 2019  Live 
-2. Мы — это LOUNA  Live 
-3. Бойцовский клуб  Live 
-4. Огня  Live     Читать дальше...    Жанр: Nu MetalПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E138828973355ED91A00B491810B6BC12ED5661
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366176.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 366 142
-
-VA - Tribute to Смута - 15  2020  [MP3|320 Kbps] <Viking Metal, Folk Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 Ethnor - В путь  Смута Cover  [00:05:54]
-02 Mjød - Вслед За Марой  Смута Cover  [00:03:33]
-03 Изморозь - Встать, как Один!  Смута Cover  [00:03:26]
-04 Moon Far Away - Солнце Красное  Смута Cover  [00:04:44]    Читать дальше...    Жанр: Viking Metal, Folk MetalПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CC3BEDF21EC630B789B5FA2AC2578941F7DDD9CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366142.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 366 024
-
-Stay Away - Дисклеймер. Часть 2  2019  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Рип
-2. На карусели
-3. Фэйворит шкура
-4. Майнер с порнохаб    Читать дальше...    Жанр: Punk RockПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C059B1D376D10B129FB74598106071E4652BFE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366024.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,26 @@
 ﻿
+###  Публикация: 1 159 723
+
+Ori and the Blind Forest  2016  [Ru Multi]  1.0 upd3  Repack Other s [Definitive Edition
+След.
+Arcade
+
+###  Подробнее
+
+Ori and The Blind Forest – мультяшный платформер от независимых разработчиков Moon Studios, рассказывающий о приключениях лесного духа Ори, который пытается понять свою роль в мире. Давным-давно он упал в лес и встретил настоящего друга – медведеподобное существо, воспитавшее Ори, как своего ребенка. Но однажды зло в лице Куро отобрало у него мать, и теперь герою     Читать дальше...    Тип издания: RepackРазработчик: Moon Studios GmbHЖанр: Action, Arcade, AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:50987BCB0FFAB0FD6B7091A1D0D8BD30B7E88A60
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1159723.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 159 551
 
 UnEpic  2011  [Ru Multi]  1.51.0  License GOG
@@ -1734,28 +1756,6 @@ Arcade
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1112303.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 112 267
-
-Ultimate Marvel vs. Capcom 3  2017  [Multi]  1.0  License CODEX
-Win Игры
-Arcade
-
-###  Подробнее
-
-ULTIMATE MARVEL VS. CAPCOM 3: Marvel и Capcom объединились, чтобы организовать самые безумные битвы 3 на 3 в игре Ultimate Marvel vs. Capcom 3. Игра содержит весь выпущенный ранее контент и артбук Marvel vs. Capcom: Official Complete Works. Выбирайте из самых популярных персонажей Marvel и Capcom и соберите команду на свой вкус в режиме «Heroes and Heralds».Тип издания: LicenseРазработчик: CapcomЖанр: Action, Arcade  Fighting Язык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2D79F0AB262BEDAD3147BBF59ACBE91BE7171871
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1112267.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

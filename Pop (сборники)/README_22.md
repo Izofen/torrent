@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 584 433
+
+Paula Abdul - The Greatest  1998  [OGG Vorbis|480 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. The Way You Love Me
+02. Knocked Out
+03. Forever Your Girl
+04. Straight Up    Читать дальше...    Жанр: PopПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D8BB63335BB3E4CDAAB9611BCF79F49E2F4F190E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584433.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 584 231
+
+Ярослав Евдокимов - Не рви рубаху!  1994  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Там за окнами...
+02. Белокурая колдунья
+03. Верочка
+04. Подковочка    Читать дальше...    Жанр: PopПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4B449273ACB9C5092A5E67D320B40E9922367CF4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584231.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 584 188
+
+Mylène Farmer - Désobéissance  2018  [OGG Vorbis|480 Kbps] <Electronic, Pop, Ballad>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Rolling Stone
+02. Sentimentale
+03. Desobeissance
+04. N oublie pas    Читать дальше...    Жанр: Electronic, Pop, BalladПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:60B024630FC77D7F7641B77F154D02720494B3B1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584188.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 584 138
+
+Sade - The Best Of Sade  1994  [OGG Vorbis|480 Kbps] <Funk   Soul, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Your Love Is King
+02. Hang On To Your Love
+03. Smooth Operator
+04. Jezebel    Читать дальше...    Жанр: Funk   Soul, PopПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:40ACD38EF22178233878E2446E8B4666297DD0E8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584138.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 584 075
+
+Cerrone - Cerrone by Cerrone  2022  [FLAC|Lossless|WEB-DL|tracks] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+Отмечая 50-летие своей музыкальной карьеры Cerrone со товарищи выпустил свои 16 культовых классических произведений в версии 2022 года, переработав и смикшировав их собственноручно.01. Give Me Love  feat. Brendan Reilly 
+02. My Desire  feat. Brendan Reilly 
+03. Got to Have Lovin   feat. Brendan Reilly 
+04. Look for Love  The Reflex Revision     Читать дальше...    Жанр: DiscoПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21E4AB074948FA16A1EFFC2C5C12FD480F280D83
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584075.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 584 041
+
+Мари Краймбрери - Нас узнает весь мир  Part 2   2022  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Прости, но я не буду петь
+2. Танцевальный медляк
+3. Если устал
+4. Одинокий таксист    Читать дальше...    Жанр: PopПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3EC88D8AC9A6D99E936F6150554892DCB2C87C86
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584041.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 583 738
+
+Fun Girl - The Album  2022  [FLAC|Lossless|image + .cue] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Self Control  Feat. Amaya  3:54
+02. A Brighter Day  Extended Mix  6:15
+03. Baila Bandolera  Extended Mix  8:58
+04. Forever Young  Extended Mix  7:34    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0C3735B8EFF3826820D83C2E2B0947C22789A407
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1583738.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 583 677
+
+Gazuzu - 2 Albums  1984, 1988  LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Drums On Fire  4:54 
+02. Nana-Banana  3:00 
+03. Go Go Gorila  6:30 
+04. Aruba  6:17     Читать дальше...    Жанр: Electronic, Italo-DiscoПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A9074E6A082B8B1DD2218D7EFE06F6D4E1D83DAA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1583677.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 583 375
+
+Various Artists - NOW #1s - 70 Years Of The Official Singles Chart  5 CD Box Set    2022  Bo
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1  01:20:29 :
+1. Queen - Bohemian Rhapsody  5:54 
+2. Paul Mccartney & Wings - Mull Of Kintyre  4:43 
+3. Rod Stewart - Maggie May  5:15     Читать дальше...    Жанр: Pop, RockПродолжительность: 06:06:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BE20A13E479FBDBBBC5B079B37155A197FAF2CA3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1583375.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 583 119
+
+Long Tall Ernie & The Shakers - Meet The Monsters  1979  LP [MP3|320 Kbps] <Electronic, Pop Rock
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01.  I m The  Mummy  2:57 
+02. Frankenstein  3:21 
+03. Quasimodo  3:18 
+04. Phantom Of The Opera  5:20     Читать дальше...    Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:30:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5DDAEC7344A16AD2BFE88FD560C300C02F1E6176
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1583119.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 583 057
+
+VA - Mega Hits Autumn Fall 2022 [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Gestört aber Geil - Thank You  03:17 
+02. Imagine Dragons - Bones  02:45 
+03. Makar - Mood  02:31 
+04. Felix Jaehn - Call It Love  02:34     Читать дальше...    Жанр: PopПродолжительность: 05:10:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EF96BEFFF8210BA68E78B9F9B478D7246816A0CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1583057.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 582 800
 
 Lara Fabian - Greatest Hits  2010  2CD [OGG Vorbis|480 Kbps] <Pop, Ballad, Chanson>
@@ -1718,279 +1993,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576159.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 576 133
-
-Giorgio Moroder - From Here To Eternity   E=MC2  1977, 1979  Reissue, Remastered [FLAC|Lossles
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-1977 - From Here To Eternity
-1979 - E=MC2Жанр: Disco, Electronic |Продолжительность: 01:20:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A858DE05C74169E8E5BCAC01B2A22DBB4A68DDDE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576133.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 576 116
-
-Svenne & Lotta - 6 Albums  1973-1983  Collection [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Sc
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Svenne & Lotta  в некоторых странах Sven & Charlotte  - поп-дуэт Свенне Хедлунд и Лотты Хедлунд. Они познакомились в 1967 году, когда  вместе с Бенни Андерссоном из ABBA  Свенне Хедлунд был вокалистом в группе Hep Stars. Шарлотта Уокер, которую в то время звали Лотта Хедлунд, гастролировала по Швеции с женским американским трио The Sherrys. Стремясь пойти     Читать дальше...    Список альбомов:
-1973 - Oldies But Goodies
-1975 - 2
-1976 - Letters    Читать дальше...    Жанр: Electronic, Disco, Pop Rock, SchlagerПродолжительность: 03:37:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A7245E0CACAE5E3F7C743512783F50A59A7FB259
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576116.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 575 784
-
-Giorgio And Chris - Love’s In You, Love’s In Me  1978  Remaster, 2010, Gold Legion [FLAC|Lossles
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-1. Love’s In You, Love’s In Me 3:46
-2. Keep It Together 3:31
-3. I Can’t Wait 4:15
-4. Reprise 5:07    Читать дальше...    Жанр: DiscoПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:560C4F39E808CCDBB93D7CFCF27D072A951CB1C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1575784.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 575 662
-
-Dr. Alban - The Very Best Of 1990 - 1997 Remastered, 2019, Sony Music [OGG Vorbis|485 Kbps] <Electro
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01.		It s My Life	4:00
-02.		Let The Beat Go On	4:04
-03.		Look Who s Talking	3:13
-04.		Gimme Dat Lovin	4:07    Читать дальше...    Жанр: Electronic, Reggae, PopПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3471EF225C5993E087383D1FCA3E8691C67A3522
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1575662.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 575 650
-
-Van Hinton - Remember Me  1980  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Come On Down And Rock Me  7:03 
-02. Stay With Me  4:29 
-03. Search Find  5:25 
-04. We re Gonna Work It Out  4:02     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5D1174CEA26E0BA88591C229518A8D4FF1FAEB55
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1575650.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 575 623
-
-Sophie - My World  1989  [OGG Vorbis|485 Kbps] <Electronic, Italo-Disco, Eurobeat>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01.		My World	3:48
-02.		Same	4:35
-03.		Tonite Tonite	3:52
-04.		Rapture  4:40    Читать дальше...    Жанр: Electronic, Italo-Disco, EurobeatПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E0F258834236014ED440E52B110A1EE9C212CF50
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1575623.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 575 581
-
-Al Barton & Spirit Of Smokie - Room With A View  2011  Reissue, 2018, Big Lake [FLAC|Lossless|im
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Come For Me
-02. Sacred Heart
-03. Highways And Heartaches
-04. Send Me An Angel    Читать дальше...    Жанр: Pop RockПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:43B0F47201136CD6B8D68DC2E295DEED274BFB7B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1575581.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 575 093
-
-VA - GANGSTER MUSIC, Vol. 6  2022  [MP3|320 Kbps] <Eurodance, Technopop>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-1. ONEIL - Shagy
-2. TRITICUM - Play Me
-3. Danny Shark Emtiar - Samurai
-4. KDDK - DURA    Читать дальше...    Жанр: Eurodance, TechnopopПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2CB043BECC4FF472E919927C30645A75EB8A0E56
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1575093.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 575 090
-
-VA - Now Yearbook  80 Extra  2022  3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Funk,
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD - 1:
-01. Queen – Flash
-02. Blondie – Call Me
-03. Kate Bush –	Army Dreamers    Читать дальше...    Жанр: Pop, Funk, Soul ...Продолжительность: 03:57:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F11C73C703E62B56DE86E3C28029BA5623B6E590
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1575090.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 574 986
-
-Сергей Минаев - Первые Опыты  1985  2022 Reissue, Maschina Records [FLAC|Lossless|image + .cue]
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Вступление
-02. Карнавал
-03. Бангкок
-04. Шерри Бренди    Читать дальше...    Жанр: PopПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A90D7F0EAC62027FC378C31C8784ECF6DB1E0131
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574986.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 574 885
-
-Khaled - Cheb Khaled  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop Arab Music>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Trigue Lycee  Remix  [00:03:05]
-02. Come Together  Asere Que Bola  [00:04:04]
-03. Diamantes y oro [00:03:17]
-04. Forever Love  Arab-Bhangra  [00:02:59]    Читать дальше...    Жанр: Pop Arab MusicПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:157BC66E47120B96C3A221CECCDE85186EC8989F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1574885.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

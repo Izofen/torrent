@@ -1,4 +1,336 @@
 ﻿
+###  Публикация: 806 390
+
+Monte Kristo - Sherry Mi-Sai  2007  [MP3|320 кб с]<Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. The Girl Of Lucifer  Vocal  5:26
+02. Sherry Mi-Sai 5:59
+03. Money For Your Love 4:44
+04. Give Me Your Night  A Touch Of Love  5:43
+05. Lady Valentine 5:51
+06. The Girl Of Lucifer  Instrumental  5:27
+07. La Vie D un Enfant  Vocal  3:46
+08. La Vie D un Enfant  Instrumental  3:46Жанр: Italo-DiscoПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:088BD95A2A64F1B79B82C56966CB1682C0B3C685
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_806390.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 806 388
+
+Monte Kristo - Sherry Mi-Sai  2007  [APE|Lossless]<Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. The Girl Of Lucifer  Vocal  5:26
+02. Sherry Mi-Sai 5:59
+03. Money For Your Love 4:44
+04. Give Me Your Night  A Touch Of Love  5:43
+05. Lady Valentine 5:51
+06. The Girl Of Lucifer  Instrumental  5:27
+07. La Vie D un Enfant  Vocal  3:46
+08. La Vie D un Enfant  Instrumental  3:46Жанр: Italo-DiscoПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F93DF302BED4B694D5606AF9181B869E2B281DB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_806388.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 806 275
+
+Mad - For Dancin  - 28 Superhits  2006  [MP3|320 кб с]<Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Mad For Dancin   Part I  0:50
+02. Billie Jean 1:45
+03. Let s Dance 1:58
+04. Passion 1:44
+05. Eye In The Sky 1:33
+06. Voulez-Vous Coucher Avec Moi 1:39
+07. The Bushman 1:49
+08. Too Shy 1:44
+09. Wot 1:41
+10. Last Night A D.J.Saved My Life 1:22    Читать дальше...    Жанр: DiscoПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4CFE826E5D19C238F3B52E63F28A263EE92216C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 806 271
+
+Mad - For Dancin  - 28 Superhits  2006  [APE|Lossless]<Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Mad For Dancin   Part I  0:50
+02. Billie Jean 1:45
+03. Let s Dance 1:58
+04. Passion 1:44
+05. Eye In The Sky 1:33
+06. Voulez-Vous Coucher Avec Moi 1:39
+07. The Bushman 1:49
+08. Too Shy 1:44
+09. Wot 1:41
+10. Last Night A D.J.Saved My Life 1:22    Читать дальше...    Жанр: DiscoПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A3666DEA2B6508A9AFEF6449B777CF295417467
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 806 178
+
+Modern Talking - Milestones  2013  Compilation [MP3|320 кб с]<Pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. You re My Heart, You re My Soul  3:22 
+02. Cheri Cheri Lady  3:50 
+03. You Can Win If You Want  3:47 
+04. Brother Louie  3:43 
+05. Geronimo s Cadillac  3:19 
+06. Atlantis Is Calling  S.O.S. For Love   3:48 
+07. In 100 Years  3:59 
+08. Jet Airliner  4:22 
+09. Sexy Sexy Lover  3:35 
+10. You Are Not Alone  3:25     Читать дальше...    Жанр: PopПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C8A199147641AB2C0CABF9F41803CB727B3FFF40
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_806178.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 806 153
+
+Modern Talking - Music & Video Stars  2013  [MP3|320 кб с]<Pop, Eurodisco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+1. You re My Heart, You re My Soul
+2. You Can Win If You Want  Special Single Remix 
+3. Cheri Cheri Lady
+4. Brother Louie
+5. Atlantis Is Calling  S.O.S. For Love 
+6. Geronimo s Cadillac
+7. Jet Airliner  Radio Version 
+8. In 100 Years  Long Version - Future Mix 
+9. You Are Not Alone
+10. Sexy Sexy Lover  Vocal Version     Читать дальше...    Жанр: Pop, EurodiscoПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D5207E9845BD4AAF4CC7718B9B55CA4FCE104EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_806153.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 805 950
+
+Andrea   Андреа - 4 альбома  2008-2012  [MP3|320 кб с]<Pop-folk>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Андреа  Теодора Руменова Андреева  родилась в 23 января 1987 в городе София, столица Болгарии. Заниматься музыкой Андреа начала с 4-х лет. В 2002 в возрасте 15 лет она завоевала титул  Мис София 2002 . В 2005 по достижению 18-летнего возраста, Андреа заключает контракт с модельным агентством  Xground , и в том же году занимает первое место в конкурсе  Мисс-Туризм Болгария 2005 . В октябре 2006 года она снимается для журнала  Максим . В том же 2006 году Андреа делает свои     Читать дальше...    Альбомы:
+2008 - Ogan v kravta   Огън в кръвта
+2009 - Men si tarsil   Мен си търсил
+2010 - Andrea   Андреа
+2012 - Losha   ЛошаЖанр: Pop-folkПродолжительность: 02:47:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D858656D7855D364507312F8CB1A2E3F76655078
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_805950.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 805 912
+
+Silent Circle - Best Of Silent Circle  1991  [FLAC|Lossless]<Euro-Disco, Synht-Pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Touch In The Night  5:16 
+02. Stop The Rain  5:35 
+03. Hide Away - Man Is Comin !  5:05 
+04. I Am Your Believer  5:42 
+05. Oh, Don t Lose Your Heart Tonight  5:46 
+06. Danger Danger  5:49 
+07. Lose Is Just A Word  5:45 
+08. Time For Love  5:07 
+09. Sib Dub Dua  3:05 
+10. Dreams  3:56     Читать дальше...    Жанр: Euro-Disco,Synht-PopПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7C02E586984DF9EE4F2A4C4D8AB4DCFF92998EAA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_805912.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 805 898
+
+VA - The World Of DJ Hits Vol.1  1996  [MP3|320 кб с]<Euro-Dance>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. X-Pression - There Is The Light  Gb Short Mix  3:39
+02. 4-Ward feat.Marvin McKay - Do You Want  Radio Version  3:48
+03. Pearl feat.Zaradika - Celebrate  Radio Mix  3:53
+04. Gale Robinson - Love, Joy & Passion  Radio Edit  4:07
+05. X-Poz - Live 2 Genter  Short Fm Mix  3:53
+06. Zar - Nunca Sin Ti  Extended Version  4:19
+07. Sidney Fresh - Are You Crazy  Radio Edit  3:54
+08. Sophia - Gimme The Night  Radio Edit  3:32
+09. Orion 8 - Beyond My Control  Radio Edit  5:03
+10. II Simmons - It s Raining Men  Radio     Читать дальше...    Жанр: Euro-DanceПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:09B3785CBCC275AB1EF32E0E681D4A26485F7774
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_805898.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 805 874
+
+VA- I Love ZYX Italo Disco Collection Vol.17  2014  3CD [MP3|320 кб с]<Italo-Disco, Synthpop,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Miko Mission - Two For Love  Mozzart Mix  [05:14]
+02. Tom - Give Me Just A Little Time  Maxi Version  [05:53]
+03. Laserdance - Battle Cry  Space Mix  [06:27]
+04. Morgana - Ready For Love  Vocal Version  [07:39]
+05. Scotch - Money Runner  Extended Version  [06:20]
+06. Tony Moore D.J. - Tonight  Vocal Version  [06:57]
+07. Raffalli - Don t Stop  Vocal Version  [06:14]
+08. Humphrey Robertson - Don t Stop Loving Me [05:42]
+09. Fun Fun - Baila Bolero  Bolero Dance Mix  [09:26]
+10. Fancy - China Blue  Blue Remix      Читать дальше...    Жанр: Italo-Disco, Synthpop, SpacesynthПродолжительность: 03:28:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9CDE9C424553931FF45DF76D719E789C19B137B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 805 768
+
+Channah - Syrup & Rain  2014  [MP3|320 кб с]<Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Run Home 04:03
+02. Fire 04:23
+03. Monsters 03:07
+04. Today 03:49
+05. Rock Paper Scissors 02:03
+06. Still Here 03:22
+07. Syrup & Rain 05:10
+08. Someone 03:14
+09. Safe & Sound 03:51
+10. Invisible Light 02:51    Читать дальше...    Жанр: Indie PopПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91D34876D73A8CF7574F4B973DB82423E5B8294F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 805 723
 
 Олег Анофриев - Grand Collection  2001  [MP3|320 кб с]<Pop, Retro, Советская эстрада>
@@ -2068,328 +2400,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:4EA4D352ECA93EA27DEA73B324D6A74529006551
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 788 504
-
-НЮША NYUSHA - Объединение  2014  [FLAC|Lossless]<Pop, Dancepop, R&B, Synthpop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Буду рада - 4:04
-02. Только... - 3:36
-03. Безответная - 4:05
-04. Воспоминание - 3:38
-05. Бред - 4:02
-06. Тепло - 3:34
-07. Наедине - 3:43
-08. Это Новый год - 3:37
-09. Цунами - 4:08
-10. История странника - 3:57    Читать дальше...    Жанр: Pop, Dancepop, R&B, SynthpopПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6F93C305DAC6A9221622472000825A1908CE2BBB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 788 445
-
-Вячеслав Малежик - ВИА Малежик  2014  [MP3|320 кб с]<Авторская песня, Pop, Blues, Rock>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Пусть в камине...
-02. Золотые розы
-03. Знаю я
-04. Разыгралась метель
-05. На концерте Андреа Бочелли
-06. Мне холодно
-07. Красивые глаза
-08. Юлия
-09. От Мытищ до Бутово
-10. Когда-нибудь    Читать дальше...    Жанр: Авторская песня, Pop, Blues, RockПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8CE3655553E12900F74AAEE914F2DCFE6D7A2597
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 788 214
-
-VA - NRJ Hit List 2014  2014  2CD [MP3|320 кб с]<Euro, R&B, Club, Disco, Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Lorde - Team  03:14 
-02. Stromae - Bвtard  03:29 
-03. Mr. Probz - Waves  03:28 
-04. DJ Snake & Lil Jon - Turn Down For What  03:34 
-05. Rebel Feat. Sidney Housen - Black Pearl  He s A Pirate   03:22 
-06. Disclosure Feat. Eliza Doolittle - You & Me  Flume Remix   04:41 
-07. Aloe Blacc - The Man  03:32 
-08. Deorro - Five Hours  05:27 
-09. Sam Smith - Money On My Mind  03:15 
-10. Maude - Cool  03:21     Читать дальше...    Жанр: Euro, R&B, Club, Disco, Pop, DanceПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D576D447DE2A5CF117489ABF959D6DC9FCA62F01
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_788214.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 788 202
-
-VA - Pure... 70s  2013  Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Хотя поп музыку 70-х не заслуженно называют  ширпотребом ,  бокссет от Sony Music с четырьмя дисками показывает, что это десятилетие принесло ничто иное, как огромное разнообразие хитов. Хотелось бы обратить ваше внимание на таких исполнителей как O Jays с его  Love Train,  Bill Withers с замечательной  Lean on Me,  Billy Paul с  Me     Читать дальше...    01. Jacksons - Show You The Way To Go   5:29 
-02. Andrea True Connection - More More More   3:08 
-03. Baccara - Yes Sir I Can Boogie   4:32 
-04. Gladys Knight & The Pips - Baby Don t Change Your Mind   3:07     Читать дальше...    Жанр: Pop, Rock, Soft Rock, Pop-RocПродолжительность: 04:12:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E149DA7D06DCC3DA8562569A0B276DE0B2633553
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 788 096
-
-VA - One Love, One Rhythm: The 2014 FIFA World Cup Official Album  2014  [FLAC|Lossless]<Pop, Et
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Pitbull feat. Jennifer Lopez & Cláudia Leitte - We Are One  Ole Ola   The Official 2014 FIFA World Cup Song  - 3:43
-02. Santana & Wyclef feat. Avicii & Alexandre Pires - Dar um jeito  We Will Find A Way   The Official 2014 FIFA World Cup Anthem  - 3:48
-03. Arlindo Cruz - Tatu bom de bola  The Official 2014 World Cup Mascot Song  - 3:21
-04. Ricky Martin - Vida  Spanglish Version  - 3:25
-05. Aloe Blacc x David Correy - The World Is Ours  Coca-Cola 2014 World s Cup Anthem  - 2:54
-06. Psirico - Lepo lepo - 3:21
-07. Sérgio Mendes & Carlinhos Brown - One Nation - 3:32
-08. Shakira feat. Carlinhos Brown - La la la  Brazil 2014  - 3:17
-09. The Isley Brothers with Studio Rio - It s Your Thing  Studio Rio Version  - 3:07
-10. Bebel Gilberto and Lang Lang - Tico tico - 2:48    Читать дальше...    Жанр: Pop, Ethnopop, House, Pop LatinoПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2492C7B69010EAF688AC884DD80D9560AA7C0E3D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 787 181
-
-VA - Pure... 60s  2012  Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Roc>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Постепенно пополняется наша коллекция Pure... от Sony.
-Подоспели и 60-е годы. Этот щедрый набор с четырьмя дисками вобрал в себя почти 70 оригинальных записей хитов 60-х, включая песни Боба Дилана, Byrds, Элвиса Пресли и Джонни Кэша. Хотя, на мой взгляд, коллекция достаточно эклектичная, тем не менее, охватывая огромный пласт песен 60-х, она, бесспорно, даст представление     Читать дальше...    01. Bob Dylan - I Want You   3:07 
-02. Van Morrison - Brown Eyed Girl   3:03 
-03. Roy Orbison - Oh Pretty Woman   2:58 
-04. Elvis Presley - Suspicious Minds   4:34     Читать дальше...    Жанр: Pop, Rock, Soft Rock, Pop-RocПродолжительность: 03:30:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4D67AEC948C2DC63165A041FD5F3D995F3E054CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 787 080
-
-Marie Mai - M  2014  [MP3|320 кб с]<Pop, Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Marie-Mai - певица из Квебека. Стала одной из лучших в финале первого сезона Квебекского реалити-шоу Star Academy, аналог российской Фабрики звёзд.    Читать дальше...    01. A bout portant
-02. Transparent
-03. Tourner
-04. Ne m ecoute pas  Feat Boogat 
-05. Donne
-06. Indivisible
-07. Conscience
-08. Lourd    Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5EA439794D7E791DAE4D0CF1311408ADE9D859A2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 786 820
-
-VA - Клубный взрыв. Выпуск 4  2014  [MP3|320 кб с]<Club, Dance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. Mike De Ville - Amada Mia Amore Mio
-02. Ани Лорак - Оранжевые Сны  Alex Menco Club Remix 
-03. Oliver Heldens - Gecko  Original Mix 
-04. Kommon Interests  Savage! Remix  - Going Under
-05. Knuckle Chilren & Diamond Pistols - Snake Charmer
-06. Olly James & Matthew Ryz - Deceptor  Original Mix 
-07. Bobina & Ana Criado - For Who I Am
-08. Joss Beaumont Feat. Mordax Bastards & Driss F - Be Yourself  Original Radio Edit 
-09. Tony Igy - Give You Pleasure
-10. Nicolaz Feat. Angelika Vee - Riot  Radio Edit     Читать дальше...    Жанр: Club, DanceПродолжительность: 04:52:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1C37BF17DCE06B47D96D870E34DA7A1F96DF191A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 786 640
-
-VA - Sexy  Romantic Love Songs   2007  3CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Можно, конечно, поспорить с названием - мол не всегда романтичные и любовные песни  в том числе и представленные в этом бокссете  ассоциируются с понятием сексуальный. Ну согласитесь, что никогда песня Сальватора Адамо  Tombe La Neige не представлялась сексуальной. Тем не менее подборка на 3-х дисках вам обязательно понравиться. Многие из вошедших в нее композиций были представлены в известном билбордовском топе  The 50 Sexiest Songs Of All Time   жалко, что он уже почти 4 года не обновлялся . Слушайте и выбирайте для себя.Перечень альбомов:
-CD 1 - More Closer
-CD 2 - Sexual Healing
-CD 3 - Only YouЖанр: Pop, Rock, Soft Rock, Pop-RockПродолжительность: 02:27:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:616F50AD548B433E064760352E35838EB29EDC0C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 786 206
-
-Fiorella Mannoia - Canzoni nel tempo 2CD  2007  [FLAC|Lossless]<Vocal Pop, Adult Contemporary, D
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Dio e morto [04:29]
-02. Giovanna d Arco [04:50]
-03. Inevitabilmente [05:13]
-04. I venti del cuore [05:00]
-05. I treni a vapore [05:54]
-06. Il cielo d irlanda [04:24]
-07. I dubbi dell amore [05:46]
-08. Oh che sara [03:55]
-09. Lunaspina [04:34]
-10. Ascolta l infinito [05:29]    Читать дальше...    Жанр: Vocal Pop, Adult Contemporary, Dance PopФормат: track + .cueПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6E11C004B7E508C1F9C28113DAA81B6E0A47A72B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 785 920
-
-Al Bano - Fratelli d Italia  Covers Album   2012  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Fratelli d  Italia  2:35 
-02. Margherita  4:43 
-03. Solo tu  3:01 
-04. Io che non vivo  3:26 
-05. Il cuore e uno zingaro  3:45 
-06. Azzuro  4:27 
-07. Un anno d  amore  3:35 
-08. Tu vo fa l  Americano  3:24 
-09. E tu  4:34 
-10. E fu subito amore  4:13     Читать дальше...    Жанр: PopПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:112235A3025119224DF21ECF84251E3A6AC55D99
 ```
 
 <div id="header" align="center">

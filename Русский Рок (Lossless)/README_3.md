@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 1 738 797
+
+Красная Плесень - Кубинский подорожник (2024) [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Сын к отцу пришёл (New rock version)
+2. Вечный кайф и клёвые частушки (New version)
+3. Слонёнок и первый секс (New dance version)
+4. Серп 2. Частушки 2000 (New version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6126443B9A6DA8C25865DF01D261E701683E5D9E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738797.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 189
+
+Сплин - 10 Альбомов (1996-2014) Reissue Navigator Records [FLAC|Lossless|tracks + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Красота
+02. Оркестр
+03. Песня на одном аккорде
+04. Два плюс один(   Читать дальше...   )Жанр: RockПродолжительность: 08:01:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ADF88373283A46952ABF4D35559351E0C187A54E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738189.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 737 799
+
+СЛОТ - Реквием (2024) Live 2006-2023 [MP3|320 Kbps] <Alternative Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Одни (Live 2006)
+2. Интро & Trinity (Live 2008)
+3. X-Stream (Live 2008)
+4. Люди во сне (Live 2008)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B613BCEA2A5B4BCAAF39C78FF21C9DEFC36C6925
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737799.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 737 718
+
+Твин Пикс - 3 Альбома (2015-2021) [FLAC|Lossless|tracks + .cue] <Post Punk, New Wave>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Группа Твин Пикс была образована в г. Котовске, Тамбовской области в 2002 году. Концептуальной основой творчества коллектива стали эксперименты с тяжёлыми гитарными рифами и готическими клавишными пассажами. Для реализации этих идей был собран состав, в котором помимо традиционных для рок-группы вокала, гитары, баса и барабанов оказался профессиональный клавишник (   Читать дальше...   )2015 - Мальчик и облако
+2019 - Прыгай в поезд. Прочь из города
+2021 - По шанхайским подваламЖанр: Post Punk, New WaveПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E5D0F4FA7EAF2D25A204D35633F99EF3512E44CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737718.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 737 709
+
+Пикник - Один на один (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Один на один
+2. Вдоль по улице, по бесстыжей
+3. Ой ты, Солнце, закатись!
+4. А зовут его: Оторви и Брось(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:753DD6A80EE37E32F7A0F2871B27452EA2CA5144
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737709.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 737 678
 
 Пикник - Один на один (2024) [MP3|320 Kbps] <Rock>
@@ -1870,131 +1994,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1721055.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 720 812
-
-Солнышко - 3 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Sludge Metal, Doom Metal
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. I: Стерт (Intro) [00:01:02]
-02. II: Распят [00:06:30]
-03. III: Утоплен [00:05:12]
-04. IV: Раздавлен [00:07:42](   Читать дальше...   )Жанр: Black Metal, Sludge Metal, Doom Metal, IndustrialПродолжительность: 3 CD, 01:57:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FB8044F3B185FCDD87C66965BB9E5D8059B7F035
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1720812.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 720 777
-
-Allcharters - AllCharters (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcore>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Песня подкроватных монстров [00:03:17]
-02. Лжизнь [00:03:50]
-03. Лето [00:04:04]
-04. Прятки [00:04:00](   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:27:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EB7CE7B779807CBEF70C084011E1E309081B06C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1720777.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 720 730
-
-Депрессивный Психоз - Карма носит ирокез (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Reggae, S
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Карма носит ирокез [00:05:31]
-02. Ядрёный октябрёнок [00:03:05]
-03. С финансами не чётко [00:03:19]
-04. КГБ [00:03:10](   Читать дальше...   )Жанр: Indie Rock, Reggae, SkaПродолжительность: 00:23:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FAA5FB6AB48A2E55B1105609D8C88B1059BF8E94
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1720730.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 720 723
-
-Имбирный DED - Час пик (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Две белых полосы [00:03:55]
-02. Час пик [00:04:06]
-03. Капитан [00:03:41]
-04. Когда [00:04:27](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:731B64829B7633958B19FFB1C73F3AB1D65C50A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1720723.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 720 609
-
-soundlea - Юность под землёй (2024) [MP3|320 Kbps] <Indie Rock, Slacker Rock, Emo Punk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Внезапное воспоминание о лете [00:03:09]
-02 - По шоссе [00:03:08]
-03 - Ближе [00:02:42]
-04 - Мусорная шлюха [00:02:50](   Читать дальше...   )Жанр: Indie Rock, Slacker Rock, Emo PunkПродолжительность: 00:36:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FEEE0CBA7C493ED900CC45B5CFCF2C45D7E5C681
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1720609.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

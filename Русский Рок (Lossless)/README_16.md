@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 1 553 952
+
+Ногу свело! - Буква Zю  2022  single [MP3|320 Kbps] <Rock, Pop-Punk, Alternative Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Буква ZюЖанр: Rock, Pop-Punk, Alternative RockПродолжительность: 00:01:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2711B53155A5BA72897BE2C686422A5F5D85F629
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553952.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 553 777
+
+Пилот - ТЫГЫДЫМ  2022  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Интро
+2. Апрель
+3. Иордань
+4. Заживо  Полная Версия     Читать дальше...    Жанр: RockПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:398EF1DB15C4F98B261CC57944CB021023E61D30
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553777.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 553 589
+
+Сектор Газовой Атаки - Ненависти вопреки  2022  [MP3|320 Kbps] <Russian Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Я не служил [00:03:09]
+02. Lips [00:03:10]
+03. Своей дорогой feat. ДМЦ, Наконечный [00:04:23]
+04. Все за тебя решено [00:04:01]    Читать дальше...    Жанр: Russian Punk RockПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99DC2462FFE1317AC94B54A858DA2E0646CCA70B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553589.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 553 383
+
+Fatal - Karmageddon  2022  [MP3|320 Kbps] <Russian Beatdown Hardcore>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Intro [00:01:06]
+02 - Obsessed [00:01:51]
+03 - Apathy [00:02:20]
+04 - Born to Lose [00:02:07]    Читать дальше...    Жанр: Russian Beatdown HardcoreПродолжительность: 00:19:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:35553C13F46F9C4C93E441FD52918434E7197A06
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553383.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 553 063
+
+Сруб - Веры Пиры  2022  [MP3|320 Kbps] <Post-Punk, Dark Folk, Occult Punk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Запивали росой
+2. Бесы
+3. Погосты
+4. Рожь    Читать дальше...    Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6378B3201136FBD10B12B148D9982AE515FAFAF4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553063.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 552 706
 
 Vesssna - 3 Albums  2017-2022  [MP3|320 Kbps] <Russian Dark Rock, Gothic Metal>
@@ -1864,131 +1986,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534689.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 683
-
-Татьяна Зыкина - Седьмой альбом  2022  [MP3|320 Kbps] <Pop Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Призрак
-2. Подарок
-3. Сквозь этажи
-4. Пара дней    Читать дальше...    Жанр: Pop RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A3086C057ADA9CD996F3581C0FD87DDCFD614A19
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534683.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 681
-
-Капитан Лис - Пристрастие  2022  [MP3|320 Kbps] <Folk Punk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. О Женщины
-2. Гачимучи
-3. Дай Мне
-4. У Этой Песни Очень Длинное Название    Читать дальше...    Жанр: Folk PunkПродолжительность: 00:21:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:692D2067033B928CBAD70EDF21C6840F3D10D093
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534681.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 486
-
-Мамульки Bend - Эта песня обо мне  2022  [MP3|320 Kbps] <Rock, Ska>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Максим
-2. Нина
-3. Офелия
-4. Света    Читать дальше...    Жанр: Rock, SkaПродолжительность: 00:31:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:779A5D0A1A02473303A8BFFBF6D52683F398BC8D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534486.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 203
-
-Екатерина Яшникова - В этой пустоте  2022  Deluxe Edition [MP3|320 Kbps] <Indie Pop>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Intro
-2. На острове  Intro 
-3. На острове
-4. Опять зима  Intro     Читать дальше...    Жанр: Indie PopПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7AEE7F3361AFE6F9088410F50FB1805A20E30705
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534203.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 202
-
-Водокачка - В чужих квартирах  2022  [MP3|320 Kbps] <Indie Rock, Electronic>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Добро пожаловать
-2. Барракуда
-3. Протеже
-4. Мраморная    Читать дальше...    Жанр: Indie Rock, ElectronicПродолжительность: 00:28:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1FB5EA68BE4B50F7AAC0750015F805910722DEA8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534202.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

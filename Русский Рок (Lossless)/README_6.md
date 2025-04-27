@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 694 925
+
+Ночные Снайперы - сет-лист юбилейного тура 2022-2023  2024  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. интро
+2. цой
+3. самый красивый гопник
+4. неторопливая любовь    Читать дальше...    Жанр: RockПродолжительность: 01:27:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D2A0AE24621FB5131998F7D05F395ED2B45C4278
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694925.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 694 922
+
+Лётная школа - Цели и средства  2024  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1.  не вместе
+2. Бывает тепло
+3. Ты
+4. Про секс    Читать дальше...    Жанр: RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:747A4A67F1BC4244C9FEC0C307F0D5F8DBA29AC9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694922.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 694 864
+
+Машина Времени - Легенды русского рока  1998  4 x CD [FLAC|Lossless|image + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1998 - Легенды русского рока, CD1:
+01. Кого ты хотел удивить!
+02. Сколько лет, сколько зим
+03. Скажи мой друг    Читать дальше...    Жанр: RockПродолжительность: 04:55:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:333513B59735B35ABE9D58489193E077D977F77C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694864.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 694 857
+
+Би-2 - All the Best, Vol. 1  2024  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Революция
+2. Дурочка
+3. Сердце
+4. Последний герой    Читать дальше...    Жанр: RockПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3924519C1A8A00390B7E89CCDA6B7D1A200397D4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694857.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 694 484
+
+Аквариум - Радио Африка  1983  2023, 2CD, 40 Anniversary Deluxe Edition [FLAC|Lossless|image + .
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+CD1:
+01. Музыка Серебряных Спиц
+02. Капитан Африка
+03. Песни Вычерпывающих Людей    Читать дальше...    Жанр: Rock |Продолжительность: 01:41:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:565E9DF81579FE0F5A162DC0C0F2DEDA2C705DAB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694484.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 694 371
 
 Banev! - Синдром разбитого сердца  2024  [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative Rock>
@@ -1866,132 +1991,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682239.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 682 237
-
-Атака Сверху - Одинокая дорога к совершенству  2023  [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Пролог [00:01:18]
-02. Мы [00:03:15]
-03. Сердце на джинсовке [00:02:54]
-04. Дальтонизм [00:03:22]    Читать дальше...    Жанр: AlternativeПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44F57495F019A4FE7B155B587B699005A0325006
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682237.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 682 235
-
-Джекилл и Хайд - Иначе быть не могло  2023  [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Бобовый стебель [00:02:19]
-02. Пустые диалоги [00:02:52]
-03. Утонуть [00:02:38]
-04. Иначе быть не могло [00:02:58]    Читать дальше...    Жанр: RockПродолжительность: 00:36:29
-https:  deezer.com album 510946991
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06B041034FEE0E4C9F8C4FE168E8C6FDF0C1F5BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682235.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 682 072
-
-Коса - Плодуродие  2022  [FLAC|Lossless|image + .cue] <Punk, Black Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Лихие дни 3:54
-02. Стонут 3:48
-03. Весна неизбежна 3:04
-04. В братских могилах 4:10    Читать дальше...    Жанр: Punk, Black MetalПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:688D553BB36BD472EFBECCFDBA6E25A5E37C1B43
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682072.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 682 066
-
-Kaban - В Мире Животных  2021  [FLAC|Lossless|image + .cue] <Thrash Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Начало 1:04
-02. Kaban 2:18
-03. Раб 4:03
-04. Пушечный Корм 3:51    Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:27:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:252BA71549F33D2F739C7D368D68AC9CE75225FD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682066.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 681 451
-
-Rage Titanium - Настало Время Героев  2022  [FLAC|Lossless|tracks] <Heavy, Power Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Настало время героев
-02. Хранитель
-03. Сумрачный лес
-04. Армия тьмы    Читать дальше...    Жанр: Heavy, Power MetalПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F00251A0BB7125508F950C7E83016D13A32D9BAE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1681451.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

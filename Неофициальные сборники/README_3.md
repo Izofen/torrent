@@ -1,4 +1,354 @@
 ﻿
+###  Публикация: 1 760 684
+
+VA - Musical kaleidoscope part 13 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Inaya N°2
+02. Michel Pepe - Feerie Des Cercles Polaires
+03. Sisco Le Voyageur - Enigma French N°33
+04. Kasimoff, Dieez, Omer Said - Enigma(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:508E8EEEC70B25144516A0FC44663ACEA6414758
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760684.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 540
+
+VA - Watercolor Melodies (2024) [MP3|320 Kbps] <Jazz, Smooth Jazz, Instrumental Jazz, Easy Listening
+Неофициальные сборники
+Jazz, Blues, Soul (сборники)
+
+###  Подробнее
+
+001. Art Sherrod Jr. - Come And Get It - (03:44)
+ 002. Michael Wolff - Left Out - (06:57)
+ 003. Søren Lee - Moving On - (05:21)
+ 004. Slowly Rolling Camera - Rebirth - (04:45)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, Instrumental Jazz, Easy ListeningПродолжительность: 07:37:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43A422643DD034CDA83149E1E11906E0AA2B7136
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760540.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 534
+
+VA - Rocking The Blues (2024) [MP3|320 Kbps] <Blues, Rock, Folk>
+Неофициальные сборники
+Jazz, Blues, Soul (сборники)
+
+###  Подробнее
+
+001. Kevin & Jd - Cards Are Falling - (03:59)
+ 002. The Red Earth Blues Band - Barn Find - (02:44)
+ 003. The Liberators - Lesterfication - (03:06)
+ 004. Lachy Doley - A World Worth Fighting For - (07:33)(   Читать дальше...   )Жанр: Blues, Rock Folk, Rock BluesПродолжительность: 13:52:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2D3E66757385EBBFC96D5D17FC0E54795C2600D7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760534.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 518
+
+VA - National Pop Dance Vol.90 (2024) [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. The Boyz - Shout It Out - (04:31)
+ 002. Omah Lay - Reason - (02:27)
+ 003. Black Sherif - January 9Th - (03:43)
+ 004. Gaëtan Roussel Feat. Louane - La Beauté - (04:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:50:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:555CA20DC803241719099C409A174CF3F7743BB4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760518.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 517
+
+VA - A State of Trance - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Pete K & Peter Illias - Higher State (Extended Mix) (05:55)
+02. Han Beukers - Portitxol Sunset (Extended Mix) (06:06)
+03. Team Deep - Morninglight (Maarten de Jong Extended Remix) (05:20)
+04. Ruben de Ronde & BetweenUs - Free (Extended Mix) (05:39)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:55A7A88DDE47451D1AB485118D3F97C4BA29FEF4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760517.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 433
+
+VA - Music News For Forum vol.042 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. U2 - Picture Of You (X+W) (Radio Edit) (03:06)
+ 002. AKI & The Palm Tree Boy feat. Phillip Reichmann - This Town (02:33)
+ 003. AKN - You Get Me High (02:34)
+ 004. Alan Walker feat. Anne Gudrun - Avalon (02:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:28:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:83D1110324561F8E70BD82D44669FBFF1AAE1878
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760433.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 324
+
+VA - Trance In Motion Vol.382 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Daxson - Out Of The Void (Extended Mix)
+02. Kinetica - White Lights (Extended Mix)
+03. Craig Connelly & Lasada - Found You (Extended Mix)
+04. Alex M.O.R.P.H. & Airlifter - YOUMANJI (Extended)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8AB23BD7C94FC562FE1E0DB5345C0CD4FD7281A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760324.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 253
+
+VA - Autumn In the Mirror (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+001. Fleetwood Mac - Dreams - (04:18)
+ 002. Maude Latour - Heaven - (03:01)
+ 003. Why Bonnie - Wish On The Bone - (03:53)
+ 004. America - Ventura Highway - (03:32)(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 11:03:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FC7DFACCFB0A4455D0DE798F8036694DE953393A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760253.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 084
+
+VA - Warm Time Electro House (2024) [MP3|320 Kbps] <Electro, House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Nick Chacona, Sasse & The Green Men - The Fog - (09:24)
+ 002. Sebb Junior - A Million Ways - (05:48)
+ 003. Aaron Khaleian & Ambient Pino - Gobi - (06:23)
+ 004. Antony Well - Lua Solidaria - (06:27)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 13:45:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:759BB99DC86797534C3B71AB24BC6E37027C64D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760084.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 061
+
+VA - Melancholic Rock Blues (2024) [MP3|320 Kbps] <Rock, Blues>
+Неофициальные сборники
+Jazz, Blues, Soul (сборники)
+
+###  Подробнее
+
+001. Zach Ryan - Endless Blue
+002. Will Jacobs, Ally Venable - How Long
+003. Til Schneider Band - The Way
+004. Downchild - I Am Mister Downchild(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 09:42:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B591312800C51AE2C80B2534BC31B41EB2A06E35
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760061.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 056
+
+VA - Pop Dance Summer Caramel (2024) [MP3|320 Kbps] <Pop, Pop-Rock, Dance>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Taylor Swift - You Belong With Me (00:03:51)
+002. Clo - Futur (00:02:36)
+003. Angelina Mango - Fila Indiana (00:03:13)
+004. Burito - Парнас (00:03:08)(   Читать дальше...   )Жанр: Pop, Pop-Rock, DanceПродолжительность: 10:20:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0F0B3DD0D1EC9A957C8611A25F7E9C62EFF0A992
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760056.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 009
+
+VA - Neural Dancing (2024) [MP3|320 Kbps] <Synthpop, Pop, Dance, Electronic>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Discovery Zone - Kite - (01:00)
+ 002. Logic1000 - Heartbeat - (02:09)
+ 003. Snow Strippers - Draw A Heart - (02:21)
+ 004. Young Miko - Fuck Tmz - (02:29)(   Читать дальше...   )Жанр: Synthpop, Pop, Dance, ElectronicПродолжительность: 16:53:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BDC8DA0B3152A1119BC630BAA4561F96AB6D2383
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760009.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 759 966
+
+VA - Да здравствуют музы! (2009) [MP3|320 Kbps] <Авторская песня>
+Неофициальные сборники
+Шансон, Авторская и Военная песня (сборники)
+
+###  Подробнее
+
+01 - Олег Митяев-Дорожные жалобы [00:02:51]
+02 - Марина Есипенко, Вениамин Смехов-Из Евгения Онегина [00:00:50]
+03 - Вениамин Смехов-Простите верные дубравы [00:01:00]
+04 - Марина Есипенко-Паж, или пятнадцатый год [00:01:37](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B2DDFB0E622BA6DC860A6CD8FB1A1B5BD0A1F183
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759966.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 759 954
+
+VA - Music News For Forum vol.041 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. JANNA RAY - Лёлик (03:00)
+ 002. ADAMYAN - Для нее (03:56)
+ 003. Adjo - Она (02:00)
+ 004. Afbeavers - Время перемен (04:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:27:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE1187B542BB7EDA29655074A60420DD5347DCDD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759954.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 759 908
 
 VA - Gritty Rhythms and Smooth Blues (2024) [MP3|320 Kbps] <RnB, Soul>
@@ -1644,356 +1994,6 @@ VA - Music News For Forum vol.031 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754635.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 577
-
-VA - Riffing To The Top (2024) [MP3|320 Kbps] <Rock, Hard Rock, Hardcore>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-001. Saint Renascence - Reverend Of Hell
-002. Shayne Malone - Rock Tonight
-003. 3 Leaks, No Heat - Take Me In Your World
-004. Praying Mantis - I Surrender(   Читать дальше...   )Жанр: Rock, Hard Rock, HardcoreПродолжительность: 12:51:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C511DE8A3AF141693C403BB9AB1266EA2DA3F0A4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754577.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 534
-
-VA - Music News For Forum vol.030 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Revoльvers - Самая-самая (03:05)
- 002. A.Losa feat. i-La & PACANI - I’m Sure (02:33)
- 003. A'DI - Та самая (02:13)
- 004. Alekseev - Наодинці танці (03:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:34:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A985F8D16E63DB416A0259F0A6137A0A28812F8E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754534.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 468
-
-VA - Music News For Forum vol.029 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Victoria - In Between (Radio Edit) (02:38)
- 002. Achtabahn feat. Dueja & Romero - Er Ist Broke (02:20)
- 003. Agunda - Без скандалов (02:16)
- 004. Alina Eremia feat. Noua Unspe - Ceva Gen (02:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:48:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0FF2CFE5E1961855C194BFB6E415EFD47EF4980D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754468.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 345
-
-VA - Motivation Mix 6 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Punisher - Can't Fight the Moonlight - Techno-Mix (2:28)
-02. KOSKA - Overdrive - Techno Mix (2:55)
-03. ALTÉGO; Gia Koka - Couldn't Care Less (feat. Gia Koka) (2:25)
-04. David Guetta; Girl On Couch; Billen Ted - Man In Finance (with David Guetta) (1:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:29:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3AB61C53867849F03DDCD79C004CF9F11B58EA94
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754345.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 219
-
-VA - Hard & Heavy (2024) [MP3|320 Kbps] <Hard Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-001. Rob Zombie - The Man Who Laughs [09:44]
-002. Ratt - As Good as It Gets [04:38]
-003. The Cult - Dirty Little Rockstar [03:41]
-004. Heavy Heavy Low Low - Texas Chainsaw Mascer-Uh [01:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 07:11:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E049749F08E34E79F1869B4083743AA8B989E78E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754219.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 029
-
-VA - Feel Good Jazz Lounge (2024) [MP3|320 Kbps] <Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul (сборники)
-
-###  Подробнее
-
-001. Jane Monheit - The Merriest [01:58]
-002. Louis Armstrong, Oscar Peterson - That Old Feeling [02:44]
-003. Norah Jones - Don't Know Why [03:08]
-004. Gregory Porter - Consequence Of Love [03:20](   Читать дальше...   )Жанр: JazzПродолжительность: 08:17:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9605A440AE4719185DF27B57D7C4BB7DC50CE669
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754029.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 753 878
-
-VA - Sensual Vibes (100 Ttracks, Long Playing Edition) (2017) [MP3|320 Kbps] <Easy Listening, Bosa N
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. Feel Good - Noranda [04:00]
-002. Laura Mils - Dancer Body [03:37]
-003. Dj Kam - Chill [02:43]
-004. Enterprise Project - Galaxy Espress [05:09](   Читать дальше...   )Жанр: Easy Listening, Bosa NovaПродолжительность: 06:34:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:42566E6DF7961E0BE8CBFB489674774D4BF7B8C5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1753878.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 753 792
-
-VA - Musical Kaleidoscope Part 6 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy li
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Aurora Night - Golden Season
-02. Louane/ Stephsax - Secret
-03. Davvi - Out of Love
-04. Tina Turner/ Stephane Sax - What's Love Got to Do With It(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A1333DEAD2CE9555B7776E6E616A36ADC9D3A537
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1753792.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 753 689
-
-VA - Record Super Chart 05.10.2024 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Adam Port feat. Stryv & Malachiii & Keinemusik & Orso - Move (Cat Dealers Remix) (4:00)
-02. bearwolf - GODZILLA (2:08)
-03. Sophie And The Giants - Shut Up And Dance (2:57)
-04. Alok feat. Jess Glynne - Summer's Back (2:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6ACE189692A87BAFE8B752943021EAD4B1641993
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1753689.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 753 609
-
-VA - Trance In Motion Vol.381 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Miyuki feat. Jennifer Rene - Our Song (Orchestral vs. Extended Mix)
-02. Petereese feat. Jodie Poye - Bed Of Roses (Artena Extended Remix)
-03. Johan Gielen pres. @Airscape - Piano Del Sol (Extended After Summer Mix)
-04. Robin Aristo - Trancemission (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E5EB59C64CAD737F4B3A21EB8847816CA63080B1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1753609.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 753 502
-
-VA - ЕвроХит Топ 40 Europa Plus 04.10.2024 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Sabrina Carpenter - Espresso (2:55)
-02. Jimin - Who (2:50)
-03. Sophie & The Giants - Shut Up And Dance (2:57)
-04. Teddy Swims - The Door (3:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:58:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7C6022EF62FAC551F1142D053D9F8F5D1F35E135
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1753502.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 753 501
-
-VA - Memorable Blues Instrumental (2024) [MP3|320 Kbps] <Blues, Blues Rock>
-Неофициальные сборники
-Jazz, Blues, Soul (сборники)
-
-###  Подробнее
-
-001. The Jeff Healey Band - Nice Problem to Have [04:50]
-002. Jeff Beck - Over the Rainbow [03:08]
-003. Ronnie Earl & the Broadcasters - Southside Stomp [04:13]
-004. Good City Music Band - Floating Environment [04:18](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 07:32:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9203A5E98690B467EA1B8ACDF24F3EC836F25ED3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1753501.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 753 179
-
-VA - The Dark Side Of Italo Disco (2023) [MP3|320 Kbps] <Italo-Disco>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Fockewulf 190 - Body Heat (Vocal) (6:31)
-02. Dario Dell'aere - Eagles In The Night (8:21)
-03. The Creatures - The Other World Robots (Extended Version) (7:27)
-04. Sylvi Foster - Hookey (6:27)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:26:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AE4CFAD15B458CC3B4D3F797DE4B3E9F1FA8986F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1753179.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 752 710
-
-VA - Summer Pop Coctail Party Vol. 02 (2024) [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Papik - Gente Distratta - (05:29)
- 002. Michaela May - Ultraviolet - (03:25)
- 003. Banners - Have You Ever Loved Someone - (03:19)
- 004. Benson Boone - Beautiful Things - (03:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:31:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7849F0D30E834E5D3BFAF98EB9AE50EB14243F3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1752710.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

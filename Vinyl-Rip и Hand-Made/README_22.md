@@ -1,4 +1,200 @@
 ﻿
+###  Публикация: 1 172 599
+
+VA - Heavenly Bodies: Original Motion Picture Soundtrack  1988  [FLAC 2.0|96 24|image+.cue|Vin
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Bonnie Pointer - The Best In Me
+A2 Sparks - Breaking Out Of Prison
+A3 The Tubes - Out Of Control
+A4 Cheryl Lynn - At Last You`re Mine    Читать дальше...    Жанр: Pop Rock, Soft Rock, SoundtrackПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1172599.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 171 308
+
+VA - XXXL Европейский 5  2000  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Electronic, Eurobeat>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. Modern Talking - Win The Race
+02. Modjo - Chillin 
+03. Billy More - Come On And Do It    Читать дальше...    Жанр: Electronic, EurobeatПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:13452A78F5566CADF54DF1ED2A537EA91F320E4E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1171308.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 171 052
+
+VA - XXXL Европейский 3  2000  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Modjo - Lady  Hear Me Tonight 
+02. Spiller - Groovejet  If This Ain t Love   Radio Edit 
+03. Billie Piper - Day & Night
+04. Camilla Brinck - Bye Bye forever    Читать дальше...    Жанр: PopПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1171052.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 169 724
+
+Рома Жуков - Пыль Мечты  1988  [DSD2.0|5,64MHz 1bit|image+.cue|Tape-Rip] <Pop, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Пыль мечты  07:22  -Жанр: Pop, DiscoПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1169724.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 169 430
+
+ВИА Пламя - 200 лет  1982  [DSD2.0|5,64MHz 1bit|tracks|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Вячеслав Малежик - Двести лет
+02. ПЛАМЯ - Гороскоп
+03. ПЛАМЯ - Синяя птицаЖанр: PopПродолжительность: 00:10:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1169430.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 169 413
+
+Alice Cooper - Paranormal  2017  2LP, 45RPM [WavPack 2.0|192 32|image + .cue|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Paranormal  4:10 
+A2. Dead Flies  2:24 
+A3. Fireball  4:49 
+B1. Paranoiac Personality  3:10     Читать дальше...    Производство: Ear Music - 0212198EMUЖанр: RockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1169413.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 167 019
+
+Александр Зацепин - музыка из к ф  Кавказская пленница   1967  [FLAC 2.0|96 24|tracks|Vi
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Песенка О Медведях  2:56 
+02. Дорога  1:58 
+03. Встреча  2:42 
+04. На Танцевальной Площадке  2:50 Жанр: Pop; Stage & ScreenПродолжительность: 00:10:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C83E30D165E840E78ABF20BA9D1DBEB693FF36CB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167019.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 166 402
+
+Queen - Jazz  1978  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Mustapha  3:02 
+A2. Fat Bottomed Girls  4:17 
+A3. Jealousy  3:14 
+A4. Bicycle Race  3:04     Читать дальше...    Производство: Elektra - P-10601EЖанр: RockПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A5820B8AEFDEFC9158723D5767C4B63D9B2C12AB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166402.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 166 051
 
 VA - Убойная Сила. Любимые песни из телесериалов  2002  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <
@@ -1792,207 +1988,6 @@ A4. Таволга    Читать дальше...    Жанр: ШансонПр
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1137670.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 137 527
-
-Юрий Антонов. Песни  коллекция виниловых пластинок   1971-1989  [FLAC 2.0|96 24|image+.cue
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
- Vinyl, LP, Мелодия - C50 28357-58 002, USSR 
-
-01. Инро
-02. Ю. Антонов - Живёт повсюду красота    Читать дальше...    Жанр: Pop, Pop Rock
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:243B89E81F1A943691317B1288DE6AD23D3FAD0A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1137527.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 136 158
-
-Михаил Круг - Жиган-лимон  1995  2014  remastered  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Электричка
-A2. Девочка-пай
-A3. Кольщик
-A4. Фраер    Читать дальше...    Жанр: ШансонПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C354E53981B27B79F50C89DC76B467A7461E3FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1136158.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 134 776
-
-VA - RETROспектива часть XX. Зарубежные исполнители IV  1955-1962  [FLAC 1.0|48 24|tracks|Viny
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Джика Петреску  Румыния  - Тебя я полюбил, Москва
-02. Джика Петреску  Румыния  -Я тебя люблю  на румынском языке 
-03. Виктор Симон  Бразилия  - Карнавал в Рио  на португальском языке 
-04. Виктор Симон  Бразилия  - Площадка в Яйя  на португальском языке     Читать дальше...    Жанр: Pop, Retro
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BE66C27B17D5DF7B2609ED8FC6E6497062986E66
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134776.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 131 920
-
-Saraya - Saraya [LP]  1989  [WavPack 2.0|192 24|image +.cue|Vinyl-Rip] <Hard Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Love Has Taken Its Toll
-A2 Healing Touch
-A3 Get U Ready
-A4 Gypsy Child    Читать дальше...    Жанр: Hard RockПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131920.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 131 738
-
-Toto Cutugno - L Italiano  1983  1984, Jugoton[FLAC|24 192|image + .cue|Vinyl-Rip]<Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. L Italiano  3:58 
-A2. Solo Noi  4:04 
-A3. Soli  4:04 
-A4. Donna, Donna Mia  3:01     Читать дальше...    Производство: Jugoton - LSY 10026Жанр: PopПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:45463F8CF9286D4B7030D44C00B3B0DC00164888
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131738.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 131 721
-
-Zodiac: Disco Alliance  1980  & Music In The Universe  1983  2LPs [FLAC 2.0|96 24|image+.c
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 The Mysterious Galaxy
-A2 Laser Illumination
-A3 Silver Dream
-A4 Photo Finish    Читать дальше...    Жанр: Disco, Electronic, Space Rock, Synth-popПродолжительность: 00:31:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C0C3BDCABD7492FDE3F209F0B61AB2A16D06B6CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131721.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 131 204
-
-VA - В Помощь Любителям Грамзаписи. Для Проверки Работы Воспроизводящих Устройств  1968, 1973  [
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Кармен-Сюита. Вступление   Проверка Правильности Сторон 
-A2 Дорога Вдаль  Проверка Баланса Каналов 
-A3 Босса-Нова  Проверка Полярности Громкоговорителей 
-A4 Бронепоезд 14-69    Читать дальше...    Жанр: Field Recording, Technical, Classical, Baroque,
-Romantic, Modern, Contemporary, Jazz, LatinПродолжительность: 01:23:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8D8B783A92A7B1CB92854035CFDCC6B53FD27A81
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131204.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 128 403
-
-Jeff Lynne - Armchair Theatre  1990  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Every Little Thing  3:45 
-A2. Don t Let Go  2:59 
-A3. Lift Me Up  3:38 
-A4. Nobody Home  3:54     Читать дальше...    Производство: Reprise Records - 7599-26184-1Жанр: RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C66386E6A8D4786D67AF6FC32B3C01129F9B5963
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1128403.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

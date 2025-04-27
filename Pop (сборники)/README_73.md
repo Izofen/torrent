@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 218 676
+
+Brad Paisley  Брэд Пейсли  - Who Needs Pictures  1999  Arista Nashville [MP3|320 Kbps] <Coun
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Брэд Пейсли  полное имя - Брэд Дуглас Пейсли  - американский кантри-исполнитель и автор песен, один из самых популярных в 2006-2010 годах в своём стиле в «Billboard Top 200». Обладатель трёх премий «Грэмми», четырнадцати «Academy of Country Music Awards», четырнадцати «Country Music Association Awards» и двух «American Music Awards». В 2011 году Пейсли выпустил автобиографическую     Читать дальше...    01. Long Sermon 3:19
+02. Me Neither 3:20
+03. Who Needs Pictures 3:46
+04. Don t Breath 2:54    Читать дальше...    Жанр: Country, Country RockПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6D361916F5F173CFF3E17ECD7E8852F6C32F0843
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218676.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 622
+
+VA - 100 Hits - The Best Love Album  2017  [MP3|320 Kbps] <Pop, R&B, Other>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01. Eric Carmen - All By Myself 4:30
+02. The Bangles - Eternal Flame 3:56
+03. Harry Nilsson - Without You 3:17    Читать дальше...    Жанр: Pop, R&B, OtherПродолжительность: 06:23:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:928DD55CD5D335EEE9D75505CB0D47B375BA0E6F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218622.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 514
+
+Fancy - 30 Years - The New Best Of  2018  [MP3|320 Kbps] <Pop, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Flames of Love  Radio Version   3:28 
+02. Slice Me Nice  4:06 
+03. Come Back and Break My Heart  Radio Mix   4:01 
+04. We Can Move a Mountain  Single Version   3:48     Читать дальше...    Жанр: Pop, DiscoПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:60D562C87715EA9C2DE62F48ADD9760EFECF1D7A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218514.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 484
+
+The Eastern Gang - The Flasher  1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Sunny Faces  4:20 
+02. The Flasher  4:36 
+03. Hamburger Man  5:04 
+04. Charlotte  4:20     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:03CD0963C13072213499F70DDCE2F15CAFB002F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218484.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 446
+
+Наталия Могилевская - Самое... Самое  2003  |Lossless|image + .cue]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Плачь
+02. Снегопад
+03. Зима
+04. Лимоновый фонарь    Читать дальше...    Жанр: PopПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B9659F248402CBF504E72DB4F591EFA738A7B85
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218446.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 427
+
+Revanche - Music Man  1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. You Get High In N.Y.C.  8:39 
+02. Revenge  8:53 
+03. Music Man  8:17 
+04. 1979  It s Dancing Time   8:44 Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0B540858DA0A1164F7D4F1E7F62E84AE6ED7E5CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218427.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 407
+
+VA - NRJ Hit Music Only 2018  2018  3CD [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1
+01. Maître Gims - Mi Gna  00:03:36 
+02. David Guetta - Like I Do  00:03:23 
+03. Vald - Désaccordé  00:03:35     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:21:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F7E7D45AE2DA567B2CCD9361400BF1A443A12BF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218407.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 369
+
+Dschinghis Khan - Moskau - Das Neue Best Of Album  2018  [FLAC|Lossless|WEB-DL|tracks] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Dschinghis Khan
+02. Moskau
+03. Mexico
+04. Madagaskar    Читать дальше...    Жанр: DiscoПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2BCEF097BDD729BF45B0C9C82DE8C22AEC2D1A41
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218369.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 209
+
+Fancy - 30 Years - The New Best Of  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01.	Flames of Love  Radio Version 	3:28
+02.	Slice Me Nice	4:06
+03.	Come Back and Break My Heart  Radio Mix 	4:01
+04.	We Can Move a Mountain  Single Version 	3:48    Читать дальше...    Жанр: Pop, DiscoПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:58D68B39220C5637901C5AD484699E9B2B267D0B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218209.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 976
+
+Arpadys - Arpadys  1977  LP [MP3|320 Kbps] <Electronic, Space-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Monkey Star  6:33 
+02. Funky Bass  5:55 
+03. Pharoah Song  4:36 
+04. Stone Roller  5:34     Читать дальше...    Жанр: Electronic, Space-DiscoПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:853E52855DDD8AB8A8D060FD90EE4BBA891415D3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217976.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 217 889
+
+VA - Eurovision Song Contest Lisbon  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Eugent Bushpepa - Mall  Eurovision 2018 - Albania 
+02. Sevak Khanagyan - Qami  Eurovision 2018 - Armenia 
+03. Jessica Mauboy - We Got Love  Eurovision 2018 - Australia 
+04. Cesar Sampson - Nobody But You  Eurovision 2018 - Austria     Читать дальше...    Жанр: PopПродолжительность: 02:09:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FAB41AFE16B0CCD2C14958585A9884917F4CAFC5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217889.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 217 887
 
 Marsius - ..... Save The Tiger  1977  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -1718,283 +1993,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212633.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 212 629
-
-Judit Neddermann - Nua  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Em diras adeu
-02. Vai Vai Vai
-03. Els ocells
-04. 21    Читать дальше...    Жанр: PopПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A2C982859EA24B606F93BA3C67448769A48FC8B4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212629.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 212 614
-
-VA - Indie Dance and Nu Disco Tales  2018  [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Indie Dance>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Feindrehstar – Dirty Stomping 04:29
-2. Jewmanji – Clearing Crews 06:35
-3. Marian – For You 04:08
-4. Omar Gharbi – Lost In Aegean  Stan Kolev remix  06:51    Читать дальше...    Жанр: Nu Disco, Indie DanceПродолжительность: 02:35:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D9DE1A41C25E160719AD89F7271670E36C1CD4E2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212614.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 212 425
-
-Saskia & Serge - 2 Albums, 1 Compilations  1984-1992  [MP3|320 Kbps] <Pop, Folk, World>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Голландский вокальный дуэт, состоящий из певицы Trudy van den Berg  родилась 23 апреля 1947 года, Grootebroek  и вокалиста-гитариста Ruud Schaap  родился 22 марта 1946 года в Den Helder . Известность получили ещё приняв участие в конкурсе песни Евровидение 1971. Выпустили вереницу хитов на английском и на голландском.01. The Country Disco Train  8:33 
-02. Mama He s A Soldier Now  4:09 
-03. Toulouse Lautrec  3:38 
-04. There s A Song  3:23     Читать дальше...    Жанр: Pop, Folk, WorldПродолжительность: 02:14:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DADDA12F8F54F365A9330721D05BE2CF0E0E53AF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212425.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 212 152
-
-Гоша Куценко - Ду это!  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Капли  feat. Ёлка 
-02. Солнце  feat. Анжелика Варум 
-03. Люди летят  feat. Полина Гагарина 
-04. ONE TWO  feat. IOWA     Читать дальше...    Жанр: PopПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6FBAF7ECC60019E4C863747E46A7355FCFF4A9B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212152.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 212 026
-
-Nadia Cassini - 3 Studio Albums  1978-1985  LP Discography [MP3|320 Kbps] <Electronic, Disco, It
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Надя Кассини  итал. Nadia Cassini род. 2 января, 1949, Вудсток, США  - итало-американская актриса, певица и модель. Известна благодаря ролям в итальянских эротических комедиях 1970-1980 годов. Очень рано ушла из родительского дома. Работала певицей в ночном клубе, хористкой, была моделью. Близкие отношения связывали Надю Кассини с известным писателем Жоржем Сименоном.     Читать дальше...    Список альбомов:
-1978 - Encounters Of A Loving Kind
-1983 - Get Ready
-1985 - Dreams    Читать дальше...    Жанр: Electronic, Disco, Italo-Disco, Hi NRGПродолжительность: 01:45:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:56A8315782A386797E585789CE37DFA13737061A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212026.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 957
-
-Girls Aloud - Tangled Up  2007  Fascination, Polydor [MP3|320 Kbps] <Pop, Drum n Bass, Synth-Pop
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин     Читать дальше...    01. Call The Shots 3:45
-02. Close To Love 3:53
-03. Sexy! No No No... 3:18
-04. Girl Overboard 4:11    Читать дальше...    Жанр: Pop, Drum n Bass, Synth-Pop, Euro HouseПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF7BE478C19B63FD55928DA76BA90A688F07CC2D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211957.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 953
-
-Girls Aloud - Chemistry  2005  Polydor, Christmas Edition [MP3|320 Kbps] <Pop, Electro, Synth-Po
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин     Читать дальше...    01. I Wish It Could Be Christmas Everyday 4:01
-02. I Wanna Kiss You So  Christmas In A Nutshell  3:36
-03. Jingle Bell Rock 1:57
-04. Not Tonight Santa 2:42    Читать дальше...    Жанр: Pop, Electro, Synth-Pop, Ballad, DiscoПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7DA99A6BE88F74768609CB6130BEF72FE34C604
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211953.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 934
-
-Girls Aloud - What Will The Neighbours Say?  2004  Polydor [MP3|320 Kbps] <Pop, Synth-pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-«Girls Aloud» - очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars».
-
-Самая младшая из девчонок, Надин     Читать дальше...    01. The Show 3:38
-02. Love Machine 3:27
-03. I ll Stand By You 3:45
-04. Jump 3:41    Читать дальше...    Жанр: Pop, Synth-popПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:92A11E1419EA5F160F56703C993629A2200F565D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211934.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 892
-
-VA - Time For A Kiss  2CD   2016  [FLAC|Lossless|image + .cue] <Pop, Oldies>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Dean Martin - Kiss  2:25 
-02. Tony Bennett - Kiss You  2:57 
-03. Billie Holiday - Prelude To A Kiss  5:38  
-04. Vic Damone - We Kiss In A Shadow  4:01     Читать дальше...    Жанр: Pop, OldiesПродолжительность: 01:26:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B5FF659C03A2B188AB3063693781D240932D0ABF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211892.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 692
-
-VA - Mastermix Pro Disc 213 - March  2018  [MP3|320 Kbps] <Indie, Folk, Neo Soul, Dancehall, Ele
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Iggy Azalea Ft, Quavo - Savior
-02. James Bay - Wild Love
-03. Blocboy JB Ft, Drake - Look Alive
-04. The Chainsmokers - Sick Boy    Читать дальше...    Жанр: Indie, Folk, Neo Soul, Dancehall, ElectropopПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:445F2C233DBA778A2AF95C1331314E9D8FEC290A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211692.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 211 682
-
-Donna McGhee - Make It Last Forever  1978  Reissue CD, Big Break Records, 2012 [MP3|320 Kbps] <E
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Make It Last Forever  8:26 
-02. Do As I Do  10:21 
-03. It Ain t No Big Thing  6:45 
-04. Mr. Blindman  5:14     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7792C31CDF2C54C3DAF99104A8CEA3C8F47F4EA1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211682.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

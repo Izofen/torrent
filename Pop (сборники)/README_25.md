@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 555 761
+
+Kiki Dee - 3 Albums  1977-1981  Reissue CD [MP3|320 Kbps] <Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Кики Ди  настоящее имя Полин Мэтьюс, Pauline Matthews; род. 6 марта 1947  - британская певица. Была первой белой блю-айд-соульной певицей, подписавшей контракт с мотауновским лейблом Tamla Records. За свою карьеру Кики Ди издала 40 синглов, 3 мини-альбома  EP  и 12 альбомов.Список альбомов:
+1977 - Kiki Dee
+1978 - Stay With Me
+1981 - Perfect Timing...Plus    Читать дальше...    Жанр: Pop, RockПродолжительность: 02:34:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5EE1D0D31694CC3C7F9C27BF5455CF42346C51D9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555761.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 555 708
+
+J. C. Riffaud - Emotion Life And Happiness  1979  LP [MP3|320 Kbps] <Electronic, Jazz, Easy List
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Thunder Storm  4:09 
+02. Air Ticket  3:32 
+03. The Song Of Little Bird  3:30 
+04. Blue Morning  2:54     Читать дальше...    Жанр: Electronic, Jazz, Easy Listening, DiscoПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5C3090FA2AD2ECB22AEB66AEA5719808ED1FAEE4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555708.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 555 642
+
+Giorgio Scarpinelli Y Su Orquesta - Disc-O-Tango  1979  LP [MP3|320 Kbps] <Electronic, Instrumen
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Pastora  3:42 
+02. La Yumba  5:10 
+03. A Marietta  4:20 
+04. Sombras Nada Mas  4:27     Читать дальше...    Жанр: Electronic, Instrumental, DiscoПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:791C14A00E0A59477455DFF3E78E9180B3113D0A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555642.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 555 603
+
+The Music People - Superman Y Otros Exitos  1979  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Tema De   Superman    Theme From   Superman     5:36 
+02. Mujer Maravilla  Wonder Woman   2:30 
+03. Yo Robot  I Robot   3:53 
+04. Marruecos  3:24     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:31:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC112BDA5614332F49A34A24DDE5CE5B49219B09
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555603.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 555 435
+
+Geoff Love s Big Disco Sound - 4 Albums  1976-1980  LP [MP3|320 Kbps] <Electronic, Funk Soul,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Джефф Лав - музыкальный директор, аранжировщик, композитор и одна из самых популярных музыкальных личностей Великобритании с 1957 года. В 70х, на волне востребованного диско, создал оркестровую группу Geoff Love s Big Disco Sound.Список альбомов:
+1976 - Dance Dance Dance
+1977 - You Should Be Dancing - Volume 2
+1978 - Big Disco Movie Hits    Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:03:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D7C6DD42965763812E59116EC764802123A78C47
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555435.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 555 364
+
+Made In U.S.A. - Melodies  1977  Reissue, 2017, Octave Lab [MP3|320 Kbps] <Electronic, Funk Soul
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Never Gonna Let You Go  5:08 
+02. Try Once More  4:16 
+03. Sexy Lady  4:29 
+04. Try To Find A Way  3:20     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A270120F85ADD97513A97C8948A2EACDF8E76880
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555364.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 555 108
+
+Andy Jonas  Angel X, Andreas Harde  - 7 Relises  1996-2017  [FLAC|Lossless|WEB-DL|tracks|tra
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Wie der Wind [00:03:27]
+02. Gestrandet [00:03:24]
+03. Rose in Wind [00:03:04]
+04. Verliebt [00:04:01]    Читать дальше...    Жанр: Europop, Deutchpop, ElectronicПродолжительность: 7 CD, 01:37:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3647C3A4B6CAB89D7CB94DB4D9D56C3847B9B02F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555108.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 554 983
+
+Sandra - Medley - Non-Stop Hit Mix  2020  [MP3|320 Kbps] <Electronic, Synthpop, Eurodisco, Europ
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Johnny Wanna Live
+02. Hiroshima
+03. Paintings In Yellow
+04. Steady Me    Читать дальше...    Жанр: Electronic, Synthpop, Eurodisco, EuropopПродолжительность: 02:04:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E724B2F7809338F5CCE75E70C09F24EF96A0D74
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554983.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 554 972
+
+Leo Sayer - Northern Songs  2021  Sings The Beatles [FLAC|Lossless|image + .cue] <Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Eleanor Rigby
+02. Strawberry Fields Forever
+03. Revolution
+04. Get Back    Читать дальше...    Жанр: Pop, RockПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C0C82DA90D9FE1CF9A3CC10605816232507B7C57
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554972.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 554 926
+
+Gilla - Disco Collection  2001  [FLAC|Lossless|tracks + .cue] <Disco, Pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Johnny
+02. Tom Cat
+03. The Heat Is On
+04. Go Down Mainstreet    Читать дальше...    Жанр: Disco, PopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:468423F962DF40367908675996375FC591EBD0F1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554926.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 554 685
+
+The Chainsmokers - So Far So Good  + Time Bomb   2022  [FLAC|Lossless|WEB-DL|tracks] <Pop, E
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Fall
+02. Why Can t You Wait
+03. Time Bomb
+04. Riptide    Читать дальше...    Жанр: Pop, ElectropopПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5780F36D02B3B806899A78095459D95F62373B23
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554685.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 554 309
 
 VA - ZYX Italo Disco Spacesynth Collection 8  2022  2CD, Compilation [MP3|320 Kbps] <Italo-Disco
@@ -1718,281 +1993,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549118.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 549 073
-
-VA - Back to Basics Disco Hits  2021  [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. KnightsBridge - I Was Made for Lovin  You  3:20 
-02. The Road Cruisers - Smoke Gets in Your Eyes  2:57 
-03. Starlite Singers - Mary s Boy Child   Oh My Lord  5:16 
-04. Silver Disco Explosion - No More Tears  Enough Is Enough   4:37     Читать дальше...    Жанр: Funk, Disco, PopПродолжительность: 01:25:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:110EE47185AC66199FF2D338EFB7AD25ACB992ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549073.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 968
-
-VA - Mastermix presents MX: Balearic  2022  [MP3|320 Kbps] <Chillhop, Lo-Fi, Broken Beat>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Paul Chambers - Caramel
-02. Max Mozart - Goals
-03. Eden Santonio - Medication
-04. Amadeus Mozart - Beach Opera    Читать дальше...    Жанр: Chillhop, Lo-Fi, Broken BeatПродолжительность: 00:52:35 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:778FEABCC0D73E8351EAA600FF9840CF59813949
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548968.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 966
-
-VA - Mastermix presents MX: Afrobeats  2022  [MP3|320 Kbps] <Afrobeat, Lo-Fi, Broken Beat, Chill
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Lucia Nevis - Reino Unido
-02. Tico Piper - In The Rain
-03. Les Verde Orchestra - Stars
-04. Tempaz - Afro Groove    Читать дальше...    Жанр: Afrobeat, Lo-Fi, Broken Beat, ChillhopПродолжительность: 00:49:00 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D3D517450CAC077775F80CD19EEF4677F4B87B10
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548966.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 963
-
-VA - Mastermix Jet Boot Jack Remixes 2: Extended  2022  [MP3|320 Kbps] <Dance, New Wave, Funk, S
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Clash - Rock The Casbah  Jet Boot Jack Remix - Extended 
-02. Corona - The Rhythm Of The Night  Jet Boot Jack Remix - Extended 
-03. Curiosity Killed The Cat - Misfit  Breakdance On The Street   Jet Boot Jack Remix - Extended 
-04. Doobie Brothers - Long Train Runnin   Jet Boot Jack Remix - Extended     Читать дальше...    Жанр: Dance, New Wave, Funk, SynthpopПродолжительность: 01:45:38 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B90F2E288F5A078803F492B45C63A5DC5B9DBC7E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548963.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 962
-
-VA - Mastermix Jet Boot Jack Remixes 2: Edits  2022  [MP3|320 Kbps] <Dance, New Wave, Funk, Synt
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Clash - Rock The Casbah  Jet Boot Jack Remix - Edit 
-02. Corona - The Rhythm Of The Night  Jet Boot Jack Remix - Edit 
-03. Curiosity Killed The Cat - Misfit  Breakdance On The Street   Jet Boot Jack Remix - Edit 
-04. Doobie Brothers - Long Train Runnin   Jet Boot Jack Remix - Edit     Читать дальше...    Жанр: Dance, New Wave, Funk, SynthpopПродолжительность: 01:09:01 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D606AD87ECD77D452569ABE1086560775D36D31
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548962.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 944
-
-VA - ZYX Italo Disco - Best Of Volume 3  2022  LP [MP3|~245 Kbps  V0 ] <Italo-Disco, Europop
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Valerie Dore - The Night  Special Remix   6:46 
-02. Public Passion - Flash In The Night  Extended Version   6:31 
-03. Biba - Top Model  5:20 
-04. Silvio Pozzoli - Around My Dream  Extended Version   5:34     Читать дальше...    Жанр: Italo-Disco, Europop, SynthpopПродолжительность: 01:36:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6321DF9D88B6CC90D7946B36FB7BBB67BA40948
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548944.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 940
-
-VA - ZYX Italo Disco - Best Of Volume 2  2021  LP [MP3|~245 Kbps  V0 ] <Italo-Disco, Europop
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Radiorama - Vampires  Swedish Remix   6:23 
-02. Fake - Donna Rouge  Remix   5:38 
-03. Den Harrow - Future Brain  Maxi Version   5:27 
-04. Savage - Only You  Extended Version   6:54     Читать дальше...    Жанр: Italo-Disco, Europop, SynthpopПродолжительность: 01:36:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:17FC17D94392319722F6F91D19C278029A0F69FD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548940.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 939
-
-VA - ZYX Italo Disco - Best Of Volume 1  2020  LP [MP3|~245 Kbps  V0 ] <Italo-Disco, Europop
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Mike Rogers - Happy Moon  Vocal Version   5:58 
-02. Lena - Run To Me  Extended Version   4:53 
-03. G.J. Lunghi - Acapulco Nights  Maxi Version   6:29 
-04. Ocean Wings - Loving In The Snow  Vocal Version   6:26     Читать дальше...    Жанр: Italo-Disco, Europop, SynthpopПродолжительность: 01:32:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B4CBC1308F0D50E58191709C81D9E9AD6B30FF76
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548939.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 937
-
-VA - Italo Disco Classics  2013  2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eu
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. P. Lion - Happy Children  Vocal Version   6:01 
-02. Brian Ice - Talking To The Night  Extended Version   5:53 
-03. Styloo - Pretty Face  6:06 
-04. Grant Miller - Colder Than Ice  Maxi Version   5:37     Читать дальше...    Жанр: Italo-Disco, Europop, SynthpopПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CCD8D84D394D178B99BC7773BE310658D0C8C475
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548937.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 820
-
-Imagination - Like It Is - Revised And Remixed Classics  1989  [FLAC|Lossless|tracks + .cue] <Fu
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Changes
-02. Burning Up
-03. Just An Illusion
-04. Body Talk    Читать дальше...    Жанр: Funk, Disco, PopПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0A5D9015D3FDD625DC1DA26501060C49DE04319D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548820.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 765
-
-Carlo Maria Cordio - Shadows And Memories  1979  LP [MP3|320 Kbps] <Electronic, Downtempo, Disco
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Moon Sacrifice  3:54 
-02. Flying Into The Sunshine  3:26 
-03. Seagulls Flight  3:25 
-04. Theme For A Dream  4:15     Читать дальше...    Жанр: Electronic, Downtempo, DiscoПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3AB8D5B44F4EDE03EB15EB983F1FAF7EEFA19A59
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548765.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

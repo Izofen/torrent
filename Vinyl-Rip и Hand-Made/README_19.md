@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 328 054
+
+Teddy Ikeya Quintet - Dream  1967  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Lis
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Sekai Wa Futari No Tameni
+02. Kitaguni No Aoi Sora
+03. Koi
+04. Nagisa No Senorina    Читать дальше...    Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1328054.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 328 046
+
+Yujiro Mabuchi  68 All Stars - Attractive Tenor-Sax Mood Best 16  1973  [FLAC 2.0|44,1 16|tr
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Watashi No Kare Wa Hidarikiki
+02. Hitorikko Amaekko
+03. Muneippai No Kanashimi
+04. Ai No Kurashi Dosei Jidai    Читать дальше...    Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1BFCF68DFA330C20F90284DE40338B5615755663
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1328046.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 327 959
+
+The Prodigy - No Tourists  2018  [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Need Some1  2:43 
+A2. Light Up The Sky  3:20 
+A3. We Live Forever  3:43 
+B1. No Tourists  4:18     Читать дальше...    Жанр: Drum & Bass, Big BeatПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1327959.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 326 269
+
+Yujiro Mabuchi  68 All Stars - Okizari Ni Shita Kanashimi Wa   Soshun No Minato  1973  [FLAC
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Ai No Banka
+ A2 Okizari Ni Shita Kanashimi Wa
+ A3 Maruyama Hanamachi Haha No Machi
+ A4 Ken To Mary - Ai To Kaze No Yoni    Читать дальше...    Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:62046206D8BC624EE55326F6E99665A95C91B372
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326269.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 326 146
+
+Yujiro Mabuchi '68 All Stars - Minatomachi Blues. Crown Golden Series, Tenor Saxophone (1969) [FLAC
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Toki Ni Wa Haha No Nai Ko No Yoni
+ A2 Yoake No Scat
+ A3 Nanairo No Shiawase
+ A4 Kaze(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F5EBCC0B5A046021743BEE380E142C16DDD2F538
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326146.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 326 075
+
+VA - Best Hit Of Japan  Shungo Sawada Akira Fukuhara Quintet   19??  [FLAC 2.0|44,1 16|i
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Shungo Sawada - Koi No Kisetsu
+02. Shungo Sawada - Tenshi No Yuwaku
+03. Shungo Sawada - Koi No Hallelujah
+04. Shungo Sawada - Mona Lisa No Hohoemi    Читать дальше...    Жанр: Pop, InstrumentalПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A907E39A90C84424D2D2F3DF477F72BC0FF9228E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326075.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 794
+
+Wanda Jackson & Karel Zich - Let s Have A Party In Prague  1988  [FLAC 2.0|96 24|image +.cue
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1:
+01. Let s Have A Party
+02. Long-Legged Guitar Picking Man
+03. Losing Game    Читать дальше...    Жанр: Rock & RollПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8ABE2B3FAE979738E819F01AD605CAD9AD7FE355
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324794.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 758
+
+Timothy Farrell & Christopher Green - Organ and Cello Music from Westminster Abbey  1973  [FLAC
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side One:
+A1 Fanfare, Op. 85
+A2 Pfingsten, Op. 145, No. 6
+A3 Improvisation on  Schonster Herr Jesu , Op. 55 for cello and organ    Читать дальше...    Жанр: Classical, Cello & Organ
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:607B33E9CF1A42CA95129DA5027E0C7FB9D76B93
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324758.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 323 333
 
 Audrey Hepburn, Rex Harrison - My Fair Lady  The Original Sound Track Recording   1964  [FLA
@@ -1790,206 +1990,6 @@ A4  You Never Can Tell  C est La Vie    Читать дальше...    Жанр
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273388.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 273 047
-
-VA - Новогодняя дискотека  1989  [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. А. Хоралов - А снег рисует...
-02. Л. Долина - Страна Лимония
-03. И. Саруханов - Падал снег
-04. Группа  НРГ  - Время зовет меня    Читать дальше...    Жанр: PopПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273047.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 272 890
-
-Led Zeppelin - The Song Remains The Same 1976  2007  [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Rock And Roll  3:57 
-02. Celebration Day  3:38 
-03. Black Dog  3:45 
-04. Over The Hills And Far Away  6:16     Читать дальше...    Жанр: RockПродолжительность: 02:11:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1FD99A40670FB185F5F35388448C365CC9DCA6CA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1272890.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 272 661
-
-VA - Новогодняя Дискотека. Выпуск 1  1998  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. Балаган LTD & Филипп Киркоров - Наивная
-02. Таня Буланова - Пела Я Тебе
-03. Кай Метов - Снегурочка    Читать дальше...    Жанр: PopПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1272661.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 272 624
-
-VA - До 16 и старше. Выпуск 3  2000  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01.   Руки Вверх   - Ай-яй-яй
-02.   Вирус   - Кап-кап
-03.   Ночной Патруль   - Первая любовь    Читать дальше...    Жанр: PopПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1F1830285191AF037FD3DBCB88D0639DF252DB9D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1272624.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 896
-
-VA - The Civil War - Original Soundtrack Recording. Traditional American Songs And Instrumental Musi
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 The Old Bethpage Brass Band - Drums Of War 
-A2 Paul Roebling - Oliver Wendell Holmes  Quote 
-A3 Evan Stover, Jay Ungar, Matt Glaser  Fiddle  and Molly Mason, Russ Barenberg  Guitar  - Ashokan Farewell
-A4 Jacqueline Schwab  Piano  - Battle Cry Of Freedom    Читать дальше...    Жанр: SoundtrackПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271896.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 697
-
-Fine Young Cannibals - Fine Young Cannibals  1985  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop Roc
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Johnny Come Home
-A2 Couldn t Care More
-A3 Don t Ask Me To Choose
-A4 Funny How Love Is    Читать дальше...    Жанр: Pop RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271697.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 681
-
-Cliff Richard - The Best Of...  unknown  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Classic Rock, Roc
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Face A:
-01. Devil Woman
-02. The Young Ones
-03. Do You Wanna Dance    Читать дальше...    Жанр: Classic Rock, Rock n RollПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14F155DD0EA7859AF89AA5E1911297226D24E802
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271681.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 662
-
-The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music  Schubert, Tchaickovsky, Straus
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1:
-01. Adolphe Adam -   Giselle  
-02. Franz Schubert -   Rosamunde  
-    Читать дальше...    Жанр: ClassicalПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271662.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

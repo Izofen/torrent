@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 548 427
+
+Arch Enemy - Дискография  15 albums   1996 - 2022  hand made [restored, declipped] [FLAC 2.0
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Arch Enemy  от англ. arch-enemy — заклятый враг  — шведская группа, играющая в стиле мелодичный дэт-метал. Была основана в 1996 году братьями Майклом и Кристофером Эмоттами.1996 - Black Earth
+1998 - Stigmata
+1999 - Burning Bridges
+2001 - Wages of SinЖанр: Melodic Death MetalПродолжительность: 14:34:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:83A096057ADD8A0D99DCA2EF7823E66443821868
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548427.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 547 993
+
+Frankie Laine - Frankie Laine s Greatest Hits  1975  Compilation [FLAC 2.0|192 24|image+.cue
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 I Believe
+A2 Your Cheatin  Heart
+A3 Jalousie
+A4 That s My Desire    Читать дальше...    Жанр: PopПродолжительность: 00:23:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2FF9E1DB1D9DCE6078A9FD746E47BC0C13154C04
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547993.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 547 919
+
+La Bouche - Greatest Hits  2006  2LP, Limited Edition, 2022, Sony Music [FLAC 2.0|192 24|image
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1		Sweet Dreams
+A2		Be My Lover
+A3		In Your Life
+A4		Take Me 2 Heaven 2 Night    Читать дальше...    Жанр: Electronic Eurodance, Euro HouseПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D2625F12AED6F73A14EE545FE87DC7634DEA1F16
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547919.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 547 850
+
+Людмила Сенчина - Аист На Крыше  1986  ЕР [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Бумажный Cамолетик
+ В. Севастьянов – А. Римицан 
+02. Сновидение
+ Л. Доброва – Н. Денисов     Читать дальше...    Жанр: Pop RockПродолжительность: 00:11:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:03BADACA99BB5CB1DF36ABC97B831A628AE4F280
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547850.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 547 836
+
+Оризонт - Между Нами Снег  1984  ЕР [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Между Нами Снег
+ В. Шаинский - С. Алиханов, А. Жигарев 
+02. Песня Куклы
+ В. Шаинский - С. Алиханов, А. Жигарев     Читать дальше...    Жанр: PopПродолжительность: 00:13:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6727DDBAB1C47846FA52E37E23D51591DA2BD391
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547836.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 547 522
+
+Форум - Три альбома  1987-1992  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Synth-pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Зови Меня, Иди Ко Мне
+ В. Сайко – Л. Виноградова 
+A2 Серые Глаза
+ В. Сайко – Д. Панфилов     Читать дальше...    Жанр: Synth-popПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7CCDA5F64130E86C81410FDC4D0186C4D0B7964D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547522.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 547 377
+
+Sabaton - Studio Albums  11 releases   2005 - 2022  hand made [restored, declipped] [FLAC 2.
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Sabaton — шведская хэви-пауэр-метал группа, основанная в декабре 1999 года. Основной темой для песен являются войны и отдельные сражения и подвиги. Название группы в переводе с английского означает латный ботинок, часть рыцарских доспехов.2005 - Primo Victoria
+2006 - Attero Dominatus
+2007 - Metalizer
+2008 - The Art Of WarЖанр: Heavy Power MetalПродолжительность: 10:40:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0921BA71FF8CBF8FF95A4E3A93796F8BCEF5D8D3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1547377.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 546 722
+
+Ольга Вардашева и Людмила Невзгляд - Холодный Вечер  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Ri
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Холодный Вечер
+ А. Морозов, обработка В. Литвиненко - М. Рябинин 
+02. Как Забыть Тебя
+ музыка и слова В. Литвиненко     Читать дальше...    Жанр: PopПродолжительность: 00:12:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7F38F28C330AEAE26BED0BF0C52988A91D6394A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1546722.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 546 708
 
 Акварели - Рыжее Лето  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop>
@@ -1796,204 +1996,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1524455.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 524 431
-
-Комиссар - Наше Время Пришло  1991  Питон, со вставками Звук [DSD2.0|11,28MHz 1bit|image+.cue|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-[0:35] 01. Студия ПИТОН представляет!
-[5:05] 02. Ты уйдешь
-[3:51] 03. Наше время пришло
-[4:56] 04. Всё изменится    Читать дальше...    Жанр: Pop, Disco, Dance, TechnoПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1F9152FEA6FA7194A80CEAA962B55981D0CC2995
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1524431.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 524 025
-
-The Beatles - 1967-1970  1973  Blue Album [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Beat, Pop R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-LP1
-A1 Strawberry Fields Forever
-A2 Penny Lane
-A3 Sgt. Pepper s Lonely Hearts Club Band    Читать дальше...    Жанр: Beat, Pop RockПродолжительность: 01:39:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ED79CAA200AAA39DE6A04C1F3E3CB96C0EB7126A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1524025.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 524 023
-
-The Beatles - 1962-1966  1973  Red Album [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Beat, Pop Ro
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-LP1
-A1 Love Me Do
-A2 Please Please Me
-A3 From Me To You    Читать дальше...    Жанр: Beat, Pop RockПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:43605E3D08B535E30D60EEEFB531B46D092426FA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1524023.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 523 505
-
-Dream Theater - Дискография  28 releases   1989 - 2021  hand made [restored, declipped] [FLA
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Dream Theater — прогрессив-метал-группа из США. Основана в 1985 году тремя студентами музыкального колледжа Беркли.1989 - When Dream and Day Unite
-1992 - Images and Words
-1994 - Awake
-1997 - Falling Into InfinityЖанр: Progressive MetalПродолжительность: 42:16:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A951EB5C7D7AC28897F61DC2E9B0FBC649C87C53
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1523505.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 523 022
-
-Deep Purple - Turning To Crime  2021  [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. 7 And 7 Is  2:28 
- 02. Rockin  Pneumonia And The Boogie Woogie Flu  3:15 
- 03. Oh Well  4:31 
- 04. Jenny Take A Ride!  4:36     Читать дальше...    Жанр: Rock, BluesПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E52485D1D1AD75EF62EDA57DA58A8CA405BE2FB6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1523022.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 522 707
-
-Mylene Farmer - Дискография  17 releases   1986 - 2022  hand made [restored, declipped] [FLA
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Милен Жанна Готье  фр. Mylène Jeanne Gautier , профессионально известная как Милен Фармер  Mylène Farmer , французская певица канадского происхождения, композитор, актриса и поэтесса.1986 - Cendres de lune
-1988 - Ainsi soit je
-1991 - L autre
-1995 - AnamorphoseeЖанр: Chanson, Pop Rock, Synth-popПродолжительность: 22:07:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ADC167E734912BB685FEAD90C5F870D269160022
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1522707.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 522 655
-
-Queen Of The Damned OST  2002  hand made [restored, declipped][FLAC 2.0|Lossless|44 16|tracks
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Оригинальный саундтрек к фильму Queen Of The DamnedCD1 - Queen Of The Damned  original score by Richard Gibbs 
-CD2 - Queen Of The Damned  songs by Jonathan Davis Жанр: Stage & Screen, Nu Metal, Alternative RockПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA11032AC2BC113E20A228B5C04D805E31CA55F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1522655.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 522 398
-
-Александр Розенбаум - Казачьи Песни  1990  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Chanson, Ba
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-А1 Песня Красных Конников • Song Of Red Cavalry Men
-А2 Кубанская Казачья • Kuban Cossack Song
-А3 Тетя Маня • Aunt Manya
-А4 Кандальная • Irons Song    Читать дальше...    Жанр: Chanson, BalladПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1928C2509F45913B982EE8AC3964CD9AEB61630D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1522398.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

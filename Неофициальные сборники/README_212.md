@@ -1,4 +1,422 @@
 ﻿
+###  Публикация: 782 523
+
+VA - Hits RFM  2014  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Tous les memes - Stromae
+02. Sirens Call - Cats on Trees
+03. Wasting My Young Years - London Grammar
+04. Paris-Seychelles - Julien Dore
+05. Another Love - Tom Odell
+06. The Conversation - Texas
+07. Du vent des mots - Garou en duo avec Charlotte Cardin
+08. Recovery  Single Version  - James Arthur
+09. D un Ave Maria - Pascal Obispo
+10. Let Her Go - Passenger    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:00:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:20E8CAA3C1A5D486BEC2FE5DC32492EB673EB894
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 782 380
+
+VA - 100 Лучших Диджеев Мира  2014  [MP3|256 кб с]<Dance, Club, Trance, House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Hardwell - Call Me A Spaceman  feat. Mitch Crown 
+002. Armin van Buuren - Alone  feat. Lauren Evans 
+003. Avicii - Wake Me Up  feat. Aloe Blacc 
+004. Tiesto - Red Lights  Radio Edit 
+005. David Guetta - Bad  fear. Showtek & Vassy 
+006. Dimitri Vegas & Like Mike - Mammoth  Original Mix 
+007. Nicky Romero - Symphonica  Amersy Remix 
+008. Steve Aoki - Rage The Night Away feat. Waka Flocka Flame Жанр: Dance, Club, Trance, HouseПродолжительность: 08:47:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F9F77ACEBE5CA02E8780A0CC3A53F8BDD279C7E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 782 275
+
+VA - Exclusive DJ Pack  01.02.2014  [MP3|320 кб с]<Dance, Nu Disco, House, Techno, Trance, Bre
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. 7Oceans - Day  Original Mix   06:11 
+ 02. 7Oceans - My Hollywood  Original Mix   06:21 
+ 03. 7Oceans - My Hollywood  Paul Legvand Remix V2   06:53 
+ 04. 7Oceans - My Hollywood  Paul Legvand Remix   06:45 Жанр: Dance, Nu Disco, House, Techno, Trance, Breaks, Minimal, OtherПродолжительность: 00:26:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:122AF0BB4EF3A00FD89FBBFA16CF1B33EFC86134
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 782 248
+
+VA - Новинки Шансона 33  2014  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+1. Александр Антыков - Не осуждай!  2:33 
+2. Лариса Закиева - Журавлей косяк  2:50 
+3. Максим Перепелица - Мне не будет больше 18  2:15 
+4. Константин Куклин - Дождь и кларнет  2:37 
+5. Михаил Кириллов - Здравствуй  3:21 
+6. Александр Самсон - Кутерьма  4:45 
+7. Владимир Асмолов - Наше всё  3:12 
+8. Михаил Блат - Освободился  3:35 
+9. Весна - Сиреневая блузка  3:46 
+10. Владимир Калусенко - Гармонист  3:38 Жанр: ШансонПродолжительность: 06:14:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C0A7867EE236424C7D84BD425D4EE5124DE09AAD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 782 216
+
+VA - Pleasant Trance: April  2014  [MP3|320 кб с]<Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Neverend - Ancient Sands  Original Mix 
+002. Nianaro & Upfly - Lifebuoy  Original Mix 
+003. Ozo Effy - The Last Hero  Original Mix 
+004. Phil Dinner - Muezzin  Original Mix 
+005. Saman & Farzam ft. Allam - Arwen  Original Mix 
+006. Samvel - Arctic Echoes  Original Mix 
+007. Sandi Morreno - Awakening  Original Mix 
+008. Serge Macoveu - Vladis  Original Mix 
+009. Vasaris - Days Of Future Past  Original Mix 
+010. Nick Callan - Trust Me  Original Mix     Читать дальше...    Жанр: TranceПродолжительность: 03:41:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:03BE9D6EF3645A2F08C559FEEE79238A35F5FC13
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 782 023
+
+VA - Music For Everyone - Drum and Bass & Liquid Vol.1  2014  [MP3|320 кб с]<Drum and Bass, Li
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+1. Bcee, Lomax feat. Aorta - Love Hope & Future  Original Mix 
+2. Greg Packer & Makoto - Heatwave  Original Mix 
+3. Sacred - One Love  Clorviolt Remix 
+4. Shockone & Phetsta - The Sun  Original Mix 
+5. Metrik - More Than Words  Original Mix 
+6. Hamilton - Deep In My Heart  Original Mix 
+7. Camo & Krooked - WKND  Original Mix 
+8. Metrik feat. Kathy Brown - I See You  Original Mix 
+9. Matrix & Futurebound - Magnetic Eyes  Instrumental Mix 
+10. Mat Zo & Porter Robinson - Easy  Andy C Mix     Читать дальше...    Жанр: Drum and Bass, Liquid FunkПродолжительность: 01:55:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B638693F21AD71A90C9270864CC83DC05FABB60
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 781 946
+
+Kraftwerk - 25 Best Songs  2014  [MP3|~245 кб с]<Synthpop>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. The Telephone Call 1986
+02. The Model 1978
+03. Sex Object 1986
+04. The Robots 1978    Читать дальше...    Жанр: SynthpopПродолжительность: 02:17:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA0631CC8F7201879351316E18B8545F4A7426DF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_781946.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 781 914
+
+VA - Dance Hits Vol.4  2014  [MP3|320 кб с]<Dance , Club, Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Paul Dave - Til The End  Radio Edit  [03:35]
+02. Martin Garrix - Animals  Radio Edit  [04:11]
+03. Systematixx - Be My Lover  Dj Ramon Project  [04:15]
+04. Alex M. - Heavenly Emotions  Alex Megane Newdance Edit  [03:27]
+05. Mr. Probz - Waves  Modern Machines Remix  [05:04]
+06. Jennifer Lopez feat French Montana - I Luh Ya Papi  Mike Cruz Remix  [08:34]
+07. Mattyas - Missing you  DJ Rollin Remix 2014  [05:11]
+08. Otilia - Bilionera  Extended Mix  [05:39]
+09. Mario Bischin - Macarena  Emmy D Remix  [05:43]
+10. Lady Gaga - G.U.Y.  Kevin Drew Remix  [04:45]    Читать дальше...    Жанр: Dance , Club, PopПродолжительность: 05:32:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C22A640F677324A3027A29680D04859A1F825F5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 781 910
+
+VA - Dancing Planet Vol.6  2014  [MP3|320 кб с]<Dance, Club, House, Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Dina Gabri feat. Naguale & Sukhbir - Imagine [03:31]
+02. Fly Project feat. Boier Bibesc - H.O.P.  Hop   Radio Edit  [03:21]
+03. Alexandra Shine - Dancing Home  Radio Edit  [03:40]
+04. Tony Igy - Winged  Radio Edit  [04:06]
+05. Somna & Yang feat. Noire Lee - Not Afraid  Radio Edit  [04:23]
+06. Turbotronic - One Time  Radio Edit  [03:08]
+07. Shine & Din Dong - Hola Hola  Radio Edit  [03:33]
+08. Mario Bischin - Morena  Funkfreak Bootleg  [05:22]
+09. Joe Berte & Don Cash - Batuka  Radio Edit  [03:08]
+10. Janina Minados - My Love is Your Love  SzymerLow! Edit  [04:01]    Читать дальше...    Жанр: Dance, Club, House, PopПродолжительность: 04:53:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B16787677C285D3BB906594D600A619E57F96CB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 781 819
+
+VA - Vocal Trance Collection Vol.118  2014  [MP3|320 кб с]<Trance, Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+* For Vocal Trance Lovers *
+
+01 Rene Ablaze & Kerris feat. Sally Jane Corlett - Rush Of Love  Rene Ablaze Remix 
+02 DJ T.H., Toby Tranztonic, Justyna Kotwas  EL  - Always In My Mind  Frank Waanders Remix 
+03 Proyal feat. Ai Takekawa - The Orbit  Biotones & Max Farewell Remix 
+04 Morvan - Spartacus  Original Mix 
+05 Fabio XB & Liuck feat. Christina Novelli - Back To You  Purple Stories Remix 
+06 Beat Service & Ana Criado - So Much Of Me Is You  Original Mix 
+07 Garrido & Hanski Ft. Erin - Run  Original Mix 
+08 IRA & Paulina Dubaj - Better In Time  Original Mix     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C6EF6E39669A05C80E5A0D95E979C36C0E8C86D2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 781 657
+
+VA - Vocal Deep Dubstep Vol.2  2014  [MP3|320 кб с]<Vocal Deep Dubstep>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+[04:14] 01. Formtek - Elegy
+[04:48] 02. Truth, Yayne - Dreams
+[05:41] 03. Kryptic Minds - Can T Sleep Feat. Alys Be
+[06:13] 04. Ghosts Of Paraguay - Touch Me
+[02:42] 05. Hiatus - Insurrection  Feat. Linton Kwesi Johnson 
+[05:15] 06. THELEM feat T MAN - Bring Me Down
+[04:47] 07. Jamakabi, Standard Procedure - Concrete Jungle  Original Mix 
+[05:21] 08. OSC, Dubsworth, Ranking Joe - Ital Vital feat. Ranking Joe    Читать дальше...    Жанр: Vocal Deep DubstepПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:23F7F11DF6619009003AACA903F54240424D6B27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 781 614
+
+VA - Q-Dance Hardstyle Top 40 April  2014  [MP3|320 кб с]<Hardstyle>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. D-Block & S-Te-Fan & Isaac - Alive [04:20]
+02. Crystal Lake - Welcome to the Zoo [04:30]
+03. Headhunterz & Audiofreq - Breakout [05:30]
+04. Bass Modulators - Let Me See Ya [05:50]
+05. Da Tweekaz - Zero Fucks Given  feat. MC V  [05:15]
+06. Code Black & Brennan Heart - Tonight Will Never Die [04:25]
+07. Noisecontrollers - Down Down [04:05]
+08. Frontliner - You Got Me Rocking [06:02]
+09. Brennan Heart - Never Break Me  Toneshifterz Remix  [05:28]
+10. The Pitcher - The Candyman [04:19]    Читать дальше...    Жанр: HardstyleПродолжительность: 03:21:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:78010395D33AADEC1ED1DD1B83B407191082102C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 781 607
+
+VA - Top Club Music World Hits 15414  2014  [MP3|320 кб с]<Club, House, Progressive>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Trash Gordon - Disco Fans  Original Mix  [04:31]
+02. Not Available - Behemoth  Original Mix  [05:28]
+03. Hristian Hristov - Venus  Original Mix  [06:21]
+04. Alex Kidd - Lost The Plot [06:31]
+05. Flory & Vertigini - Some Parts  Original Mix  [06:56]
+06. Justin Prime, Joey Dale - POING!  Original Mix  [05:27]
+07. Dave202 - Superstitions  Festival Edit  [05:36]
+08. Crew 7 - No Alternative  Club Edit  [02:55]
+09. Matisse & Sadko Feat. Ollie James - We re Not Alone  Hi Scandinavia!   Kill The Buzz Remix  [05:04]
+10. Marlo - Poseidon  Original Mix  [05:39]    Читать дальше...    Жанр: Club, House, ProgressiveПродолжительность: 03:02:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C33A531CA8F4460FD75301AABC085F989376496B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 781 603
+
+Luna Aeterna - Избранные композиции  2007-2010  [MP3|192-320 кб с]<Sympho-Gothic Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Призрак прошлого
+02. В твоих руках
+03. Храм любви
+04. Тайна
+05. Мой ангел
+06. В смерти - жизнь
+07. Прибой
+08. Агония
+09. До наступления рассвета
+10. Снежная королева    Читать дальше...    Жанр: Sympho-Gothic MetalПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:11DF68F493507279BEB27ACE2C018FDD65F2ED2A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 781 579
 
 VA - Top World Hits  2014  [MP3|256-320 кб с]<Pop, Dance, Club>
@@ -1987,430 +2405,6 @@ Instrumental New Age Meditative Relax  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_777331.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 777 222
-
-VA - Авто-дискотека Радио Record  2014  [MP3|320 кб с]<Pop, Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Imany - You Will Never Know  Ivan Spell & Daniel Magre Reboot 
-002. Stadiumx, Taylr Renee - Howl At The Moon
-003. Beauty Brain & Subshock - Drunk Fighters
-004. Jasper Forks - Another Sleepless Night  Original Mix 
-005. Dr. Alban - It s My Life 2014  Bodybangers Radio Edit 
-006. Sean Finn Feat. D.I.A - Dirty Moves  Cj Stone & Milo.Nl Remix 
-007. Krewella - Enjoy the Ride  Vicetone Remix 
-008. The Chainsmokers - #Selfie  Original Mix 
-009. David Guetta & Showtek feat. Vassy - Bad  Radio Edit 
-010. Jason Derulo - Talk Dirty  DJ Rich-Art & Tom Reason Remix     Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 06:13:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A64438830A2577BDFA1AF46AB9F6ED980078EF47
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 777 176
-
-VA - 100 Золотых Лирических Композиций  2014  [MP3|128 - 256 кб с]<Pop, Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Lifehouse - You and me
-002. Jay Sean - Ride It
-003. Emilia - Big world
-004. David Usher - Black black heart
-005. Khaled - Aicha
-006. Lana Del Rey - Dark paradise
-007. Laura Branigan - Silent partners
-008. Poets Of The Fall - Sleep, sugar
-009. Louren Christy - The color of the night
-010. Michael Jackson - Earth song    Читать дальше...    Жанр: Pop, RockПродолжительность: 06:47:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ABB8A10BEB24B85ACE7E2C11B5B85FFE4D8CFA96
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 777 097
-
-VA - The Official UK Top 40 Singles Chart  13-04-2014  [MP3|320 кб с]<Pop, Dance, Rock, R&B, O
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь. А новинки под спойлером NEW.
-Во все треки вшиты обложки альбомов.01. Sigma - Nobody To Love   4:12 
-02. The Vamps - Last Night   3:08 
-03. Aloe Blacc - The Man   4:16 
-04. John Legend - All Of Me   4:30     Читать дальше...    Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:34:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7BF6326E6326176F0724C8F84ECAC0F3606B548
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 777 020
-
-VA - Vocal Trance Collection Vol.117  2014  [MP3|320 кб с]<Trance, Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-* For Vocal Trance Lovers *
-
-01 Masoud, Aneym - No More feat. Aneym  Original Mix 
-02 Simon Pitt & Tiff Lacey - Tears In Rain  ReOrder Remix 
-03 Sneijder & Cate Kanell - Letting Me Go  Johann Stone Remix 
-04 Kenneth Thomas Ft. Molly Bancroft - Hiding  Orbion Emotional Remix 
-05 Denise Rivera - Perfect Ending  Kaimo K Remix 
-06 Cold Rush & Danny Claire - Gravity
-07 Rafael Frost & Jennifer Rene - Higher  Hazem Beltagui Remix 
-08 Darren Tate Ft. Jodie Elms - Daylight Blinds Me  Original Mix     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F54628A01F4F6E12B09A5B77602FB91E7992EC0D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 777 003
-
-Simply Red - 25 Best Songs  2014  [MP3|~245 кб с]<Pop, Soul>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Sunrise 2003
-02. Close To You 1999
-03. Stars 1991
-04. Fairground 1995    Читать дальше...    Жанр: Pop, SoulПродолжительность: 01:45:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F4E80FB1305D96C739DDEC406C429D1D9F4FADAB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_777003.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 996
-
-VA - We Love Italo Disco  2014  [MP3|320 кб с]<Italodisco, Eurodisco>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Mike Mareen - Stand Up  06:28 
-02. Lian Ross - Say You ll Never  06:38 
-03. Adriano Celentano - Susanna  04:45 
-04. Cliff Turner - Moonlight Affair  06:11 
-05. Silent Circle - I Am Your Believer  Club Version   05:44 
-06. Toto Cutugno - L Italiano  03:56 
-07. Mauro - Buona Sera - Ciao Ciao  Holiday Dance Mix   05:57 
-08. Radiorama - Yeti  06:04 
-09. Moulin Rouge - Stranger  Power Mix   06:32 
-10. Al Bano & Romina Power - Felicita  03:09     Читать дальше...    Жанр: Italodisco, EurodiscoПродолжительность: 04:22:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BB4D16895898C0B8199AABEAE55DA6F56B6EEB5B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 983
-
-VA - В Машине С Радио Шансон  2014  [MP3|256 кб с]<Шансон, Авторская песня>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Игорь Шаров - Непогода на душе
-02. Олег Удача и Александр Закшевский - По струнам души
-03. Евгений Доброхотов - Махорка
-04. Алена Андерс - Снег
-05. Сергей Гвоздика - Оттепель
-06. Бельский Зиновий - Да простит мне грехи все судьба
-07. Михаил Поляков - Попутчица
-08. Сергей Родня - Роза
-09. Дмитрий Стелин - На тюрьме мой лучший друг
-10. Алексей Брындин - Не бросайте, бранцы, петь    Читать дальше...    Жанр: Шансон, Авторская песняПродолжительность: 06:24:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DD777742D8BC095E94D19C75CC1EABE7B3F25470
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 954
-
-VA - Хит-парад длиною в жизнь. Часть 1. Рок 70-х  2014  [MP3|320 кб с]<Rock, Hard Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-Nazareth - Love Hurts
-02. Suzi Quatro - Stumblin  In  with Chris Norman 
-03. Eagles - Hotel California
-04. Queen - We Will Rock You
-05. Smokie - Living Next Door To Alice
-06. Scorpions - He s A Woman She s A Man
-07. The Shocking Blue - Venus
-08. Uriah Heep - Lady In Black
-09. AC-DC - Go Down
-10. Black Oak Arkansas - Jim Dandy    Читать дальше...    Жанр: Rock, Hard RockПродолжительность: 02:37:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DEC15C2198FC76F1D58E6831C6D1B3897E9C731E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 862
-
-VA - В Машине С Radio Record  2014  [MP3|256 кб с]<Pop, Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Alex Clare - Too Close  Slider & Magnit rmx 
-02. DJ Indygo, Chris Antonio - Fuck This Early Morning  Royal XTC rmx 
-03. Javi Mula, Cristian Marchi, Max C - Come On Let s Fuck
-04. Jennifer Lopez, Pitbull - Live It Up  Fashion Lioness rmx 
-05. Survivor - Eye Of The Tiger  DJ Tarantino rmx 
-06. Nicky Romero, Krewella - Legacy
-07. Alex Megane - Turn Me On  Picco rmx 
-08. Fly Project - Back In My Life  DJ Favorite rmx 
-09. L One - Vse Tancuiut Loktiami  Magnit, Slider rmx 
-10. Calvin Harris, Ellie Goulding - I Need Your Love  Keem Project rmx     Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 06:26:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4FCDFB06F97C9566D8B74E2901436030F3A4AFC4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 676
-
-VA - Популярные песни от Радио Дача - 2  2014  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Кар - Мэн - Чио Чио Сан
-002. Peach - Anywhere  Eiffel 65 Radio Mix 
-003. Ласковый Май - Розовый вечер
-004. Наталья Ветлицкая - Глаза цвета виски
-005. Богдан Титомир - Делай Как Я
-006. The Tamperer Feat. Maya - Feel It  Original Version 
-007. Вирус - Весна
-008. Денис Клявер - Подари
-009. Макси - Танец Маленьких Утят
-010. Планета Икс - Не верю я, не верю    Читать дальше...    Жанр: PopПродолжительность: 07:02:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:01A8781B3DD208402347DBD0339D5F322FE3FF78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_776676.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 670
-
-VA - Самые Горячие Зарубежные Хиты в Машину  2014  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Selena Gomez - Come & Get It  03:50 
-02. Tony Igy - Endorphine  04:02 
-03. Lady Gaga - Bad Romance  04:23 
-04. Patrick Hofmann, Jason Amador - Get Started  Radio Edit   03:53 
-05. Madcon feat. Kelly Rowland - One Life  Bodybangers Remix   03:42 
-06. Funky Therapy - Lloret De Mar  Danceboy Edit   03:48 
-07. Nikki Flores - Get Up Off The Wall  03:06 
-08. Mallorca Lee ft. Ross Ferguson She Said  Tempo Giusto Remix   06:58 
-09. Ktree Feat. Tonez, Snoop Dogg & Candy 187 - Party All Around The World  03:37 
-10. Tiga - You Gonna Want Me  Two Vinyls Remix Жанр: Pop, DanceПродолжительность: 06:36:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5004FFB53F83F327A0595AA8CA0CBAC8C14921B5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 657
-
-VA - В Машине С Радио DFM  2014  [MP3|256 кб с]<Pop, Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Fidel Wicked - Love Peace Devotion  Radio Edit 
-02. Geo Da Silva & Jack Mazzoni - Awela Hey  Radio Edit 
-03. Chris Brown feat. Lil Wayne & French Montana - Loyal
-04. Scotty Pres. Yamboo Ft. Dr. Alban - Sing Hallelujah  Scotty Remix Edit 
-05. Mr. Steve Ft. Buxxi - Wine It Up  Dj Nev Edit 2014 
-06. Britney Spears - Passenger  Country Club Martini Crew Radio Mix 
-07. Beyonce - Pretty Hurts
-08. Katy Rain - Listen My Dear
-09. Arash feat. Helena One Day  Golden Star Radio Mix 
-10. Lance Bass & Anise K feat. Bella Blue & Snoop Dogg - Walking On Air    Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 06:41:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8D21356643956B284EFEE27F6528A29F5C84CDA0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 632
-
-VA - Best Of Disco 90s  2014  [MP3|320 кб с]<Eurodance, Pop, Disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Disco Nation - Rock Da Jam
-02. Gala - Let A Boy Cry
-03. Magic Affair - Omen III
-04. Mr. Kash - Born To Love You
-05. Rama - Light My Fire
-06. Snap! - Ooops Up
-07. The Prodigy - Breathe
-08. S.O.A.P. - Romeo & Juliet
-09. Nomansland - 7 Seconds  Radio-Video-Single 
-10. 2 Unlimited - Faces    Читать дальше...    Жанр: Eurodance, Pop, DiscoПродолжительность: 06:49:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0B4FA690EB911E3B3AF775933A32B9D1B1791454
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 605
-
-VA - Хит-парад. Top 100-ка весны  2014  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Анна Семенович - Отпусти
- 002. Duck Sauce - Barbra Streisand
- 003. Ева Анри И Анастасия Макеева - Жги Детка
- 004. Alyosha  Алеша  - Безоружная
- 005. Chicane Vs. Natasha Bedingfield - Bruised Water
- 006. Юлия Беретта - Тайна
- 007. Morra - Miss You  Radio Edit 
- 008. НашеVremя - Прости
- 009. Подиум - Танцуй пока молодая  Vi & Di Reboot 
- 010. NikitA - Гонщик    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:03:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97AF85DE296BAD19E24823FBADA94BF6A8A48664
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

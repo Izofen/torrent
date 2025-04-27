@@ -1,4 +1,274 @@
 ﻿
+###  Публикация: 1 065 574
+
+VA - И Просится Сердце В Полёт...  Аэрофлоту - 75   1998  [MP3|320 Kbps] <Советская эстрада>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Ансамбль Гренада - Когда Душа Поет
+02. Марк Бернес - Любимый Город
+03. Юрий Визбор - Серега Санин
+04. Вахтанг Кикабидзе - Проводы Любви    Читать дальше...    Жанр: Советская эстрадаПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5D5DDCBB3840A4318653372EE26D20E85B746A1D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065574.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 528
+
+Валерий Меладзе - Последний Романтик  1996  Maxi-Single [APE|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Актриса
+02. Песня О Студенте
+03. Как Ты КрасиваЖанр: PopПродолжительность: 00:12:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2C012DB770536D9C50B8C8FCE8B23ED9FC987719
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065528.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 480
+
+Rocky - Soft Machines  2016  [MP3|320 Kbps] <Alternative Pop, Soul, Electropop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Apologize
+02. Band Against the Wall
+03. Big South
+04. Brandy & Monaco    Читать дальше...    Жанр: Alternative Pop, Soul, ElectropopПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F3626FBC05FAC76B0FE75016CCDE6133C1EA7D8C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065480.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 445
+
+Galaxis - I Want More & Space Rangers  1978  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. I Want More  3:42 
+02. Space Rangers  4:33 Жанр: Electronic, Space-DiscoПродолжительность: 00:08:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5FD415F9455DBF3FA370EE36F5956593533DB84A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065445.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 201
+
+Melanie C - Version Of Me  2016  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Dear Life
+ 02. Escalator
+ 03. Anymore
+ 04. Something For The Fire    Читать дальше...    Жанр: PopПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:51E6C8C6A3DCF37F746E1435D542EA66343368A4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 192
+
+VA - Decade of the Synth  Vol.1  2016  [MP3|320 Kbps] <Disco, Nu Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Vasiliy Arefiev - My Lost Melody  6:40
+02. Italo Brutalo - Velodrome  6:51
+03. Boy Funktastic - Beachs  4:16
+04. Ocsav - Move Your Soul  6:02    Читать дальше...    Жанр: Disco, Nu DiscoПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CDCF77C5512116EEA62DEDE1328EEB1151E49CC7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065192.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 075
+
+Dee D. Jackson - Automatic Lover [New Digital Version]  1977  Maxi-Single, 1988, Jupiter Records
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+1. Automatic Lover - Remix  88  Long Version   6:52 
+2. Automatic Lover - Remix  88  Club-Mix   6:41 Жанр: Disco, Italo-Disco, Euro-Disco, Hi-NRGПродолжительность: 00:13:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CAEA190928F66B75DB3E883EC4E0C454504922F5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065075.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 064 919
+
+Lady Gaga - Joanne  2016  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Elecrtronic, Pop Ro
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Diamond Heart  3:30 
+02. A-YO  3:27 
+03. Joanne  3:16 
+04. John Wayne  2:54     Читать дальше...    Жанр: Pop, Elecrtronic, Rock, Dance, Pop RockПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0FB7CD6B2DB376FED10F11F6F682C079FE061210
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1064919.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 064 875
+
+VA - Gold Ballads  2003  [APE|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Robbie Williams - Feel
+02. Blue feat. Elton John - Sorry Seems To Be The Hardest Word
+03. Everything but the Girl - Mirroball
+04. Atomic Kitten - No One Loves You    Читать дальше...    Жанр: PopПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A2C82C106F047E4061E28FF22F6E452FC8D6BF71
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1064875.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 064 811
+
+АлоэВера - Как боги  2016  [MP3|320 Kbps] <Pop-Rock, Indie Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Капитан
+02. Неумело
+03. Морем
+04. Ты что такой?    Читать дальше...    Жанр: Pop-Rock, Indie PopПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AB124D198A0C800F6A04C757F81DA0826DF44CE5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1064811.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 064 745
+
+Melanie C - Version of Me  2016  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Dear Life
+02. Escalator
+03. Anymore
+04. Something For the Fire    Читать дальше...    Жанр: PopПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:759C7871A2D509255A1175DEE203667C4592CA39
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1064745.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 064 742
 
 VA - 20 лет. Лучшее  2016  [MP3|320 Kbps] <Pop, Rock>
@@ -1709,281 +1979,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1057097.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 057 071
-
-Олег Хромов - Дискография  1991 -1992  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1 - Малина-малина  4:47 
-2 - Общий вагон  4:14 
-3 - Музыкальный фонтан  3:48 
-4 - Шальная девчонка  6:11     Читать дальше...    Жанр: PopПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:702E7A4FB7EC190A658ACB66B7A546E61FDC5E8C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1057071.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 057 056
-
-Chris De Burgh - A Better World  2016  [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Hope In The Human Heart [0:55]
-02. Bethlehem [4:12]
-03. Once In A Lifetime [3:45]
-04. The Open Door [3:51]    Читать дальше...    Жанр: Pop, Soft RockПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8674A99CABBBE971D51627F1469756A4E4445A1E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1057056.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 057 010
-
-Kristy Thirsk - Phoenix  2014  [MP3|320 Kbps] <Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Mistake  03:32 
-02. Little Soldier  03:51 
-03. Hourglass  03:21 
-04. Bandage  03:57     Читать дальше...    Жанр: Pop RockПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE9A536CC8624C0655E0E57CB865046D837E9951
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1057010.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 976
-
-Мираж - Лучшее  2011  2CD [FLAC|Lossless|image + .cue] <Pop, Europop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Я жду тебя [00:04:15]
-02. Ты словно тень [00:04:33]
-03. Отпусти меня [00:03:31]
-04. Солнечный зайчик [00:04:42]    Читать дальше...    Жанр: Pop, EuropopПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3582313D129F7555990B16CBCD3D4B289990D4DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056976.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 956
-
-Skylar Grey - Natural Causes  2016  [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Intro - Wilderness
-02. Jump
-03. Lemonade
-04. Kill For You  feat. Eminem     Читать дальше...    Жанр: Alternative Pop, ElectronicПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C2AACF7EEBE50FAD0EA56E9487CD29A54C1572D2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056956.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 930
-
-Sophie Ellis-Bextor - Familia  2016  [FLAC|Lossless|image + .cue] <Pop, Dance, Electronic>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Wild Forever
-02. Death Of Love
-03. Crystallise
-04. Hush Little Voices    Читать дальше...    Жанр: Pop, Dance, ElectronicПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A8819FFDC1EA8739C08E6F1817AF0C9F81B61DA1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056930.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 875
-
-A  La Carte - 4 Albums  1980-1989  Reissue CD [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Диско-трио  A la carte  - известный проект германского продюсерского дуэта Tony Hendrik & Karin van Hartmann со сменным составом вокалисток.Список альбомов:
-1980 - Do Wah Diddy Diddy Round
-1981 - Viva
-1983 - Rockin` Oldies + Bonus    Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 03:56:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:32A6A5CE4C0A99284886AEE1372D58186AAFA614
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056875.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 813
-
-Полина Сокольская - Небо  2016  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Небо
-02. Ветер
-03. Кто я без тебя
-04. Парашют    Читать дальше...    Жанр: PopПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AD6409C6DD142BB2DB3D1F72CD9CB5627D03CADB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056813.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 711
-
-DJ BOBO - Mystorial  2016  [FLAC|Lossless|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Mystorial [00:03:17]
-02. Life Goes On [00:03:10]
-03. Freedom Is... [00:03:30]
-04. Get on Up [00:03:27]    Читать дальше...    Жанр: PopПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40960CE1138376CB87FBF1E2C70334ED52738D11
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056711.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 633
-
-Роднополисы - Новое. Родное  2016  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Второй полноформатный альбом группы из Кирова  Вятки , не представленной на других трекерах.01. Выходи из сети
-02. Родные города
-03. Понедельник
-04. Универ    Читать дальше...    Жанр: PopПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A3DAB050C6354356D6C32B6E3C1E707C5023783D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056633.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 556
-
-Платья за 130 - Бывшие  2016  [MP3|320 Kbps] <Retro Pop, Comedy Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Свадьба
-02. Бывшие
-03. Тусовка
-04. Ми-ми-ми    Читать дальше...    Жанр: Retro Pop, Comedy PopПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:539EE251C5CF50438CB6809D25226F1B27F44F04
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056556.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

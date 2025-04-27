@@ -1,4 +1,354 @@
 ﻿
+###  Публикация: 1 543 441
+
+VA - Beatport Trance: Electro Sound Pack #508  2022  [MP3|320 Kbps] <Trance, Progressive>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Весеннее настроение, первые лучи нежного солнца, которые согревают своей нежностью и обволакивают теплом душу. Всё это наталкивает творческих людей на разнообразные творческие идеи и находящие своё выражение в музыкальном творчестве. Тому примером будет 508-й релиз актуальной музыки в стиле Trance с портала Beatport.001. Philippe El Sisi - Lights
+002. Chris Johnson - Locomotion
+003. Rubens Hard - First Feeling
+004. Rino Da Silva - Nirvana    Читать дальше...    Жанр: Trance, ProgressiveПродолжительность: 11:50:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:88B2AB23FA6A3E23F74F1D8E36B20FB1FC92C953
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543441.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 439
+
+VA - Beatport Techno: Electro Sound Pack #507  2022  [MP3|320 Kbps] <Techno, Electro, Minimal>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Музыка, вошедшая в альбом 507-го релиза от Beatport располагает своей, неподражаемой энергией, хорошей динамикой и большой долей оригинальности. Если вам нравятся не стандартные и свежие стилистические решения, то треки лонгплея смогут показать вам свои по-настоящему свежие мысли в оригинальном стиле.001. Simon Williams - I Am Not The Enemy
+002. Z1b2 - Tus
+003. Garpo - Violet
+004. Osheyack - Parataxon    Читать дальше...    Жанр: Techno, Electro, MinimalПродолжительность: 11:58:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8277668C4802E9B576DB2892ACCB14D3BDA95DCF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543439.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 418
+
+VA - Svanrenne Music: Russian Subterranean Doom Metal  2022  [MP3|320 Kbps] <Doom Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001 Crunch - Future Power [00:05:34]
+002 Anal Pus - Unsurmountable Exhaustion of Disentombed... [00:04:41]
+003 Well Done Beat - My Chrystally Charred Rain [00:03:36]
+004 Painful Memories – Why- [00:11:00]    Читать дальше...    Жанр: Doom MetalПродолжительность: 13:46:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9EDB2D71DCF4146E5C852F4992DF5B8C9A5CC4A4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543418.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 380
+
+VA - Шансон Весна  2022  [MP3|320 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Ислам Мальсуйгенов, Зульфия Чотчаева - Убегая  2:57 
+02. Наталия Власова - Длинными ночами  2:57 
+03. Мужик из Сибири - Номер телефона  3:37 
+04. Евгений Максимовский - Падла  4:04     Читать дальше...    Жанр: ШансонПродолжительность: 03:34:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0337794FF481BE0FB3C3FF925E863B5690AADCC9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543380.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 110
+
+VA - Music News vol.179  2022  [MP3|320 Kbps] <Pop, Soul, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. DAASHA - Небо  03:07 
+ 002. Adam feat. Mikki - Время  03:44 
+ 003. Alex Gaudino & Tobtok feat. Jayover - Talk Talk  02:35 
+ 004. Alex Velea feat. Lele - Legenda Mafiei  03:22     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 05:36:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:165BA69E04C61488BE796C923BDD41B1377C5745
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543110.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 798
+
+VA - Vocal Trance NNM  2022  [MP3|320 Kbps] <Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. George Acosta feat Tiff Lacey - I Know  Beat Service Proglifting Remix   6:09 
+002. Eximinds - Solveig s Song  Extended Mix   5:13 
+003. aXtm - I Choose Life  6:32 
+004. Angelus - Keeps Me High  6:13     Читать дальше...    Жанр: Vocal TranceПродолжительность: 10:23:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E27DD86123797A09E265247C236E69260E1B46D4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542798.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 486
+
+VA - Music News vol.178  2022  [MP3|320 Kbps] <Pop, Soul, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Karina - Too Much To Drink  03:10 
+ 002. Abdulkarim - Я Не Могу Тебя Простить  03:53 
+ 003. Alicia Keys - City Of Gods  Part Ii   03:12 
+ 004. ANik feat. Ignat Izotov - Высоко  02:23     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 05:09:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89D9E0810A7DAD333F36E67D424F0339F34DE5D6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542486.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 296
+
+VA - Bass House NNM  2022  [MP3|320 Kbps] <Bass House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. VINNE feat. Thayana Valle - Clothes Off  Extended Mix   6:10 
+02. The Prodigy - No Good  FuzzDead HOT Remix   4:14 
+03. Kraft & Fenk - Rock  4:31 
+04. Evir - Supernatural  7vvch remix   3:12     Читать дальше...    Жанр: Bass HouseПродолжительность: 05:14:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29D2B71AD65F636406DED52574CEFE5A5FA40F39
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542296.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 155
+
+VA - Cyber Monday  Vol.01   2022  [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Приготовьтесь к увлекательному путешествию, организованному Cyber Monday, вашим надежным звуковым гидом в мире электронной музыки - это потрясающая новая коллекция треков, предназначенная для создания завораживающих атмосферных гобеленов теперь в вашем распоряжении. Внутри вы найдете мягкие биты, широкий выбор яркой и теплой перкуссии, пузырящиеся и каскадные басы,     Читать дальше...    001. Club Bizarre - Redite
+002. Random Atlas - Schwarze Substanz
+003. Nathan Fake - Vanavond
+004. Raland - State One    Читать дальше...    Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 12:22:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A1706D997EFA4DCAAA0207E7A0A2F45FFB7D7C8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542155.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 149
+
+VA - Hot Synthpop Romantic Mix  2022  [MP3|320 Kbps] <Synthpop, Pop, Dance, Lyric>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+За окном весна, просыпается природа, проскальзывают тёплые, солнечные лучики. Первое пробуждение от всего спящего, немного заторможенного, новые краски жизни, новые эмоции и новые впечатления. Именно под это весеннее настроение прекрасно гармонирует данная компиляция, которая слушается на одном дыхании!001. Sapientdream - I m Gonna Change The World
+002. The Saint Paul - Superficial
+003. Adriano - J en Ai Marre
+004. Dr House & Aiska - Your Love    Читать дальше...    Жанр: Synthpop, Pop, Dance, LyricПродолжительность: 07:54:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:59E75EA1441EBB6E904240EE4C1ACDAAD879FE56
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542149.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 144
+
+VA - Trance Urban Party: Euphoric Mix  2022  [MP3|320 Kbps] <Trance, Progressive>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Музыкальный уикэнд нам подарит очередной сборник  Trance Urban Party: Euphoric Mix . Запоминающиеся мотивы, урбанистическая атмосфера, большое разнообразие вокала делают этот лонгплей привлекательным для ценителей динамичной музыки в стиле транса.001. Billy Daniel Bunter - Mind Games
+002. Carher - Relive Love
+003. Airborn & Clara Yates - With You
+004. Milad E & David Deere - Infiltrate    Читать дальше...    Жанр: Trance, ProgressiveПродолжительность: 08:50:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:64105A5FC93AAB1099A9E4BF299A8B2A08270BFB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542144.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 140
+
+VA - Fest Rebel Rock Radio , Vol.1  2022  [MP3|320 Kbps] <Alternative, Progressive Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+Непрекращающиеся экспериментыв подходе к написанию песен, яркие эмоции во время их исполнения — это то, чем исполнители рок жанра заслужили внимание музыкальной общественности и преданную любовь своих слушателей.001. Slaves - Wasting My Youth
+002. Stoner Avenue - Last Poor Man s Pray
+003. La Femme - Tu T en Lasses
+004. Fame On Fire - Headspace    Читать дальше...    Жанр: Alternative, Progressive RockПродолжительность: 08:20:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F69ACFD86E6580A1E788643ECBC5A2BD962D9A37
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542140.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 135
+
+VA - Rockstar Review Of March  2022  [MP3|320 Kbps] <Rock, Indie, Alternative>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+Громкие композиции этого года, взрывные хиты весеннего сезона, композиции мэтров rock и хард рок музыки а так же недавано обозначившихся новичков в направлении alternative и metall – все это вы найдете в новом миксе  Rockstar Review Of March .001. Transatlantic - Rainbow Sky
+002. Waxflower - We Might Be Alright
+003. Mos Generator - Nightwolf
+004. The Style Council - Money-Go-Round    Читать дальше...    Жанр: Rock, Indie, AlternativeПродолжительность: 09:00:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D79675BCE9E50920724260EC496513A377BFF1C4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542135.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 022
+
+VA - Весна на Love Radio  2022  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Jaymes Young - Infinity  3:57 
+02. GAYLE - abcdefu  2:56 
+03. ARTIK pres.ASTI - Гармония  2:54 
+04. Alesso feat. Katy Perry - When I Am Gone  2:41     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9AA096D5FAF65FB36AB45BA9BAD4C6A72FDB2069
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542022.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 542 013
 
 VA - Big Room  2022  [MP3|320 Kbps] <Big Room, Dance, Hands Up>
@@ -1644,356 +1994,6 @@ Jazz, Blues, Soul  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537218.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 214
-
-VA - Hipster Punk  Hipster Punk  [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-Это продукт рефлекторной попытки оглянуться назад и отыскать что-то светлое в прошлом, которая оборачивается довольно печальной констатацией факта, что и там на самом деле было мало хорошего. Но несмотря ни на что — это было не самое худшее время.001. Revenge Of The Psychotronic Man - Rrose Selavy
-002. The Thirtysevens - The Fools
-003. Grillijono K.O. - Kuluta Mut Loppuun
-004. Tove Lo - Are U Gonna Tell Her    Читать дальше...    Жанр: Punk, Rock Punk, AlternativeПродолжительность: 09:11:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6F2FD6980C7607F8C9FDEC7E2A0CA233874CF676
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537214.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 170
-
-VA - Winter Lounge  2CD   2022  [MP3|320 Kbps] <Lounge, Downtempo, Relax>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Музыка очарует Вас спокойным и ласковым звучанием. Звучанием, которое зачаровывает и уносит куда-то вдаль, в свои мечты и грезы. Лёгкое, непринуждённое течение музыки убаюкивает и расслабляет, заставляя слушателей растворятся в прекрасных и нежных волнах наслаждения и блаженства. Поистине красивая и обращающая на себя внимание компиляция, вобравшая в себя самые яркие     Читать дальше...    CD 01:
-
-01. Ibiza Lounge - Gaze
-02. L.Porsche - Pomegranate    Читать дальше...    Жанр: Lounge, Downtempo, RelaxПродолжительность: 10:02:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F4EE065CEFDBE16010549FAF262A1A52203887A4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537170.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 161
-
-VA - I Wanna See The Sun  2022  [MP3|320 Kbps] <Alternative, Rock, Indie>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-Музыка в стиле инди-рок – один из столпов сегодняшней качественной музыки, а большинство новых групп и исполнителей начинают свою музыкальную карьеру именно с этого жанра.001. Stats - Old Flames
-002. Sleater-Kinney - Path Of Wellness
-003. Balthazar - On A Roll
-004. Lingua Ignota - The Order Of Spiritual Virgins    Читать дальше...    Жанр: Alternative, Rock, IndieПродолжительность: 08:26:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:706067B19A76AADC50A158BE9BDA4F8B4E9A9A9E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537161.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 158
-
-VA - Cosmic Heaven: Synthspace Electronic Mix  2022  [MP3|320 Kbps] <Synthspace, Synthwave, Elec
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Тема космоса и межгалактических путешествий в музыке электронного сборника  Cosmic Heaven . Само название лонгплея как бы подразумевает, что исполнители треков уже выбрали своим домом космос и необъятные галактические просторы межзвездного пространства.001. Manji - Block Party
-002. Lowell Brams - Agathon
-003. Diego Acosta - Far Away From The Mental Loop
-004. Nшch - The Drum    Читать дальше...    Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 09:48:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8D3E5414F6E7EA7B6091B80C746E7985876E1C3A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537158.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 066
-
-VA - Deluxe Clubbing House  2022  [MP3|320 Kbps] <Tech House, Dance, Club, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Мир танцевальной электронной музыки весьма многообразен. Он удовлетворяет потребность в самовыражении представителей различных субкультур и массового слушателя. Танец это попытка выразить своё чувство Вселенной. Проходя сквозь сердце, жизнь отражается в движениях.001. Act Cool - Frontier
-002. Grace In Space - Bad Karma
-003. Gosize - Just Fun No Love
-004. Mint - Bloodstone    Читать дальше...    Жанр: Tech House, Dance, Club, ElectroПродолжительность: 10:24:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2129877DB23C6E5AF5EBB4CD52CF74DAC12CE702
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537066.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 064
-
-VA - Atomic Pulse: Psy Trance Euphoria  2022  [MP3|320 Kbps] <Psychedelic Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Psy Trance – это музыкальная интерпретация чистой энергии. Этот стиль уже давно ушел глубоко в машинное звучание, и в результате звуки уже не соотносятся с реальностью. Звуки стали некоторой субстанцией, созданной человеком, но живущими самим по себе. Из таких звуков и составляется эта музыка, складываясь сложным рисунком с причудливыми формами, каждая из которых     Читать дальше...    001. Underhead - Skuff 1
-002. Derotonin - Panfloozy
-003. Satya - Let Shit Happen
-004. N-Kore - Fried Sequencer    Читать дальше...    Жанр: Psychedelic TranceПродолжительность: 12:49:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0EFECE18880F574CC5D9D7219EBEF545F62D4FCC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537064.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 981
-
-VA - The Haunted Palace: Modern Progressive Rock  2022  [MP3|320 Kbps] <Progressive Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-Прогрессивный рок – одно из наиболее интересных направлений рок-музыки, отличающееся отходом от стандартных в роке форм музыкального построения, а также сложностью и глубиной подаваемого материала. Постоянное развитие, поиск новых форм выражения, использование синтеза всего музыкального наследия человечества делают прогрессивный рок наиболее интеллектуальным стилем     Читать дальше...    001. Vera Norea - Burn
-002. Hiatus Kaiyote - And We Go Gentle
-003. Island - Do You Remember The Times
-004. Jpl - Ecce Homo    Читать дальше...    Жанр: Progressive RockПродолжительность: 08:03:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0395C392AA5ACC1872F28BD3B39E7834D0A3C62A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536981.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 979
-
-VA - Blaze: Rap & Hip Review  2022  [MP3|320 Kbps] <Hip Hop, Rap>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-Темы рэп-песен первоначально были довольно ограниченными - наркотики, криминал, путь к нехитрому бандитскому успеху. Однако после того, как этот жанр стал перебираться из нелегальных подвалов на официальную сцену, многие музыканты, не имеющие отношения к подобным вещам, стали использовать элементы рэпа в своих аранжировках.001. Pink Siifu - Spades 
-002. Ion Miles - Atzenmodus
-003. Junk33 - Deception
-004. Becko - Cyberfriend    Читать дальше...    Жанр: Hip Hop, RapПродолжительность: 10:27:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E9DA2D2E650F64BFDC7EB47D2C3CD11EC6383755
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536979.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 966
-
-VA - Deep House, Baby 3  2022  [MP3|320 Kbps] <Deep House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Lea Rue - Sleep  Extended Mix   5:22 
-02. DJ JEDY feat Олеся Май - Прекрасное Далеко  Deep mix   3:20 
-03. VALONSKY - Give Me Back My Freedom  3:15 
-04. Olivia Addams - Scrisori In Minor  Christian Eberhard Remix   3:27     Читать дальше...    Жанр: Deep HouseПродолжительность: 06:28:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE3FBE0FD5873BF53C0DFF2E4E0E4E39452D3C7C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536966.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 953
-
-VA - 90 s One Hit Wonders  2022  [MP3|320 Kbps] <Pop, Dance, Rock>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Vanilla Ice - Ice Ice Baby
-02. MC Hammer - U Can t Touch This
-03. Hanson - MMMBop
-04. The Cranberries - Zombie    Читать дальше...    Жанр: Pop, Dance, RockПродолжительность: 02:24:46 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0F5AFD4E3304F05BC44384984051CCE96EC60E47
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536953.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 950
-
-VA - 80 s One Hit Wonders  2022  [MP3|320 Kbps] <Pop, Dance, Rock>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Soft Cell - Tainted Love
-02. Don Henley - The Boys Of Summer
-03. Michael Sembello - Maniac  From  Flashdance  
-04. Bobby McFerrin - Don t Worry Be Happy    Читать дальше...    Жанр: Pop, Dance, RockПродолжительность: 03:50:02 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:50AB202CFECC97E9502CEDBE06698DDF41FEEDC1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536950.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 872
-
-VA - Stardust 03: Pop Dance Mixed  2022  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Позитивный танцевальный сборник под наименованием  Stardust 03: Pop Dance Mixed  3-й генерации на каждый день и любое настроение. Жизнеутверждающие ритмы и яркие мелодии органично объединяются с прекрасным вокалом исполнителей треков и принесут слушателю немалую дозу эстетического удовольствия.001. Jaden Thompson - Closer
-002. Gino Caria - I Wanna Be Your Superman
-003. Tiлsto - The Business
-004. Selin Louise - Private Dancer    Читать дальше...    Жанр: Pop, DanceПродолжительность: 08:49:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D575D9D48A6D08E51211C1BDF9DE2B9C68F06F05
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536872.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 868
-
-VA - Stardust 02: Vocal Trance Mixed  2022  [MP3|320 Kbps] <Vocal Trance, Dance, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Необыкновенно гармоничная и атмосферная музыка компилата в направлении trance органично подойдёт в любую ситуацию и любое время. Вошедшие композиции альбома в полной мере непохожи друг на друга и бесподобны, они могут стать понравившимися не только истинным поклонникам транса, но и слушателям, которые просто ценят высокое качество и благозвучность электронного саунда.001. Wish I Was - If I Can Love You Right
-002. Jixaw X The Suspect - In Reverse
-003. Ian Green Ft. Cat Delphi - Try My Love
-004. Bt - Game Theory    Читать дальше...    Жанр: Vocal Trance, Dance, ElectroПродолжительность: 08:13:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:91E52CDE99E6BB087134C3A3C3D72F831583D9B1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536868.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 865
-
-VA - Stardust 01: Vocal House Mixed  2022  [MP3|320 Kbps] <Vocal House, Dance, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Вроде бы, здесь нет ничего сверхъестественного — типичный бас, используемый в большинстве работ схожего направления, незамысловатые мелодии, не представляющая из себя ничего мудрёного и шаблонная аранжировка. Однако, всё это вместе звучит достаточно импрессивно и оригинально. Кроме того стоит отметить хорошо обработанный и умело преподнесённый женский вокал в представляемых     Читать дальше...    001. Miguel Migs feat. Andy Allo - Sensations
-002. Achickwitbeatz - Approximately Love
-003. Berin - Midnight Drive
-004. Thefatrat & Cecilia Gault - Our Song    Читать дальше...    Жанр: Vocal House, Dance, ElectroПродолжительность: 07:21:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B54B61ECC335B6D66AB809469EFE205420AB937C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536865.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

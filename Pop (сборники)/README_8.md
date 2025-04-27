@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 723 193
+
+VA - The Best of Italo Disco, Vol. 1 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Tom Hooker - Come Back Home (Extended Vocal) (6:13)
+02. Xenon - Symphony (Versione Dance) (5:36)
+03. Band of Jocks - Let's All Dance (Italian Version) (5:02)
+04. Ronnie Jones - Richman (Extended Mix) (5:39)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3CEF44918444D2B54248307AF07800525EADCB1D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1723193.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 723 122
+
+Xana - The Sex Was Good Until It Wasn't (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Lip Service
+02. the sex was good!
+03. Better Kind Of Best Friend
+04. Homewrecking Era(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80C260DF8B198B2CB5980BF93651359AD37F3A1E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1723122.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 722 741
+
+VA - The Best of Italo Disco, Vol. 4 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Jimmy Ross - Fall Into a Trance (Remix) (5:44)
+02. Maurice Mc Gee - Gravity (Original Mix) (5:18)
+03. Jago - I'm Going to Go (Original Mix) (5:17)
+04. Ronnie Jones - My Dance Exercizes (Extended Mix) (5:34)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:58:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1AC4F0B8A6417CFA091AFCC3141DD388D022A733
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1722741.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 722 740
+
+VA - The Best of Italo Disco, Vol. 2 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. The Creatures - Maybe One Day (Dance Mix) (5:46)
+02. Evelyn Barry - Take It As a Game (New Super Remix) (6:09)
+03. Xenon - Opera (Dance Version) (5:20)
+04. Band of Jocks - Good Times (Original Italian Mix) (4:46)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:59:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:76D97BA803D3DC9CA87C3C9DB0346F24E16ADC5D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1722740.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 722 733
+
+Danny & Armi - Danny & Armi (1978) LP [MP3|320 Kbps] <Schlager, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Silloin Vasta Kaiken Saan (4:10)
+02. Vain Sinua Varten (3:19)
+03. Kuin Lintu Rakkaalleen (3:53)
+04. Mun Sydameni Laulu (3:38)(   Читать дальше...   )Жанр: Schlager, DiscoПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E278B1852066B68BD0CE32B438A4B9C6FCC1583F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1722733.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 722 702
+
+Teenage Bad Girl - Separate (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Dance, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Separate [00:03:38]
+02. Provision [00:04:29]
+03. California Wang [00:03:23]
+04. Buried Feeling [00:03:09](   Читать дальше...   )Жанр: Electro, Dance, DiscoПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:24D413AF51492CDC19D96BB921F125AD22259376
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1722702.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 722 679
+
+Danny & Armi - Toinen (1979) LP [MP3|320 Kbps] <Pop Rock, Schlager, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Loysin Viimein Paikan Kaivatun (4:04)
+02. Jos Sinakin Tahdot (Tu Sei L'unica Donna Per Me) (3:40)
+03. Nyt Niin Haluaisin (3:25)
+04. Viimein (3:20)(   Читать дальше...   )Жанр: Pop Rock, Schlager, DiscoПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0858CB4C0D8E78B58C7E460D8CC0D2CB3240B85
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1722679.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 722 552
+
+A'Studio - Лучшие Песни (2008) [WavPack|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Еще Люблю
+ 02. Бегу К Тебе
+ 03. Улетаю
+ 04. Такие Дела(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B355F1FFAE5D0DE65AD2CD5F11E34D94CDD75ABD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1722552.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 722 546
+
+Банда Андрюха - Пожарная Команда (2005) [WavPack|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Шоу Начинается!
+ 02. Гори, Гори, Ясно!
+ 03. До Утра!
+ 40. Ё-Моё! А.Чижов Против Мата!(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2FEE3ECAE9147FA6B5D99452816EBB9687A0A7FE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1722546.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 722 464
+
+Арбат - Голубоглазая (2006) [WavPack|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+10. Голубоглазая
+ 02. Арбат
+ 03. Мосты
+ 04. Олигархи(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A2826C200A7D3123D9CFD41CBA30DDD3BFEDEC44
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1722464.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 722 451
+
+Анжелика Агурбаш - Любовь! Любовь? Любовь... (2009) [WavPack|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Слышишь. Я Так Тебя Люблю
+ 02. Дождями
+ 03. Голуби
+ 04. Роза На Снегу(   Читать дальше...   )Жанр: PopПродолжительность: 00:44"51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F396E3A68E33D59FD87F763B73F22982CA1F3480
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1722451.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 722 450
 
 Ананда - No Title (2007) [WavPack|Lossless|image + .cue] <Pop>
@@ -1708,281 +1983,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1710379.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 541
-
-Cherry Laine - The Singles Collection - Projects, Versions & New (2023) Compilation [FLAC|Lossless|i
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. Jungle Lover Boy (12″ Version) 6:20
-02. Tragedy (12″ Version) 4:31
-03. 1001 Nights (Ali Baba) (Pappy’ion) 3:50
-04. Fata Morgana (Pappy’ion) 3:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BE8B6AC0E9FBE973B17F1232A37BBFCA7BD98939
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709541.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 517
-
-Alan Barry - Maxi & Singles Collection (2023) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco,
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. Come On (Vocal Version) 4:58
-02. Innocent (Extended Version) 5:11
-03. Tell Me Reason (A-Side) 6:09
-04. Gimme Gimme (Euro Mix) 5:51(   Читать дальше...   )Жанр: Italo-Disco, Hi NRGПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F52361A4A5F26C28C935232DF45E26F37371A51
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709517.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 511
-
-Sandy Marton - Maxi And Singles Collection  2023  Compilation [FLAC|Lossless|image + .cue] <Pop,
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. People From Ibiza  Vocal Version  6:11
-02 Camel By Camel 4:07
-03. Exotic And Erotic  Remix  6:21
-04. Love Synchronicity 3:49    Читать дальше...    Жанр: Pop, Europop, Synth-popПродолжительность: 01:20:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:53E97F6B30BC87F32745A3B597B6D758AF11DF92
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709511.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 394
-
-VA - Workout Gym Motivation 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Troye Sivan - Rush (2:36)
-02. ArrDee - Flowers (Say My Name) (2:38)
-03. Swedish House Mafia - Moth To A Flame (3:54)
-04. Bru-C - No Excuses (3:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5875F69DF55E43CB414301C59D70B8743D3F1E69
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709394.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 353
-
-Lobo - The Caribbean Disco Show  1981  LP [MP3|320 Kbps] <Disco, Reggae, Funk-Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. The Caribbean Disco Show  21:31 
-02. Mangwene Mpulele  3:00 
-03. I Do Love You  3:47 
-04. Calypso Sound  4:04     Читать дальше...    Жанр: Disco, Reggae, Funk-SoulПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:61E79D4B43B3B3B619D1FE8A59F777841A1F5D2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709353.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 348
-
-Army Of Lovers - Sexodus  2023  [FLAC|Lossless|image + .cue] <Pop,	Europop, Synth-pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Sexodus
-02. Love Is Blue
-03. What s That Look
-04. Romanism    Читать дальше...    Жанр: Pop,	Europop, Synth-popПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A1B39853C6AE2BAD02CAE6FC78F78A2E8704503E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709348.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 098
-
-PNAU - Hyperbolic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. AEIOU (feat. Empire Of The Sun)
-02. The Hard Way (feat. Khalid)
-03. Solid Gold (feat. Kira Divine, Marques Toliver)
-04. All The Time(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:31:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A62316F9BC75DC072D64C6451B0FB81FEC50958
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709098.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 095
-
-Mike Mareen - The Maxi-Singles Collection Part 3 (2023) Compilation, Remastered [FLAC|Lossless|image
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. Stand Up (Original 12″ Version) 6:34
-02. Germany (12″ Version) 5:46
-03. Love Spy Back To Spy (Dance-Hall-Medley) 5:28
-04. Agent Of Liberty (Razormaid Mix) 6:55(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:07:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:508BCFEC55482160C0F8CD8AB4FE53BB220DA2F5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709095.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 093
-
-Mike Mareen - The Maxi-Singles Collection Part 2 (2023) Compilation, Remastered [FLAC|Lossless|image
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. Love Spy (The Badman-Mix) 6:25
-02. Africa (Maxi Version) 6:04
-03. Dancing In The Dark (Galactica Remix) 7:08
-04. Cecilia (12″ Remix Version) 7:20(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D45DBB737DB2DCE1997BFF48734C6E36321720C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709093.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 092
-
-VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. David Guetta - I’m Good (Blue) (2:55)
-02. Ava Max - Kings & Queens (2:42)
-03. Dua Lipa - Levitating (feat. DaBaby) (3:23)
-04. Campbell - Would You (Go to Bed with Me) (2:00)(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:48FEF653CB3E146C2BF58526EB2445E6D702F747
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709092.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 709 089
-
-Mike Mareen - The Maxi-Singles Collection (2009) Compilation, Remastered [FLAC|Lossless|image + .cue
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. Agent Of Liberty (Nik Z. WC Remix)
-4:56
-02. Lady Ecstasy (Extended Version) 5:32
-03. Love Spy (Night Mix) 8:40(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A292C14F7DCA7575F0939424D8D3676B9F6AF79
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709089.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

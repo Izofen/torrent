@@ -1,4 +1,420 @@
 ﻿
+###  Публикация: 845 838
+
+VA - Deep House V.40  2014  [MP3|320 кб с]<Deep House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Kwabs - Walk  Sasha Remix 
+02. Vou Vibe - Equality  Original Mix 
+03. James Attera - From Elements To Everything  Original Mix 
+04. Matthias Meyer - Lagonia  Original Mix 
+05. SHOW-B - Arps To Heaven  Original Mix 
+06. Max Cue - Feuerzeug  Original Mix 
+07. Namito, Solmaz Lou - Greetings to the Sun  Original Mix 
+08. Tim Engelhardt, Autm - Das Horn  Distorted Beauty Remix 
+09. Stefan Mint - Yelling Timber
+10. Sebastian Porter feat. Florian Finis - Good Times  Original Mix     Читать дальше...    Жанр: Deep HouseПродолжительность: 06:34:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:147CFB8DC0A73200B752F59E6B75EC8AD38692B9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 808
+
+VA - Клубные Новинки Vol.551  2014  [MP3|320 кб с]<Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Gaia - Aisha  Hazem Beltagui Melo Remix 
+02. Gani Anuar feat. Asel Sadakova - Eternity  Artra & Holland Remix 
+03. DJ Amadeus & Mario Sebastian - Berlin  Original Mix 
+04. Andrew Rayel - Followed By Darkness  Original Mix 
+05. Cash Cash - Surrender  David Solano Remix 
+06. Deadmau5 & Chris Lake - I Said  Michael Woods I Said It Again ReEdit 
+07. Andrea Bertolini - Strongroom  Original Mix 
+08. Chris Adams - Remode  Original Mix 
+09. Cedric Lass - Legend  Original Mix 
+10. Adagio Sensus &     Читать дальше...    Жанр: Club, DanceПродолжительность: 04:45:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0A0A81FD7FAD9C52CFB5E21F466CAB28C1B6B51
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 578
+
+VA - Electro Club Dance Pilot  2014  [MP3|320 кб с]<Dance, Club, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Paul Van Dyk, Jessus & Adham Ashraf feat. Tricia McTeague - Only In A Dream  Original Mix  06:29
+002. Arash - On Est La 03:02
+003. Guru Groove Foundation - Moscow  ilLegal Content Club Mix  06:53
+004. Dj Antonio Vs Feder - Goodbye  Buddha Bar HitUp Extended Mix  03:19
+005. Tera & Play-N-Skillz feat. Amanda Wilson & Pitbull - Scared  Michael Mind Project Edit  03:48
+006. Juicy J - Shell Shocked  feat. Wiz Khalifa & Ty Dolla sign  03:26
+007. Allexinno & Starchild - Egyptian Girl 03:24     Читать дальше...    Жанр: Dance, Club, ElectroПродолжительность: 08:03:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D1D9CA4895A30DEC8C293487C6ED3102935B9180
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 455
+
+VA - Best of In Da Club Vol.22  2014  [MP3|320 кб с]<Trance, Vocal Trance, Classic Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Fabio XB feat. Simona Barbieri - Flash Of Life  Original Vocal Mix   06:32 
+002. Beat Service feat. Ben Hague - Why Me  Moonbeam Remix   06:09 
+003. Rafael Frost - Channel 4  Original Mix   07:58 
+004. Faruk Sabanci - Oriental Sentiment  Nurettin Colak Remix   06:40 
+005. Abstract Vision & Elite Electronic - Forgotten Dreams  Sunlight Mix   06:30 
+006. Ferry Corsten feat. Shelley Harland - Holding On  Ferry s Flashover Mix   06:37 
+007. DJ Feel feat. Loona - I ll find Myself  Mike Danis Remix   07:24      Читать дальше...    Жанр: Trance, Vocal Trance, Classic TranceПродолжительность: 01:46:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E7E5627D7D564513B6FA1653A786A2EF11C3882
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 371
+
+VA - Sense of Vocal Trance Volume 37  2014  [MP3|320 кб с]<Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Andain - What It s Like  John Dahlback Remix  [06:11]
+ 02. Andy Moor feat. MerEdith Call - Undeserved  Extended Mix  [05:39]
+ 03. Coe - Unka  Original Mix  [05:56]
+ 04. C-Systems feat. Hanna Finsen - To Be  Original Mix  [07:56]
+ 05. Virtual Vault - Smash  Original Mix  [05:32]
+ 06. Xtigma & Paulina Dubaj - Should ve Known Better  Xtigmas Winter Mix  [05:26]
+ 07. Cary Brothers & Cosmic Gate - Wake Your Mind  Extended Mix  [08:29]
+ 08. Andrew Rayel feat. Jano - How Do I Know  Club Mix  [06:32]
+ 09. ATB with     Читать дальше...    Жанр: Vocal TranceПродолжительность: 02:56:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ADC4C2FC00B97251C6F8064B208C8A02E58F66FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 292
+
+VA - Клубные Новости. 100 Лучших Новинок  2014  [MP3|320 кб с]<Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Calvin Harris feat. John Newman - Blame  Sergio Luis Remix  05:20
+02. Magic! & Zedd, Pierce Fulton - Rude Kuaga  Up Tone & Wand England Edit  05:31
+03. Otto Knows Vs. Bebe Rexha - Can t Stop Drinking About You  Extended Edit  05:14
+04.  We Are  Nexus - Better Off Without You  Dave Aude Club Remix  05:25
+05. Ahzee - Poison  Original Mix  04:52
+06. Ariana Grande - Break FreeЖанр: Dance, ClubПродолжительность: 08:44:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BB5C19E8A1A507D0C565B92CFEE34A8427C3B2CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 277
+
+VA - Beatport Top 100 Indie Dance   Nu Disco November  2014  [MP3|320 кб с]<Indie Dance, Nu
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Natema - Everybody Does  Original Mix  07:24
+002. Lika Morgan - Gone Tomorrow  Me & My Toothbrush Remix  06:14
+003. Boogie Vice - Bel Air  Original Mix  05:09
+004. Sugar Hill - Help me to Remember  Original Mix  06:08
+005. Nora En Pure - True  Mark Lower Remix  05:48
+006. The Beatangers, Boogie Vice - Bad Girl  Original Mix  05:45
+007. Disciples - They Don t Know  Original Mix  05:30
+008. Sharam Jey & Daniel Fernandes - Jump Up  Original Mix  06:18
+009. Sharam Jey, Chemical Surf & Illusionize     Читать дальше...    Жанр: Indie Dance, Nu DiscoПродолжительность: 10:12:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:203301D98DFB4EA46DDB485E9ECF5EB6DD3FDFA6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_845277.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 183
+
+VA - Клубные Новинки Vol.550  2014  [MP3|320 кб с]<Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Max Freegrant feat. Brooke Forman - Revive  Original Mix 
+02. Richard Durand & Fisher - In Your Hands  Bastian Salbart Remix 
+03. sick individuals, axwell, dimitri vangelis & wyman - I am Id2  Syndrome Mashup 
+04. Tom Swoon Feat. Ruby Prophet - Savior  Original Mix 
+05. Genairo Nvilla - A-Heya  Original Mix 
+06. Trolec - Canyon  Original Mix 
+07. Christina Perri - Burning Gold  Florian Picasso Remix 
+08. Tzar & Bravo - Detonate  Original Mix 
+09. Sean Finn feat. Mr. V - Break It Down  Original     Читать дальше...    Жанр: Club, DanceПродолжительность: 04:34:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:397788633CDE56D1BB66118E6A6AA316636ABC08
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 180
+
+VA - Клубные Новинки Vol.549  2014  [MP3|320 кб с]<Club, Dance>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Richard Durand & Fisher - In Your Hands  Pink Panda Remix 
+02. Gordon Bates - Stalemate  Original Mix 
+03. Pavel Denisov - Immersion  Andromedha Remix 
+04. High Rankin - Heaven & Hell  Original Mix 
+05. Tiesto feat. DBX - Light Years Away  Hey Hey Remix 
+06. Axwell feat. Magnus Carlson - Center Of The Universe  Abel Ramos & Jose De Mara Remix 
+07. Afrojack, Steve Aoki, Bonnie McKee - Afroki  Original Mix 
+08. deadmau5 - Ghosts  n  Stuff  feat. Rob Swire Жанр: Club, DanceПродолжительность: 04:40:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3DE59668B4DC7F1D22365BD8CB6CBAE0E116E928
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 173
+
+VA - Клубные Новинки Vol.547  2014  [MP3|320 кб с]<Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Maroon 5 - Maps  Zothec Remix 
+02. Paul Oakenfold feat. Angela McCluskey - You Could Be Happy  Shadow Of Two Remix 
+03. Laidback Luke, Project 46 - Memories  Original Mix 
+04. Max Fabian & Nicky Rich - Bitch  Original Mix 
+05. Knife Party - Begin Again
+06. Robin Schulz feat. Jasmine Thompson - Sun Goes Down  Tocadisco Remix 
+07. Rick Astley vs Bassjackers vs Zedd - Never Gonna Give You Up That Inferno Night  Ravewell Smashup 
+08. Slamdown - Raid  Original Mix 
+09. Marnik - Gladiators  Original Mix 
+10.     Читать дальше...    Жанр: Club, DanceПродолжительность: 04:45:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8270A6E9779DA6B33F0E6D254FDA521D3D1AF97D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 171
+
+VA - Клубные Новинки Vol.546  2014  [MP3|320 кб с]<Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Alex Di Stefano - Dark Purple  Original Mix 
+02. Acti - 1978  Original Mix 
+03. Henrix - Universal Sound  Original Mix 
+04. Hardwell & Joey Dale feat. Luciana - Arcadia  Elso Remix 
+05. 3DW - Centraal  Original Mix 
+06. Autonica - Univita  Open Your Heart   Original Mix 
+07. Gani Anuar feat. Asel Sadakova - Eternity  Original Mix 
+08. Hannah Wants & Chris Lorenzo - Rhymes
+09. Andrea Bertolini - Try Again  Original Mix 
+10. Get Busy feat. Matt Newton - Sunglasses at Night  Original Mix     Читать дальше...    Жанр: Club, DanceПродолжительность: 04:41:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:30A3D003036B6EC41964ABD9447445D1A5F186EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 125
+
+VA - Новые ремиксы - Осень  2014  [MP3|128 - 320 кб с]<Dance, Club>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Reflex - Воспоминания О Будущем  The Lovers Remix   03:37 
+002. Zhu - Faded  DJ Flight Remix   04:34 
+003. Макс Корж - Летай со мной в темноте  Evan Lake Remix   04:07 
+004. Sonya - Мой Рай  Mike Li Radio Mix   03:26 
+005. Руки Вверх - Он тебя целует  DJ Solovey Remix   03:07 
+006. Alexx Slam & Eddie Mono - Dance  Alexx Slam & Eddie Mono Club Mix   04:16 
+007. David Guetta feat. Sam Martin - Lovers On The Sun  Loud Bit Project & DJ Max-Wave Remix   04:32 
+008. Бьянка - Я Не Отступлю  Dj Amice     Читать дальше...    Жанр: Dance, ClubПродолжительность: 05:15:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D0844722494F2DF7ECCD7499B0E7B151F138987D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 042
+
+VA - Лучшие новинки Ноября  2014  [MP3|128 - 320 кб с]<Pop, R&B, Dance, Hip-Hop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. 30.02 - Когда я увижу море  02:49 
+002. MUST DIE! feat. Tkay Maidza - Imprint  03:51 
+003. Макс Корж - Домашний  03:39 
+004. Иван Дорн - Мишка виновен  04:23 
+005. Sebell - Promiseland  Stint Remix   03:49 
+006. ZippO - Кукла  03:15 
+007. Дуэт Лето - Москва-Севастополь  03:39 
+008. Макс Корж - Эгоист  04:16 
+009. Avallo, CVPELLV, White Gangster - Touch It  03:02 
+010. Master Spensor & Leila - Сила Любви  03:58     Читать дальше...    Жанр: Pop, R&B, Dance, Hip-HopПродолжительность: 06:53:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5CC90BA09789D3B28C8A528196127A638ADCF691
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 844 873
+
+VA - Клубные Новинки Vol.545  2014  [MP3|320 кб с]<Club, Dance>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Max Freegrant feat. Brooke Forman - Revive  SEQU3L Remix 
+02. Holmes & Watson vs. DDei & Estate - F...Ed Up  Holmes & Watson Mix 
+03. Flaunt feat. Justin Jennings - Dipped In Ecstacy  Codon   James Anthony s Big Room Club Mix 
+04. Feenixpawl & Disfunktion - Fuse  Original Mix 
+05. Curses & DKDS Feat. SYF - Trouble  Shiba San Remix 
+06. Knife Party - Red Dawn
+07. Misha Kitone & K.S.Y. - Champions  Original Mix 
+08. David Heat & Hack N Slash - Nice  Original Mix 
+09. Jacquie Lee     Читать дальше...    Жанр: Club, DanceПродолжительность: 04:38:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90493B18E55011CCCD23A0934C1DDDDF8464DEEB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 844 872
 
 VA - Клубные Новинки Vol.544  2014  [MP3|320 кб с]<Club, Dance>
@@ -1962,425 +2378,6 @@ VA - Клубная Автодискотека. Хит За Хитом  2014  [M
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:9326A87B86DBD649F7DEE158A37E2425F9AC5CA7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 247
-
-VA - Vocal Trance Temptation Volume 36  2014  [MP3|320 кб с]<Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Alex Larichev - Sonic Ground  Original Mix  [06:31]
- 002. Ali Wilson - Rays Of Shamash  Original Mix  [06:54]
- 003. Andrew Cash & Starchaser feat. Danny Claire - All Mine  Luigi Lusini Edit  [09:25]
- 004. Tenishia - Point Of No Return  Extended Mix  [07:51]
- 005. Tom Cloud - 4 O Clock in the Morning  Promise Me  [06:30]
- 006. Tritonal & Kaeno - Azuca  Club Mix  [06:07]
- 007. Velvetine - The Great Divide  Myon & Shane 54 Summer Of Love Mix  [07:23]
- 008. Will Holland feat. Jeza - Every Heartbeat  Original     Читать дальше...    Жанр: Vocal TranceПродолжительность: 02:55:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:20857EE93C5828260A98CB44C86F0927E668A58A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 244
-
-VA - Vocal Trance Temptation Volume 35  2014  [MP3|320 кб с]<Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Ana Criado & Adrian&Raz - Dancing Sea  Ayda Remix  [07:42]
- 002. Dash Berlin feat. Kate Walsh - When You Were Around  Ferry Corsten Fix  [06:38]
- 003. Dinka feat. James Darcy - Never Let Go  Original Mix  [05:58]
- 004. DT8 Project vs. Ultimate - Destination Wonderland  Colonial One Mashup  [07:56]
- 005. Garry Heaney feat. Julie Harrington - Love Shines Through You  Original Mix  [06:33]
- 006. Tenishia - Where Do We Begin  Andrew Rayel Remix  [07:30]
- 007. Estiva - Smiley Smilesworth  Original Mix  [05:33]     Читать дальше...    Жанр: Vocal TranceПродолжительность: 02:53:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:754E99703F505D19F8162A0613CEE34B03E4AB50
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 239
-
-Ilya Cryis - Dubstep Для Секса 2015  2015  [MP3|320 кб с]<Dubstep, Chillout, Chillstep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. KOSIKK & Vinich - Maybe
-02. Koven - Petrichor
-03. Manu Shrine - Slide
-04. Vacant - Wanderer
-05. Atnos - The Fortune ft. Matt Mulkey  Morning High Remix 
-06. Alicks - Alone In Here  ft. CoMa 
-07. Hippie Sabotage - Sunny
-08. Reaktion ft. The Eden Project - Alone
-09. Pretty Lights - Lost and Found
-10. Casket feat. Enclave - Battles    Читать дальше...    Жанр: Dubstep, ChilloutПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2484874D8F3712993765B10D6763D22D5236D06B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_840239.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 208
-
-Sandra - MP3 Play  2014  [MP3|320 кб с]<Pop, Dance, Disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. In The Heat Of The Night
-02. On The Tray  Seven Years 
-03. Little Girl
-04. You And I
-05.  I ll Never Be  Maria Magdalena
-06. Heartbeat
-07. Sisters And Brothers
-08. Change Your Mind
-09. Don t Cry  The Breakup Of The World 
-10. You ll Be Mine    Читать дальше...    Жанр: Pop, Dance, DiscoПродолжительность: 04:55:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:271F960234EC39C36C2552CD8AE7FBC3022DDF25
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 148
-
-VA - Remember the youth 60-70!  2014  [MP3|218-320 кб с]CBR,VBR<Rock, Pop, Disco, Retro>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Santa Esmeralda - You`re My Everything
-02. Gilla - First Love
-03. Marie Laforet - Manchester Et Liverpool
-04. Raphael Miguel Martos Sanchez - Digan lo que digan
-05. Sylvie Vartan - Nicolas
-06. Joe Dassin - Le Cafe des 3 Colombes   T. Klein Cafe Aan de Haven 
-07. Tom Jones - Green Green Grass Of Home
-08. Karel Gott - Paganini
-09. Chris Andrews - Yesterday Man
-10. The Brothers Four - Greenfields    Читать дальше...    Жанр: Rock, Pop, Disco, RetroПродолжительность: 08:26:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8CEDCC92434BF2833EF5CF87EE7273B82623B13A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_840148.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 073
-
-VA - Best Of Club Sound November  2014  [MP3|320 кб с]<Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Dream Dance Alliance  D.D.Alliance  - Forever  Extended Mix  05:14
-02. R3hab & Deorro vs. Afrojack & Martin Garrix vs. Turn Up The Speakers - Flashlight  Florian Svein Mashup  05:14
-03. Congorock, Mark Ronson vs. Henrix & Sevag - Latina To Love Me  KiD LOKiZYS bootleg  05:13
-04. Nico & Vinz - Am I Wrong  Merk & Kremont Remix  05:15
-05. Sander van Doorn, Martin Garrix & DVBBS feat. Aleesia - Gold Skies  DubVision Remix  05:11
-06. Tera & Play N Skillz feat. Amanda Wilson & Pitbull     Читать дальше...    Жанр: Dance, ClubПродолжительность: 07:22:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D8EF39E3E845EC7B556BD8FD2CEF4D66F8830863
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 067
-
-VA - Beatport Top 100  08.11.2014  [MP3|320 кб с]<Dubstep, Trap, House, Club Dance, Drum and B
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-91. Frequencerz & Jack of Sound - Hollow  Original Mix 
-92. Bounter - Storm  Original Mix 
-93. Outbreak & Digital Punk - Prison Of Commercializm  Original Mix 
-94. Luminite – Straight In Your Face  Original Mix 
-95. Jason Payne & Electric Punk – No Mercy  Original Mix 
-96. The Vision - The Haunted House  Original Mix 
-97. Frequencerz - Revolution  Jack Of Sound Remix Edit 
-98. E-Force & Frequencerz - Men Of Steel  Original Mix 
-99. Vazard And Delete - Abduction  Original Mix 
-100. Nutty T - Join     Читать дальше...    Жанр: Dubstep, Trap, House, Club Dance, Drum and Bass, Techno, Commercial House, Hardstyle RAWПродолжительность: 08:11:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:273D0525E33738C0144D41A627CADBB64E1D5AB1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 839 769
-
-VA - DFM Топ Ноября  2014  [MP3|128-320 кб с]<Dance, Club, Trance, House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. ZHU - Faded
-02. Calvin Harris feat. John Newman - Blame
-03. Iggy Azalea feat. Rita Ora - Black Widow
-04. Imany - You Will Never Know  Ivan Spell & Daniel Magre Reboot 
-05. Jessie Ware - Say You Love Me  Alex Adair Remix 
-06. Lilly Wood amp The Prick and Robin Schulz - Prayer-In-C-Robin-Schulz-Remix
-07. Jason Derulo feat. Snoop Dogg - Wiggle - Wiggle
-08. Bakermat - Vandaag  Original Mix 
-09. Martin Garrix & MOTi - Virus  How About Now 
-10. DJ Felli Fel feat. Juicy J Pitbull & Cee-lo Green - Have     Читать дальше...    Жанр: Dance, Club, Trance, HouseПродолжительность: 06:04:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:12B8D6738F617F03BC5C963C00B81A15CC06FBE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 839 731
-
-VA - Помоги Соседям Уснуть  2014  [MP3|320 кб с]<Dance, Club, Pop, Trance, Hardcore, House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Ace - Magnetic Attraction  Original Mix  04:05
-02. Albert Kick - Black  From The Waist Down  Feat. Jason Rene  Extended Mix  05:00
-03. Alex Legarto - Go!  Tomy Grand Remix  05:15
-04. Amir Charles - Pang Wang  Original Mix  05:25
-05. Angel Lamar Ft. Mt Elliot - Cure Your Disease  Radio Edit  03:07
-06. Antares Vs. Autobahn - Ride On A Meteorite 2013  Abramo  bootleg  Mix  04:48
-07. Booty - B! - Dr Love  Matt Crazy  summer  Remix  03:49
-08. B-Rey & Bolek - Free Your Body 13.0  Discotek Remix  05:35
-09.     Читать дальше...    Жанр: Dance, Club, Pop, Trance, Hardcore, HouseПродолжительность: 05:15:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5CF66BC00AED1EE062AE0DF3B51985BA1253E521
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 839 723
-
-VA - Европа Плюс Топ Ноября  2014  [MP3|128-320 кб с]<Dance, Club, House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Blue - Curtain Falls
-002. B.O.B feat. Hayley Williams  of Paramore  - Airplanes
-003. Lady Gaga - Bad Romance
-004. T.A.T.U feat. Flipsyde & Piper - Happy Birthday
-005. Benassi Bros. Feat. Dhany - Hit My Heart
-006. Laurent Wolf - No stress
-007. Morandi Feat. Helene - Save Me
-008. Polina - Fade To Love
-009. The Black Eyed Peas - Shut Up
-010. Loreen - Euphoria    Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 06:07:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5947E43F0CA0DA6075D5BFA01B00E54DAB2BFDAA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 839 678
-
-VA - Vocal Trance Collection Vol.128  2014  [MP3|320 кб с]<Trance, Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-* For Vocal Trance Lovers *
-
-01 Alex M.O.R.P.H. feat. Natalie - The Reason  Original Mix 
-02 Einat, Eddie Makabi - Ecstasy feat. Einat  Original Mix 
-03 Binary Finary, Mino Safy - DeLorean  Original Mix 
-04 Somna & Jennifer Rene - Because You re Here  Original Mix 
-05 Protoculture feat. Shannon Hurley - Sun Gone Down  Original Mix 
-06 Alex M.O.R.P.H. feat. Natalie Gioia - My Heaven  Original Mix 
-07 Arshia Alipour ft. Juliet Lyons - 2 Minutes To The Night  Rene Ablaze Remix 
-08 Omar Vinyl & Mohamed Bahi     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:03B0B667AA27B73363AA8864A2E61011D031169B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 839 632
-
-VA - The Official UK Top 40 Singles Chart  09-11-2014  [MP3|320 кб с]<Pop, Dance, Rock, R&B, O
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Публикую очередной традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-Новинок достаточно много, все их можете посмотреть под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете сами посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Cheryl - I Don t Care   4:00 
-02. Ed Sheeran - Thinking Out Loud   4:42 
-03. Meghan Trainor - All About That Bass   3:09 
-04. John Legend - All Of Me   4:30     Читать дальше...    Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:35:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1177F55387B3385A052D301F8308D17CE23022B1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 839 574
-
-VA - Sexy Trance #70  2014  [MP3|320 кб с]<Trance, Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Ashley Wallbridge - Ibiza  Antillas & Dankann Remix 
-002. 4 Strings - The Other Side  Original Mix 
-003. Airwave - Ladyblue  Antidote s Flight Mix 
-004. Ana Criado & Beat Service - Whispers  Original Mix 
-005. Andrew Rayel feat. Jano - How Do I Know  Armin van Buuren Intro Edit 
-006. Arisen Flame - Chords  Intro Mix 
-007. Armin van Buuren - Communication  John Askew Remix 
-008. Cathy Burton - Heaven  DNS Project Original Mix 
-009. Cerf, Mitiska & Jaren feat. Chris Jones - Starting Right Now     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 03:41:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:650D80D45E262763D636BB88591338D181EB27F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 839 560
-
-Indila - Mini World  Dj Ikonnikov E.x.c Version   2014  [MP3|320 кб с]<Pop, Italo-Disco, D
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Derniere Danse  Dj Ikonnikov E.x.c Version   04:19 
-02. Tourner Dans Le Vide  Dj Ikonnikov E.x.c Version   05:09 
-03. S.O.S.  Dj Ikonnikov E.x.c Version   04:10 
-04. Comme Un Bateau  Dj Ikonnikov E.x.c Version   05:21 
-05. Run Run  Dj Ikonnikov E.x.c Version   03:47 
-06. Ego  Dj Ikonnikov E.x.c Version   04:16 
-07. Boite En Argent  Dj Ikonnikov E.x.c Version   04:37 
-08. Tu Ne M Entends Pas  Dj Ikonnikov E.x.c Version   03:50 
-09. Love Story  Dj Ikonnikov E.x.c Version   06:21 
-10. Mini World  Dj Ikonnikov     Читать дальше...    Жанр: Pop, Italo-Disco, DanceПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38365D47FAB054B4C59337150F183384FA0EE99D
 ```
 
 <div id="header" align="center">

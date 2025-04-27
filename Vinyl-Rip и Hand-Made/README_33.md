@@ -1,4 +1,189 @@
 ﻿
+###  Публикация: 269 645
+
+Pink Floyd - The Dark Side of the Moon  1973   Vinyl Rip 24 192  [FLAC|Lossless] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1. Speak To Me  Поговори со мной  01:00
+2. Breathe  Дыши  02:50
+3. On The Run  Бегство  03:53
+4. Time  Время  06:45    Читать дальше...    Жанр: RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_269645.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 235 001
+
+Pink Floyd - The Wall. 1979.  LPCM, 96 kHz, 24 bit, stereo  [Audio-DVD from Vinyl Rip]
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Этот Audio-DVD  музыкальный DVD-Video  диск был сделан мною на основе материала, предоставленного уважаемым Dr. Robert. Этот человек известен своим тщательнейшим отношением к звуку, да и техника, использованная им при риппинге, заслуживает глубочайшего уважения. Формат DVD-Video был выбран мною для авторинга из-за несомненных удобств, предоставляемых им: возможности     Читать дальше...    Жанр: Rock, какого не было
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_235001.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 204 208
+
+Coldplay - 4 альбома  Vinil-rip 24 Bit 96 kHz   2000-2008  [FLAC|Lossless]<Alternative Roc
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 203 549
+
+Manowar - 11 альбомов  1982-2012   FLAC 2.0|96,192 24|FLAC|VinylRip] <Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Heavy MetalПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_203549.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 203 008
+
+Depeche Mode - 11 альбомов  1981-2005   Vinil-rip 24 Bit 96 kHz  [FLAC|Lossless]<Electro-R
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 194 789
+
+Scorpions - Sting In The Tail  2010  [Vinyl Rip 24Bit 192kHz]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. Raised On Rock  3:59 
+02. Sting In The Tail  3:13 
+03. Slave Me  2:45     Читать дальше...    Жанр: RockПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_194789.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 180 706
+
+Miles Davis - 12 LP альбомов  1957 - 1969  [24 bit 96 kHz|VinylRip]<Jazz, Hard Bop, Cool Jazz,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Jazz, Hard Bop, Cool Jazz, Modal, FusionПродолжительность: 08:36:10
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_180706.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 177 019
+
+The Dave Brubeck Quartet - Gone With the Wind (1959) [FLAC|24bit/192kHz & 24bit/96kHz]<Jazz>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1. Swanee River 5:55
+2. The Lonesome Road 7:41
+3. Georgia On My Mind 6:40
+4. Camptown Races 2:01(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9DBD0323C9BB70D0AFB59316635BEB0D7BE2990C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_177019.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 176 425
 
 Pink Floyd - Animals  1977  DVD-Audio  UpMix  [MLP 5.1]<Rock>

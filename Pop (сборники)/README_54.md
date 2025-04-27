@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 325 263
+
+Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M  2005  CD [MP3|320 Kbps] <Elec
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. No Woman No Cry  3:39 
+02. Mary s Boy Child  3:13 
+03. Heart Of Gold  3:27 
+04. Mandela  4:11     Читать дальше...    Жанр: Electronic, Pop, VocalПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8728FEF74777C0FD8DBFBBCF46F49D7A493504C4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325263.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 325 117
+
+Александр Шоуа  НеПара  - Останови меня  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Мир сошел с ума
+2. Останови меня
+3. Девочка с закрытыми глазами
+4. Звёзды сойдутся    Читать дальше...    Жанр: PopПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:696F5A337F546E9A5453FE54EA5F761136F2BCBB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325117.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 325 114
+
+VA - Первый танцевальный, Vol. 18  2019  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+1. MONATIK - LOVE IT ритм
+2. Zivert - Beverly Hills
+3. Feduk - Пальмы
+4. SEREBRO - О, мама    Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:13:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BAD7018E8A77DBE17AD6FBA1BC287EF5CB485A1D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325114.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 325 003
+
+VA - Now That s What I Call Music! 71  2019  [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+В августе 2019 г. вышел очередной сборник новинок из топов США  и немножко Великобритании . Не путайте с такой же серией из UK. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Официальные клипы первых пяти треков можете посмотреть внизу. А теперь наслаждайтесь хорошей     Читать дальше...    01. Jonas Brothers - Sucker   2:59 
+02. Shawn Mendes - If I Can t Have You   3:09 
+03. Ariana Grande - break up with your girlfriend, i m bored   3:08 
+04. Ava Max - Sweet But Psycho   3:04     Читать дальше...    Релиз состоялся: 02.08.2019Жанр: Pop, DanceПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3D65D8241C2CF5F0A7F9F3CE4ABAEB946A380E2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325003.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 980
+
+Бумбокс - Таємний код Рубікон. Частина 1  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Тримай мене  feat. The Gitas 
+2. Ангела
+3. Дрантя
+4. Безодня    Читать дальше...    Жанр: PopПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A4D85DADF03DEB569B0101CC001659E844DBE16
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324980.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 953
+
+VA - RTL 2 It s fun - Oktoberfest  2019  2CD [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 01:
+
+01. Franzl Lang - Ein Prosit der Gemütlichkeit
+02. Hubert von Goisern - Brenna tuats guat    Читать дальше...    Жанр: PopПродолжительность: 02:39:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E846D5912DA52A2315059BBAC99023B3DD1B5153
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324953.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 935
+
+VA - Die deutschen Disco Charts - Die ultimative Schlager Party  2019  3CD [MP3|320 Kbps] <Pop,
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 01:
+
+01. Amigos - Die Legende von Babylon
+02. Nicole - 50 ist das neue 25    Читать дальше...    Жанр: Pop, SchlagerПродолжительность: 02:36:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B39D9B378095EDE77F0EE2168A56C91407331F41
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324935.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 807
+
+Nino De Angelo - Samuraj  1989  LP [MP3|320 Kbps] <Electronic, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Продюсер: Dieter Bohlen01. Samuraj  3:57 
+02. Who s Gonna Love You Tonight  3:53 
+03. Have You Ever Been Lonely  3:07 
+04. Stay With Me  3:09     Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C515ED411E1518A85D45CE728E37543BDCDF4588
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324807.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 536
+
+Liz Mitchell - Share The World  1999  ex. Boney M. [MP3|320 Kbps] <Reggae, Pop, Ballad>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Let s Have A Party  4:53 
+02. Good Timing  3:59 
+03. Share The World  5:52 
+04. My Love s A Ship  3:47     Читать дальше...    Жанр: Reggae, Pop, BalladПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:32AA721243690BAE3279C045C2FFD994D34CDD54
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324536.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 280
+
+VA - Bravo Hits Jesień 2019  2019  2CD [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 01:
+
+01. Sam Smith - How Do You Sleep_
+02. Ariana Grande & Social House - Boyfriend    Читать дальше...    Жанр: PopПродолжительность: 02:10:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:858E0CCB09B6D4067F0E624D86E3EB21C137C094
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324280.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 324 172
+
+Marcia Barrett of Boney M - Survival  1999  [MP3|320 Kbps] <Electronic, Rock, Funk Soul, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Strange Rumours  5:01 
+02. Key To Enter  3:57 
+03. By Your Side  3:30 
+04. Only The Strong Survive  4:19     Читать дальше...    Жанр: Electronic, Rock, Funk Soul, PopПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:03B5F1EFE0A35E5C2B93BA9BA2E4B1BE9DD92967
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324172.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 324 132
 
 The Max Him - Danger Danger  1986  LP [MP3|320 Kbps] <Electronic, Italo-Disco>
@@ -1720,281 +1995,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316444.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 316 437
-
-Руки Вверх! - The Best  2013  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Крошка моя
-2. Чужие губы
-3. Я тебя украду
-4. Ну где же вы, девчонки    Читать дальше...    Жанр: PopПродолжительность: 02:03:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E92C3F55E6C605E257E821DF8E41E843024B8977
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316437.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 316 382
-
-Нэнси - The Best  Deluxe Version   2015  Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Чистый лист  5:17 
- 02. Ива  3:46 
- 03. Как любил я тебя - Remix  4:50 
- 04. Серый дождь  3:39     Читать дальше...    Жанр: PopПродолжительность: 04:33:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C82C977D734D547264C20146E1BA368603491A40
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316382.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 316 290
-
-VA - Ministry Of Sound - I Love 00 s  2019  [MP3|320 Kbps] <Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Basement Jaxx - Where s Your Head At
-02. Groove Armada - I See You Baby  Fatboy Slim Radio Edit   feat. Gramma Funk 
-03. Calvin Harris - Acceptable In the 80 s
-04. Justice - We Are Your Friends  Radio Edit     Читать дальше...    Жанр: Pop, Dance, DiscoПродолжительность: 06:48:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:957952C999105C15E692E54DC73180C62726B875
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316290.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 316 289
-
-Of Monsters And Men - FEVER DREAM  2019  [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Alligator  03:04 
-02. Ahay  02:56 
-03. Róróró  04:21 
-04. Waiting For The Snow  03:43     Читать дальше...    Жанр: Indie PopПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C0860860F773BA7954EE8C4509F2D2D5F40F6E8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316289.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 316 210
-
-K.Flay - Solutions  2019  [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. I Like Myself  Most Of The Time 
-02. Bad Vibes
-03. This Baby Don’t Cry
-04. Sister    Читать дальше...    Жанр: Indie PopПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9D039626AFF6D851105996DF469335B431F538DE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316210.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 316 002
-
-Benjamin Gibbard - Bandwagonesque  2017  Death Cab for Cutie [FLAC|Lossless|WEB-DL|tracks] <Indi
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. The Concept
-02. Satan
-03. December
-04. What You Do To Me    Читать дальше...    Жанр: Indie PopПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D814DC62DA98FA77E30E7487A668C838CD2B85FB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316002.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 315 983
-
-Вячеслав Малежик - Октябрь  2019  [FLAC|Lossless|WEB-DL|tracks] <Pop, Авторская песня>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Однажды  Когда-нибудь 
-2. Ночной звонок
-3. Превратности любви  Про вора 
-4. Бред мой    Читать дальше...    Жанр: Pop, Авторская песняПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7F0427AE1F6D6A32C51CC232297A56B06CA8E90B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315983.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 315 970
-
-Antonia - Dance With Me  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Dance With Me  4:39 
-02. Come On And Samba  4:10 
-03. Besame  7:43 
-04. Las Brisas  4:44     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F61B94619FC77184146D7971900330B5AAE9F347
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315970.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 315 942
-
-PAUL ANKA - Swings For Young Lovers + My Heart Sings  2013  1958, 1959, 1960, Jackpot Record [FL
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Album - Swings For Young Lovers - 1960
-
-01. Hello, Young Lovers  02:36 
-02. You Made Me Love You  02:36     Читать дальше...    Жанр: PopПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0981E1777F45B90C0DE9B6FE9EC94B16F6B5B050
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315942.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 315 910
-
-F.R. David - The Best Of  2002  [FLAC|Lossless|image + .cue] <Electronic, Italo-Disco, Synth-pop
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Words  03:26 
-02. Pick Up The Phone  03:10 
-03. Girl  You Are My Song   03:40 
-04. Take Me Back  03:06     Читать дальше...    Жанр: Electronic, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F0DF2B3DCE4750B7AC3EF1F7E2222E169D04827A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315910.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 315 890
-
-Andrea Schroeder - Where The Wild Oceans End  2014  [MP3|320 Kbps] <Pop-Nuar>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Dead Man’s Eyes
-02. Ghosts Of Berlin
-03. Until The End
-04. Helden    Читать дальше...    Жанр: Pop-NuarПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B333B176880F60CA747EBBF25709F0F5C3FEBF70
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315890.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

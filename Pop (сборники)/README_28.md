@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 533 907
+
+VA - DMC Dance Extra Mixes 168  2021  [MP3|320 Kbps] <Electronic, Funk   Soul, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. A7S - Nirvana  Header Extended Remix 
+02. A7S - Nirvana  Steff Da Campo Remix 
+03. Anna Awe - Keep Calm  Maik Schafer Pleasure And Pain Remix 
+04. Craig & Grant Gordon - Garden  Original     Читать дальше...    Жанр: Electronic, Funk   Soul, PopПродолжительность: 01:19:20 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ECA9368813E64602443E599D9AC81A24B89EB2D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533907.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 533 861
+
+Area Code  212  - Extension From Area Code  212   1979  LP [MP3|320 Kbps] <Electronic, F
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Manhattan Shuffle  6:14 
+02. Daddy  6:24 
+03.  212   4:43 
+04. More Every Day  4:55     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3DE789F1F3BC1780A1E776404B1284095466C324
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533861.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 533 639
+
+Mario Renzi - Un Violino In Discoteca  1978  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Free Love  3:28 
+02. Honey Pie  3:26 
+03. Copacabana  4:12 
+04. One For Me One For You  5:33     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04FB607118BE3DE6AEACC6865FA75F3D1EA55B64
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533639.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 533 539
+
+Soulya ID - The Album  2021  [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Tell Me Why  Extended Version   5:52 
+02. You Say  Special Mix   4:25 
+03. Vampirella s Song  ID Mix   5:47 
+04. Disco Boy  Extended Mix   5:25     Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E301C854AFEC8CC2602C24BDED91A5A34B76C3F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533539.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 533 379
+
+VA - Greatest Classic Hits  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Police - Message In A Bottle  Remastered 2003   4:50 
+02. The Who - Baba O Riley  4:59 
+03. Sting - Englishman In New York  4:27 
+04. The Troggs - Wild Thing  2:35     Читать дальше...    Жанр: Pop, RockПродолжительность: 04:33:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A3FAE6FA0F7A5A81FDA5642070194DF81FD28CAE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533379.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 532 884
+
+Chris Rea - New Light Through Old Windows  1988  [FLAC|Lossless|image + .cue] <Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+New Light Through Old Windows - первый альбом-компиляция британского певца и автора песен Chris Rea, выпущенный в 1988 году. Альбом не случайно был назван New Light Through Old Windows - Новый свет сквозь старые окна - большинство песен были новыми, перезаписанными версиями старых релизов. Альбом был хорошо встречен во многих странах, и на волне успеха альбома последовал     Читать дальше...    01. Let’s Dance  4:16 
+02. Working on It  4:25 
+03. I Can Hear Your Heartbeat  3:24 
+04. Windy Town  4:06     Читать дальше...    Жанр: Pop RockПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3F888BB4530FBF0F222F63CF67FC14DFCE2A010C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532884.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 532 827
+
+VA - Top Easy Listening Hits  2022  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved
+02. Gracie Abrams - Stay
+03. Maroon 5 - Girls Like You
+04. Xavier Rudd - Follow The Sun    Читать дальше...    Жанр: PopПродолжительность: 02:09:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:592232322A02333447878573D330EA85EDD6D38B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532827.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 532 479
+
+Agnetha Faltskog  ABBA  - 12 Studio Albums + 2 Compilations  1968-2013  Collection, CD [MP3|
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Агнета Осе Фельтског  род. 5 апреля 1950, Йёнчёпинг  - шведская певица, автор песен, музыкальный продюсер. В 1968 году, выпустив успешную дебютную пластинку, Агнета Фельтског стала известна в родной стране, а мировую славу певице принесло участие в одной из самых успешных групп всех времён - ABBA.Список альбомов:
+1968 - Agnetha Faltskog
+1969 - Agnetha Faltskog Vol. 2
+1970 - Som Jag Ar    Читать дальше...    Жанр: Soft Rock, PopПродолжительность: 09:09:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E01AEB8F92EA875CD7C591E0F6C7105D37AD1A77
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532479.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 532 346
+
+Falco – Falco - The Box  4CD   2022  [MP3|320 Kbps] <Rock, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1
+01. Zuviel Hitze
+02. Der Kommissar
+03. Siebzehn Jahr    Читать дальше...    Жанр: Rock, PopПродолжительность: 00:37:03 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7E36B90BDB96369C6EFBA887363E53207F905D3C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532346.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 532 221
+
+Николай Расторгуев и Любэ - Своё  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+1. А заря
+2. Ночь
+3. За тебя
+4. Младшая сестрёнка    Читать дальше...    Жанр: PopПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5CD1BA6FB31DC923ED70ECC80FE9080EFFA28229
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532221.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 532 204
+
+VA - The Sun Shines Here  The Roots Of Indie-Pop 1980-1984   2021  3xCD, Compilation [FLAC|L
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+CD1:
+1-1 Wah Heat!– Better Scream
+1-2 The Teardrop Explodes– Read It In Books
+1-3 Lori & The Chameleons– The Lonely Spy    Читать дальше...    Жанр: Indie Pop, Indie Rock, Post-PunkПродолжительность: 03:55:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B8BA4ED749940F2889A3A26DC2FFFAF5762D7FFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532204.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 532 162
 
 NILETTO - КРИОЛИТ  2022  [MP3|320 Kbps] <Pop>
@@ -1717,281 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518394.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 518 125
-
-Electronic   Nen Order, The Smiths   - Raise The Pressure  1996  [FLAC|Lossless|tracks + .cu
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.Forbidden City
-02.For You
-03.Dark Angel
-04.One Day    Читать дальше...    Жанр: PopПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EB923C561E4F036126B297B0216D1451429EE524
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518125.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 518 104
-
-VA - The Bearded Man - Beards In The Snow 2021  2021  [MP3|320 Kbps] <Dance, Pop, Electronic>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-1. Clément Leroux - Baby  Tell Me 
-2. Nicolas Haelg Marie Beeckman - Gravity  2021 Edit 
-3. Harold van Lennep - Liberation  Re-Edit 
-4. GOLDHOUSE - Sex On Me  Re-Edit     Читать дальше...    Жанр: Dance, Pop, ElectronicПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9192DC3D80850F07406DBB91172AAC3C5FBC731
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518104.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 517 846
-
-Lian Ross - The Ballads  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. It’s up to You  Love Call Version 
-02. Magic Moment
-03. I Need You by My Side
-04. Hurt    Читать дальше...    Жанр: PopПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:886F138368D37C0801AF603CE8661A7064E9891B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1517846.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 517 543
-
-VA - Superhits 2021 [MP3|320 Kbps] <Euro Dance, Pop Dance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. Nils van Zandt - Green Light, Red Light  2:26 
-02. Sean Finn & Selda - Don t Cha  feat Inaya Day  - Don t Cha  2:44 
-03. DJ F.R.A.N.K & T-Spoon - No Time 2 Waste 2021  HouseWerk remix   2:39 
-04. AMARI & Lowkie - Survive  2:32     Читать дальше...    Жанр: Euro Dance, Pop DanceПродолжительность: 01:23:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A2FFF70790DD0E2EF5F1673C5DBE25461B920F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1517543.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 517 362
-
-Rod Stewart - The Tears of Hercules  2021  Japanese Edition [FLAC|Lossless|image + .cue] <Pop, P
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. One More Time  03:58 
-02. Gabriella  03:33 
-03. All My Days  03:37 
-04. Some Kind Of Wonderful  03:02     Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:91E980F98115268D75DA8FDE1FFE0BE6B6B31740
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1517362.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 517 335
-
-Barbara Law - Take All Of Me  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Take All Of Me  7:23 
-02. Can You Read My Mind  3:04 
-03. On My Own Again  3:51 
-04. I Just Live  3:53     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4032236D1A8D8E67F33F559EA41A88A2A0C61B8B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1517335.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 516 901
-
-Elton John - The Lockdown Sessions  2021  Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Po
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Elton John & Dua Lipa - Cold Heart  PNAU Remix 
-02. Elton John, Young Thug & Nicki Minaj - Always Love You
-03. Surfaces feat. Elton John - Learn To Fly
-04. Elton John & Charlie Puth - After All    Читать дальше...    Жанр: Pop, Pop Rock, Soft RockПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A699347B7458D0A76647CBCBCB3611932849FD94
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1516901.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 516 682
-
-Kelly Marie - 2 Albums  1976-1981  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Келли Мари  урожденная Жаклин Маккиннон, 16 октября 1957 года  - шотландская певица, наиболее известная песней  Feels Like I m in Love , хитом № 1 в Великобритании в 1980 году.Список альбомов:
-1976 - Who s That Lady With My Man?
-1978 - Make Love To Me
-1979 - Do You Like It Like That    Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 02:39:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D18CF698751A3856B6BB48956A6887E335B9E7FC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1516682.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 516 442
-
-Mylene Farmer - Monkey Me  2012  2xCD, Reissue, 2021, Stuffed Monkey [FLAC|Lossless|image + .cue
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD - 1:
-01. Elle a Dit
-02. A L Ombre
-03. Monkey Me    Читать дальше...    Жанр: PopПродолжительность: 01:47:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C31C80EF385C25C78CCB7F202056527960609939
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1516442.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 516 292
-
-Soirée - Soiree  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. You Keep Me Hanging On  7:47 
-02. Close To You  5:20 
-03. Everlasting Love  4:55 
-04. Do You Love Me  6:43     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AFD5C60CBE723B57C6F4D3E3BC9F0D7DF3D9C250
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1516292.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 516 203
-
-Disco Getters - Disco Disco Disco  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Bad Girls  6:16 
-02. Boogie Wonderland  6:25 
-03. Ring My Bell  6:40 
-04. H.A.P.P.Y. Radio  6:21     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE713301E71A194BBEDA11695403F50F186221C2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1516203.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

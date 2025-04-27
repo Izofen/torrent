@@ -1,4 +1,276 @@
 ﻿
+###  Публикация: 1 688 367
+
+VA - 101 90s Hits  2017  5 CD [OGG Vorbis|480 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01.  Wet Wet Wet - Love Is All Around
+02.  Lighthouse Family - High
+03.  The Cardigans - Love Fool
+04.  M.C. Hammer - U Can t Touch This    Читать дальше...    Жанр: PopПродолжительность: 06:36:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:42F5F5851EF3B6557DCCDDCD4B8B33B7C51AE05A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1688367.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 688 158
+
+A-HA - Hunting High And Low  1985  1st German Press Gold disc [APE|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Take On Me  Жанр: PopПродолжительность: 37:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF3949313728A419F0C8CF10469FBB656850BF03
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1688158.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 687 953
+
+VA - 101 80s Hits  2017  5 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01.  Yazz & The Plastic Population - The Only Way Is Up
+02.  Dexys Midnight Runners - Come On Eileen
+03.  The Jam - Town Called Malice
+04.  Siouxsie And The Banshees - Dear Prudence    Читать дальше...    Жанр: Electronic, Pop, RockПродолжительность: 06:27:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9FB721CB01D1A8707D8173D327B784AC859EB4B1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1687953.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 687 875
+
+VA - 101 70s Hits  2017  5 CD [OGG Vorbis|480 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01.  Abba - Waterloo
+02.  Blondie - Heart Of Glass
+03.  Roxy Music - Love Is The Drug
+04.  Rod Stewart - Maggie May    Читать дальше...    Жанр: PopПродолжительность: 06:05:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E8DEBDEFB94F8744F070E82DCD6D7BE5A509618
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1687875.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 687 165
+
+VA - Pop Christmas Songs  2023  [FLAC|Lossless|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Pentatonix - We Need A Little Christmas  00:02:26 
+02. nsync - Merry Christmas, Happy Holidays  00:04:12 
+03. Elle King - Please Come Home for Christmas  00:02:57 
+04. Darlene Love - Christmas  Baby Please Come Home   00:02:46     Читать дальше...    Жанр: PopПродолжительность: 03:14:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DC873B187D4E08F74B5A332EA06DC079A99893E3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1687165.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 687 127
+
+Agnetha Faltskog - A+  2023  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Where Do We Go From Here?  3:13 
+02. Back On Your Radio  A+   3:25 
+03. I Should ve Followed You Home  feat. Gary Barlow   A+   4:06 
+04. Dance Your Pain Away  A+   3:58     Читать дальше...    Жанр: PopПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A78E863A1BF402B7504A0B4ECEAEE35B94061DD1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1687127.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 687 077
+
+VA - Bravo Hits 20  1997  2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Janet Jackson - Together Again
+02. Natalie Imbruglia - Torn
+03. Espen Lind - When Susannah Cries
+04. The Kelly Family - One More Song    Читать дальше...    Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:031FC464A0D1E6B51217D3326C11ED854BBCC256
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1687077.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 687 076
+
+Сергей Пенкин - Нам не избежать любви  2023  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Не люби меня
+02. Дай мне шанс
+03. Полетели со мной
+04. Кто же ты    Читать дальше...    Жанр: PopПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EC4141D5E99DFAE8CE550B69165C5B7F135712DB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1687076.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 994
+
+VA - Bravo Hits 19  1997  2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Hanson - MMMbop
+02. Real McCoy - Party
+03. Squeezer - Saturday Night
+04. Chili feat. Carrapicho - Tic Tic Tac    Читать дальше...    Жанр: Electronic, Pop, RockПродолжительность: 02:24:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2471FF8C502508B1851A0B90689570B276EB92C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1686994.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 979
+
+VA - Bravo Hits 18  1997  2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Scooter - Fire
+02. A.K. - S.W.I.F.T. - Light In Me
+03. Nana - Lonely
+04. R.N.G. - Rhythm Of My Heart    Читать дальше...    Жанр: Electronic, Hip Hop, RockПродолжительность: 02:32:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F82F06B42DF670D858C0A5545C33398FB3F540CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1686979.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 686 876
+
+VA - The Best Of Hit News Vol.4  1996  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Fun Fuctory - Don t Go Away  Radio Walk 
+02. Zhi-Vago - Celebrate  The Love   Radio Version 
+03. N-Trance - Stayin  Alive
+04. 2 Brothers On The 4th Floor feat. Des Ray & D-Rock - Fairytales  Radio Version     Читать дальше...    Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:14:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:700B376BAF29EA9D57492E5F5BAD5E1C95098CCE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1686876.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 686 733
 
 VA - The Best Of Hit News Vol.3  1996  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance
@@ -1713,281 +1985,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678647.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 442
-
-VA - Hustle Hits  1975  LP [MP3|320 Kbps] <Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Crown Heights Affair - Dreaming A Dream  3:53 
-02. Gary Toms Empire - 7-6-5-4-3-2-1 Blow Your Whistle  5:13 
-03. Kool & The Gang - Spirit Of The Boogie  4:57 
-04. Yambu - Sunny  4:36     Читать дальше...    Жанр: Funk Soul, DiscoПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:11FE132DE3B09169A90D4FE28376C91E1A6C382D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678442.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 238
-
-VA - Hit News Vol. 3  96  1996  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Capital Sound feat. Rocko T. Bello - Feel The Rhythm
-02.  Unknown - Follow Me
-03.  D.F.S. - Me Lay Lo
-04.  Nadia - Live On Love    Читать дальше...    Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0F74A901FDC8834F84A0B27B0AE99310C5203B83
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678238.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 194
-
-VA - Hit News Vol. 2  96  1996  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  L.A. Work - Crazy Boy
-02.  2 Unlimited - Jump For Joy
-03.  Mac Project - Everybody
-04.  Optical 2 - Move On Up    Читать дальше...    Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B0A91B5F73B198215B5CC338558D604032D1D2B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678194.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 183
-
-Absolutely - Cerebrum  2023  Explicit Content [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Daylight [00:03:31]
-02. Arrivals [00:03:05]
-03. 24 Hours [00:03:27]
-04. Higher [00:02:53]    Читать дальше...    Жанр: Pop-RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3BD999F3F514EACEF71B0E6B1940F9DC7B305268
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678183.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 099
-
-James Last - The Best Of Non Stop Dancing  1998  Remastered, Reissue, 2023, Polydor [FLAC|Lossle
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Memphis Tennessee [00:01:00]
-02 - A Hard Day s Night [00:00:59]
-03 - I Feel Fine [00:01:20]
-04 - Satisfaction [00:02:42]    Читать дальше...    Жанр: Pop, Easy-ListeningПродолжительность: 02:34:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E6FA51AE684128C07C4CFD16D9387646DBC1F323
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678099.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 086
-
-James Last - The Best Of Non Stop Dancing  1998  Remastered, Reissue, 2023, Polydor [MP3|320 Kbp
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Memphis Tennessee [00:01:00]
-02 - A Hard Day s Night [00:00:59]
-03 - I Feel Fine [00:01:20]
-04 - Satisfaction [00:02:42]    Читать дальше...    Жанр: Pop, Easy ListeningПродолжительность: 02:34:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF5F82320E3FBE1DD3B68F38487CD12B36B39DD2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678086.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 059
-
-Мэйби Бэйби - Shawty  2023  [MP3|320 Kbps] <Teen Pop, Pop Punk>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Hello, My Name Is Baby
-02 - Duraga
-03 - Принцесса Диана
-04 - Ice Baby    Читать дальше...    Жанр: Teen Pop, Pop PunkПродолжительность: 00:23:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9D15A91DBDE0D2E1004863F2004493896F26D4F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678059.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 052
-
-Мэйби Бэйби - Мэйбилэнд  2022  [FLAC|Lossless|WEB-DL|tracks] <Teen Pop, Pop Punk>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Nya-Nya-Nya ^ω^  00:02:20 
-02 - Мэйбилэнд  00:02:22 
-03 - Дакимакура  00:03:20 
-04 - Интимки  00:02:49     Читать дальше...    Жанр: Teen Pop, Pop PunkПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:167DEB9BB1A58C6E0ED56947C828280788E99023
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678052.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 991
-
-VA - Hit News Vol. 1 96  1996  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Fun Factory - Doh Wah Diddy
-02.  Sonic Dream Collective - Oh, Baby All
-03.  Solid Base - Mirror, Mirror
-04.  Fontana - Memories    Читать дальше...    Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7C054BFC941A6EC19DEB3D9C8E559E610A50D9A6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677991.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 969
-
-VA - Hit News Vol. 10  1995  [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Scatgirl - I m A Scatgirl
-02.  Obsession - Only Wanna Be With You
-03.  Michael J.Gibbs - Save My Soul
-04.  Waldo - Forever    Читать дальше...    Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F1E2307261FE56DB0F3BC20655D17FBB08F113E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677969.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 917
-
-Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert!  2023  EP [FLAC|Lossless|WE
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Alles funkelt! Alles glitzert!
-02. Neonfarbenwelt
-03. Alles wird gut
-04. Wir tun es nochmalЖанр: Eurodance, EuropopПродолжительность: 00:14:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:07CB357959481E9C5D3FE982301BB45BDD26232D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677917.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

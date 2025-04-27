@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 591 989
+
+The Silence - Angelus Custos  2022  [MP3|320 Kbps] <Post Metal, Post Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Crimson Dawn
+02. Shouts Of Silence
+03. Black Snow
+04. Angelus Custos    Читать дальше...    Жанр: Post Metal, Post RockПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5117E373D10F8134F109AB7593AFF3E459E3744C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591989.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 591 984
+
+Экспонаты КунсткамерЫ - 2 Albums  2022  [MP3|320 Kbps] <Alternative Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Болото [00:03:10]
+02. Опасная жизнь [00:02:56]
+03. Всё против нас [00:02:50]
+04. Адововлечение [00:02:38]    Читать дальше...    Жанр: Alternative RockПродолжительность: 2 CD, 01:07:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:46333797DF57FE63847AD2CC1B0855BA5EFCC29E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591984.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 591 973
+
+Оркестр Однозначного Овна - 2 Albums  2019-2022  [MP3|320 Kbps] <Alternative, Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Три звёздочки пять звёздочек! [00:04:01]
+02. Водолея [00:03:24]
+03. Дерево. Дерево. Предерево. [00:03:18]
+04. Спирали [00:03:00]    Читать дальше...    Жанр: Alternative, RockПродолжительность: 2 CD, 00:56:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E5ED98203EFAC46D1BBABA98F31CE24BC809CC2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591973.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 591 969
+
+Ликёр Жара - 2 Albums  2017-2022  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Intro [00:00:42]
+02. Доступ закрыт [00:03:21]
+03. Устал [00:02:17]
+04. Между нами [00:04:16]    Читать дальше...    Жанр: RockПродолжительность: 2 CD, 00:58:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9735BB9B9FD7FDC828578CA80078D064932DFE3C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591969.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 591 595
+
+Сироткин - Тень первого облака  2022  [MP3|320 Kbps] <Pop Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Дрожит наш дом [00:03:25]
+02 - Призраки [00:04:16]
+03 - В панцирях черепах [00:03:17]
+04 - Вместе на раз два три [00:03:13]    Читать дальше...    Жанр: Pop RockПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:935DF86BC674CD29D1A6827D56E9DE9ED7EAB555
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591595.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 591 541
 
 Удовлетворительное Поведение - Ангелы с Грязными Душами  2022  [MP3|320 Kbps] <Alternative>
@@ -1866,129 +1991,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582459.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 582 396
-
-Джоконда - 3 singles  2021 - 2022  [MP3|320 Kbps] <Symphonic Rock, Female Vocal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Stabat Mater  Full Version  [5:34]
-02. Его слепое величество [3:25]
-03. Stabat Mater [4:43]Жанр: Symphonic Rock, Female VocalПродолжительность: 00:24:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5C3C98078F34A828408247C7C59CF361A031B6B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582396.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 582 227
-
-Земфира от Луки - Земфира от Луки  2022  EP [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. II
-2. Время не Щадит
-3. Апероль
-4. Мой ДругЖанр: RockПродолжительность: 00:16:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F669707E028FACDC51B7FB67EC9C24D7956FE763
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582227.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 582 222
-
-Театр Теней - Дискография  2006 - 2022  [MP3|320 Kbps] <Rock, Metal, Ballad>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Вдоль обрыва [3:57]
-02. Буревестник [3:56]
-03. Дикий [4:00]Жанр: Rock, Metal, BalladПродолжительность: 07:55:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40D1CD3BF2AB7F0ED15885BF240400849EA6F0E4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582222.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 582 090
-
-Саблезубый Тигр - Давай колдырить вместе  2022  [MP3|320 Kbps] <Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Давай колдырить вместе [00:02:30]
-02 - Якубович показал Мигелю тверк [00:02:18]
-03 - Ласковый Фетисов [00:00:51]
-04 - Здесь Вайт Хорс считают за виски [00:04:24]    Читать дальше...    Жанр: AlternativeПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A2D0CB91DF54CA88B6B87DACA1F3C2B649794CE7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582090.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 582 031
-
-Тараканы! - Худшие из худших , Vol. 2  2022  Demos, Outtakes, and Other Shit [MP3|320 Kbps] <Pun
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Тараканы! из Москвы
-2. Оскорбленные чувства
-3. Да здравствует король  Демо 2014 
-4. Без флагов и без виз  Демо 2016     Читать дальше...    Жанр: Punk RockПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3130E9009AE49CE617A8ACDE38B8161FD74757BC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582031.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

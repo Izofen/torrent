@@ -1,4 +1,396 @@
 ﻿
+###  Публикация: 469 266
+
+VA - TOP 100 самые скачиваемые клубные треки by Dj Najim Hassas  18.03.2012   2012  [MP3|320
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Р.Набиев feat A-Sen - По ресторанам  Dj Najim Hassas Remix 2012 Exclusive  
+002. Baby Alice - Pina Colada Boy  Crash Project Remix 
+003. Michael Jackson - Thriller 2011 Mister Black Remix 
+004. Катя Чехова - Я тебя люблю  DJ AnD remix 
+005. Calvin Harris - Feel So Close  Dj nErU Remix 
+006. Greg Parys - Get Sexy  Radio Edit 
+007. 50 Cent vs Magic Waves - Disco Inferno 2011    Dj Najim Hassas Chillout Remix  
+008. Datsik & Kill The Noise - Lightspeed
+009. 23-45 & 5ivesta Family - Зачем  Tema Tarasov & Alexsey Frolove remix 
+010. Krewella - Life of the Party ft. S-Preme    Читать дальше...    2012Жанр: Electro-House|Club House|Dance|Club|Pop|TranceПродолжительность: 10:12:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F8EB69B6CE5C522E7C945758745374800FE7B2EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 467 933
+
+VA - Лучшие тяжёлые русскоязычные баллады  1983-2011  ч.1  2011  [MP3|128 кб с]<Heavy Meta
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001-КуражЪ - Дождь
+ 002-Ария - Там высоко
+ 003-Алексей Страйк - Зачем мне крылья
+ 004-Легион - Звезда
+ 005-Пилигрим - Дом
+ 006-Сергей Маврин - Смейся и плачь
+ 007-Чёрный кофе - Листья
+ 008-Ультиматум - Злая мгла
+ 009-Тяжелый День - Песенный Суздаль
+ 010-Скорая помощь - Шаг на эшафот    Читать дальше...    2011Жанр: Heavy Metal, Hard Rock, Power MetalПродолжительность: 12:27:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E9FBCA4B8477011DB2E40B03C41CF98A0B0DCC1A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_467933.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 467 002
+
+VA - Zumba Dance 2011  2011  [MP3|~ 256 кб с]<Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Yolando Be Cool Vs. DCUP - We No Speak Americano
+02. Nicola Fasano Feat. Pitbull - Oye Baby  Radio Mix 
+03. Papa London - Dansa Kuduro  Radio Version 
+04. Cidinho & Doca - Rap Das Armas  Lucana Rio De Janeiro Radio Edit 
+05. Nicola Fasano Vs. Pat-Rich - 75, Brazil Street  Vocal Radio Mix 
+06. Vanessa Da Mata - Ai, Ai, Ai  Deep Lick Radio Mix 
+07. Gigi De Martino - Mar Adentro  El Canto De La Sirena   Radio Mix 
+08. Omega - Si Te Vas Que Tengo Que Hacer  Ferrance Euroremix 
+09. Lucenzo Feat. Big Ali - Vem Dancar Kuduro  Radio Edit 
+10. Juan Magan - Mariah    Читать дальше...    2011Жанр: DanceПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:464C3706D9168582342DAF9B859F98133B9C4314
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_467002.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 466 659
+
+VA - Клубная Музыка Дискотек Марта  2012  [MP3|192 кб с]<Клубная, танцевальная, поп>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. 69 Lovers Vs. Lanfranchi & Farina - Think
+ 02. Alex Gaudino - Im In Love  I Wanna Do It   Vocal Club Mix 
+ 03. Andreea Banica - Sexy
+ 04. Azuro Feat. Elly - Ti Amo
+ 05. Bk Duke And Falko Nielstolik Feat. Nina Hall - Explore  Brockman And Basti M Remix Edit 
+ 06. Chris Rockford Vs.Jennifer Paige - Crush  Max Fraenthide Edit 
+ 07. Contras Feat Joan Colova - La Luna  Original Mix 
+ 08. Cristian Marchi And Gabry Ponte - Dont Let Me Be Missunderstood  Gabry Ponte Vintage Radio M
+ 09. Damon Paul Feat. Kayna - Fly  Sean Finn Edit 
+ 10. Deadmau5 - Aural Psynapse  Dfm Edit 2012Жанр: Клубная, танцевальная, попПродолжительность: 02:48:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:62C7200F61955B772608DFF5BCB6FE272D5F1D51
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_466659.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 464 964
+
+Whitney Houston - The Ballads Collection  2009  [MP3|320 кб с]<Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. I Will Always Love You
+02. I Have Nothing
+03. Run To You
+04. On My Own
+05. Count On Me
+06. Exhale  Shoop Shoop 
+07. All The Man That I Need
+08. Where Do Broken Hearts Go
+09. When You Believe
+10. Why Does It Hurt So Bad    Читать дальше...    2009Жанр: PopПродолжительность: 01:33:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A6B39C71EF6703CCD387E29FC03B0757400D8FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_464964.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 463 605
+
+VA - Золотые Цыганские Романсы и Песни  2012  [MP3|256 кб с]<Поп, Цыганские>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+Жанр: Поп, ЦыганскиеПродолжительность: 05:22:42
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_463605.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 463 392
+
+Музыка Леса - 4 альбома  2010-2012  [MP3|128-224 кб с]<Folk>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+2010-2012Жанр: FolkПродолжительность: 23:41:10
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_463392.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 462 522
+
+VA - Еврохит Топ -40  04.03.2012   2012  [MP3|320 кб с]<pop, dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+2012Жанр: pop, danceПродолжительность: 01:25:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:55641978263D624BBAEBAFC3C72CCDFC59186849
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_462522.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 461 747
+
+Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects  1980  [MP3|320 кб с]<
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Babe - The Drunken Sailor
+02. Theo Vaness - Bad Bad Boys
+03. Ottawan - You re OK
+04. T.H.P. - Good To Me
+05. Doris D. & The Pins - Shine Up
+06. A La Carte - Ring Me, Honey
+07. Methusalem - The Black Hole
+08. Gepy & Gepy - Body To Body
+09. Gilla - Tom Cat
+10. Pussycat - Rio    Читать дальше...    Жанр: DiscoПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_461747.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 461 387
+
+VA - DFM - Russian Dance from AGR  2.03.2012  MP3, 320 kbps  2012  [MP3|320 кб с]<pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Project Fay - Я просто хочу быть....mp3
+02. DJ Vini feat. Stephenie Coker - Жестокая любовь  extended club mix 
+03. Виктор Павлик - Город Зеленого Цвета  dj Stranger Mix 
+04. Градусы - Заметает  DJ Karabaev DJ Agamirov Radio Edit 
+05. Звери - До скорой встречи  DJ Bemax Remix 
+06. Zdob Si Zdub - Видели ночь  DJ Fisun remix 
+07. Chris Parker - Symphony 2011   DJ P.AR remark 
+08. Иван Дорн - Стыцамен  Viento Mutti Remix 
+09. 5ivesta Family - Тук тук  dj Alex Menco Remix 
+10. Vengerov Fedoroff feat. Иванушки International - Кукла  Remix     Читать дальше...    2012Жанр: popПродолжительность: 02:19:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8219654E30E00428DA09E63CFF73A3A329649335
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_461387.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 459 570
+
+VA - Metal Attack  2012  [MP3|192-320 кб с]<Alternative, Thrash, Industrial, Power, Nu-Metal,
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. 24 Black - All She Wrote
+02. System of a down - Attack
+03. Scars On Broadway - Babylon
+04. Ill Nino - This Is War    Читать дальше...    Жанр: Alternative, Thrash, Industrial, Power, Nu-Metal, Modern Rock, Punk RockПродолжительность: 03:14:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F792E7D36FCAED26D09A0C725FC6A314E0F302FC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_459570.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 458 280
+
+VA - Record Super Chart № 229  25.02.2012  [MP3|~142-320 кб с]<House, Trance, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Knife Party - Internet Friends
+02. Niels van Gogh vs. Emilio Verdez - Beatrocker
+03. Klaas - Changes
+04. LMFAO - Sexy And You Know It
+05. Roisin Murphy feat. The Crookers - Royal T
+06. DJ Smash feat. Maury - Rendez Vous  Sebastien Lintz Remiix 
+07. Dj Kuba & Ne!tan - Deejay Deejay  Peppermint Remix 
+08. DJ s From Mars feat. Fragma - Insane  In Da Brain 
+09. Bryce feat. J-Malik - Nothing Can Hold Us Back
+10. Dj Antoine vs. Empire Of The Sun - Walking On A Dream  Dj Pitchugin Booty Mix     Читать дальше...    25.02.2012Жанр: House, Trance, DanceПродолжительность: 02:36:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B6844AFC7658D862EF91B4C1A3F3925E3B59A3CF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_458280.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 456 744
+
+VA - 100 Лучших Рок хитов  2012  [MP3|320 кб с]<Rock>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 08:13:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F366D04ED9598B6A6095974796A7B5D9AB005AB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 456 037
+
+VA - Самые Сливки на Хит FM  2012  [MP3|256 кб с]<pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Эffekt - Замерзаю
+ 02. Vincent Did It - Dynamo
+ 03. Egor - Breathe  Radio Edit 
+ 04. Claude Kelly - Don t Turn Out The Lights
+ 05. Gregory Sirakuza Feat. Mirami - Miramimania  House Remix 
+ 06. Suck The Clatter - Dance With You  Radio Edit 
+ 07. K.1.M Feat. Аня Скворцова - Причина-Это Ты
+ 08. Daddy Yankee Feat. Don Omar - Lovumba  Official Remix 
+ 09. Sara Oks - Rebel Girl
+ 10. Inventive Sound Feat. Danny D - Crazy About U  Radio Edit 2012Жанр: popПродолжительность: 06:03:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA0216496C5B77C886E4DAF56BE932FB31F4A5D8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_456037.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 455 380
 
 VA - Сборник песен о волках  1968-2011  [MP3|256 kbps]
@@ -1945,431 +2337,6 @@ Electronic  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:9CBE53128E3BE59587D6865728ABF37C9C8D49E9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 381 916
-
-VA - Дискотека Бездна Зарубежная 10  2011  [MP3|128 kbps]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Don Omar & Lucenzo - Danza Kuduro
-002. Dan Balan - Freedom
-003. Ola - All Over The World
-004. Sak Noel - Loca People
-005. Darius & Finlay feat. Nicco - Downpour  Radio Edit 
-006. Deepside Deejays - Never Be Alone
-007. Morris feat. Cortes - Uh La La  Radio Edit 
-008. Snoop Dogg Vs David Guetta - Sweat  David Guetta Remix 
-009. Narcotic Sound feat Christian D - Danca Bonito
-010. DJ Tiesto pres. Allure feat. Jes - Show Me The Way    Читать дальше...    Жанр: PopПродолжительность: 12:36:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5DFDFFDA9F946075F53EE504AE9F0C5008ED7E4F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 381 560
-
-VA - E-Burg CLUB - Trance MiX 2011 vol.34  2011  [MP3|320 kbps]<Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Abstract Vision & Elite Electronic - Rise Again  Ultimate Remix 
-02. Andre Visior & Kay Stone - Sunrise  Original mix 
-03. Aruba Ice - Vremya Na Dvoih Denis Kenzo Rmx Radio Ver
-04. Boy Hagemann - Whispering
-05. Craving - First Feeling  Original Mix 
-06. Dee Jay Dan - Sorry Vocal by Alla
-07. Dr Willis - We Choose  To Go To The Moon   Exit Remix 
-08. Fabio Xb And Andrea Mazza - Light To Lies  Gareth Emery Mix 
-09. Giuseppe Ottaviani - Danceology  Original mix 
-10. Infinity - Understand Me  Trance Arts Dub Mix     Читать дальше...    Жанр: TranceПродолжительность: 03:07:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F4C95673B028009D4AE5F98B484265DB4C0C0DEB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_381560.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 380 789
-
-VA - Caribe Mix 2011  2011  [MP3|320 kbps]<Dance, Latino>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Chic Bones Feat. Carol – Do Lado De Ca
-02. Energy System – Segura
-03. Kyria – Gipsy
-04. Amloop – Caminhando E Cantando
-05. Juan Magan Feat. Lumidee – Mariah  You Know I Want You 
-06. Juan Magan & Victor Magan – Fun Beach Party  Juan Magan Original Mix 
-07. Michel Music – El Caramelo
-08. Loona – Vamos A La Playa
-09. Foncho – La La La
-10. BRM – Pukutu    Читать дальше...    Жанр: Dance, LatinoПродолжительность: 02:30:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8709A49338D320946811DBC142F8556FE0266173
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 379 569
-
-VA - Зарубежные Хиты 80-90-х В Современной Обработке  2011  [MP3|256 kbps]<Pop | Disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Duck Sauce - Barbra Streisand
-02. The Eagles - Hotel California  Dj Denis RUBLEV & DJ ANTON radio mix 
-03. Serge Devant - 3am Eternal
-04. TWiiNS feat. Carlprit - Boys Boys Boys  Darwich NAJoy Radio Mix 
-05. Calvin West - Children  radio edit 
-06. Stars On 45 - 45  2011 Radio Mix 
-07. Milk & Sugar Vs Vaya Con Dios - Hey  Nah Neh Nah   Milk & Sugar Radio Version 
-08. Opus - Life Is Life  DJ Fisun Remix 
-09. Bob Sinclar feat. Raffaella Carra - Far LAmore  Radio Edit 
-10. Ph Electro - Every Breath You Take    Читать дальше...    Жанр: Pop | DiscoПродолжительность: 05:51:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0F1ABCA81EFBE4CC0340A1152AB61505029D1E68
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 378 853
-
-VA - Trance Eve Volume 13  25.08.2011  [MP3|320 kbps]<Vocal Trance, Uplifting Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Pedro Del Mar & ReOrder feat. Fisher - Reaching Out  Pedro Del Mar Remix 
- 002. Tritonal feat. Cristina Soto - Lifted  Mat Zo Remix 
- 003. Above & Beyond feat. Richard Bedford - Sun & Moon  Club Mix 
- 004. EDU feat. Aelyn - Taken Away  Original Mix 
- 005. Jason Van Wyk & Audien - Someday  Original Mix 
- 006. Kerrzo & Hutch - Sea Disco  Original Mix 
- 007. Ron Van Den Beuken vs. T.O.M. feat. Hadassa - The Voice Inside
- 008. Vitodito & Soulforge feat. Daniela Bove - Pastel Twilight  Original Mix 
- 009. Whiteroom feat. Amy Cooper - Someday  Remastered Vocal Mix 
- 010. Sied Van Riel feat. Nicole McKenna - Stealing Time    Читать дальше...    Жанр: Vocal Trance, Uplifting TranceПродолжительность: 06:10:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2CFA1331466BF05868C3884663FF6D917E23A7B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 378 639
-
-VA - Arabic Music {2011} [MP3|160 kbps]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 10:41:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D604518412589175E54A797585CC5F5B4162F53C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_378639.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 378 617
-
-VA - Chill Out Mystical Rate  2011  [MP3|320 kbps]<Сhill out, New age, World, Downtempo>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Michiko Tanak — Cherry Blossom Melody
-02. Lin Fu Chan — Unfolding Spirits
-03. Rajiv Basham Singh — Thousand Mirrors
-04. Rajiv Basham Singh — Prana
-05. Ravi Chawla — The Swan
-06. Rajiv Basham Singh — Vishnu s Fire
-07. Michiko Tanaka — Holy Mountain
-08. Waldeck — Memories
-09. David Lowe s Dreamcatcher — Tree  Blazing Sun 
-10. Swati Natekar — Mystery    Читать дальше...    Жанр: Сhill out, New age, World, DowntempoПродолжительность: 02:53:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:31FC3838D8F53F91744BFDF10AAD488D66F67EA0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 377 409
-
-VA - Vocal Trance Collection Vol.67  2009-2011  [MP3|320 kbps]<Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01 Benya Feat. Emma Lock - Loved To Be  Nuera Remix 
-02 Shogun - Skyfire  Original Mix 
-03 BBE - 7 Days And One Week -  Armin Prayd Remix feat. Zoexenia 
-04 Richard Durand feat. Hadley - Run To You  Original Mix 
-05 Sean Bay Feat. Antonia Lucas - Leave This World Behind  Club Mix 
-06 Kurt feat. K.I.R.A. - Forget Me  Original Mix 
-07 Roger Shah feat. Carla Werner - One Love  Album Club Mix 
-08 Shane Halcon feat. Tiff Lacey - Must Have Fallen  Original Mix 
-09 Jo Micali feat Hanna Finsen - Fade Away  C-Systems Remix 
-10 FKN Feat. Jahala - Tonight Take Me Away Feat. Jahala  Smart Apes Remix Жанр: TranceПродолжительность: 01:03:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C9CD4D581376840A1CFDF766066758F27862F899
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 376 940
-
-VA - Клуб Dj - Лучшие хиты - Зарубежная версия  2011  [MP3|256 kbps]<Pop, Techno>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Ne-Yo feat., Pitbull, Afrojack & Nayer - Tonight  Give Me Everything  
-002. Nirvana - Smells Like Teen Spirit  Grand Letter F Smells Like Shit Remix 
-003. Katy Perry feat. Snoop Dogg - California Gurls  Mstrkrft Remix 
-004. Andre Visior & Kay Stone - Sunrise  Radio Version 
-005. Coolio vs. Kylian Mash & Rico Bernasconi - Gangsta s Paradise  Bernasconi & Farenthide R
-006. DJ M.E.G. feat. Timati - Party Animal
-007. Benny Benassi Feat. Garry Go - Cinema  Radio Edit 
-008. Armin Van Buuren feat. Laura V - Drowning  Avicii Remix 
-009. Mike Candys & Jack Holiday - Push The Feeling On  Christopher S Radio Mix 
-010. Coolio & Rico Bernasconi - Gangsta s Paradise 2011  Bernasconi & Farenthide Remix     Читать дальше...    2011Жанр: Pop, TechnoПродолжительность: 06:24:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EDAB3122C46A08A47C2D9C8601616031349AFA6E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 375 820
-
-VA - Русская ДискотЭка Арлекина Часть 4  2011  [MP3|256 kbps]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Горячий Шоколад - Позвони Мне...  Комарово Dance 
-02. Muradiks Feat. Bahtiyar - Мы Едем В Лето
-03. Серебро - Mama Lover
-04. Потап И Настя Каменских - Если Вдруг
-05. Mc Zali & Dj Dima Molotov - Дави Танцпол
-06. Все Включено - Оторвемся Летом
-07. Наталка Карпа - Дубаи
-08. Пающие Трусы - Калимера
-09. Любовные Истории - Пена
-10. Twosome Bookaz Feat. Dvisti Boys - Карпаты    Читать дальше...    2011Жанр: Pop, DanceПродолжительность: 06:01:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AE4F69B7AFD8B9C1B3E010B1CE92F1426338CC99
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 375 813
-
-VA - Дискотека То, что надо !  2011  [MP3|256 kbps]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Юлия Савичева - Сердцебиение
-02. Зара - Амели
-03. Enrique Iglesias with Usher feat. Lil Wayne - Dirty Dancer
-04. Dns Project Feat. Johanna - Mindful
-05. Джиган  Geegun  и Юлия Савичева - Отпусти  Yan Belli Mix 
-06. Maxima - За Сонцем
-07. Dan Balan - Freedom
-08. Ева - Не Жена
-09. Инфинити - Не Молчи
-10. Kola Project - Пусть Каждый Услышит  Extended Mix     Читать дальше...    2011Жанр: Pop, DanceПродолжительность: 06:10:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:079B3CDD5E1F1C0AD9DC61AF0A49929138C74739
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 375 756
-
-VA - XXXL Полный нокаут! 5 50 50  2011  [MP3|256-320 kbps]<Club>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001 DBN pres. Tom Shark feat. Shena - Le Freak  Original Mix 
-002 Dj Amor & Dj Vitalio & Катя Ирис - Summer Miracle  Saint Killer Remix 
-003 TyDi - Sex, Lies & Still Obvious
-004 DJ Slon & Katya - Я Не Дам  DJ Dima Love Remix 
-005 Alcazar feat. Dream Beats - Feel 4 You  Afm Remix Short 
-006 Оксана Почепа и 140 Ударов В Минуту - Гол! Это Наш Футбол  Raduga Remix 
-007 Arsenie - Bang Bang  Dj Miv Electro Full Remix 
-008 Вельвет - Нанолюбовь  LaTrack Poppi Radio Mix 2011 
-009 Infernal - From Paris To Berlin  Vova Baggage & Kirillich Remix Radio 
-011 Сплин - Гандбол  Dj Timur Kastrov Radio Remix     Читать дальше...    2011Жанр: ClubПродолжительность: 07:55:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E3A209E014372282D808A21998A11693A26C236
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 374 937
-
-VA - Kiss FM Top 40  July 2011  [MP3|192-320 kbps]<House, Techno, Trance, Dubstep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Richard Durand & Ellie Lawson - Wide Awake [06:59]
- 02. Shogun - Skyfire [08:27]
- 03. Sander Van Doorn - Koko [05:39]
- 04. Above And Beyond & Richard Bedford - Sun & Moon [07:48]
- 05. Swedish House Mafia & John Martin - Save The World [06:32]
- 06. Ferry Corsten - Punk Arty Rock-N-Rolla Mix [06:27]
- 07. Avicii - Levels [05:33]
- 08. Dj Tiesto & Mark Knight & Dino - Beautiful World  Club Mix  [07:50]
- 09. Bobina & Betsie Larkin - You Belong To Me [06:28]
- 10. Allure & Jes - Show Me The Way  Solarstone Rmx  [03:37]    Читать дальше...    Жанр: House, Techno, Trance, DubstepПродолжительность: 03:58:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A3CDF4039313D42319AD4B3D2A1D09F2D5A354B0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 374 611
-
-VA - Молодёжная Дискотека - Танцы До Упаду!!!  2011  [MP3|256 kbps]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Анна Седокова - Драма  DJ Antonic Mix 
-02. Adriano Celentano - Pay, Pay , Pay 2010  DJ Flight & DJ Zhukovsky Radio Edit 
-03. Артур Пирожков - Пэрэдайз  DJ Vengerov Radio Edit 
-04. DJ Kopernik - Рок-н-Ролл мертв, а я еще нет!  Radio Mix 
-05. Нюша - Чудо  DJ Perets & Galin New Vocal Mix 
-06. Виктор Лобинцов feat. DJ Michelangelo - Птицы-Роботы  Radio Edit 
-07. Чи-Ли - Кошка  Sergei Karpov Minimal Pop Remix 
-08. Лера Туманова - Поцелуй в сердце  DJ Pomeha Radio Remix 
-09. Григорий Лепс - Рюмка водки на столе  DJ Skydreamer Remix 
-10. Верка Сердючка - Dolce & Gabbana  DJ Chad Radio edit     Читать дальше...    2011Жанр: Pop, DanceПродолжительность: 06:26:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D9C77D0D9171DDB4C728C64B264CB9B456292303
 ```
 
 <div id="header" align="center">

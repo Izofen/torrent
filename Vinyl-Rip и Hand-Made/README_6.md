@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 705 359
+
+Marisol - Поёт Марисоль (1980) [FLAC 24/192|Lossless|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1.
+01 - Расскажи мне о море, моряк. - Hablame del mar, marinero. (M.Alejandro - A.Magdalena)
+02 - Скажи ему, чтобы он вернулся. - Dile que vuelva. (M.Alejandro - A.Magdalena)
+03 - В нее влюбленный. - Emanorado de ella. (M.Alejandro - A.Magdalena)(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:818913F9BEF39B25346C102BA73D3B6ECA1BE660
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705359.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 358
+
+VA - Для вас, женщины. Принцесса (1989) [FLAC 24/192|Lossless|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+01. Сон про Джанет (музыка и слова М. Ангеловой)
+Ирина Отиева
+02. Лето (музыка и слова С. Кузнецова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:84EEA9E903E5694F6E032CA5D6301619560864CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705358.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 356
+
+VA - Для вас, женщины! Деловая женщина (1988) [FLAC 24/192|Lossless|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+01 - Эй, гражданка... (А. Укупник — В. Гин)
+Ирина Понаровская
+02 - 20.00 (А. Барыкин — М. Пушкина)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A51DA18CE547C93F9EB9C7F779BB758908DAC2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705356.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 259
+
+Thundermother  & The Gems  - Studio Albums  6 releases   2014-2024  hand made [restored,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Thundermother - шведская рок-группа, основанная в 2010 году.2014 - Rock  n  Roll Disaster
+2015 - Road Fever
+2018 - Thundermother
+2021 - Heat WaveЖанр: Hard RockПродолжительность: 04:40:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5D41054576605DD82826326C0DA0820418CE933F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705259.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 133
+
+ВИА «Веселые ребята» - Любовь – огромная страна (1974) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1:
+01. Любовь - огромная страна (Б. Рычков - Л. Дербенев)
+02. Я к тебе не подойду (Д. Тухманов - Л. Дербенев, И. Шаферан)
+03. Отчего (Ю. Антонов - Т. Сашко)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:348E0649E7AD1689907C815E75B331D5FF881676
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705133.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 130
+
+ВИА «Ариэль» - Ариэль (1975) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+01. Зимы и весны (музыка и слова В. Ярушина)
+02. Где ждет любовь (музыка и слова А. Богословского)
+03. Старая пластинка (Н Богословский — Я. Родионов)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F530D53B5C3ED438FB08183E4BB596948282DED6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705130.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 095
+
+Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossless|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1:
+01 - Кто идет (Д.-Б. Бембо — С. Бардотти — Н. Джакомелли — И. Форсман) — на шведском яз.;
+02 - Тайные влюбленные (П. Хочкисс — С. Джонсон):
+03 - Кто-то другой (А. Гленмарк — Т. X. Майнор):(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EABA8D20A0F7CA8D0B54EEB2CB5386CDCB3B8A49
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705095.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 705 093
+
+Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|tracks] <Country, Pop-Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1
+01. Люсиль
+Lucille (R. Bowling - H. Bynum)
+02. Игрок(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:77FE250003184A4909CE652CBD7B59D2542D7DCA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1705093.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 705 090
 
 Joe Dassin - Поет Джо Дассен (1979) [FLAC 24/192|Lossless|tracks] <Chanson, Pop>
@@ -1793,205 +1993,6 @@ A2 Озёрный Край
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1701220.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 701 200
-
-Unheilig - Puppenspiel  2008  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Vorhang Auf
-02. Puppenspieler
-03. Spiegelbild
-04. Dein Clown    Читать дальше...    Жанр: Gothic MetalПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A83BC102CBADA30FB2BE3C0421948E5DD1F0F58
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1701200.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 860
-
-Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Metal, Industrial Meta
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Das Uhrwerk
-02. Luftschiff
-03. Ich Will Alles
-04. Goldene Zeiten(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0AE1702BD282D85C1C19285E9DC846C16F386EBB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700860.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 800
-
-Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Die Filmrolle
-02. Zauberer
-03. Hört Mein Wort
-04. Willst Du Mich(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:934A76C055C325057C9FB8071FCD2F2514063C86
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700800.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 717
-
-Unheilig - Das 2. Gebot  2003  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Eva
-02. Maschine
-03. Gib Mir Mehr
-04. Sternenschiff    Читать дальше...    Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A0259EA072B97EE5E6B0AE74F96CFFDF13AD52C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700717.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 673
-
-Unheilig - Frohes Fest  2002  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial M
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Sternzeit  1. Strophe 
-02. Kling Glöckchen Klingelingeling
-03. Leise Rieselt Der Schnee
-04. O Tannenbaum    Читать дальше...    Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E051C9F8E01C30629A8BB0A899F681DD9B7AFFA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700673.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 658
-
-Mystic Prophecy - Studio Albums  12 releases   2001-2023  hand made [restored, declipped] [F
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Mystic Prophecy — немецкая пауэр-метал группа из Меммингена, Бавария, образованная в 2000 году.2001 - Vengeance
-2003 - Regressus
-2004 - Never Ending
-2006 - Savage SoulsЖанр: Power Speed Thrash MetalПродолжительность: 09:55:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700658.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 648
-
-Unheilig - Phosphor  2001  [FLAC|24 192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Meta
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Die Macht
-02. Willenlos
-03. Ikarus
-04. Sage Ja!    Читать дальше...    Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F173CF113DF006299B249C8FA710A050ABA4816
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700648.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 462
-
-Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declipped] [FLAC |16/44.1|tr
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Группа Gardenian была основана в Швеции в 1996 году Тимом Бломом (ударные) и Джимом Кьеллом (гитара, вокал). Вскоре к группе присоединились Хокан Скогер (бас) и Никлас Энгелин (гитара).1997 - Two Feet Stand
-1999 - Soulburner
-2000 - SindustriesЖанр: Melodic Death MetalПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:52C4710E801238F3A9E8C3F166DD9A9DA4083C31
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700462.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

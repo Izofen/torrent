@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 216 678
+
+Imagine Dragons - Evolve  2017  [DSD 2.0|5.6448 1|tracks|Vinyl-Rip] <Rock, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1. I Don t Know Why
+2. Whatever It Takes
+3. Believer
+4. Walking The Wire    Читать дальше...    Жанр: Rock PopПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216678.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 210 967
+
+Bing Crosby  Бинг Кросби  - Play A Simple Melody  1985  [FLAC 1.0|96 24|image+.cue|Vinyl-R
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Я напишу письмо
+02. Играйте простую мелодию
+03. Однажды летним днем
+ И. Берлин     Читать дальше...    Жанр: JazzПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1210967.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 210 840
+
+Алла Пугачёва - Виниловая коллекция  1977-1991  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Po
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Iceberg
+A2 The Rope-Dancer · Канатоходка
+A3 Leningrad · Ленинград
+A4 A Woman Who Sings · Женщина Которая Поeт    Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 10:06:51  общая 
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F99F729BD77B67D57886CDFD2742E31DB8E336C3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1210840.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 210 826
+
+Pink Floyd - The Dark Side Of The Moon  1973  Repress, 1974, Harvest [FLAC 2.0|192 24|image +
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Speak To Me  1:08 
+02. Breathe  In The Air   2:49 
+03. On The Run  3:44 
+04. Time  6:56     Читать дальше...    Производство: EMI Records   Harvest - EMS-80324Жанр: Psychedelic RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1210826.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 575
+
+Raffaella Carra Рафаэлла Карра - Поёт Рафаэлла Карра  1980  [FLAC 2.0|96 24|image+.cue|Vinyl
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Чак-Чак  Ciak  Malgioglio - Castellari
+02. Вернись Ко Мне  Torna Da Me  Belfiore - Boncompagni - Bracardi
+03. Несчастная Любовь  Povero Amore  Boncompagni - Bracardi
+04. На Словах  A Parole  Belfiore - Boncompagni - Bracardi    Читать дальше...    Жанр: Italo PopПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6722F60B27957CA21FA8379CC569E108A153B068
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208575.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 569
+
+VA - Superstars  1974  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Tom Jones - Little Lonely One
+02. Gerry Dorsey - The Sentimental Joker
+03. Gilbert O Sullivan - I Wish I Could Cry
+04.   The Nocturnes   - Why  Am I Treated So Bad     Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208569.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 554
+
+VA - San Remo  88  1988  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Massimo Ranieri - Perdere l’amore
+02. Fiordaliso - Per Noi
+03. Toto Cutugno - Emozioni
+04. Marcella - Dopo La Tempesta    Читать дальше...    Жанр: Italo PopПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208554.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 540
+
+VA - Le Canzoni D Oggi  1987  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Al Bano & Romina Power – Sempre, Sempre
+02. Loretta Goggi – Io Nascero
+03. Adriano Celentano – Lunedi
+04. Marcella Bella – La Verita    Читать дальше...    Жанр: Italo PopПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:972872B0AA114045CC6429CD3E72B909A66CB422
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208540.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 208 528
 
 VA - Italian Pop Music  1986  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
@@ -1788,202 +1988,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1172695.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 172 599
-
-VA - Heavenly Bodies: Original Motion Picture Soundtrack  1988  [FLAC 2.0|96 24|image+.cue|Vin
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Bonnie Pointer - The Best In Me
-A2 Sparks - Breaking Out Of Prison
-A3 The Tubes - Out Of Control
-A4 Cheryl Lynn - At Last You`re Mine    Читать дальше...    Жанр: Pop Rock, Soft Rock, SoundtrackПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1172599.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 171 308
-
-VA - XXXL Европейский 5  2000  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Electronic, Eurobeat>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. Modern Talking - Win The Race
-02. Modjo - Chillin 
-03. Billy More - Come On And Do It    Читать дальше...    Жанр: Electronic, EurobeatПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13452A78F5566CADF54DF1ED2A537EA91F320E4E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1171308.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 171 052
-
-VA - XXXL Европейский 3  2000  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Modjo - Lady  Hear Me Tonight 
-02. Spiller - Groovejet  If This Ain t Love   Radio Edit 
-03. Billie Piper - Day & Night
-04. Camilla Brinck - Bye Bye forever    Читать дальше...    Жанр: PopПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1171052.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 169 724
-
-Рома Жуков - Пыль Мечты  1988  [DSD2.0|5,64MHz 1bit|image+.cue|Tape-Rip] <Pop, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Пыль мечты  07:22  -Жанр: Pop, DiscoПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1169724.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 169 430
-
-ВИА Пламя - 200 лет  1982  [DSD2.0|5,64MHz 1bit|tracks|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Вячеслав Малежик - Двести лет
-02. ПЛАМЯ - Гороскоп
-03. ПЛАМЯ - Синяя птицаЖанр: PopПродолжительность: 00:10:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1169430.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 169 413
-
-Alice Cooper - Paranormal  2017  2LP, 45RPM [WavPack 2.0|192 32|image + .cue|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Paranormal  4:10 
-A2. Dead Flies  2:24 
-A3. Fireball  4:49 
-B1. Paranoiac Personality  3:10     Читать дальше...    Производство: Ear Music - 0212198EMUЖанр: RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1169413.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 167 019
-
-Александр Зацепин - музыка из к ф  Кавказская пленница   1967  [FLAC 2.0|96 24|tracks|Vi
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Песенка О Медведях  2:56 
-02. Дорога  1:58 
-03. Встреча  2:42 
-04. На Танцевальной Площадке  2:50 Жанр: Pop; Stage & ScreenПродолжительность: 00:10:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C83E30D165E840E78ABF20BA9D1DBEB693FF36CB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167019.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 402
-
-Queen - Jazz  1978  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Mustapha  3:02 
-A2. Fat Bottomed Girls  4:17 
-A3. Jealousy  3:14 
-A4. Bicycle Race  3:04     Читать дальше...    Производство: Elektra - P-10601EЖанр: RockПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A5820B8AEFDEFC9158723D5767C4B63D9B2C12AB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166402.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

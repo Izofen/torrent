@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 021 753
+
+CLAVVS - Feel It All  2015  [MP3|320 кб с] <Indie Pop, Soul, Trip Hop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Gold
+02. Give Up
+03. Body Parts
+04. Kill Me Soft    Читать дальше...    Жанр: Indie Pop, Soul, Trip HopПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C111F1BE2EA675BBC6A459B503EAB30A6673C69
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021753.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 021 704
+
+CLAVVS - Halfblood  2016  [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Synth Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Sit You Down
+02. Throats
+03. Pledge Allegiance
+04. All I Got  featuring Yirayah     Читать дальше...    Жанр: Alternative Pop, Indie Pop, Synth PopПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8D60BF2D1370564E40371970F61257147A7D399E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021704.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 021 642
+
+Annalisa - Se avessi un cuore  2016  [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Italo Pop,
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Se avessi un cuore  2:54 
+02. Leggerissima  3:23 
+03. Noi siamo un isola  3:09 
+04. Coltiverò l amore  3:48     Читать дальше...    Жанр: Pop, Electronic, Italo Pop, Singer-SongwriterПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0CD6CEF0A8BAEC3C2D49329B041A6620B016549F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021642.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 021 548
+
+Thomas Anders - History  2016  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Eu
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. You re My Heart You re My Soul  New Hit Version  - 3:28
+02. You Can Win If You Want  New Hit Version  - 3:41
+03. Cheri, Cheri Lady  New Hit Version  - 3:32
+04. Brother Louie  New Hit Version  - 3:43    Читать дальше...    Жанр: Pop, Electronic, Europop, DancepopПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80A511D109D952548ABA50EDC1297C23EA1425D3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021548.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 021 439
+
+Fifth Harmony - 7 27  2016   Deluxe  [FLAC|Lossless|image + .cue] <Funk, Soul, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. That s My Girl  3:24 
+02. Work From Home  3:34 
+03. The Life  3:23 
+04. Write On Me  3:40     Читать дальше...    Жанр: Funk, Soul, PopПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65CE7A80CC0D93FBE04D6A62B8EE37F335E3B30E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021439.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 021 422
+
+VA - High Energy Today  2016  [MP3|320 кб с] <Euro Dance, Pop Dance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Klubkidz - When We Were Young  Dance Mix   feat. Sam Solace  05:15
+02. Teresa Marie - Loved Me Back to Life  Sammy Love Remix  04:33
+03. Rachel Wood - Hung Up 05:15
+04. Evelyn Thomas - High Energy  Reload Radio Mix  03:49    Читать дальше...    Жанр: Euro Dance, Pop DanceПродолжительность: 02:29:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B22BE3E7F9231B4815DC573C384919057A977484
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021422.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 021 348
+
+Дискотека Авария - Лучшие песни  2002  [FLAC|Lossless|image + .cue] <Electronic, Pop, Euro House
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Пей Пиво! [03:58]
+02. Закол*censored* Ты [03:23]
+03. Некуда Деваться [03:45]
+04. Песня Про Яйца [04:19]    Читать дальше...    Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:20:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:25B7D7981ED5C5398229AA157AF3FEB5D6B6D280
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021348.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 021 200
+
+Sandra - The Very Best Of Sandra  2016  2CD, Compilation [MP3|320 кб с] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1
+01.  I ll Never Be  Maria Magdalena  Single Version   Remastered 2016   03:58 
+02. Everlasting Love  Remastered 2016   03:42 
+03. We ll Be Together   89 Remix Single Version   Remastered 2016   03:46     Читать дальше...    Жанр: PopПродолжительность: 02:13:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D51400D4EBCD4C4B3C22C07A477BD57423276639
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021200.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 021 126
+
+Azoto - 2 Albums  1978, 1980  [MP3|320 кб с] <Electronic, Disco, Funk, Soul>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Итальянская группа Azoto - еще один проект композитора, аранжировщика и продюсера Celso Valli, являющимся одним из пионеров итальянской диско-сцены и известным по работе с Macho, Passengers и Tantra.01. Havah Nagilah    8:51 
+02. Rainfall    5:52 
+03. Discomedley    7:06 
+04. Zorba s Dance    3:23     Читать дальше...    Жанр: Electronic, Disco, Funk, SoulПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9C95D3CDB84C587894EE71C5B51FA01D278D441
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021126.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 020 952
+
+Tantra - The Collection  2013  2CD [MP3|320 кб с] <Electronic, Disco, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Итальянская группа Tantra - проект композитора, аранжировщика и продюсера Celso Valli,  являющимся одним из пионеров итальянской диско-сцены и известным по работе с Macho, Azoto и Passengers. Композиция Hills Of Katmandu была ремикширована Patrick Cowley и является классикой space-disco.01. Hills Of Katmandu    16:22 
+02. Wishbone    15:43 
+03. Su-Ke-Leu    2:33 
+04. Mother Africa    4:39     Читать дальше...    Жанр: Electronic, Disco, Euro-DiscoПродолжительность: 02:34:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70ADB6D75278AE3704092C79F701AA629BE35FE2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020952.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 020 928
+
+Kristian Leontiou - Some Day Soon  2004  [FLAC|Lossless|tracks + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+1 Story Of My Life 3:48
+2 Shining 4:00
+3 The Years Move On 3:54
+4 Love Is All I Need 3:40    Читать дальше...    Жанр: PopПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9279F6EBAD8777847DC8AD1B913249BD4C632510
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020928.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 020 795
 
 Thomas Anders - History  2016  [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Europop, Dancepop
@@ -1719,281 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010074.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 009 975
-
-VA - Radio 538 Hitzone 77  2016  2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
-01. Dua Lipa - Be The One   3:24 
-02. Coldplay -  Hymn For The Weekend   4:21 
-03. Fifth Harmony feat. Ty Dolla Sign - Work From Home   3:38     Читать дальше...    Жанр: Top 40, Pop, RockПродолжительность: 02:31:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2DD27BB68E39FCFDFCF08699ABE1BFE4DCB98C91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1009975.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 009 813
-
-Benjamin Biolay - Palermo Hollywood  2016  [MP3|320 кб с] <French Pop, Chanson>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Palermo Hollywood  03:17 
-02. Miss Miss  03:22 
-03. Borges Futbol Club  02:01 
-04. Palermo Queens  03:43     Читать дальше...    Жанр: French Pop, ChansonПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:22D4E7C5A40D5B29065E813DAE80853D8A4DEAD2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1009813.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 009 165
-
-Patty Ryan - Golden Disco Hits  2001  [MP3|320 кб с] <Eurodisco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. You’re My Love, You’re My Life  04:30 
-02. I Don t Wanna Lose You Tonight  04:06 
-03. Love is the Name of the Game  03:38 
-04. Love Emotion  04:14     Читать дальше...    Жанр: EurodiscoПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3EE78A08C3C8F1B265E8285D0FAEB965037B076B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1009165.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 009 124
-
-Банд Эрос - Коламбия Пикчерз Не Представляет  2006  [FLAC|Lossless|tracks + .cue] <RnB, Swing>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Колaмбия Пикчерз не Представляет  4:26 
-02. Передача  для тех кому ПО...   3:24 
-03. Бумажный Змей  Песня про Деньги   3:32 
-04. Наоми Я Бы Кэмпбел  3:50     Читать дальше...    Жанр: RnB, SwingПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2989BA3CB62FB3D9C69DB9C88E1A5894F40F9D4C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1009124.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 951
-
-Geraldine Cordeau - Space And Time  1984  [MP3|320 кб с] <Electronic, Disco, Hi NRG>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Альбом  Space And Time   Пространство и время  канадской исполнительницы Geraldine Cordeau, многими сравнивается с первыми нашумевшими космическими композициями  Dee D. Jackson  и был весьма популярен на родине исполнительницы, а так-же в Европе, особенно у горячих южан. К сожалению, в том  Времени и Пространстве  эпохи СССР, не многие успели ознакомиться     Читать дальше...    01. Space And Time    5:28 
-02. Maybe Tonight    5:46 
-03. Do It For You    4:33 
-04. What Can I Do    4:40     Читать дальше...    Жанр: Electronic, Disco, Hi NRGПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25A1F253266BB153222A5813632DC9CBD97BB35E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008951.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 748
-
-Uma2rman  Уматурман, Ума2рман  - Пой, весна!  2016  [FLAC|Lossless|tracks + .cue] <Pop-Rock>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Пой, весна!  3:42 
-02. Один на один  3:28 
-03. Мои красавицы  3:12 
-04. Камон  3:16     Читать дальше...    Жанр: Pop-RockПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7C2405138D2592D3A5C930DABE61AF3D1A4DBED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008748.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 624
-
-Леонид Агутин - Просто о важном  2016  [MP3|320 кб с] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Отец рядом с тобой
-02. Севастополь
-03. Птица чёрная
-04. Ты плачешь    Читать дальше...    Жанр: PopПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8874B95DFB1B3E854ACE06AD0FFDDD889BEF497A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008624.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 594
-
-GooGooSha - GooGooSha  2012  [MP3|320 кб с] <ElectroPop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-GooGooSha - Гульна́ра Исла́мовна Кари́мова  узб. Gulnora Islomovna Karimova, Гулнора Исломовна Каримова; родилась 8 июля 1972, Фергана  — старшая дочь президента Узбекистана Ислама Каримова, сестра Лолы Каримовой. Посол Узбекистана в Испании с января 2010 года по июль 2012 года.Треклист:
-01. Night  04:01 
-02. How Dare  03:37 
-03. Wake Up  04:28     Читать дальше...    Жанр: ElectroPopПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9B4B94190B9C84D2B8E63A6E35A4FE19A006AA89
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008594.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 488
-
-Леонид Агутин - Просто о важном  2016  [FLAC|Lossless|tracks + .cue] <Pop, Bossa Nova, Jazz Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Отец рядом с тобой  4:12 
-02. Севастополь  4:27 
-03. Птица чёрная  3:53 
-04. Ты плачешь  3:43     Читать дальше...    Жанр: Pop, Bossa Nova, Jazz PopПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3037AE24C9F15913E8CC3FFC3071B8DFDED5D98C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008488.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 202
-
-Uma2rman - Пой, весна!  2016  [MP3|320 кб с] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Пой, весна
- 02. Один на один
- 03. Мои красавицы
- 04. Камон    Читать дальше...    Жанр: PopПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:489FE679D29BA16C689F35E6EF19B22E5A1EAB5E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008202.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 191
-
-VA - Nostalgie - The Summer Feeling  2015  5CD [FLAC|Lossless|tracks] <Pop, Dance, Disco>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Kaoma - Lambada    03:25
-02. Gusttavo Lima - Balada    03:23
-03. Paradisio - Bailando    03:47
-04. Righeira - Vamos A La Playa    03:37    Читать дальше...    Жанр: Pop, Dance, DiscoПродолжительность: 06:14:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5AC50D3EECFFE276F1E886835B8722030E782ED7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

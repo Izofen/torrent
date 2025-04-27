@@ -1,4 +1,268 @@
 ﻿
+###  Публикация: 209 970
+
+Государственный Академический русский хор п. у. А.В.Свешникова - Песни военных лет  2005  [MP3|3
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Шёл ленинградский паренёк
+02. Я убит подо Ржевом
+03. Как дорог друг
+04. В землянке    Читать дальше...    Жанр: Военная песняПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3DCCE3B4A38259CC71F9D5B45BF2AE2061A3BE98
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_209970.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 209 561
+
+Дмитрий Маликов - Коллекция альбомов  1993-2009  [MP3|320 kbps]<POP>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 16:16:21
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_209561.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 209 465
+
+Наталья Ветлицкая - Дискография   1993-2004  [MP3|320 kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 10:52:12
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 208 382
+
+Ласковый Бык - Дискография (1987-2003) [MP3|160-320 kbps]<Поп Шансон>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Жанр: Pop, шансонФормат: MP3Продолжительность: 7:45:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CA0B51134091F742FF66382604FC2B3ADE8DB728
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_208382.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 205 766
+
+Lighthouse Family - 4 альбома  1996-2002  [MP3|320 кб с]<Soul Pop Easy Listening>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Lighthouse Family - британский дуэт, который появился в середине 90-х и просуществовал до 2003 года. Вокалист Tunde Baiyewu и клавишник Paul Tucker познакомились во время обучения в колледже в Ньюкастле.    Читать дальше...    Альбомы:
+1996 - Ocean Drive
+1997 - Postcards from Heaven
+2001 - Whatever Gets You Through the Day
+2002 - Greatest HitsЖанр: Soul Pop Easy listeningПродолжительность: 03:44:06
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_205766.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 196 657
+
+Pet Shop Boys - Pandemonium  2010  [FLAC|Lossless]<SynthPop>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+Live at the O2 Arena, London, 21st December 200901. More Than A Dream Heart
+02. Did You See Me Coming
+03. Pandemonium Can You Forgive Her?
+04. Love Etc.    Читать дальше...    Жанр: SynthPopПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_196657.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 195 702
+
+Николай Караченцов - Золотая коллекция  CD 1-3 [MP3|320 kbps]<POP>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 12:42:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4D019EC74E121BEB9ED867388E70B281029E671F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_195702.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 195 517
+
+VA - Лучшая танцевальная музыка 30-40-х годов  2CD   2002, 2004  [APE|Lossless] <Retro>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+Год: 2002, 2004 | Жанр: Retro | Продолжительность: 02:35:54Жанр: RetroПродолжительность: 02:35:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B212E330CE06F67FB8E32A60B510175F3CDD59FD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_195517.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 191 925
+
+VideoKids - The Invasion Of The Spacepeckers  1995  [MP3|320 kbps]<Pop, Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01 - Do the rap [3:37]
+02 - Cartoney tunes [4:24]
+03 - La bamba [4:13]
+04 - I m a rock and roll pecker [2:30]
+05 - Communication outer space [3:10]
+06 - Woodpeckers from space [5:59]
+07 - Give me that banana [4:07]
+08 - Do you like surfing [3:24]
+09 - Sky rider [3:15]
+10 - Woodpeckers from space 94  Club Mix Long  [5:18]Жанр: Pop, Italo-Disco
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_191925.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 191 882
+
+VA - CAV Demo CD  2007  [FLAC|Lossless|image + .cue] <Test, Demonstration>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Тестовый диск с очень качественным звучанием и хоть несколько попсовым местами содержанием, но подчеркиваю, запись ОЧЕНЬ КАЧЕСТВЕННАЯ. Допустим для примера, трек The Eagles - Hotel California поражает своей шириной и глубиной.01. Celine Dion - My Heart will go on  5:15 
+02. Snuffy, Dean Parks - Eugene s ragtop  2:58 
+03. Kenny Rogers - Lady  3:54 
+04. Kari Bremnes - Veien som gar inn te Betlehem  2:41     Читать дальше...    Жанр: Test, DemonstrationПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B976CD345CC6FD3F0A0710FDD62B826F4B596C74
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_191882.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 189 989
+
+Владимир Бунчиков и Владимир Нечаев - Раскинулось море широко  2001  [MP3|320 kbps]<Pop | Ретро>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+Жанр: Pop | РетроПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_189989.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 188 056
 
 ВИА Песняры - Лучшее  2009  [FLAC|Lossless]<РОР>
@@ -1801,275 +2065,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_90292.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 89 828
-
-Blue System - Дискография (1987-2009) 52 CD [MP3|192]<Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Жанр: EuroDiscoФормат: MP3
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA8175077B49592C38A1D65189E5DC33AA1535B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_89828.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 88 838
-
-Chilly - Showbiz  1980  [FLAC|951 Kbps]<Pop Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. There s No Business Like Showbusiness  0:20 
-02. Showbiz  1:39 
-03. Rock N Roll Sally  2:32 
-04. Taxman  3:17     Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E1A79599E88E86ED8CF9BD08D4F2E4BCEEE78950
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_88838.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 88 540
-
-F.R. David - 5 Альбомов  1982-2007  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-Описание:
-Ф. Р. Дэвид  фр. F. R. David, по-французски произносится «Эф Эр Дави́д»; настоящее имя — Эли́ Робе́р Фитусси́  фр. Elli Robert Fitoussi , род. 1 января 1947 года в Тунисе  — французский певец тунисского происхождения, исполняющий песни на английском языке.
-Музыкальную карьеру в конце 1960-х он начинал как аккомпаниатор  бас  различных     Читать дальше...    Жанр: Pop, Pop rock, Euro disco, SynthpopПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BD88E16CC0125EB8DA6B63D8BBDBBAA2140F63AB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_88540.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 84 255
-
-Хиты украинской эстрады 80-х годов   Хіти української естради 80-х років  2005  [APE|~ 600 кб<
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-1. Тече вода
-2. Гай, зелений гай
-3. Зачаруй
-4. Горянка    Читать дальше...    Жанр: Folk, Народные песниПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E4DB5C9ABDA7D3D93EE559622F9B7AF4359D271
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_84255.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 84 254
-
-VA - Хиты украинской эстрады 70-х годов   Хіти української естради 70-х років  2005  [APE|~600
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-1. Червона рута
-2. День з тобою
-3. Пісня буде проміж нас
-4. Я піду в далекі гори    Читать дальше...    Жанр: Folk, Народные песниПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:433DCE2B4A30ED9CC875C9610705E3AC59E5496A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_84254.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 84 229
-
-Хиты украинской эстрады 50-х годов   Хіти української естради 50-х років  2005  [APE|~600 кб<3
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-1. Київський вальс
-2. Троянди на пероні
-3. Пісня про вчительку
-4. Білі ночі    Читать дальше...    Жанр: Folk, Народные песниПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8EE24DA631F70EB7F99FF2A983DFF91F9030C598
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_84229.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 73 285
-
-VA - Best Audiophile Voices vol.4  2005  [APE|Lossless|image + .cue] <Vocal>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Salena Jones - You Don t Bring Me Flowers  3:31 
-02. Jane Duboc - Lady Jane  4:25 
-03. Tim Tamashiro - The Way You Look Tonight  3:14 
-04. Marianna Leporace - If  2:35     Читать дальше...    Жанр: VocalПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:018EA1FE4441EA39888C61EF27E97C73C3EB0CC7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_73285.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 64 935
-
-Alphaville - First Harvest  The Best Of Alphaville 1984-1992  2003  [APE]
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. Big In Japan
-02. Sounds Like A Melody
-03. Sensations
-04. The Mysteries of Love    Читать дальше...    Жанр: Synth-popПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38FAA322E5711D24438A0FCBDDC448DCBCDFA274
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_64935.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 63 914
-
-Basic Element - 6 Albums + 23 Singles Remixes  1993-2014 [MP3|320 kbps]<Eurodance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-1. Someone Out There  Radio Version   3:25 
-2. Someone Out There  Extended Version   5:17 Жанр: Eurodance , EurohouseПродолжительность: 00:08:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BA662855FF1E22C036DED199B535B01F5D34BA60
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_63914.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 49 548
-
-София Ротару   [1973-2007] [Дискография]
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. 1973 - БАЛЛАДА О СКРИПКАХ
-
-Баллада о скрипках   В.Ивасюк - В.Марсюк  ;
-Сказка   Т.Русев - Д.Демьянов  ;    Читать дальше...    Жанр: Pop
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5DEDF4176F3A21AAF97406D56945168FEAE9E93D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_49548.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 32 056
-
-Олег Анофриев - Есть только миг...  1995  [APE  image +.cue ] <Pop, Retro>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Это было недавно  из к-ф  Друзья и годы  
-02. Песня из к-ф  Путь к причалу 
-03. Песня из к-ф  Там, где кончается асфальт 
-04. Весенняя песенка    Читать дальше...    Жанр: PopПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CDE1B46CECBA1A539887084EBB8265D58A5AB661
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_32056.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

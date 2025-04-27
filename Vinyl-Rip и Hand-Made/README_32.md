@@ -1,4 +1,241 @@
 ﻿
+###  Публикация: 623 832
+
+Helloween - Straight Out Of Hell  2013  [FLAC 2.0 24 96 | tracks  Vinyl-Rip ]<Power Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Power MetalПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57345A83A43E05E54E31EAD9467B3F71363A11C7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 621 271
+
+Алиса - 5 альбомов, 6 LP  1986-1993  [WavPack 2.0 24 192|image + .cue  Vinyl-Rip ]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Театр  3:48 
+A2. Для тех, кто свалился с Луны  5:53 
+A3. Республика  7:43 
+A4. Камикадзе  4:47 
+B1. Кибитка  6:50 
+B2. Смутные дни  3:51 
+B3. Плач  6:05 
+B4. Пасынок звезд  8:06 Жанр: RockПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21AC8283063FED7575AB0127A61047109F0B30D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_621271.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 620 802
+
+Laura Branigan - Self Control  1984  [FLAC 2.0 24 96 | image  Vinyl-Rip ]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. The Lucky One  Bruce Roberts  04:10
+02. Self Control  Giancarlo Bigazzi, Steve Piccolo, Raffaele Riefoli  04:08
+03. Ti Amo  Giancarlo Bigazzi, Umberto Tozzi, Diane Warren  04:17
+04. Heart  Marie Cain, Warren Hartman  04:04
+05. Will You Still Love Me Tomorrow  Gerry Goffin, Carole King  03:22
+06. Satisfaction  Bernd Dietrich, Gerd Grabowski, Engelbert Simons,
+Mark Spiro, Diane Warren  03:54
+07. Silent Partners  Diane Warren & The Doctor  04:08
+08. Breaking Out  Diane Warren & The Doctor  03:46
+09. Take Me  Steve Kipner, John Parker  3:43    Читать дальше...    Жанр: PopПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63A1C0C016B3CDDC5DF07B7919782951C3D80FB8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 620 125
+
+The Beatles - Blue Box Collection  12 LP, Without White Album   1978  [FLAC 2.0 24 192|ima
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+LP13-A1. Across The Universe  Alternate Version  2:51
+LP13-A2. Yes It Is 2:43
+LP13-A3. This Boy 2:16
+LP13-A4. The Inner Light 2:38
+LP13-A5. I ll Get You 2:07
+LP13-A6. Thank You Girl 2:05
+LP13-A7. Komm, Gib Mir Deine Hand 2:29
+LP13-A8. You Know My Name  Look Up The Number  4:21
+LP13-A9. Sie Liebt Dich 2:19
+LP13-B1. Rain 3:03    Читать дальше...    Жанр: RockПродолжительность: 45:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A2C72549FF8FA5BFAEDE0317EB64E10043DFA8A2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_620125.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 619 304
+
+Rammstein - 2 альбома  2001, 2009  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Industrial>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Rammlied 5:19
+A2. Ich Tu Dir Weh 5:05
+A3. Waidmanns Heil 3:35
+B1. Haifisch 3:43
+B2. B******** 4:11
+B3. Fruhling In Paris 4:46
+C1. Wiener Blut 3:52
+C2. Pussy 3:59
+C3. Liebe Ist Fur Alle Da 3:29
+D1. Mehr 4:10    Читать дальше...    Жанр: IndustrialПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:679D710E769F7DBFDF0D4054004758E29C439C09
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_619304.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 619 233
+
+Rammstein - 4 альбома  1995-2005  [FLAC 2.0 24 96|tracks + .cue  Vinyl-Rip]<Industrial>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Benzin 3:47
+A2. Mann Gegen Mann 3:52
+A3. Rosenrot 3:55
+A4. Spring 5:25
+A5. Wo Bist Du 3:57
+B1. Stirb Night Vor Mir 4:08
+B2. Zerstoren 5:30
+B3. Hilf Mir 4:45
+B4. Te Quiero Puta! 3:53
+B5. Feuer Und Wasser 5:13    Читать дальше...    Жанр: IndustrialПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6D6C6E25C3139962F9AC2CDAA5D576253CBB1157
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_619233.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 618 847
+
+Mylene Farmer - Monkey Me  2012  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Elle A Dit 3:53
+A2. A L Ombre 4:50
+A3. Monkey Me 4:16
+B1. Tu Ne Le Dis Pas 4:22
+B2. Love Dance 4:07
+B3. Quand 4:06
+C1. J Ai Essayé De Vivre... 4:41
+C2. Ici Bas 4:33
+C3. A-T-On Jamais 3:47
+D1. Nuit D Hiver 5:25    Читать дальше...    Жанр: PopПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:78775AA202D728AE8E558B818CDCEAD99C9D88E6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 618 803
+
+System Of A Down - Toxicity  2001  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]<Nu Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Prison Song 3:21
+A2. Needles 3:14
+A3. Deer Dance 2:55
+A4. Jet Pilot 2:06
+A5. X 1:59
+A6. Chop Suey! 3:30
+A7. Bounce 1:54
+A8. Forest 4:01
+B1. ATWA 2:56
+B2. Science 2:43    Читать дальше...    Жанр: Nu MetalПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:85DE97EF1D07A8A1C837ED8619898CE06530A5B0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 618 724
 
 The Prodigy - 4 альбома + 3 сингла   1993-1997  [FLAC 2.0 24 192|image + .cue  Vinyl-Rip ]
@@ -1958,191 +2195,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_275827.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 269 645
-
-Pink Floyd - The Dark Side of the Moon  1973   Vinyl Rip 24 192  [FLAC|Lossless] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. Speak To Me  Поговори со мной  01:00
-2. Breathe  Дыши  02:50
-3. On The Run  Бегство  03:53
-4. Time  Время  06:45    Читать дальше...    Жанр: RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_269645.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 235 001
-
-Pink Floyd - The Wall. 1979.  LPCM, 96 kHz, 24 bit, stereo  [Audio-DVD from Vinyl Rip]
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Этот Audio-DVD  музыкальный DVD-Video  диск был сделан мною на основе материала, предоставленного уважаемым Dr. Robert. Этот человек известен своим тщательнейшим отношением к звуку, да и техника, использованная им при риппинге, заслуживает глубочайшего уважения. Формат DVD-Video был выбран мною для авторинга из-за несомненных удобств, предоставляемых им: возможности     Читать дальше...    Жанр: Rock, какого не было
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_235001.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 204 208
-
-Coldplay - 4 альбома  Vinil-rip 24 Bit 96 kHz   2000-2008  [FLAC|Lossless]<Alternative Roc
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 203 549
-
-Manowar - 11 альбомов  1982-2012   FLAC 2.0|96,192 24|FLAC|VinylRip] <Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Heavy MetalПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_203549.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 203 008
-
-Depeche Mode - 11 альбомов  1981-2005   Vinil-rip 24 Bit 96 kHz  [FLAC|Lossless]<Electro-R
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 194 789
-
-Scorpions - Sting In The Tail  2010  [Vinyl Rip 24Bit 192kHz]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. Raised On Rock  3:59 
-02. Sting In The Tail  3:13 
-03. Slave Me  2:45     Читать дальше...    Жанр: RockПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_194789.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 180 706
-
-Miles Davis - 12 LP альбомов  1957 - 1969  [24 bit 96 kHz|VinylRip]<Jazz, Hard Bop, Cool Jazz,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Jazz, Hard Bop, Cool Jazz, Modal, FusionПродолжительность: 08:36:10
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_180706.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 177 019
-
-The Dave Brubeck Quartet - Gone With the Wind (1959) [FLAC|24bit/192kHz & 24bit/96kHz]<Jazz>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. Swanee River 5:55
-2. The Lonesome Road 7:41
-3. Georgia On My Mind 6:40
-4. Camptown Races 2:01(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9DBD0323C9BB70D0AFB59316635BEB0D7BE2990C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_177019.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

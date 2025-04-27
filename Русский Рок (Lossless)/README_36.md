@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 1 070 010
+
+Полюса - Невесомые  2016  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Даю слово
+02. Без названия
+03. Сука-любовь
+04. Пустота    Читать дальше...    Жанр: RockПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:39FD94FE7EA82F257EE6E032EED7F1BC8012062F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1070010.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 069 009
+
+Ленинград - Очки Собчак  2016  Single [MP3|320 Kbps] <Rock>
+След.
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Очки СобчакЖанр: RockПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5FF40D380616A572B443D09EE462F5B4343A03E3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1069009.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 068 215
+
+Ракоший Нелч - Книга боли  2016  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Блокада
+02. Юные ангелы
+03. Брест
+04. Где вы    Читать дальше...    Жанр: RockПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3BF5653F6FC0312F1F5A6D06AC83EF2E40018414
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068215.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 068 005
+
+Марсу Нужны Любовники - Дети плохой погоды  2016  [MP3|320 Kbps] <Alternative Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Cкользим
+02. Место
+03. Дальневосток
+04. Космонавты    Читать дальше...    Жанр: Alternative RockПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD0E8A6345F1B5CBEEDB60E32720D75AF40AC984
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068005.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 067 924
+
+Агата Кристи - 10 альбомов + Live + Remixed & Maxi Single  1988-2017  [MP3|320 kbps] <Rock>
+След.
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1988 - Второй фронт  +переиздание 
+1989 - Коварство и любовь  +переиздание 
+1991 - Декаданс  +переиздание 
+1993 - Позорная звезда  +переиздание Жанр: RockПродолжительность: 18:59:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:806EAF8D958E0875C575AABBFE4D662B200843A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1067924.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 066 131
 
 Адо - 25 Горошин  2016  [MP3|320 Kbps] <Folk Rock, Soft Rock>
@@ -1850,131 +1972,6 @@ Main CD
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1028631.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 028 224
-
-Смысловые Галлюцинации и DJ Nejtrino - Волна 1   Волна 2  2015-2016  2EP [MP3|320 кб с] <Roc
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Зачем топтать мою любовь
-2. Мысленный волк
-3. Звёзды
-4. Волна    Читать дальше...    Жанр: RockПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:69F28DC832319822DDC3D2A92C75CAC25984558E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1028224.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 026 925
-
-Гарик Сукачёв - The Best  2016  [MP3|320 кб с] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. За окошком месяц май
-02. Я милого узнаю по походке
-03. Горит огонь
-04. Ольга    Читать дальше...    Жанр: RockПродолжительность: 01:32:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75136C5B4A0DD03ABB8C32D64246F1509ADD8CFD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026925.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 026 341
-
-Catharsis - 20 первых лет. Полное собрание сочинений  2016  [MP3|320 кб с] <Power Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Том 1.  Proles Florum  &  Child Ot The Flowers 
-Том 2.  Febris Erotica  &  Dea 
-Том 3.  Имаго 
-Том 4.  Крылья     Читать дальше...    Жанр: Power MetalПродолжительность: 12:14:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E2DEB4AB928FC098CCC8E63F40F9B681B0BD4FE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026341.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 025 380
-
-Ногу свело! - Всё лучшее в одном  2015  [MP3|320 кб с] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. В темноте
-02. Волки
-03. Идём на восток!
-04. Кукла  Live     Читать дальше...    Жанр: RockПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D6F83CD7BECEC4878D0D0A698019FBEDDE125525
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1025380.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 025 303
-
-Thundercats - The Covenant  2016  [MP3|320 кб с]<Progressive Deathcore>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-[01:26] 01. Open The Door
-[04:05] 02. GG WP
-[03:57] 03. Zombie Pigman From The Nether
-[02:53] 04. Watching Through The Mirror    Читать дальше...    Жанр: Progressive DeathcoreПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:932ABE8FF17FD346986288BA831767C5735F2696
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1025303.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

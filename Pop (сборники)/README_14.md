@@ -1,4 +1,277 @@
 ﻿
+###  Публикация: 1 652 861
+
+Nel Oliver - Nel Oliver (1980) LP [MP3|320 Kbps] <Disco, Reggae, Funk/Soul>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. In The Heart Of The Ghetto (5:16)
+02. I Have A Good Job (5:39)
+03. On The Boulevard (4:49)
+04. Funny Love (4:44)(   Читать дальше...   )Жанр: Disco, Reggae, Funk/SoulПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F07EA126D657A7391E3BDCC8E730E2AC4916A01A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652861.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 652 605
+
+VA - Hottest Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Post Malone - Sunflower (Spider-Man: Into the Spider-Verse) (02:37)
+02. Avicii - Wake Me Up (Radio Edit) (04:06)
+03. The Weeknd - Reminder (03:38)
+04. Imagine Dragons - Demons (02:57)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:02F18FB5173D27559CA9400F7B897DADB2B2A814
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652605.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 652 596
+
+VA - Party Nacht 2024 (2023) 2CD [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 1:
+01. Giovanni Zarrella - Senza te (Ohne dich)Жанр: Pop, DanceПродолжительность: 02:17:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1F93956C52D57D49BECEF15AD8A93854A4465085
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652596.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 652 141
+
+VA - Now That's What I Call 90's Pop (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Spice Girls - Wannabe
+02. Backstreet Boys - Everybody (Backstreet's Back) (Radio Edit)
+03. NSync - I Want You Back (Radio Edit)
+04. Salt-N-Pepa - Shoop(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, DowntempoПродолжительность: 01:08:39 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:842CD8CAD698D43F254DFB276BAD79A013728C13
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652141.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 652 140
+
+VA - Now That's What I Call Music 87 (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Miley Cyrus - Flowers
+02. Post Malone - Chemical
+03. NF - Happy
+04. Ed Sheeran - Eyes Closed(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, Post-DiscoПродолжительность: 01:15:48 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D788F208E0BEF6C562D4A30340C1C6864E77BA78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652140.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 652 017
+
+E-Type - Loud Pipes Save Lives (2004) [OGG Vorbis|480 Kbps] <Electronic, Hi NRG, Euro House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Loud Pipes Save Lives
+02. Paradise (feat. NaNa)
+03. Camilla
+04. The Predator(   Читать дальше...   )Жанр: Electronic, Hi NRG, Euro HouseПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9AEFA46910AB6412CB995AE685D8A87675FD9B31
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652017.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 651 807
+
+Jef Scott - Ten Stories  1986  Remastered, 2013, Yesterrock [FLAC|Lossless|image + .cue] <Pop Ro
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. One By One  3:37 
+02. I Watch My City Sleep  3:14 
+03. Mega-Millionare  4:26 
+04. You Are The Only One  3:32     Читать дальше...    Жанр: Pop Rock, New Wave, AORПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D486C4A5A6041ADBB8EBF4ADF3840E9C0E69E47C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651807.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 651 696
+
+Pussycat - Unreleased Demos 1983 (2023) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Can't Get over You (Demo Version) [00:03:02]
+02 - See White Wishes Fall (A Christmas Song) (Demo Version) [00:03:22]
+03 - Don't Come Crying to Me (Demo Version) [00:03:43]
+04 - Nothing Left for Us (Demo Version) [00:03:54](   Читать дальше...   )Жанр: PopПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E70B3E30302043D644BF249B1161A1AD4A75AE3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651696.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 651 460
+
+Shalamar - 10 Albums (1977-1990) Collection [MP3|320 Kbps] <Electronic, Disco, Funk/Soul>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Shalamar (Шаламар) - американская музыкальная группа 1970-х - 1980-х годов, созданная букинг-агентом Диком Гриффи и британским продюсером Саймоном Суссаном.Список альбомов:
+1977 - Uptown Festival
+1978 - Disco Gardens
+1979 - Big Fun(   Читать дальше...   )Жанр: Electronic, Disco, Funk/SoulПродолжительность: 06:45:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5EB2B6FFC391D6471F0DEE29C048C78384A820B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651460.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 651 411
+
+Odds - Crash The Time Machine  2023  [FLAC|Lossless|WEB-DL|tracks] <Power Pop, Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Crash the Time Machine [00:03:09]
+02. Unlikely Saviour [00:03:24]
+03. Fall Guy [00:06:27]
+04. The Traveling Light [00:02:23]    Читать дальше...    Жанр: Power Pop, Pop RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91C95ADEB794A54CFD5FCBED48FF1D297275AE9D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651411.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 651 345
+
+Bill Wray - Seize The Moment  1983  Reissue, Remastered, 2023, Bad Reputation [FLAC|Lossless|ima
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01.  You’re A  Heartbreaker  3:21 
+02. She Loves The Radio  3:19 
+03. Goin’ Down  3:55 
+04. After All These Years  3:38     Читать дальше...    Жанр: Pop Rock, AOR, Arena RockПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:20F6AA300BE8C2FD61EE3F1843FB51F07740BDBB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651345.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 651 338
 
 Mister Wonderful - New Religion (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Rock & Roll>
@@ -1714,283 +1987,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1637836.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 637 499
-
-Right Said Fred - The Singles (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Right Said Fred - Британская поп-группа, созданная в 1989 году братьями Ричардом и Фредом Фэйрбрассами (Richard and Fred Fairbrass).
-В 1991 году вышел первый хит «I’m Too Sexy», многократно использованный в кино и на телевидении. Песня заняла первое место в хит-парадах США и второе место в Великобритании.
-После The Beatles, они стали второй группой из Англии, три (   Читать дальше...   )01. I'm Too Sexy (2023)
-02. Don't Talk Just Kiss (2023)
-03. Deeply Dippy (2023)
-04. Love For All Seasons (2023 Acoustic Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:32A57F4448FE55C4FB1DFAED2C12C4792651DB50
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1637499.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 637 087
-
-VA - 80 s Super Hits  2023  [MP3|320 Kbps] <Pop, Rock, RnB>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - To Cut a Long Story Short - Gary Kemp
-02 - Love Changes  Everything  - Dennis Morgan
-03 - Forever Young - Bernhard Lloyd
-04 - Some Guys Have All the Luck  2008 Version Жанр: Pop, Rock, RnBПродолжительность: 03:24:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:770CB8DB5982CA2EEEEF5A43683833B34ED587EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1637087.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 637 062
-
-Sophie Ellis-Bextor - HANA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. A Thousand Orchids
-02. Breaking the Circle
-03. Until the Wheels Fall Off
-04. Everything is Sweet(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:67B3802A7F42F718D473DB7FA682B10760F542F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1637062.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 636 949
-
-Reflex - 20 лет - Лучшее и новое (2023) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Дальний свет
-02. Встречай новый день
-03. Non Stop
-04. Может быть показалось(   Читать дальше...   )Жанр: PopПродолжительность: 01:34:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2EA5F0EAE8C21C0932DC545E338F4933B663B8BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1636949.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 636 929
-
-VA - Certified Love Songs  2023  [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. The Weeknd - Die For You
-02. Baby Bash, Frankie J - Suga Suga
-03. Nelly, Kelly Rowland - Dilemma
-04. Tory Lanez - Say It    Читать дальше...    Жанр: Pop, Rock, RnB, DanceПродолжительность: 02:36:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:947C64A7DFD08653E1521D6BB7B1F22EF0BC622A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1636929.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 636 921
-
-VA - Chill Vibes 2023  2023  [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Metro Boomin - Creepin 
-02. Post Malone - Chemical
-03. Rema - Calm Down
-04. Karol G - TQG    Читать дальше...    Жанр: Pop, Rock, RnB, DanceПродолжительность: 04:45:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:829EBDE29BBD2BE37C861CA05DD582B7F73FCB75
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1636921.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 636 569
-
-Lime - All Studio Albums (1981-2002) Collection [MP3|320 Kbps] <Electronic, Hi NRG, Synth-pop, Disco
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Эта знаменитая студийная группа возникла в 1980 году в Канаде. В её составе были супруги Дени и Дениза Лёпаж (Denis & Denyse LePage). После обретения известности в 1983 году, Lime стали одним из прародителей жанра евродэнс (танцевальной музыки 1990-х) наряду с такими европейскими группами как Eurythmics, Fancy, Secret Secret и др.Список альбомов:
-1981 - Your Love
-1982 - Lime II
-1983 - Lime 3(   Читать дальше...   )Жанр: Electronic, Hi NRG, Synth-pop, DiscoПродолжительность: 07:55:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3F9B24952DB245445697A766AF6F17867DF33A53
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1636569.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 636 252
-
-Fred Ventura - Rewind Of Change  Italoconnection Reworks   2023  EP [FLAC|Lossless|WEB-DL|tr
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Wind Of Change
-02. Heartbeat
-03. Lost In Paris
-04. The Years  Go By Жанр: Italo-DiscoПродолжительность: 00:21:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AD28D96A3A1414F4E88FEF3BB0EBF6875F089D03
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1636252.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 635 864
-
-GSPD - СПОРТ РЕЖИМ: КРАСНЫЙ СВЕТ (2023) [MP3|320 Kbps] <Pop, Rave, Dance>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. ПЕСЕНКА ДЛЯ СЛЭМА
-2. ПОСЛЕДНИЙ ГЕРОЙ
-3. RUSSIAN MAFIA
-4. SAY NO MORE(   Читать дальше...   )Жанр: Pop, Rave, DanceПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FAB82323C30384BB2343EB6E9042A6518226FC7B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1635864.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 635 844
-
-Галина Егорова - Популярные песни 30-60 годов  1996  [FLAC|Lossless|tracks + .cue] <Retro, Folk>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Подари мне платок
-02. И кто его знает
-03. Ивушка зеленая
-04. Ой, метель    Читать дальше...    Жанр: Retro, FolkПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7467F4C5F522D4563B60F4B92EDA4392118FA53
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1635844.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 635 603
-
-Taylor Swift - Midnights (2023) The Til Dawn Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Lavender Haze
-02. Maroon
-03. Anti-Hero
-04. Snow On The Beach(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18022E3DB96FF3674E505A533E8F542DA8E59A81
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1635603.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

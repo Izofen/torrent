@@ -1,4 +1,218 @@
 ﻿
+###  Публикация: 781 909
+
+Pink Floyd - Delicate Sound Of Thunder  2 LP   1988  [FLAC 2.0 24 192|traks Vinil-Rip 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Shine on You Crazy Diamond  11:46
+2. Learning to Fly 5:34
+3. Yet Another Movie & Round and Around 7:20
+Сторона 2
+1. Sorrow 9:54
+2. The Dogs of War 7:12
+3. On the Turning Away 7:56
+Сторона 3
+1. One Of These Days 6:14    Читать дальше...    Жанр: Progressive & Art RockПродолжительность: 01:37:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1BD4DEFB6EB1687BA4A15514A3D0CD7F0060A206
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_781909.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 778 284
+
+Varios - Колокольные звоны Псково-Печорского монастыря  1981  [[FLAC 2.0 24 96|traks Vinil-R
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1. Сторона 1  19:10
+2. Сторона 2  21:22Жанр: Church bells Russian FalcПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63222FEAC29B7C19564568D5B9A987D0FCB65856
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_778284.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 776 615
+
+Electric Light Orchestra - Discovery  1979   [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Progress
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Shine A Little Love  4:40 
+A2. Confusion  3:41 
+A3. Need Her Love  5:09 
+A4. The Diary Of Horace Wimp  4:22     Читать дальше...    Производство: Jet Records - FZ 35769Жанр: Progressive RockПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0409C9979B742FE6F320BD4223B7C9C18EDFAF7F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_776615.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 774 533
+
+Electric Light Orchestra - Eldorado  1974  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Progressive
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Eldorado Overture  2:12 
+A2. Can t Get It Out Of My Head  4:23 
+A3. Boy Blue  5:20 
+A4. Laredo Tornado  5:30     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0B52D0181E9C43236D1C00AFD00CD9B51AD090D5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_774533.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 773 795
+
+Electric Light Orchestra - On The Third Day  1973  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pro
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Ocean Breakup   King of the Universe  4:06 
+A2. Bluebird Is Dead  4:43 
+A3. Oh No Not Susan  3:07 
+A4. New World Rising   Ocean Breakup  Reprise   4:04     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_773795.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 772 457
+
+Led Zeppelin - Led Zeppelin II  1969  [FLAC 2.0 24 192|tracks Vinyl-Rip ]<Blues Rock, Hard
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Whole Lotta Love	5:36
+2. What Is And What Should Never Be	4:48
+3. The Lemon Song 6:22    Читать дальше...    Жанр: Blues Rock, Hard RockПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B4ADAF8FA9FC66C1424E026D030BD04EE0979ED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_772457.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 772 304
+
+Queen - News Of The World  1977  [FLAC 2.0 24 192|traks Vinil-Rip ]<Hard Rock, Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. We Will Rock You  2:03
+2. We Are The Champions  3:00
+3. Sheer Heart Attack 3:27
+4. All Dead, All Dead  3:10
+5. Spread Your Wings  4:35
+6. Fight From The Inside  3:05
+Сторона 2
+1. Get Down, Make Love  3:53
+2. Sleeping On The Sidewalk  3:08    Читать дальше...    Жанр: Hard Rock, Pop RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_772304.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 767 988
+
+Various - Peter`s Pop-Show  1987  W.Germany 2xLP [FLAC 2.0 24 96|Image  Vinyl-Rip ]<Ital
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Для тех, кто смотрел это шоу во второй половине 80-х, представлять его не нужно. И так понятно, что с тех пор лучшего музыкального шоу не было, MTV отдыхает. Для тех, кто появился позже - на Peters Pop Show, тогда была единственная возможность увидеть и услышать то, что было актуальным в поп-музыке в Европе. Да что там, просто это было единственное окошко в мир современной поп-музыки, оно открывалось только раз в году, в Новогоднюю ночь. Организатор и ведущий шоу Петер Ильманн, все это происходило в Дюссельдорфе благодаря телеканалу ZDF.A1. WAX - Bridge To Your Heart :: 03:50
+A2. DEPECHE MODE - Never Let Me Down Again :: 04:19
+A3. DESIRELESS - Voyage Voyage :: 04:04
+A4. MANDY - Positive Reaction  Our Mandyҳ Mix  :: 03:26
+A5. DEN HARROW - Day By Day :: 03:36
+A6. BONFIRE - Sweet Obsession :: 03:02
+A7. PARRISH & TOPPANO - Closer And Closer  Remix  :: 03:26
+A8. THE OTHER ONES - Holiday :: 03:35Жанр: Italo-Disco, Synth-pop, Pop, RockФормат: Vinyl, 2xLP, CompilationПродолжительность: 01:55:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F5111138C2DCBC1AC70E10906FFDCD2E44F17F2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 767 616
 
 Stephanie - Live Your Life  1986  France [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Italo-Disco,
@@ -2097,234 +2311,6 @@ B5. Staring Down The Demons :: 04:14Жанр: Synth-Pop, Pop RockФормат: V
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:70BC052B8663FD2F1927F0D1149D5B425DBF9E80
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 710 422
-
-Б.Г. - Русский альбом  1992  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Рок>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Архистратиг  1:12 
-A2. Никита Рязанский  2:38 
-A3. Государыня  3:03 
-A4. Ласточка  3:51     Читать дальше...    Жанр: РокПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA81DF2A22CC0BC1268C2A7116831EC7F6A1E316
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_710422.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 710 370
-
-Bert Jansch & John Renbourn - Bert and John  1966  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Bri
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side1:
-01,  East Wind   1:29 
-02.  Piano Tune   1:43 
-03.  Goodbye Pork Pie Hat   3:54 
-04.  Soho   3:03 
-05.  Tic-Tocative   2:00 
-06.  Orlando   1:42 
-Side2:
-01.  Red s Favourite   1:37 
-02.  No Exit   1:29     Читать дальше...    Жанр: British-Folk-Rock AcousticПродолжительность: 00:27:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F843AB087FED7F2721182D09FDA010E61FBB91F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 710 351
-
-John Renbourn - The Lady and The Unicorn  1970  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Britis
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side1:
-01.  Trotto   Saltarello   2:35 
-02.  Lamento di Tristano   La Rotta   2:58 
-03.  Veri Floris   Triple Ballade   2:44 
-04.  Bransle Gay   Bransle de Bourgoyne   2:50 
-05.  Alman   Melancholy Galliard   4:41 
-06.  Sarabande in B Minor   2:45 
-
-Side2:
-01.  The Lady and The Unicorn   3:31     Читать дальше...    Жанр: British Folk-Rock AcousticПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2A1AC1FE608794E72836C60D63B751C424469330
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 710 283
-
-Inker & Hamilton - Dancing Into Danger  1987  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Inker & Hamilton - это Мюнхенский поп-дуэт, состоящий из британца Дэйва Инкера  3 мая 1953 года, Бристоль  и новозеландки Хиллари Гамильтон  родилась 4 августа 1952 года в Веллингтоне . Их хит  Dancing Into Danger   выпущен на WEA Records  с одноименного альбома, который спродюсировал Michael Cretu, в 1988 году был в Top 20 Германии. В 1979 году они выпустили первый альбом  Highs and Lows . Следующий альбом  Человек Человеку   Person to Person  1981 и  Двойная Функция   Double Feature  1983 были опубликованы Sony Music. Когда был записан четвертый альбом,  Ум и Тело   The Mind and the Body  в 1984 году на студии Метроном, они выступали в разогревах на концертном туре Крис де Бурга. В 1988 трек  Dancing Into Danger , написанный Hubert Kah, был 15 недель в чарте синглов и достиг 19 места.A1. Dancing Into Danger :: 03:39
-A2. Think About Me :: 03:55
-A3. Heaven Knows :: 04:03
-A4. Wild World :: 04:00
-A5. One Way Love Affair :: 03:23
-B1. Motivation :: 04:46
-B2. Guardian Angel :: 04:34
-B3. Innocent :: 04:26
-B4. Question :: 04:15Жанр: Synth-Pop, Europop, Pop RockФормат: Vinyl, LP, AlbumПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0AD9700175F9E7A554FD253B98C413123FC0FBCE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 710 246
-
-Split Mirrors - Voices  1987  12  Maxi-Single Germany [FLAC 2.0 24 192|image  Vinyl-Ri
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Split Mirrors - одна из лучших синтипоп групп второй половины 80-х и первой половины 90-х. Split Mirrors местами напоминает Alphaville образца 84 года, т.к. в альбоме  1999  был задействован Френк Мертенс, бывший клавишник Alphaville, который покинул группу после дебютного альбома  Forever Young .A. Voices  Extended Version  :: 07:16
-B1. Love Me :: 04:14
-B2. Voices  Instrumental Version  :: 04:01Жанр: Synth-PopФормат: Vinyl, 12 , Maxi-Single, 45 RPMПродолжительность: 00:15:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AE59D5991DA6FE15BD274777797BCEAEEE563B26
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 710 203
-
-Калинов Мост - Золотое Толокно  2012  [FLAC 2.0 24 44.1|tracks  DC-CD ]<Folk-Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Бей, Бей!  5:11 
-02. Высоко  6:10 
-03. Разметал  6:01 
-04. Спозаранку  5:32 
-05. Горемыки  6:00 
-06. Восхищение  6:06 
-07. Солнечное Злато  5:11 
-08. Ушкуйники  5:32 
-09. Продали  4:36 
-10. Реки Мои  4:56     Читать дальше...    Жанр: Folk-RockПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A9B2DDF832DD245A900C7CF3186A6C67350DD0C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 710 099
-
-Святослав Рихтер - П. Чайковский  – Концерт №1 Си Бемоль для фортепиано с оркестром  1973  [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-1. Allegro Non Troppo E Molto Maestoso. Allegro Con Sprito  22:04
-Сторона 2
-1. Andantino Semplice  6:44    Читать дальше...    Жанр: ClassicalПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:83DD8E0C7BA4566AFB6AB201940DCC45AB7F3523
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_710099.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 710 018
-
-Annie Lennox - Diva  1992  Holland [FLAC 2.0 24 192|Tracks  Vinyl-Rip ]<Synth-pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Diva - первый сольный студийный альбом шотландской певицы и автора песен Энни Леннокс, выпущенный в 1992 году. Диск возглавил чарт Великобритании и получил статус четырежды платинового. Он также имел большой успех в США, где он был сертифицирован дважды платиновым. В 1993 году альбом был включен в список 50 лучших альбомов года по версии журнала «Q». Альбом получил награду «BRIT Awards» а также был номинирован на «Грэмми».A1. Why :: 04:53
-A2. Walking On Broken Glass :: 04:11
-A3. Precious :: 05:07
-A4. Legend In My Living Room :: 03:46
-A5. Cold :: 04:20
-B1. Money Can t Buy It :: 04:57
-B2. Little Bird :: 04:48
-B3. Primitive :: 04:16
-B4. Stay By Me :: 06:26
-B5. The Gift :: 04:53Жанр: Synth-popФормат: Vinyl, LP, AlbumПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3ADFB87D693C9A33C9C71F930112CCE3BF03C1A7
 ```
 
 <div id="header" align="center">

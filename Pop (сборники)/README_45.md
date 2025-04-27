@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 383 511
+
+T.P.H. Productions  - The Party s Here! With Elvis  2002  [FLAC|Lossless|image + .cue] <Pop, C
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Are You Lonesome Tonight  2:46 
+02. Blue Suede Shoes  2:00 
+03. Love Me Tender  2:47 
+04. Hound Dog  2:17     Читать дальше...    Жанр: Pop, Cover, OldiesПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:98EE67C6A7A2BC0799DDBF5E17B3AE64C48D5F62
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383511.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 383 238
+
+Charli XCX - how i m feeling now  2020  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. pink diamond
+2. forever
+3. claws
+4. 7 years    Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C1122F71D94F77B68C5ED8AC7AE12C7819C8643
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383238.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 383 015
+
+Albert One - Turbo Diesel  Maxi-Singles Collection   1988  Bootleg, 2000, VAL Records [FLAC|
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Turbo Diesel  5:57 
+02. Lady O  4:51 
+03. Heart On  5:32 
+04. For Your Love  5:52     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:14:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:93D8886B27DEAEFAB4327CB58ED597ED29C75EE7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383015.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 383 003
+
+Albert One - Best Of Albert One  1998  [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Heart On Fire  5:33 
+02. Secrets  Single Version   3:44 
+03. For Your Love  Original Radio Version   3:57 
+04. Don t Let Me Down  3:05     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:93FA5AADA9713451623AB7F7B28D5D483C0A34E6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383003.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 382 993
+
+Camp Galore - Deco Disco  1976  LP [MP3|320 Kbps] <Funk Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Yes, Sir That s My Baby  3:49 
+02. Ballin The Jack  4:19 
+03. Golden Slippers  4:31 
+04. I m Looking Over A Four Leaf Clover  4:11     Читать дальше...    Жанр: Funk Soul, DiscoПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B346EFF349B0E2DFF331696C361048314BB8939E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382993.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 382 884
+
+Ken Laszlo - Greatest Hits & Remixes  2016  2CD [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, 80s>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Don t Cry  Swedish Remix   6:38 
+02. Tonight  Vocal Version   5:50 
+03. Hey Hey Guy  US Remix   5:49 
+04. Glasses Man  Vocal Version   6:05     Читать дальше...    Жанр: Italo-Disco, 80s |Продолжительность: 01:17:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CFB00D84FBA65E4BFAFA6833AE52A02FAAEA4B75
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382884.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 382 542
+
+Laid Back - Laid Back  1981  2019,  Brother Music [FLAC|Lossless|image + .cue] <Electronic, Pop,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Roger  04:34 
+02. Bolivia  03:57 
+03. Night Train Boogie  03:57 
+04. Maybe I m Crazy  03:36     Читать дальше...    Жанр: Electronic, Pop, DiscoПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:896A668E62531EC89E6E9452B392EFF149BE066D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382542.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 382 508
+
+TDHDriver - My Fantasy World  2015  Remastered 2020, Spacesynth.ru [FLAC|Lossless|WEB-DL|tracks]
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Launch Base  4:38 
+02. Touch The Stars  7:18 
+03. New Reality  4:23 
+04. Galaxy Nexus  6:01     Читать дальше...    Жанр: Italo-Disco, SpacesynthПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DEC7A723BF98025434EA3864F51E57FF446A248D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382508.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 382 490
+
+VA - Русская народная песня. Часть 1 - 2  2002  [FLAC|Lossless|tracks + .cue]<Folk>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Н. Высотина - Ой, мороз, мороз
+02. Н. Высотина - Ах, вы сени, мои сени
+03. Ансамбль русской народной песни Воронежские девчата -
+ - Тонкая рябина    Читать дальше...    Жанр: FolkПродолжительность: 02:11:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65BBDB82641347AD54769288A7BB1C9AEE32C6CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382490.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 382 075
+
+Unyque - Makes Me Higher  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Keep On Making Me High  7:20 
+02. Party Down  7:01 
+03. It s Hot  6:11 
+04. Disco Lullaby  7:46     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:304305DDD5069B72F1227B25DCF30147B314C111
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382075.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 381 788
+
+Анита Цой - Нации победителей посвящается...  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Вступление  Юрий Левитан, 8 мая 1945 год 
+2. Офицеры
+3. В землянке
+4. Тёмная ночь    Читать дальше...    Жанр: PopПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DFBEFDBDD6BD9872D873FF2A4698C50D8C4D1B6D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1381788.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 381 786
 
 Little Big - Hypnodancer  2020  Single [MP3|320 Kbps] <Pop>
@@ -1707,279 +1982,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375577.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 375 360
-
-Herb Alpert - Rise  1979  LP [MP3|320 Kbps] <Funk Soul, Jazz, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. 1980  2:26 
-02. Rise  7:35 
-03. Behind The Rain  5:33 
-04. Rotation  5:11     Читать дальше...    Жанр: Funk Soul, Jazz, DiscoПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B24327EE821F364B300A4B205FD723B9D7AF99DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375360.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 375 321
-
-VA - Dance Your Ass Off  Salsoul Remixes   2013  Remixes+Continuous Mix [FLAC|Lossless|WEB-D
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Loleatta Holloway - Love Sensation  WhiteNoize Remix   6:24 
-02. Inner Life - Ain t No Mountain High Enough  WhiteNoize Remix   6:56 
-03. Jessie Andrews - I Never Knew  5:16 
-04. Aurra - Forever  J Paul Getto Remix   5:19     Читать дальше...    Жанр: Dance, Disco, FunkПродолжительность: 02:46:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9471EAF2981638EC3AE40552C9A3498F0A461F97
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375321.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 375 313
-
-Guy De Lo And His Orchestra - The Pink Panther Discostar  1978  LP [MP3|320 Kbps] <Electronic, F
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. The Pink Panther  From Philadelphia   4:08 
-02. Give Me Some Mo!  6:46 
-03. Simone  4:22 
-04. The Pink Panther  Discostar   3:00     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:421365476D77162DF64A22B65D04430E223DC388
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375313.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 375 267
-
-Yan Tregger - Catchy  1978  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Carry On  3:28 
-02. Catchy  4:13 
-03. Gimmicky  3:08 
-04. Sunny Wing  3:08     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:781708687E29F01498F94C2B58860F305482A8C1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375267.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 375 250
-
-Ольга Орлова - Первый  2001  [FLAC|Lossless|tracks + .cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Я с тобой 4:03
-02. Любовь не летала над нами 4:52
-03. Белый пух 3:37
-04. Ничего не бойся 4:02    Читать дальше...    Жанр: PopПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:315D87D5D2188ABCB0834F951DB5C1A7EE1A55D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375250.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 374 898
-
-Ricardo Caliente - Panpipes Play Boney M  1999  [MP3|320 Kbps] <Funk Soul, Disco, Schlager>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Rivers Of Babylon  3:49 
-02. Daddy Cool  3:30 
-03. Sunny  4:04 
-04. Brown Girl In The Ring  4:01     Читать дальше...    Жанр: Funk Soul, Disco, SchlagerПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DDAC22C1881D6427A223251A33C65B908D907525
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1374898.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 374 881
-
-VA - New Italo Disco Top 25 Compilation Vol.13  2020  [MP3|320 Kbps] <Italo-Disco, Europop, Hi-N
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Naomi - Give Me  Vocal Summer Radio Mix  4:16
-02. Naomi - Sorrow  Why Did You Say Goodbye   Vocal Summer Radio Mix  5:27
-03. Captain Apollo - Far From Home  Short Vocal Apollo Mix  4:24
-04. Boris Zhivago - Adagio For Love  Short Vocal Summer Mix  4:28    Читать дальше...    Жанр: Italo-Disco, Europop, Hi-NRG, Euro-Disco, DanceПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:354496EF9AE92AE86D067F113D064ECE5E115F17
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1374881.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 374 878
-
-VA - New Italo Disco Top 25 Compilation Vol.11  2019  [MP3|320 Kbps] <Italo-Disco, Space-Disco,
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Casarano - Carillon  New Gen Vocal Short Remix  4:31
-02. Modern Boots - Save My Heart  There s A Story   Vocal Radio Mix  5:02
-03. Rynar Glow - Take Your Time  Radio Mix  3:44
-04. Aldo Lesina - Romance  Vocal Short Lost Remix  4:26    Читать дальше...    Жанр: Italo-Disco, Space-Disco, Synthpop, Hi-NRG, Euro-Disco, DanceПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:159FFB798EF10662EF92A70D21595DED93036612
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1374878.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 374 838
-
-Billy Moore - Go Dance  1979  12   [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Go Dance  7:05 
-02. Go Dance  Instrumental   7:00 Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:14:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5EC797DC97FBF29C0821980E20C1DA3E96C281D3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1374838.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 374 808
-
-The Weeknd ‎ - After Hours  2020  [FLAC|Lossless|tracks + .cue] <R n B, Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Alone Again  04:12 
-02. Too Late  03:59 
-03. Hardest To Love  03:31 
-04. Scared To Live  03:11     Читать дальше...    Жанр: R n B, PopПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99698FC10052AF26513C96EEC7A71C5D3F6A6900
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1374808.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 374 728
-
-Lucrethia And The Azoto 14,008 - Dance Skinsation  1978  LP [MP3|320 Kbps] <Electronic, Funk Sou
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. It s The Way  4:18 
-02. Delicate Jan  4:50 
-03. Superustic Man  5:02 
-04. Hey There  7:20     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:27:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44FCA0A7CCF4E2C70E7E05129953C6063510C715
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1374728.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

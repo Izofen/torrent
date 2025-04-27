@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 468 718
+
+B.B. Jackson - Disco March  1977  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Disco March  11:20 
+02. Rachmaninov: Preludio In C Minor  3:53 
+03. Super Boogie  3:48 
+04. Beach Sea & Cerrone  6:44     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1855A7D77236AEA2C60E693EF5A191911B118899
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468718.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 553
+
+Bay City Rollers - Gold  2019  3xCD [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Rock & Roll>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+CD - 1:
+01. Remember  Sha La La La   2:34 
+02. Shang-A-Lang  3:06 
+03. Angel Angel  2:26     Читать дальше...    Жанр: Pop, Pop Rock, Rock & RollПродолжительность: 02:47:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ADE5DCE1E5F6360D0B1C43C9483BE989191C240E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468553.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 499
+
+VA - Greatest Covers Ever  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - I Heard It Through The Grapevine  Edit   03:53 
+02. Musical Youth - Pass The Dutchie  03:23 
+03. Toots and The Maytals - Take Me Home, Country Roads  03:21 
+04. Bahamas - Don t You Want Me  03:19     Читать дальше...    Жанр: PopПродолжительность: 01:49:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:358ACC57AF569D96D2C252ADF651DB34370853DF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468499.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 420
+
+Emma Stevens - Light Year  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Jump In  00:02:42 
+02. Forever  00:03:35 
+03. The Grass Is Always Greener  00:03:53 
+04. On a Day Like Today  00:02:50     Читать дальше...    Жанр: PopПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:229B99475730F17DCE0C2D6201279A8834C621C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468420.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 278
+
+Wilson Phillips - Wilson Phillips  2016  2CD [FLAC|Lossless|image + .cue] <  Pop, Vocal>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Release Me  Single Edit   03:54 
+02. Hold On  Single Fade   03:40 
+03. Impulsive  AOR Mix   04:35 
+04. Impulsive  Single Edit   digitally remastered 2000   03:57     Читать дальше...    Жанр: Pop, VocalПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:38831761F61E25ED0656824E8C1046F273396DFC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468278.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 248
+
+Mirko Hirsch - Missing Pieces - From Obsession to Desire  2021  [FLAC|Lossless|WEB-DL|tracks] <I
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. It s Love  Single Edit   4:08 
+02. And Tonight  Remastered   5:39 
+03. Rainy Day in Moscow  Remastered   6:38 
+04. Tango Tonight  Remastered   3:37     Читать дальше...    Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6E2D60165714C842228A7B4FACB242DBFCF1451D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468248.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 219
+
+VA - Ibiza Opening Megamix 2021 [MP3|320 Kbps] <House, Electronic, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Faul & Wad vs. PNAU - Changes  Zonderling Remix 
+02. The Disco Boys & Jay Frog - I Think
+03. Klaas - Push The Feeling On
+04. Darius & Finlay & LOTUS feat. Snoop Dogg - Last Flame    Читать дальше...    Жанр: House, Electronic, DanceПродолжительность: 04:27:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E72850D3265B93C05F1CF127496C12516DD634AD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468219.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 215
+
+VA - The Mastermix Collection – Summer 2  2021  [MP3|320 Kbps] <DJ Sets, Disco, Funky, Big Beat>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Mastermix - Dancehall For The Dancefloor
+02. Mastermix - On A Reggae Trip!
+03. Mastermix - Summer Party  Stars On 45 Version 
+04. Mastermix - Sound Of Tropical House    Читать дальше...    Жанр: DJ Sets, Disco, Funky, Big BeatПродолжительность: 02:06:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2DB64F1F16672601F007CAD6BDA8D5A927EAC975
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468215.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 208
+
+VA - The Mastermix Collection – Disco  2021  [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Mastermix - DJ Playlist: 70s Disco Floorfillers
+02. Mastermix - Disco Queens
+03. Mastermix - Funky Disco
+04. Mastermix - Boogie Nights    Читать дальше...    Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 02:23:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FB9D165E4EA332DB025B27E30282AF9D54D9768B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468208.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 092
+
+VA - The Mastermix Collection – Chart 2020-2021  2021  [MP3|320 Kbps] <DJ Sets, Disco, Pop, Danc
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Mastermix - Mastermixed: January 2020
+02. Mastermix - Pop Party: Spring 2020
+03. Mastermix - Mastermixed: February 2020
+04. Mastermix - Mastermixed: May 2020  Pop Dance     Читать дальше...    Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 02:07:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:54B1A5F84FF4DAFC55FDCED128BCDB4A0600D5E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468092.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 089
+
+VA - The Mastermix Collection – Cool Dance  2021  [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Mastermix - DJ Set: Cool Dance
+02. Mastermix - Monte Carlo Cool
+03. Mastermix - Nikki Beach: The Mix
+04. Mastermix - Laidback Beats    Читать дальше...    Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 01:59:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99D0FF88775C3833DB18F5E3FAC65D9B7919D483
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468089.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 468 083
 
 Алиса Фрейндлих - Поёт Алиса Фрейндлих  1979  Remaster, 2014, Мелодия [FLAC|Lossless|WEB-DL|trac
@@ -1716,281 +1991,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461409.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 461 359
-
-Hott City - Ain t Love Grand  1979  LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Feelin  Love  6:45 
-02. If All We re Gonna Do Is Dance  8:34 
-03. Ain t Love Grand  5:05 
-04. I Took His Money  7:03     Читать дальше...    Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4315B5689CB07EB80A2AD0226B36F9B32F82005F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461359.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 461 313
-
-Mirko Hirsch - Love Is Blind: Songs from the Motion Picture Pretty Boy  2021  [FLAC|Lossless|WEB
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Love Is Blind  Long Version   3:57 
-02. Return to Neon  Alternate Ending   4:37 
-03. King Without a Crown  6:12 
-04. When Love Said No  4:23     Читать дальше...    Жанр: Synthpop, Italo-Disco, AORПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D759C20B024CAF44225E1F13C4F714FDE1B65737
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461313.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 461 296
-
-Балаган Лимитед - Сто на двоих  2021  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Welcome to Russia
-2. Кто бы мог подумать
-3. Ой, да
-4. День рождения    Читать дальше...    Жанр: PopПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9D80D3079F27C08A324E2FF0C03DDC031F075AFB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461296.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 461 242
-
-VA - Beats Of The Night - Studio 54 Vol. 2  1980  2LP [FLAC|Lossless|WEB-DL|tracks] <Electronic,
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Mitsou - Rock  N  Roll Is Back Again  4:16 
-02. Heather Parisi - Disco Bambina  5:14 
-03. La Flavour - Mandolay  5:29 
-04. Rinder & Lewis - Willie And The Hand Jive  4:28     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EAB20323CDC632B3B4E04C72199346CA0BD6F832
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461242.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 461 202
-
-VA - ZYX Italo Disco Spacesynth Collection 6  2020  2CD, Compilation [FLAC|Lossless|tracks + .cu
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Laserdance - It s Over  5:03 
-02. Bellatrix - Vector  5:37 
-03. Blue Star Project - Happy Dance  ZYX Version   5:24 
-04. DJ Con-T - Space Adventure  Vanello Remix   5:44     Читать дальше...    Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D4E693E5C58995665F377DF650957DD7D6EEA04
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461202.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 461 176
-
-Dick St. Nicklaus - Magic  1979  LP [MP3|320 Kbps] <Disco, Pop, Soft Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Magic  3:39 
-02. Help Yourself  3:19 
-03. What s The Reason  4:51 
-04. Can t Give Up  2:54     Читать дальше...    Жанр: Disco, Pop, Soft RockПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1196500EA58BF0EC47E970BCB387E7351BCE5315
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461176.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 968
-
-The Wonderland Band - Wonder Woman  1979  LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Thrill Me  With Your Super Love   7:57 
-02. Superman Theme  6:19 
-03. Wonderland Love Theme  7:04 
-04. Paradise Island  7:13     Читать дальше...    Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8D09C71982797E07274E6BA4B2E42E3FF9BE9FD6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460968.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 779
-
-Bob McGilpin - 3 Albums  1978-1980  LP [MP3|320 Kbps] <Electronic, Disco, Pop, Funk Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Список альбомов:
-01. 1978 - Superstar
-02. 1979 - Get Up
-03. 1980 - Bob McGilpin    Читать дальше...    Жанр: Electronic, Disco, Pop, Funk SoulПродолжительность: 01:49:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8AB76971EFEF3E512194B01126D2A146E1AE54F6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460779.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 546
-
-Peaches & Herb - 2 Hot!  2015  [FLAC|Lossless|tracks + .cue] <Disco, Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. We ve Got Love
-02. Shake Your Groove Thing
-03. Reunited
-04. All Your Love  Give It Here     Читать дальше...    Жанр: Disco, SoulПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:00F6F4C39199BF2B37D151BC8D170C3F71D2E735
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460546.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 459 889
-
-Scotch - The Best Of  2021  [FLAC|Lossless|image + .cue] <Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Disco Band  6:18 
-02. Loving Is Easy  4:47 
-03. Pictures  Tess Power Remix   5:58 
-04. Take Me Up  3:31     Читать дальше...    Жанр: DiscoПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:53A7C96346DF246CF532D69FFC799D365EA50775
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1459889.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 459 802
-
-Various Artists - Ностальгия Vol. 1 - Vol. 2  1994  [FLAC|Lossless|image + .cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. М. Катаева - Зима
-02. А. Бушманов - Хорошая песня
-03. Л. Сегеда - Магический вальс
-04. гр. Доменика Хантера - Час разлуки    Читать дальше...    Жанр: PoрПродолжительность: 01:42:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF4DB9CA342307ED43608A5FD95DA33B3D3608AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1459802.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

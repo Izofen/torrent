@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 608 128
+
+Mylene Farmer - Dance Remixes  1992  2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, House>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. We ll never die  Techno remix 
+02. Sans contrefacon  Boy remix 
+03. Tristana  Remix club 
+04. Sans logique  Illogical club remix     Читать дальше...    Жанр: Electronic, Pop, HouseПродолжительность: 01:50:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B8D632BFC67E3137B22E09D2CD36DFF727C09796
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608128.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 982
+
+Stars On 45 - 40 Years Anthology  2022  2CD, Remastered [FLAC|Lossless|WEB-DL|tracks] <Disco, Po
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Superstars  The Greatest Rock  n Roll Band In The World   RM.   16:02 
+02. Stars On Stevie  Remastered   7:44 
+03. It s Not A Wonder, It s A Miracle  Remastered   6:56 
+04. Stars On Jingle  Remastered   0:11     Читать дальше...    Жанр: Disco, Pop, Retro-Schlager, Post-Rock, R&B |Продолжительность: 01:13:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B3ADD7C12F80D85B9BE6176F7AF7A26F22BC820
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607982.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 972
+
+Аида Ведищева - Звёзды советской эстрады. Хиты 60-70-х  2011  [MP3|320 Kbps] <Советская эстрада,
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Помоги мне
+02. Дорожная песня
+03. Песенка о медведях
+04. Песенка вполголоса    Читать дальше...    Жанр: Советская эстрада, РетроПродолжительность: 01:05:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65B331CC9B50275D699C22B9B3E4C832831AF667
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607972.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 956
+
+VA - А у нас во дворе...  2005  [MP3|320 Kbps] <Рор>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Секрет - Моя любовь на пятом этаже
+02. Лицей - Осень
+03. Воскресение - Кто виноват?
+04. Ивана Купала - Галя    Читать дальше...    Жанр: РорПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3F2936C987A709B355913160228BFEE3F0999B58
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607956.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 900
+
+VA - Best Of Nu Disco 2022, Vol. 1-2  2022-2023  Disco Balls Records [MP3|320 Kbps] <Disco, Nu-D
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Stefan Torres, Alex Djette - Can t Help Me No More  Harvey Ross Remix   05:22 
+02. Franco Sciampli - It s Falling  Frank Virgilio Rethink   06:40 
+03. Rawkey - Like You Love Me  05:37 
+04. Umby - Call This Number  05:31     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 03:31:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D8996F95E23E6BE52327323C0C41F8727C0B7176
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607900.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 711
+
+Sam Smith - Gloria  2023  [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Love Me More [00:03:23]
+02. No God [00:03:17]
+03. Hurting Interlude [00:00:18]
+04. Lose You [00:03:10]    Читать дальше...    Жанр: Pop, R&B, SoulПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AC63C866ED0FA08D60D4EF64DD63D0C8BBB569AA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607711.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 683
+
+VA - Старые песни о главном 2  1996  [MP3|320 Kbps] <Рор>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. В. Сюткин - Как провожают пароходы
+02. Л. Долина - Стоят девчонки
+03. И. Аллегрова - Белый свет
+04. В. Меладзе - Ямайка    Читать дальше...    Жанр: РорПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43B35BACC95B401A52AFA821CC462A16FDAC2BBF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607683.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 675
+
+The Cars - Candy-O  1979  Reissue, Remastered, 2012, Elektra [OGG Vorbis|480 Kbps] <Rock, Pop Ro
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Let s Go
+02 - Since I Held You
+03 - It s All I Can Do
+04 - Double Life    Читать дальше...    Жанр: Rock, Pop Rock, New WaveПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF7F23EFDC6D2AA0C15802899D74E190439E60C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607675.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 590
+
+Steps - Platinum Collection  2022  2xCD [FLAC|Lossless|image + .cue] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Группа Steps была сформирована в мае 1997 в Лондоне, Великобритания. Она была одним из самых популярных британских музыкальных поп коллективов. Это был коммерческий проект, в который после долгих кастингов и проб вошли Lee Latchford-Evans, Claire Richards, Lisa Scott-Lee, Faye Tozer и Ian Watkins. Именно в таком составе группа просуществовала до её окончательного     Читать дальше...    CD - 1:
+01. Scared Of The Dark  3:47 
+02. Deeper Shade Of Blue  3:41 
+03. One For Sorrow  4:21     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:35:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5D3B864AE328165524CBCABA028FADBC5129C506
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607590.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 546
+
+Mylene Farmer - L Autre...  1991  [OGG Vorbis|480 Kbps] <Electronic, Pop, Chanson>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Agnus Dei
+02. Desenchantee
+03. L autre
+04. Je t aime melancolie    Читать дальше...    Жанр: Electronic, Pop, ChansonПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1546CF45AAD106B6EAE7A755032BFDCE6A085704
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607546.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 465
+
+VA - GANGSTER MUSIC, Vol. 7  2023  [MP3|320 Kbps] <Eurodance, Technopop>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+1. Slider & Magnit - Stacked
+2. TRITICUM - Petrunko 2.0
+3. NVTION PVNIC KDDK - Hypnotizes
+4. VUDOO Kolya Funk - Kruzak  Kolya Funk Remix     Читать дальше...    Жанр: Eurodance, TechnopopПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70B4E7B8EC45290AB32D245096DFA0B70754761C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607465.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 607 274
 
 Sting - Sacred Love  2003  [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
@@ -1717,281 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600176.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 600 154
-
-Manizha - Колыбель для повзрослевшего  2022  [MP3|320 Kbps] <Alternative Pop, Ethno Pop, Electro
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Здравствуй  Intro  [00:00:40]
-02 - гость [00:02:22]
-03 - Мы снова окажемся  Interlude  [00:01:10]
-04 - под небом голубым _ poyoni osmoni [00:03:13]    Читать дальше...    Жанр: Alternative Pop, Ethno Pop, ElectronicПродолжительность: 00:14:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3279E632DEEFA5DD85ED8464323C3057A8759590
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600154.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 600 101
-
-Pentatonix - Holidays Around the World  2022  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Pentatonix  PTX  - американская a cappella группа из Arlington, Texas, которая сформировалась в 2011 году. Их канал на YouTube в настоящее время имеет 19,8 миллиона подписчиков и 5,7 миллиарда просмотров. Pentatonix выиграли три премии Grammy в 2015, 2016 и в 2017 годах. 21 сентября 2022 года члены группы анонсировали свой шестой рождественский альбом Holidays Around     Читать дальше...    01. feat. Meghan Trainor - Kid on Christmas  3:22 
-02. It’s the Most Wonderful Time of the Year  2:50 
-03. feat. Grace Lokwa - Love Came on Christmas  Joy to the World × Kumama Papa   4:08 
-04. Star on Top  3:22     Читать дальше...    Жанр: PopПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9FDF76E1EE55F2EB62B8A6B422BB510A76199C28
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600101.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 997
-
-Gene Ferrari And The Disco Roma Band - Disco Italiano  1978  LP [MP3|320 Kbps] <Funk-Soul, Disco
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Al Di La  2:57 
-02. Volare  3:20 
-03. Mala Femmina  2:31 
-04. Mama  2:03     Читать дальше...    Жанр: Funk-Soul, DiscoПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:305C7B4EAA3A5B0EA02452C8B703E2737B66ECDC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599997.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 917
-
-VA - Winter Chill 2023  2022  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Dean Lewis - How Do I Say Goodbye  2:43 
-02. Olivia Rodrigo - drivers license  4:02 
-03. Taylor Swift - Anti-Hero  3:20 
-04. Elton John - Cold Heart  PNAU Remix   3:22     Читать дальше...    Жанр: PopПродолжительность: 04:33:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E28D6BCAD3F4FA413BFEE63E5BCC74BA46355771
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599917.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 853
-
-VA - NOW That s What I Call Christmas  4CD   2022  MP3 [320 Kbps] <Pop, Rock, R&B>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Frankie Goes To Hollywood - The Power Of Love  05:33 
-02. Idina Menzel - Let It Go  03:44 
-03. Robbie Williams - Angels  04:25 
-04. Spice Girls - 2 Become 1  04:01     Читать дальше...    Жанр: Pop, Rock, R&BПродолжительность: 05:01:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C54BC4EEEDB98633AE596E06828FC3C537A10190
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599853.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 797
-
-Sarah Brightman - Diva : The Singles Collection  2006  [OGG Vorbis|480 Kbps] <Modern Classical,
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. The Phantom Of The Opera
-02. The Music Of The Night
-03. Pie Jesu
-04. Who Wants To Live Forever    Читать дальше...    Жанр: Modern Classical, Downtempo, Synth-popПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:610DD8F0AD9CF679238A60FC5D43A054E1CE18EB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599797.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 713
-
-Gwen Stefani - You Make It Feel Like Christmas  2017  Japanese Edition [FLAC|Lossless|image + .c
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Jingle Bells
-02. Let It Snow
-03. My Gift Is You
-04. Silent Night    Читать дальше...    Жанр: PopПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E520513669F6920A062BD2143E7A4EF1B740241
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599713.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 573
-
-VA - Nu-Disco & Re-Edits Vol.1  2022  [MP3|320 Kbps] <Deep Disco, Funky, Soulful, Nu Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Chewy Rubs - Strange Love
-02. Chewy Rubs - The Game
-03. Chuggin Edits - I Get Satisfied
-04. Chewy Rubs - Garage Disco  Chewy Rubs Dub     Читать дальше...    Жанр: Deep Disco, Funky, Soulful, Nu DiscoПродолжительность: 03:58:09 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2CAB046A74402C296E576E3414426FCB1C1341A6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599573.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 562
-
-VA - Broken Beat & Nu Disco The Best Of  2022  CD, Compilation [MP3|320 Kbps] <Soulful, Nu Disco
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Vito Lalinga  Vi Mode inc project  - Angola  Zane Wayne Massey Saxophone 
-02. Vito Lalinga  Vi Mode inc project  - Legend
-03. Vito Lalinga  Vi Mode inc project  - Driving
-04. Vito Lalinga  Vi Mode inc project  - Party Groove    Читать дальше...    Жанр: Soulful, Nu Disco, Indie Dance, FunkПродолжительность: 01:53:47 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A0D8DD1412BD6003FA612254572B57A54CC3FD5C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599562.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 310
-
-ВИА   Здравствуй, песня   - 4 Albums  1979-1982  LP [MP3|320 Kbps] <Rock, Funk-Soul, Pop
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-«Здравствуй, песня» - советский вокально-инструментальный ансамбль  ВИА . Формирование коллектива началось в городе Макеевка Донецкой области, когда музыканты Донецкого музыкального училища во главе с Аркадием Хаславским получили предложение создать ВИА при крупном заводе города Донецка. Предложение было принято. Ансамбль назывался «Калейдоскоп» и все музыканты получали     Читать дальше...    Список альбомов:
-1979 - Здравствуй, песня
-1979 - Мы любим диско
-1981 - Вокруг любви    Читать дальше...    Жанр: Rock, Funk-Soul, Pop, DiscoПродолжительность: 02:23:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E34A89E0CF2006678450C91F2B9F5EF65D3F9FDB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599310.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 264
-
-VA - THE BEST OF EFFECTIVE RECORDS 2022  2022  [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-1. Imanbek BYOR - Belly Dancer
-2. Антон Токарев - Седьмой лепесток
-3. GaoDagamo Nesvyat Miyagi - На уверенном
-4. RASA - ПОГУДИМ    Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:182F22F51E3684D57A4BBB3B104EF52DA0A77D2F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599264.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

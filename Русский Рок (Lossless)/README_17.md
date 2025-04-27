@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 534 683
+
+Татьяна Зыкина - Седьмой альбом  2022  [MP3|320 Kbps] <Pop Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Призрак
+2. Подарок
+3. Сквозь этажи
+4. Пара дней    Читать дальше...    Жанр: Pop RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A3086C057ADA9CD996F3581C0FD87DDCFD614A19
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534683.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 534 681
+
+Капитан Лис - Пристрастие  2022  [MP3|320 Kbps] <Folk Punk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. О Женщины
+2. Гачимучи
+3. Дай Мне
+4. У Этой Песни Очень Длинное Название    Читать дальше...    Жанр: Folk PunkПродолжительность: 00:21:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:692D2067033B928CBAD70EDF21C6840F3D10D093
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534681.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 534 486
+
+Мамульки Bend - Эта песня обо мне  2022  [MP3|320 Kbps] <Rock, Ska>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Максим
+2. Нина
+3. Офелия
+4. Света    Читать дальше...    Жанр: Rock, SkaПродолжительность: 00:31:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:779A5D0A1A02473303A8BFFBF6D52683F398BC8D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534486.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 534 203
+
+Екатерина Яшникова - В этой пустоте  2022  Deluxe Edition [MP3|320 Kbps] <Indie Pop>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Intro
+2. На острове  Intro 
+3. На острове
+4. Опять зима  Intro     Читать дальше...    Жанр: Indie PopПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7AEE7F3361AFE6F9088410F50FB1805A20E30705
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534203.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 534 202
+
+Водокачка - В чужих квартирах  2022  [MP3|320 Kbps] <Indie Rock, Electronic>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Добро пожаловать
+2. Барракуда
+3. Протеже
+4. Мраморная    Читать дальше...    Жанр: Indie Rock, ElectronicПродолжительность: 00:28:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1FB5EA68BE4B50F7AAC0750015F805910722DEA8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534202.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 533 804
 
 Земфира - бордерлайн  2021  Deluxe Edition, 2022 [MP3|320 Kbps] <Rock>
@@ -1865,128 +1990,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504596.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 504 450
-
-РУБИ КОНцы! - Пуси-панк и подвески  2021  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Пуси-панк
-2. Тупая сука
-3. Рокстар
-4. Лолли    Читать дальше...    Жанр: Punk RockПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:216A8F08429097778FBDCE6A52FD6E4C1ABFC798
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504450.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 504 376
-
-Элизиум - Жыве Беларусь  2020  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Жыве БеларусьЖанр: RockПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D2BB1654AB41BC992A71C18232B529676ECA2BD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504376.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 504 368
-
-Элизиум - Пятница, 13 Live  2012  [MP3|320 Kbps] <Рок>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01.	«Слёзы-зеркала»	3:42
-02.	«Альпинист»	2:53
-03.	«Disco `80 Set»  попурри 	8:40
-04.	«Круглый год»	3:30    Читать дальше...    Жанр: РокПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75EF5C81EEF992970A44AE3A5A95E7BCD28464AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504368.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 504 190
-
-НАИВ & Симфонический оркестр «Глобалис» - Симфопанк  2021  [MP3|320 Kbps] <Symphonic Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. НАИВная увертюра
-2. 20 лет одиночества
-3. Я панк-рокер и алкоголик
-4. ННННЗ    Читать дальше...    Жанр: Symphonic Punk RockПродолжительность: 00:59:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E7ABDD09D7A2A5FD2E9CD2E09CC1A03308163C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504190.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 503 983
-
-Юрий Шевчук и группа ДДТ - Сборник песен  2021  Vinyl-Rip [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Белая река
-2. В последнюю осень
-3. Просвистела
-4. Что такое осень    Читать дальше...    Жанр: RockПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F1D840EF812BD52FB3A51D0F3BE5A72AD8655721
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1503983.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

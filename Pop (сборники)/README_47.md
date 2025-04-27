@@ -1,4 +1,276 @@
 ﻿
+###  Публикация: 1 368 963
+
+VA - Solid Gold Hits  2020  [MP3|320 Kbps] <Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Aretha Franklin - Respect  02:27 
+02. Otis Redding -  Sittin  On  the Dock of the Bay  02:43 
+03. Frankie Valli And The Four Seasons  - December, 1963  Oh, What A Night 
+04. Buffalo Springfield - For What It s Worth  02:35     Читать дальше...    Жанр: Pop, RockПродолжительность: 01:58:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E04CC8D2A98554C7B8B72B7FC0A4DEA76C92B730
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368963.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 368 865
+
+VA - Pop Classics  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Clean Bandit, Sean Paul, Anne-Marie - Rockabye  feat. Sean Paul & Anne-Marie 
+02. Anne-Marie - Alarm
+03. Bruno Mars - 24K Magic
+04. RITA ORA - Anywhere    Читать дальше...    Жанр: PopПродолжительность: 01:43:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:021632C3557F257F5CE6E9138657C1E0168BD164
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368865.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 368 716
+
+Вадим Казаченко - Лучшее  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Глаза в глаза
+2. На волоске
+3. Бегу за тобой
+4. Ты одна такая    Читать дальше...    Жанр: PopПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A40B9C93955FFC5E93CF60421CF03DAEA6C67D0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368716.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 368 695
+
+Adam Lambert - VELVET  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Velvet
+2. Superpower
+3. Stranger You Are
+4. Loverboy    Читать дальше...    Жанр: PopПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:33B58D4E3CD3B65D2F1962488A13F2EB93F3A43D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368695.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 368 687
+
+VA - Party Megamix Vol. 2  1994  [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01.Жанр: Pop, Cover, MedleyПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C8911E85A523940A23913F31C2FC4A01EA4E409
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368687.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 368 674
+
+VA - FETENFETZER Oldies Party  2002  [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldi
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Beach Boys - I Get Around  2:14 
+02. Barry Blue - Dancing on a Saturday Night  3:13 
+03. The Byrds - Mr. Tambourine Man  2:22 
+04. The Rubettes - Juke Box Jive  3:05     Читать дальше...    Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65A6F6C35E34B85599B7C196314960F197DD06EE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368674.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 368 667
+
+Сергей Кристовский  Uma2rman  - Ты и Я  2020  [MP3|320 Kbps] <Pop, Pop-Rock>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Все
+2. Катится
+3. Ты и Я  feat. Виктория Черенцова 
+4. Прости    Читать дальше...    Жанр: Pop, Pop-RockПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9C979F584C6AF8A5D2A64CB01931F83388AD46E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368667.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 368 631
+
+Anarchic System - 3 Albums  1974, 1975  [MP3|320 Kbps] <Electronic, Pop Rock, Pop, Space Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Французский студийный проект под руководством Оливье Туссена и Поля де Сенневиля. Состав группы: Christian Lerouge, Gilles Devos, Jacques Deville, John Turton, Michel Dhuy, Patrick Verette  был собран в 1972г. из друзей и участников других групп с рок-сцены Северной Франции для записи некоторых синглов, в.ч. Pop Corn , принесших огромную популярность и спрос     Читать дальше...    Список альбомов:
+1974 - Cherie Sha La La  R-CD 2009 
+1974 - Pussy Cat C est La Vie
+1975 - Generation  R-CD 2009     Читать дальше...    Жанр: Electronic, Pop Rock, Pop, Space RockПродолжительность: 02:15:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE706BEAEECB71A26EC2FC3D8B18B9687C0FD199
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368631.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 368 483
+
+I Santo California - Greatest Hits  2006  [MP3|320 Kbps] <Pop, Ballad>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Maledetto Cuore  3:28 
+02. Domani  3:49 
+03. Monica  4:21 
+04. Tornero  3:44     Читать дальше...    Жанр: Pop, BalladПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CE0B2DFF02CD1CD8B9CA9C2004F97D92FEBB35DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368483.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 368 281
+
+Качеля - Грустить и танцевать  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Море зовёт  4:22 
+02. Если ты уйдёшь  4:49 
+03. Город детства  4:00 
+04. Ветра  4:33     Читать дальше...    Жанр: PopПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7ABFBD0609010BE9C7FE0EDFA341F83342ABC713
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368281.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 368 228
+
+Garcons - Divorce  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. French Boy  9:28 
+02. Encore L Amour  7:06 
+03. 25th Street  6:09 
+04. Critics  5:50     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE68A6808D861F6F5A2464FD05BE9706833CEFD7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1368228.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 368 217
 
 Stylove - The 2nd Album  2019  Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco>
@@ -1717,281 +1989,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1363250.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 363 247
-
-Света - Другой аLьбом  2000  [MP3|320 Kbps] <Pop, Dance, House>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Светит луна  03:59 
-02. Моё солнце  04:15 
-03. Оригинал Увидимся  другой  04:04 
-04. Другой оригинал  Уходи  04:13     Читать дальше...    Жанр: Pop, Dance, HouseПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25D73FB6FFB703CE85F2C4C6E32CECA72FDBC3E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1363247.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 363 244
-
-Света - Lюбовь  1999  [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 Золотой рассвет  04:05 
-02 Любовь  05:18 
-03 Дорога в аэропорт  04:28 
-04 Просто  03:32     Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D5FE3186A2C535BA3351299146CC48697077497
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1363244.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 363 242
-
-Арина и  Размер  Project - Предел громкости  2008  [MP3|256 Kbps] <Pop, Euro Dance, Euro Hou
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Не бросай  4:53 
-02. Зови меня  3:40 
-03. Я там  3:50 
-04. Ближе  3:25     Читать дальше...    Жанр: Pop, Euro Dance, Euro HouseПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7A1432930D1AE22A0C12A2C664AEB896560735F5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1363242.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 363 227
-
-Игорёк - Употреблять охлаждённым  2008  [MP3|320 Kbps] <Pop, Europop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Эти Слёзы Твои ....  3:06 
-02. Мой Лучший Корефан  2:36 
-03. Летом  2:23 
-04. Бросай Бухать  2:55     Читать дальше...    Жанр: Pop, EuropopПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FA3ED442DDFC0845F88B7FC09315D02E741D5DE9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1363227.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 363 045
-
-Discognosis - Discognosis  1977  LP [MP3|320 Kbps] <Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Проект от авторов и продюсеров Rinder & Lewis.01. Discognosis  4:41 
-02. Poison Ivy  3:24 
-03. One On One  4:14 
-04. Step By Step  2:57     Читать дальше...    Жанр: Funk Soul, DiscoПродолжительность: 00:28:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7ACE9A5E8CD8BB0405EB3172EF4FA0FAA78B17BD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1363045.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 363 005
-
-Asgeir  Ásgeir  - Bury The Moon  Sátt   2020  [FLAC|Lossless|tracks + .cue] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Myndir [03:58]
-02. Bernskan [03:30]
-03. Heimþrá [03:15]
-04. Minning [03:47]    Читать дальше...    Жанр: Indie PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EAB22B9DBACF7374AD474C1E05E227AF30080CE9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1363005.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 362 879
-
-Рома Жуков - Первый снег  1988  JAM, 2019, Remaster [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Пыль мечты  8:00 
-02. Первый снег  5:45 
-03. Никто не в силах мне помочь  4:11 
-04. Прошу тебя, не верь словам  4:51     Читать дальше...    Жанр: PopПродолжительность: 00:32:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF80BAF7220E0E9F3A3B3031E1EB98E500C1A48F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1362879.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 362 866
-
-VA - Women Of 80s Pop  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Kylie Minogue - Hand On Your Heart 3:38
-02. Bette Midler - Wind Beneath My Wings 4:54
-03. Pretenders - 2000 Miles 3:39
-04. Tina Turner - I Don t Wanna Lose You 4:13    Читать дальше...    Жанр: PopПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8583585809BCE72134A4CCAE087E961A5DD57F13
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1362866.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 362 790
-
-VA - Love to Love Compilation  2020  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Gianrico Leoni, Daniele Soriani & Dario Dee - My Body and My Soul  Chill Mix   04:36 
-02. D-Chill - Around You  feat. Brooke Mitchell   04:21 
-03. Nasini & Gariani - Rhythm of Love  Acoustic Piano Version   feat. Dilu Miller   03:37 
-04. Hearts Of Glass - Touch Me  Acoustic Live Version   03:01     Читать дальше...    Жанр: PopПродолжительность: 01:22:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA4118BBF84EE218E3CCE29EEE882D1A7FEB8F7D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1362790.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 362 747
-
-VA - Dj Бинокль - Deep & Sexy Vol.01  2004  [MP3|320 Kbps] <Italo-Disco, Italodance, Vocal>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Untitled  7:06 
-02. Untitled  6:01 
-03. Untitled  5:40 
-04. Untitled  6:42     Читать дальше...    Жанр: Italo-Disco, Italodance, VocalПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1055404EEC21F7F010BCA729C94CBF668D0ACC2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1362747.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 362 703
-
-Wolfram - Amadeus  2019  [FLAC|Lossless|WEB-DL|tracks] <Electropop, Euro-House, Disco>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Wolfram - Scirocco  3:57 
-02. Wolfram feat. Peaches - Automatic  7:36 
-03. Wolfram - Graffiti In Teheran  5:37 
-04. Wolfram feat. Haddaway - My Love Is For Real  Dance Mix   4:43     Читать дальше...    Жанр: Electropop, Euro-House, DiscoПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:32AAE2BF177EBB0E57F96EDCA86CDF484D0E4E23
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1362703.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

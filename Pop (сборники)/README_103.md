@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 956 223
+
+Виктор Рыбин и Наталья Сенчукова - Закон притяжения  2012  [FLAC|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Для тебя
+02. Падал снег
+03. Бумажные самолёты
+04. Скажи    Читать дальше...    Жанр: PopПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6C93395CC89387399DA37874E580C7A796A725CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956223.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 956 158
+
+Ellie Goulding - Delirium  Deluxe Edition   2015  [FLAC|Image+cue]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Intro  Delirium 
+02. Aftertaste
+03. Something In The Way You Move
+04. Keep On Dancin     Читать дальше...    Жанр: PopПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8EEB9CB2422AB13B9C6008554F83F4AB93CFD392
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956158.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 956 106
+
+Дуэт Однажды - Гром  2000  [APE|image+.cue]<Pop,Lounge>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Гром [03:38]
+02. Падаю я [03:48]
+03. Я одна [04:19]
+04. Поцелуй [03:51]    Читать дальше...    Жанр: Pop,LoungeПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:769CFE1C5DD3ED3122EA139AC2295D8E282B7DB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956106.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 956 025
+
+The Dark Tenor - Symphony Of Light  2014  Deluxe Version [OGG|469-528 кб с]<Neo-Classical Cros
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. The Beginning  01:21 
+02. Heart Of Gold  03:04 
+03. River Flows On The Edge  featuring Yiruma   03:44 
+04. Love Is Light  02:59     Читать дальше...    Жанр: Neo-Classical Crossover Pop, Ballad, VocalПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0BEACF71E5AD62014B0191AA249BB92ABB585C4A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956025.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 967
+
+Justin Bieber - Purpose  2015  Deluxe Edition [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Mark My Words
+02. I ll Show You
+03. What Do You Mean?
+04. Sorry    Читать дальше...    Жанр: PopПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:59509478D5794A8C2D584581328267F6EBF10666
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955967.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 950
+
+Вахтанг Кикабидзе - Золотые шлягеры  1998  [MP3|320 кб с]<Pop, Retro>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Песня из к-ф Мимино
+02. Тишина
+03. Друзья детства
+04. Мои года - мое богатство    Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4807E153A1F2D6718777F641FDE6948E6DB21335
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955950.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 886
+
+Hedley - Hello  2015  Deluxe Edition [FLAC|tracks|WEB-DL]<Pop,Punk,Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Lost In Translation  2:49 
+02. Hello  4:12 
+03. Quit  3:30 
+04. Can t Slow Down  3:36     Читать дальше...    Жанр: Pop,Punk,RockПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CD9DF2E0FA903890C028F4EC395F9DDAD591DDBE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955886.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 845
+
+VIP - Золотая монета  2006  Style Records [FLAC|Lossless|image + .cue]<Pop, Easy Listening>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Прощай  4:09 
+02. Мишель  3:48 
+03. Золотая монета  4:01 
+04. Из-за тебя  4:11     Читать дальше...    Жанр: Pop, Easy ListeningПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F952840CB07BD3B032ECC7476B89A11675E4771E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955845.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 386
+
+VA - BRAVO Dance 2015  2015  [FLAC|tracks|WEB-DL]<Top 40, Pop, Electronic, Dance, House, Electro
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Felix Jaehn feat. Jasmine Thompson - Ain t Nobody  Loves Me Better   4:01 
+02. Lost Frequencies feat. Janieck Devy - Reality  2:38 
+03. Omi - Cheerleader  Felix Jaehn Remix   Radio Edit   3:02 
+04. Kygo feat. Parson James - Stole The Show  3:42     Читать дальше...    Жанр: Top 40, Pop, Electronic, Dance, House, Euro House, Deep House, Electro, SynthpopПродолжительность: 02:39:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C89294FD2C9A0C5667DC5AE1FAEF37E78B55BBB4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955386.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 244
+
+Grimes - Art Angels  2015  [OGG| 454-526 кб с]<Synthpop, Indie Pop, Dream Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Laughing And Not Being Normal
+02. California
+03. SCREAM  feat. Aristophanes 
+04. Flesh Without Blood    Читать дальше...    Жанр: Synthpop, Indie Pop, Dream Pop, DanceПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:056BC0F4993D589A56394DCAC97E9058D65EB288
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955244.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 238
+
+Teach In - Disco Collection  2002  [MP3|320 кб с]<Pop, Disco, Retro>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. The circus show  03:23 
+02. In the summernight  02:33 
+03. There ain t no time  02:13 
+04. I m alone  02:58     Читать дальше...    Жанр: Pop, Disco, RetroПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6FE8C3C625674219225820875D9B435D99E32D5B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955238.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 955 193
 
 Mylene Farmer & Sting - Stolen Car  2015  Single [FLAC|image+.cue]<Pop>
@@ -1713,281 +1988,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_948624.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 948 598
-
-Maroon 5 - Singles  2015  [FLAC|tracks|WEB-DL]<Pop, Pop Rock, Soft Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. This Love  2002  - 3:27
-02. Payphone  feat. Wiz Khalifa   2012  - 3:51
-03. She Will Be Loved  2002  - 4:14
-04. One More Night  2012  - 3:39    Читать дальше...    Жанр: Pop, Pop Rock, Soft RockПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99983FBFEEA6E439B27775F16CA93FE7B7F0B9A2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_948598.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 864
-
-VA - Les Stars font leur cinema  2015  Deluxe Edition [FLAC|tracks]<Pop, Ballad>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Tal & Irma - Streets Of Philadelphia  03:48 
- 02. Tenny & Maska - Like A Maniac  03:23 
- 03. M Pokora - Everything I Do  I Do It For You   04:02 
- 04. Magic System - Toi Et Le Soleil   I Can See Clearly Now   03:11     Читать дальше...    Жанр: Pop, BalladПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:95EA9D34FF357C7B02A06DA9F019CE29C5D6611D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_947864.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 710
-
-Pupo - Аллея Звёзд  2005  [FLAC|image+.cue]<Pop, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Celato Al Cioccolato
-02. Forse
-03. Su Di Noi
-04. Chissa Se Domani    Читать дальше...    Жанр: Pop, DiscoПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B13559A42C14D731F566706A5FC75B3E839DE812
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_947710.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 573
-
-VA - Very Best Of Jeans Hits  1994  2CD [FLAC|tracks + .cue]<Pop, Rock, Blues>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. John Lee Hooker   Boom Boom [0:02:41.70]
-02. Lee Dorsey   Working in the Coalmine [0:02:46.40]
-03. Sam Cooke   Wonderful World [0:02:07.27]
-04. Desmond Dekker   You Can Get It If You Really Want [0:02:43.63]    Читать дальше...    Жанр: Pop, Rock, BluesПродолжительность: 01:44:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF571EA3BBB464A2B3A35B6A237E98DD55E3B9E7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_947573.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 561
-
-VA - True Party  2006  3CD[FLAC|track+.cue]<Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-True Party - настоящий отдых, ну какой ещё релиз размещать под выходные. И хотя почти десяток лет прошло c тех пор как австралийское подразделение Universal Music выпустило этот трех-дисковый сет, всё равно большинство треков слушается свежо и  может быть в силу своей подзабытости  с интересом. Так что отдыхайте на выходных с хорошей музыкой!CD1:
-01. James Brown - I Got You  I Feel Good    2:48 
-02. Kool & The Gang - Celebration   3:37 
-03. Third World - Now That We ve Found Love   3:52     Читать дальше...    Жанр: Pop, RockПродолжительность: 03:31:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0BB3AE92BE039FD235BF5A9EA12E88609351D3B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_947561.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 344
-
-VA - Movie Love Songs  1997  [FLAC|tracks + .cue]<Pop, Soul, Easy Listening>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Jack Nitzsche & Buffy Sainte-Marie - Up Where We Belong.
-02. Giorgio Moroder & Tom Whitlock - Take My Breath Away.
-03. Stevie Wonder - I Just Called to Say I Love You.
-04. Franke Previte, John DeNicola & Donald Markowitz - Time of My Life.    Читать дальше...    Жанр: Pop, Soul, Easy ListeningПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:345B0027F08EBB84300C2C6553D5F747598DF353
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_947344.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 285
-
-Pentatonix - Pentatonix  Deluxe Edition   2015  [FLAC|Lossless|WEB-DL]<Pop, A Cappella>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Na Na Na
-02. Can t Sleep Love
-03. Sing
-04. Misbehavin     Читать дальше...    Жанр: Pop, A CappellaПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:62B05B375FA513B8C54887C0417615026CBBDEAE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_947285.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 166
-
-John Newman - Revolve  2015  Deluxe Edition [MP3|320 кб с]<Pop, Soul>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Revolve
-02. All My Heart
-03. Something Special
-04. Lights Down    Читать дальше...    Жанр: Pop, SoulПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7B9F1FD5521A18572A672C65D8B08D627D722B7A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_947166.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 062
-
-Demi Lovato - Confident  2015  Deluxe Edition [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Confident
- 02. Cool for the Summer
- 03. Old Ways
- 04. For You    Читать дальше...    Жанр: PopПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7C4C112500B8414CF378A36CC81E91AE37BE909
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_947062.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 947 015
-
-Julio Iglesias - Mexico  2015  [FLAC|image+.cue]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Usted
-02. Jurame
-03. Ella
-04. Fallaste Corazon    Читать дальше...    Жанр: PopПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:505B61DD873DEE50A50D69A954582572CF3D7520
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_947015.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 946 716
-
-Tom Jones - Long Lost Suitcase  2015  [FLAC|Lossless]<Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Opportunity To Cry
-02. Honey, Honey  ft. Imelda May 
-03. Take My Love  I Want To Give It 
-04. Bring It On Home    Читать дальше...    Жанр: Pop-RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14811B5B2BA147E052984DCFA84654AD8767D89D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_946716.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

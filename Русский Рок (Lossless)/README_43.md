@@ -1,4 +1,150 @@
 ﻿
+###  Публикация: 817 235
+
+Скворцы Степанова - Сочень 2014  2014  [MP3|320 кб с]<Punk-rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Менеджер
+02. Колотушка
+03. Послезавтрамэн
+04. Крутышки
+05. Ночной дожор
+06. Вампир
+07. Фисташки без трещин
+08. Говори смело
+09. ЮБК
+10. Соседний мир    Читать дальше...    Жанр: Punk-rockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1F29EA0A3A87EC6F424AD7EFC886253E73F59E04
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 817 004
+
+VA - Совсем Не Popsовые  2014  [MP3|320 кб с]<Ska, punk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - ВИА Волга-Волга – Белые розы  Ласковый Май Cover 
+02 - П.П.К.Б. – Студент  Руки Вверх! Cover 
+03 - Just Up! – Завтра снова в школу  Турбомода Cover 
+04 - Black Faza – Лучший парень  Руки Вверх! Cover 
+05 - ВИА Волга-Волга – Голубая луна  Моисеев & Трубач Cover 
+06 - Мамульки Band – 18 мне уже  Руки Вверх! Cover 
+07 - ВИА Крем-сода – Ручки  Вирус Cover 
+08 - П.П.К.Б. – Снегири  Иванушки Int. Cover 
+09 - Midnight Band – Солнышко  Demo Cover 
+10 - ВИА Волга-Волга – Знаешь ли ты  Макsим Сover     Читать дальше...    Жанр: Ska, punkПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6CF4CD84EA7E80AACCC121774CED14AE4C6B6210
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 816 730
+
+Йорш - Весна в Освенциме  2014  Single [MP3|320 кб с]<Punk-rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Весна в Освенциме
+2. Весна в Освенциме  feat А.Грейчайник ДМЦ Жанр: Punk-rockПродолжительность: 00:07:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA218F2E9523A9A70A12908DFD3A56F636E31665
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 816 668
+
+Х*й Забей - Переспели  2014  [MP3|320 кб с]<Punk-rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Настя
+2. Фотокарточка
+3. Го**о
+4. Верный способ
+5. Армия
+6. Механизатор
+7. Художник
+8. Восьмое марта*
+9. Кто когоЖанр: Punk-rockПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:180E2C8698089F3567A0A32B612512A1C3E92E41
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 816 375
+
+Машина Времени - У свободы недетское лицо  2014  [MP3|320 кб с]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Первый Шаг  03:52 
+02. За тех, кто в море  03:33 
+03. Наш дом  03:36 
+04. Снег  02:58 
+05. Люди в Лодках  03:34 
+06. Будет день  03:29 
+07. У свободы недетское лицо  03:38 
+08. Флюгер  04:08 
+09. Музыка под снегом  04:28 
+10. Старый корабль  03:16     Читать дальше...    Жанр: RockПродолжительность: 02:23:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E88074B7800B0CC3CC51E8C9652EEC9CF91FF85E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_816375.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 816 216
 
 Обратный Отsчёт - Дискография  2006-2014  [MP3|320 кб с]<Punk-rock, Grunge>
@@ -2165,152 +2311,6 @@ Rock, Alternative, Punk, Metal
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:CB77CE1500FD06E5C60444E375C8C3F9B997A16F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 779 941
-
-Аркона - Явь  2014  [MP3|320 кб с]<Folk Pagan Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Зарождение
-2. На Страже Новых Лет
-3. Сербия
-4. Зов Пустых Деревень
-5. Город Снов
-6. Ведьма
-7. Чадо Индиго
-8. Явь
-9. В Объятьях КрамолыЖанр: Folk Pagan MetalПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AE5D2CA2FFD99CD6ED52893DEC1C13BC91605FA3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 779 673
-
-SilverCast - Имя Ветра  2014  EP [MP3|320 кб с]<Symphonic Power Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Скоро Самайн
-2. Идут Часы
-3. На Одном Крыле
-4. За Линией Огня  Feat. Михаил Нахимович 
-5. Над Рассветной Зарёй
-6. Prayer  Instrumental Жанр: Symphonic Power MetalПродолжительность: 00:27:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F26AFE741A132E04AFA63F2FB0794D4225328E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 779 587
-
-Психея - ПесниТрущобНадеждыРазбитыхСердец часть 2 - Оттенки Любви  2014  [MP3|320 кб с]<Altern
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Учи Меня  feat. Лёха Никонов   05:36 
-2. Пустая Голова  06:15 
-3. 5+2=7  Дети ZX–Spectrum   03:59 
-4. Жжёные Спички Города  feat. МС Докта Враг   08:44 
-5. НЕSEX  07:08 
-6. Между Молотом и Наковальней  08:13 
-7. Л.и В.  06:35 
-8. Андрогины  05:04 
-9. Реальная Жизнь  07:12 
-10. ЭлекIIIчество  07:37     Читать дальше...    Жанр: AlternativeПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05877E0484820D321BE9B60176D45A2E9A5DF069
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 779 576
-
-Restless Oblivion - Sands Of Time  2014  [MP3|320 кб с]<Doom Death Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Prologue
-2. Deadline Of Essence
-3. Edge Of Existence
-4. Resolution Of Slavish Pain
-5. Like The Hope Of Escape
-6. Sands Of Time
-7. Our Tunnel Light
-8. Sin Of Pure Life
-9. EpilogueЖанр: Doom Death MetalПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A8EB00A4081F28A03F936C001E9CBF0D4E537AD1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 779 470
-
-N.Tesla - Lux Manifesto  2014  [MP3|320 кб с]<Post-Hardcore, Experimental>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Ør-Vænn
-2. North. Spring. Aurora
-3. Lux Manifesto
-4. Determination Of Giants
-5. Characters Drawn In Taupe
-6. Megalodon
-7. Here Speak Only The BirdsЖанр: Post-Hardcore, ExperimentalПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C600243FEFB89BB4AA0041D89DC97D30DB3C063D
 ```
 
 <div id="header" align="center">

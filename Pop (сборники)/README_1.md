@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 776 613
+
+VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Jason Mraz - I’m Yours (Radio Edit) (3:34)
+02. Ed Sheeran - Perfect (4:23)
+03. Sia - Gimme Love (2:57)
+04. All-4-One - I Swear (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D355E215F1A781DD74D7371A912E7AA26C83AD64
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776613.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 776 551
+
+VA - Italo Strikes Back (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Valerie - The Night
+02. Good Vibes - Survivor
+03. Cascada Feat. Mirabella - Fotonovella
+04. Syn-Tonic - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:442330AA72B28E82F625146C1A9DAB4063C67CDE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776551.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 776 550
+
+VA - Italo Strikes Back (1997) [MP3|320 Kbps] <Electronic, Pop, Euro House>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Valerie - The Night
+02. Good Vibes - Survivor
+03. Cascada Feat. Mirabella - Fotonovella
+04. Syn-Tonic - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:66935EBE8CEA3B3DDD70B7737E03577482552964
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776550.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 776 356
+
+Mflex Sounds - Synthmagic (Italo Essentials Volumes) (2025) [MP3|320 Kbps] <Italo-Disco, Synth-Dance
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Do You Know (5:48)
+02. Dream With You (6:18)
+03. In My Eye (6:12)
+04. Love In The Rain (7:49)(   Читать дальше...   )Жанр: Italo-Disco, Synth-DanceПродолжительность: 03:00:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D758BC1B391A194CB0C41F6CFCB94685A824D99A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776356.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 776 352
+
+Mflex Sounds - Misleading Truth (Volumes) (2025) [MP3|320 Kbps] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Sparkle (5:08)
+02. Search A Heart (2020 Re-Edit) (7:06)
+03. I Want You Back (6:40)
+04. I'm Walk Alone (10:12)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:47:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:130EA93390F03CAFB047F284436E48FD017627F5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776352.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 776 350
+
+Mflex Sounds - Bad Love (2024) [MP3|320 Kbps] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Bad Love (6:06)
+02. Black Hole (5:18)
+03. My Angel 2 (Snippet) (2:28)
+04. A Sea of Calm (3:41)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:37:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:213895AFE3E3829B20FC2A7A5A9F0358DCC67DD6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776350.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 776 347
+
+Daro-X - After The Rain (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. In The Night (Album Version) (4:31)
+02. I Give You My Heart (Radio Version) (3:47)
+03. After The Rain (Album Version) (4:23)
+04. Magic Violins (Album Version) (4:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:81587C29CDCB3BA8D5EF9E63DF8C120C6DF85383
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776347.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 776 021
+
+VA - MegaHits 2025 - Die Erste [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Gracie Abrams - That’s So True (2:46)
+02. Billie Eilish - BIRDS OF A FEATHER (3:30)
+03. Jazeek - Ma Baby (2:18)
+04. The Weeknd - Timeless (4:16)(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA1A512EC4BE89280184DA18E1A0258B898A1D42
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776021.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 775 993
+
+Secret Service - Aux Deux Magots (1987) [OGG Vorbis|480 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. I'm So I'm So I'm So
+02. If You Need Me
+03. Don't You Know Don't You Know
+04. Turn To Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C6A284A3052D8D0B56F42F55F0FF2BFCF5A12F81
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1775993.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 775 904
+
+VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|320 Kbps] <Electronic,
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Spinners - Working My Way Back To You Babe
+02. Real Thing - Can You Feel The Force
+03. Instant Funk - I Got My Mind Made Up
+04. Sugarhill Gang - Rapper's Delight(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9D406A5E657F7669E4B1556AC5C573F74EA10723
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1775904.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 775 902
+
+VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Elec
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Spinners - Working My Way Back To You Babe
+02. Real Thing - Can You Feel The Force
+03. Instant Funk - I Got My Mind Made Up
+04. Sugarhill Gang - Rapper's Delight(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:42C95E185476D1E4D10C64D9BE76B1430D74FEFE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1775902.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 775 790
 
 VA - Top 50 Achtziger Hits (2025) [MP3|320 Kbps] <Pop, Rock>
@@ -1719,281 +1994,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768633.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 768 630
-
-Yuri Sosnin - Night Disco (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Cosmic Night Dance (4:19)
-02. Stardust Disco Wave (4:12)
-03. Lunar Disco Drive (4:35)
-04. Moonlight Disco Dream (4:34)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A35D094C0E7A4C6C68136CDB4396A7D23890F1A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768630.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 768 055
-
-Аркадиас - И зажигаются огни (Песни Евгения Рощенкова и Татьяны Морозовой) (2024) [FLAC|Lossless|WEB
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Белые голуби [00:03:26]
-02. Снежная королева [00:04:19]
-03. Я подарю тебе солнце [00:03:43]
-04. И зажигаются огни [00:04:48](   Читать дальше...   )Жанр: PopПродолжительность: 02:27:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87BB57EE0DC1AF4768D76FAA1D844CE099A2CA53
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768055.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 767 095
-
-Yuri Sosnin - Frank Conversation (2024) [MP3|320 Kbps] <Italo-Dance, Italo-Disco, Instrumental>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Frank Conversation (5:28)
-02. Fate's Line (4:11)
-03. Last Kiss (3:08)
-04. Tears on Your Face (3:48)(   Читать дальше...   )Жанр: Italo-Dance, Italo-Disco, InstrumentalПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA223B3EC590BF96BFA7D2180E766195AAF6091D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1767095.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 767 031
-
-Андрей Мороз - 3 Albums (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Синяя река [00:04:01]
-02. Дай силы, Земля! [00:04:53]
-03. Снега России [00:03:37]
-04. Мать рубаху мне сшей [00:04:12](   Читать дальше...   )Жанр: Pop, russianshansonПродолжительность: 3 CD, 03:04:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2956BEBFD55D2CF3156B07DCCBA086F42ED27660
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1767031.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 767 009
-
-Женя Белоусова - Верила (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Верила [00:02:54]
-02. Целуй [00:03:00]
-03. Ну вот и пятница [00:03:13]
-04. Ты и я [00:03:22](   Читать дальше...   )Жанр: PopПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DC9E23710E47121B387E83A320BF82172DC79165
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1767009.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 766 828
-
-Дина Мигдал - Песни из любимых сериалов и фильмов (2024) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Мамины руки [00:03:08]
-02 - Пришла любовь [00:01:57]
-03 - Три дороги [00:03:07]
-04 - Больно [00:04:00](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:50E81E7912BC1E93803A7F0A2F2952E46956F953
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1766828.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 766 744
-
-VA - Союз 19 Альбомов-Полные версии (1995-2003) 38CD [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Леонид Агутин и Отпетые мошенники - Граница
-02. Dado - Я тебя знаю
-03. Верка Сердючка (Андрей Данилко) и ВИА Гра - Я не поняла
-04. Сукачёв - Человек-Привычка(   Читать дальше...   )Жанр: PopПродолжительность: 37:40:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:231087F4793D3DD4DA9DCA95E3F4CAFE9AF1F1A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1766744.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 766 333
-
-VA - 10s - 100 Best (2024) [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-001. Linkin Park - The Emptiness Machine - (03:10)
- 002. Teddy Swims - Lose Control - (03:31)
- 003. Benson Boone - Beautiful Things (Acoustic) - (03:21)
- 004. Rose - APT. - (02:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:54:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5530720ABD636DDACE8215DC46C27DAE3BE6CAA3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1766333.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 766 322
-
-Семен Фролов - 2 Albums (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Семен Фролов - Спасибо что живой братец мой [00:01:43]
-02 - Семен Фролов - Все бабы как бабы а моя богиня (Латино) [00:03:07]
-03 - Семен Фролов - Спасибо что живой братец мой 2 [00:01:46]
-04 - Семен Фролов - Во поле березка стояла выпила сто грамм и упала [00:01:08](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:34:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2FCBDFF0517B152BE64E2AA1F79745A593AD4DE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1766322.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 766 312
-
-Emin - Верни мне музыку (памяти Муслима Магомаева) (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Singer
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Верни мне музыку [00:03:51]
-02. Не спеши [00:03:13]
-03. Луч солнца золотого [00:03:51]
-04. Лунная серенада [00:03:42](   Читать дальше...   )Жанр: Pop, Singer, SongwriterПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80CB7EE355329E7CFB47EE0877E3BAD64E0C89D5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1766312.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 766 303
-
-VA - 10s Hits - Best 10s Music (2024) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Bruno Mars - Locked Out of Heaven - (03:54)
- 02. Ed Sheeran - Shape of You - (03:54)
- 03. Coldplay - A Sky Full of Stars - (04:28)
- 04. Lil Wayne - Sucker for Pain (feat. Logic, Ty Dolla sign & X Ambassadors) - (04:04)(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:47AB2DCDA4FF638C225D0450B04BA8BE24C3A6B5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1766303.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

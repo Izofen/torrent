@@ -1,4 +1,280 @@
 ﻿
+###  Публикация: 1 132 174
+
+PLS PLS - Jet Black  2017  [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Animals
+02. We Don t Scare
+03. Jet Black
+04. This Is War    Читать дальше...    Жанр: Indie Pop Rock, Electronic Rock, SynthpopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A5F5BD34EF90026F9C5527D8F6D054F51D6E162
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132174.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 998
+
+Estimado - Here I Am  2016  [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Here I Am  Album Version   6:04 
+02. Feelings For You  Extended Version   7:43 
+03. Diamond Of Rain  Rain Of Love-Part Two   Extended Version   8:14 
+04. Yes You One  Extended Version   8:32     Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:15:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:733B153F4913B7D987912F7FF6E6EBF9134E5DA5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131998.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 709
+
+K.Flay - Every Where Is Some Where  2017  [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Dreamers
+02. Giver
+03. Blood in the Cut
+04. Champagne    Читать дальше...    Жанр: Alternative Pop, Indie Pop Rock, Electronic Rock, Alternative Hip HopПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8A835465F83842A12C4191758CF08FCA47557112
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131709.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 663
+
+Holy Holy - Paint  2017  [FLAC|Lossless|tracks] <Indie Pop Rock, Psychedelic Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. That Message  03:33 
+02. Willow Tree  05:05 
+03. Elevator  03:47 
+04. Shadow  05:17     Читать дальше...    Жанр: Indie Pop Rock, Psychedelic Pop RockПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A3A726BC874FF4FB3731D37BA508942CFAB923B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131663.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 533
+
+Baccara - I Belong To Your Heart  2017  [FLAC|Lossless|WEB-DL|tracks] <Euro Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. I Belong To Your Heart  3:49 
+ 02. Super Sexy Baby  4:10 
+ 03. I Will Follow You  3:20 
+ 04. I Love You Moscow  3:20     Читать дальше...    Жанр: Euro DiscoПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4CD1D38FE38C6CEA4CA099E220FC6C60283AB367
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131533.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 188
+
+Mark Ashley - My Hit Collection  2000  [FLAC|Lossless|image + .cue] <EuroDisco, Synthpop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. On A Sunday  Radio Version   3:35 
+02. Mareen  Radio Version   3:52 
+03. Lover Why  Radio Version   3:59 
+04. Dream Of Great Emotion  Radio Version   3:50     Читать дальше...    Жанр: EuroDisco, SynthpopПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:71F0501100859657122D07EEC44ED9EDC88CCA50
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131188.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 152
+
+Mark Ashley - I Will Not Forget You  2017  [MP3|320 Kbps] <EuroDisco, Pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Jenny Come Home  Radio Version  4:00
+02. Please Believe Me  Radio Version  3:05
+03. Breath of an Angel  Radio Version  3:20
+04. I Will Not Forget You  Radio Version  3:10    Читать дальше...    Жанр: EuroDisco, PopПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2EA56BA4295EA08C86BDF4618016DC6B46FBF591
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131152.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 107
+
+Pink Project - 2 Albums  1982-1983  LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Совместный  Диско  проект от итальянских исполнителей: Stefano Pulga  диджей и композитор, клавишник, продюсер , гитариста Luciano Ninzatti, клавишника-программиста Matteo Bonsanto и звукорежиссера Massimo Noe.01. Scratchin  Superstition  5:28 
+02. Stand By Every Breath  5:16 
+03. Duel  5:04 
+04. Hypnotized  5:58     Читать дальше...    Жанр: Electronic, Italo-DiscoПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:46B452DE6E36EEA3C90D4CA87562214D1753C134
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131107.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 073
+
+Gina T. - 3 Albums  1991-2011  CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop, Hi NRG, Ball
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Джина  Gina Tielman  родилась в 1960 году в голландском городке Bussom. С детства она пела и писала стихи, окончила музыкальную школу и подрабатывала сессионной бэк-вокалисткой в том числе и в группе  Rising Sun .
+В конце 80-х продюсер Адам Шайрер с лейбла Bellaphon, ставший некоторое время спустя её супругом, предложил Джине записать сольный сингл. Композиция     Читать дальше...    Список альбомов:
+1991 - You Really Got Me
+1992 - The Window Of My Heart
+2011 - Love Will Survive    Читать дальше...    Жанр: Electronic, Italo-Disco, Europop, Hi NRG, Ballad, Euro HouseПродолжительность: 02:32:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3D6D1C63199EF786396DF142FFC6E89928F80168
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131073.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 057
+
+Blondie - Pollinator  2017  [FLAC|Lossless|tracks] <Pop Rock, Post Punk, New Wave>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Doom Or Destiny  Feat. Joan Jett   02:54 
+02. Long Time  04:35 
+03. Already Naked  04:06 
+04. Fun  04:19     Читать дальше...    Жанр: Pop Rock, Post Punk, New WaveПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:31549BB79693CE687279A67199A956556A51901C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131057.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 131 012
+
+VA - Move on Up – Dance Music  2017  [MP3|320 Kbps] <RnB, Soul, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Curtis Mayfield – Move on Up  02:46 
+02. Bloodstone – Stand Up, Let’s Party  05:52 
+03. Norma Jean Wright – Sorcerer  05:01 
+04. Randy Crawford – Street Life  Edit   04:49     Читать дальше...    Жанр: RnB, Soul, DiscoПродолжительность: 01:55:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E97EC72C71E7B1A10318BC451BD92193EB5853A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1131012.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 130 897
 
 Will To Power - Spirit Warrior  2004  [MP3|256 Kbps] <Progressive House, Electro, Synth-pop>
@@ -1712,281 +1988,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1125611.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 125 270
-
-Валерий Леонтьев - Это любовь  2017  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Это любовь
-2. Потанцуй со мной
-3. Ты где-то там
-4. Вне сюжета    Читать дальше...    Жанр: PopПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A03A0A6B0224E0DC18299B405EB4D3B95D468D0A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1125270.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 125 062
-
-Jamiroquai - Automaton  2017  Japanese Edition [FLAC|Lossless|tracks + .cue] <Acid-jazz, funk>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Shake It On
-02. Automaton
-03. Cloud 9
-04. Superfresh    Читать дальше...    Жанр: Acid-Jazz, FunkПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:517D734BCDB4290814E1AABC410D8BEEAE262E32
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1125062.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 124 831
-
-VA - Singers & Songwriters: Classics  2010  [MP3|320 Kbps] <Pop Rock ,Country ,R&B>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Buffalo Springfield - For What It s Worth  2:39 
-02. Gordon Lightfoot - Sundown  3:34 
-03. Nilsson - Everybody s Talkin   2:44 
-04. Loggins And Messina - Your Mama Don t Dance  2:49     Читать дальше...    Жанр: Pop Rock ,Country ,R&BПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:245B203F65E50557B77EE1E7D77FC59C233D6D38
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124831.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 124 800
-
-Lulu - Independence  1993  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Independence
-02. There Has Got To Be A Way
-03. Restless Moods
-04. I’m Back For More  ft. Bobby Womack     Читать дальше...    Жанр: PopПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CD7E3EC0E35434E1CE8814BB9E6A4A18DC4D0DE9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124800.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 124 608
-
-VA - Через Тернии К Звездам. Песни О Космосе  2009  [FLAC|Lossless|image + .cue] <Pop,  Monolog,
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. К.Циолковский - Речь К.Э.Циолковского  0:45 
-02. Е.Кибкало - Всё выше  Марш авиаторов   3:02 
-03. М.Бернес - А самолёты сами не летают  2:44 
-04. Передача с борта ИСЗ  Спутник-1  - Позывные первого спутника Земли  0:26     Читать дальше...    Жанр: Pop,  Monolog, Vocal, Field Recording, Spoken WordПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D4F2F9B69DD87BE583658487A505677AF2CD65D9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124608.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 124 563
-
-Johnny Mathis - The Real... Johnny Mathis  2014  3CD [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Disc 1
-1. Fly Me to the Moon  In Other Words 
-2. When Sunny Gets Blue
-3. Chances Are    Читать дальше...    Жанр: PopПродолжительность: 03:06:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E926ED06A3FCDC2396E84B007F7A4CEC2F90C286
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124563.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 124 547
-
-Thomas Anders - Pures Leben  2017  [FLAC|Lossless|tracks + .cue] <Pop, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Der beste Tag meines Lebens
-2. Sternenregen
-3. Das Lied das Leben heißt
-4. Feuerwerk    Читать дальше...    Жанр: Pop, EurodanceПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DDD60941BDC687346DBEB77965CFAD7CB741FFD7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124547.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 124 374
-
-Bosé - Papito  2007  [FLAC|Lossless|image + .cue] <Soft Rock, Latin>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Morena Mia  Con Julieta Venegas    03:45  
-02. Si Tu No Vuelves  Con Shakira    05:13  
-03. Bambu  Con Ricky Martin    04:58  
-04. Nada Particular  Con Juanes    06:21      Читать дальше...    Жанр: Soft Rock, LatinПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA351DE8D44B907EF8E7338B0EC4B96E039D7FE3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124374.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 124 373
-
-Paul Anka - The Real... Paul Anka  2014  3CD [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Disc 1
-1. Diana
-2. Love Me Warm and Tender
-3. Put Your Head on My Shoulder    Читать дальше...    Жанр: PopПродолжительность: 02:00:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:45A691CECEE7867CF61576B74E12954E0E13887D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124373.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 124 137
-
-Disco Rock Machine - Time To Love  1978  LP [MP3|320 Kbps] <Electronic, Pop Rock, Funk-Soul, Dis
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Disco Rock Machine - второе коммерческое название коллектива в составе Kevin Kruger, René Veldsman, Trevor Rabin, более известного под другим названием - HOT R.S.01. Time To Love  7:23 
-02. Living For The City  7:25 
-03. You Really Got Me  7:14 
-04. Loving Styles  7:21 Жанр: Electronic, Pop Rock, Funk-Soul, DiscoПродолжительность: 00:29:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0449242119F23B88B4C12804DF3F3B31B959ECBC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124137.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 124 102
-
-VA - 80 s Pop Beyond The Hits  2017  [MP3|320 Kbps] <Pop, Pop Rock, New Wave>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Inxs - Listen Like Thieves 03:45
-02. Duran Duran - Careless Memories  Remastered 2010  03:55
-03. Elvis Costello - Veronica 03:08
-04. John Parr - King Of Lies 04:11    Читать дальше...    Жанр: Pop, Pop Rock, New WaveПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:169D589684E8C34AC9D84EE2D60CB92C426D341D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124102.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

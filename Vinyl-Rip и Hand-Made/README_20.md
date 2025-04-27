@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 273 047
+
+VA - Новогодняя дискотека  1989  [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. А. Хоралов - А снег рисует...
+02. Л. Долина - Страна Лимония
+03. И. Саруханов - Падал снег
+04. Группа  НРГ  - Время зовет меня    Читать дальше...    Жанр: PopПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273047.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 272 890
+
+Led Zeppelin - The Song Remains The Same 1976  2007  [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Rock And Roll  3:57 
+02. Celebration Day  3:38 
+03. Black Dog  3:45 
+04. Over The Hills And Far Away  6:16     Читать дальше...    Жанр: RockПродолжительность: 02:11:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1FD99A40670FB185F5F35388448C365CC9DCA6CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1272890.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 272 661
+
+VA - Новогодняя Дискотека. Выпуск 1  1998  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. Балаган LTD & Филипп Киркоров - Наивная
+02. Таня Буланова - Пела Я Тебе
+03. Кай Метов - Снегурочка    Читать дальше...    Жанр: PopПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1272661.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 272 624
+
+VA - До 16 и старше. Выпуск 3  2000  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01.   Руки Вверх   - Ай-яй-яй
+02.   Вирус   - Кап-кап
+03.   Ночной Патруль   - Первая любовь    Читать дальше...    Жанр: PopПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1F1830285191AF037FD3DBCB88D0639DF252DB9D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1272624.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 896
+
+VA - The Civil War - Original Soundtrack Recording. Traditional American Songs And Instrumental Musi
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 The Old Bethpage Brass Band - Drums Of War 
+A2 Paul Roebling - Oliver Wendell Holmes  Quote 
+A3 Evan Stover, Jay Ungar, Matt Glaser  Fiddle  and Molly Mason, Russ Barenberg  Guitar  - Ashokan Farewell
+A4 Jacqueline Schwab  Piano  - Battle Cry Of Freedom    Читать дальше...    Жанр: SoundtrackПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271896.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 697
+
+Fine Young Cannibals - Fine Young Cannibals  1985  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop Roc
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Johnny Come Home
+A2 Couldn t Care More
+A3 Don t Ask Me To Choose
+A4 Funny How Love Is    Читать дальше...    Жанр: Pop RockПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271697.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 681
+
+Cliff Richard - The Best Of...  unknown  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Classic Rock, Roc
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Face A:
+01. Devil Woman
+02. The Young Ones
+03. Do You Wanna Dance    Читать дальше...    Жанр: Classic Rock, Rock n RollПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:14F155DD0EA7859AF89AA5E1911297226D24E802
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271681.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 662
+
+The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music  Schubert, Tchaickovsky, Straus
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1:
+01. Adolphe Adam -   Giselle  
+02. Franz Schubert -   Rosamunde  
+    Читать дальше...    Жанр: ClassicalПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271662.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 271 655
 
 Veli-Matti Jarvenpaa - Sarkijarven Bolero  1992  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Folk, Wor
@@ -1786,206 +1986,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216829.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 678
-
-Imagine Dragons - Evolve  2017  [DSD 2.0|5.6448 1|tracks|Vinyl-Rip] <Rock, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. I Don t Know Why
-2. Whatever It Takes
-3. Believer
-4. Walking The Wire    Читать дальше...    Жанр: Rock PopПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216678.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 210 967
-
-Bing Crosby  Бинг Кросби  - Play A Simple Melody  1985  [FLAC 1.0|96 24|image+.cue|Vinyl-R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Я напишу письмо
-02. Играйте простую мелодию
-03. Однажды летним днем
- И. Берлин     Читать дальше...    Жанр: JazzПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1210967.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 210 840
-
-Алла Пугачёва - Виниловая коллекция  1977-1991  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Po
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Iceberg
-A2 The Rope-Dancer · Канатоходка
-A3 Leningrad · Ленинград
-A4 A Woman Who Sings · Женщина Которая Поeт    Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 10:06:51  общая 
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F99F729BD77B67D57886CDFD2742E31DB8E336C3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1210840.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 210 826
-
-Pink Floyd - The Dark Side Of The Moon  1973  Repress, 1974, Harvest [FLAC 2.0|192 24|image +
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Speak To Me  1:08 
-02. Breathe  In The Air   2:49 
-03. On The Run  3:44 
-04. Time  6:56     Читать дальше...    Производство: EMI Records   Harvest - EMS-80324Жанр: Psychedelic RockПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1210826.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 575
-
-Raffaella Carra Рафаэлла Карра - Поёт Рафаэлла Карра  1980  [FLAC 2.0|96 24|image+.cue|Vinyl
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Чак-Чак  Ciak  Malgioglio - Castellari
-02. Вернись Ко Мне  Torna Da Me  Belfiore - Boncompagni - Bracardi
-03. Несчастная Любовь  Povero Amore  Boncompagni - Bracardi
-04. На Словах  A Parole  Belfiore - Boncompagni - Bracardi    Читать дальше...    Жанр: Italo PopПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6722F60B27957CA21FA8379CC569E108A153B068
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208575.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 569
-
-VA - Superstars  1974  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Tom Jones - Little Lonely One
-02. Gerry Dorsey - The Sentimental Joker
-03. Gilbert O Sullivan - I Wish I Could Cry
-04.   The Nocturnes   - Why  Am I Treated So Bad     Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208569.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 554
-
-VA - San Remo  88  1988  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Massimo Ranieri - Perdere l’amore
-02. Fiordaliso - Per Noi
-03. Toto Cutugno - Emozioni
-04. Marcella - Dopo La Tempesta    Читать дальше...    Жанр: Italo PopПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208554.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 208 540
-
-VA - Le Canzoni D Oggi  1987  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Al Bano & Romina Power – Sempre, Sempre
-02. Loretta Goggi – Io Nascero
-03. Adriano Celentano – Lunedi
-04. Marcella Bella – La Verita    Читать дальше...    Жанр: Italo PopПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:972872B0AA114045CC6429CD3E72B909A66CB422
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208540.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,281 @@
 ﻿
+###  Публикация: 1 176 096
+
+Диана Гурцкая - Паника  2017  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Звезда
+2. Пудель
+3. Аллилуйя
+4. Свадьба    Читать дальше...    Жанр: PopПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A254D2427866491171ECE8D57A0AE1D0455973D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176096.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 175 958
+
+Brigitte Bardot - B.B.  Remastered   2017  [MP3|320 Kbps] <Pop, Chanson>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Sidonie
+02. L’Appareil A Sous
+03. Les amis de la musique
+04. El cuchipe    Читать дальше...    Жанр: Pop, ChansonПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB22655815E64F80C8AA9FBA6DF9952E6AB29577
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175958.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 175 862
+
+Hi-Gloss - You ll Never Know  1981  Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. You ll Never Know  5:27 
+02. It s Up To You  5:48 
+03. Cash  6:55 
+04. I m Totally Yours  5:17     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ACD945A923E6E7481E141707C569676877DC193E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175862.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 175 604
+
+Patrick Juvet - 2 Albums  1978, 1979  Reissue CD [MP3|320 Kbps] <Electronic, Pop, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Два малоизвестных альбома в стиле диско-поп и на английском языке из всей дискографии  шансонье 70-80х Патрика Жюве из Швейцарии. Второй предлагаемый альбом явно дал толчок для дальнейшего творчества королю хитов 80-90х - Дитеру Болену.01. Got A Feeling  3:46 
+02. Another Lonely Man  4:04 
+03. Where Is My Woman  7:14 
+04. I Love America  14:00 Жанр: Electronic, Pop, DiscoПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E70BF6D4B3B027EF478A2D6F87C9C6C660C8FCB3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175604.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 175 287
+
+Den Harrow - Collection  2014-2015  [MP3|320 Kbps] <Disco, Italo-Disco, Eurodisco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. A Taste Of Love  Krimen Project Scratch   7:25 
+02. Memories Of Mad Desire  Krimen Project Version   9:00 
+03. Day By Day  The Other Day Re-Mix   6:56 
+04. Bad Boy  The Ultimatum Re-miX   7:57     Читать дальше...    Жанр: Disco, Italo-Disco, EurodiscoПродолжительность: 01:58:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE6950B812ACCD9403C0080B0B17617D46BA7FBD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175287.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 175 025
+
+Carla Bruni - French Touch  2017  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Карла Бруни известна не только как жена экс-президента Франции и супермодель, но и как поп-звезда. Для нового альбома певица по-своему исполнила любимые хиты AC DC, The Rolling Stones, ABBA, The Clash и многих других.1. Enjoy The Silence
+2. Jimmy Jazz
+3. Love Letters
+4. Miss You    Читать дальше...    Жанр: PopПродолжительность: 00:34:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:71E6AA9A6D311A40CB3EB7C3389D5FAF6FCB1686
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1175025.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 174 968
+
+Gina X Performance - 4 Albums  1978-1984  Reissue CD, LTM, 2005 [MP3|320 Kbps] <Electronic, Synt
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Все альбомы немецкой группы  Gina X Performance , с вокалисткой  Gina X   настоящее имя Gina Kikoine  работавших в стиле крутого артхауса, электро-диско и синти-попа. Их хиты становились клубными и классическими  по обе стороны Атлантики, а  No G.D.M.  остается культовым благодаря electro synthcore компиляциям.Список альбомов:
+1978 - Nice Mover  Gina X Performance 
+1980 - X-Traordinaire  Gina X Performance 
+1981 - Voyeur  Gina X Performance     Читать дальше...    Жанр: Electronic, Synth-pop, Disco, New WaveПродолжительность: 04:22:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1644BB4AA9506AC8439022E122189A635A7C6819
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1174968.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 174 945
+
+Владимир Пресняков мл. - Дискография  1988-2017  [MP3|128-320 Kbps] <Pop, Soul>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Пресняков, Владимир Владимирович — Родился в Свердловске  ныне г. Екатеринбург  29 марта 1968 года в семье музыкантов Владимира Петровича и Елены Петровны Пресняковых, в будущем солистов ВИА «Самоцветы».
+ С 12 лет пел в хоре Елоховской церкви в Москве, в 13 выступал с группой «Круиз», исполняя собственные песни «Старая сказка», «Красная книга», «Кошка».
+ Сольную карьеру     Читать дальше...    1988 - Дождёмся завтрашнего дня
+1989 - Папа, ты сам был таким  LP 
+1991 - Любовь  LP 
+1993 - Best Of Hits    Читать дальше...    Жанр: Pop, SoulПродолжительность: 14:10:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0D94C8FA5695ED2BA5482AB9CFD6D7BB48AD56F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1174945.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 174 538
+
+Shania Twain - Now  2017  Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Country, Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+1. Swingin  With My Eyes Closed  3:33 
+ 2. Home Now  3:22 
+ 3. Light Of My Life  3:37 
+ 4. Poor Me  3:21     Читать дальше...    Жанр: Pop, Country, Pop RockПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5343949256B77A60990CA04EF65FA4A9EFDCEF78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1174538.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 174 512
+
+Mireille Mathieu – Ennio Morricone  2016  [MP3|320 Kbps] <Pop, Chanson>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Un jour tu reviendras 05:09
+02. J’oublie la pluie et le soleil 03:54
+03. La Califfa 02:34
+04. L’eblouissante lumiere 04:38    Читать дальше...    Жанр: Pop, ChansonПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A0830DC7CA31C564E1F25634F0F06D436EFCB0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1174512.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 174 063
+
+Елена Темникова - TEMNIKOVA II  2017  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Вдох
+2. Казался странным
+3. Не верю я
+4. Срываюсь внезапно    Читать дальше...    Жанр: PopПродолжительность: 00:22:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D08C856C01AC592759F8734AF0F7222C03014489
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1174063.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 173 945
 
 Pink  P!nk  - Beautiful Trauma  2017  [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1726,287 +2003,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166963.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 788
-
-Kaleida - Tear The Roots  2017  [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Synthpop, Indie
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Convolution
-02. Echo Saw You
-03. All The Pretty Pieces
-04. Division    Читать дальше...    Жанр: Alternative Pop, Synthpop, Indie PopПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05FDD09C8F8A51670C4FD19DA36B5F2C14805148
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166788.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 606
-
-Anastacia - Evolution  2017  [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Caught In The Middle
-2. Redlight
-3. Stamina
-4. Boxer    Читать дальше...    Жанр: PopПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:191B3AB8346BAC401F7B13BE8B961E6252F0CB2B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166606.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 555
-
-VA - Skitzmix 90 s Anthems  Mixed by Nick Skitz   2017  [MP3|320 Kbps] <Eurodance, Euro-Ho
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01.  VA - Skitzmix 90 s Anthems  Continuous Mix 1   1:19:09
-02.  VA - Skitzmix 90 s Anthems  Continuous Mix 2   1:18:07
-03.  Nick Skitz - 90 s Anthems Megamix  6:39
-04.  Nick Skitz - Disco Burn  Skitz Burnin  Radio Edit   3:45    Читать дальше...    Жанр: Eurodance, Euro-HouseПродолжительность: 05:33:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C181C235BE643A933C6B3D7F75A866028F970CC7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166555.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 428
-
-Батыр  Батырхан Шукенов  - Дискография  2006-2013  [MP3|320 Kbps] <Рор>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Батырхан Шукенов советский казахский и российский эстрадный певец, музыкант, саксофонист, композитор, поэт. Заслуженный деятель искусств Казахстана. Посол доброй воли ЮНИСЕФ в Казахстане. Один из основателей и солист казахстанско-российской музыкальной поп-группы «А’Студио», в составе которой обрёл широкую популярность. После ухода из группы осенью 2000 года занялся     Читать дальше...    2006 - Отан Ана
-2006 - Твои шаги
-2007 - Batyr@XMZ
-2010 - Осторожно, милая девушка!Жанр: РорПродолжительность: 03:47:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE5E1A47C42CB61352BDB5FE589D24B3E2704D6E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166428.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 370
-
-А’Студио  А-Студио, A Studio  - Дискография  1988-2010  [MP3|320 Kbps] <Рор>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-А’Студио — советская, казахстанская и российская музыкальная поп-группа.
-С момента создания группы у неё было название «Алма-Ата», затем «Алма-Ата-студио», но после вступления коллектива в «Театр песни» А. Б. Пугачёвой название сократилось до «А-Студио», в дальнейшем — А’Студио.
-До 2000 года вокалистом и лицом группы был Батырхан Шукенов. После него в группе солируют     Читать дальше...    1988 - Путь без остановок  LP 
-1991 - Джулия  LP 
-1993 - A Studio
-1994 - Солдат любвиЖанр: РорПродолжительность: 14:53:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7C968407FB891B202EF470D30F5EDDF5E659790
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166370.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 158
-
-Lx24 - 5 альбомов, 51 сингл  2016-2017  [MP3|320 Kbps] <Рор>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Алексей Назаров, известный публике под псевдонимом Lx24 – российский исполнитель, продюсер и битмейкер, очень быстро завоевавший признание публики благодаря своим душевным песнями о любви и отношениях.
-Алексей Назаров родился 26 июня 1992 года в небольшом городе Орске Оренбургской области.
-Одиночный проект «Lx24» был создан в 2013 году. Известно, что при записи вокала     Читать дальше...    2016 - Зависимость
-2016 - Привет
-2017 - RemixesЖанр: РорПродолжительность: 07:15:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A0C31D3C7AA8DFE3F95F52AC955FC4BAA8EA784A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166158.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 007
-
-Александр Буйнов - Сто недель  2017  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Сто недель
-2. Танцуй, как Петя
-3. Ранняя зима
-4. Нам с тобою по пути    Читать дальше...    Жанр: PopПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A03D03270A5C3EA9A7F8E175A43DC1EB54D3E559
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166007.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 006
-
-VA - Romantic Love Collection  20 Smooth & Tender Tunes   2017  [MP3|320 Kbps] <Pop, Oldies,
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Riccardo Arrighini - Evanescent 5:36
-2. GnuQuartet - Unintended 3:56
-3. Federico Foglia - Full Day of Love 3:19
-4. Angel  Pocho  Gatti e la sua grande orchestra - Sonntag 3:11    Читать дальше...    Жанр: Pop, Oldies, Easy ListeningПродолжительность: 01:14:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CEEAB2B9DFBD7646FDD90F14607B576F7566AE0F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166006.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 165 859
-
-Carlos Peron  ex Yello  - 18 Albums  1981 - 2009  Collection [MP3|320 Kbps] <Electronic, Pop
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-_______________________________________________________________________
-Carlos Peron родился 9 июня 1952 года в Цюрихе. Один из основателей группы  Yello , которую оставил, не выдержав диктата Бориса Бланка в 1984 году. В этом же году основал свой лэйбл Kristall Sound. В качестве продюсера принимал участие в таких проектах, как Wolfsheim, Sielwolf, The     Читать дальше...    Список альбомов:
-1981 - Impersonator
-1984 - Die Schwarze Spinne
-1984 - Nothing Is True; Everything Is Permitted    Читать дальше...    Жанр: Electronic, PopПродолжительность: 17:14:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D5CA9C005EDF4DCD2E82CD7CB1A0F5BCCDA21C6D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1165859.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 165 664
-
-VA - Good Times 80s  2017  [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Spinners - Cupid   I ve Loved You For a Long Time 03:57
-02. Duran Duran - Rio  Remastered  05:38
-03. George Benson - Give Me the Night  Single Version  04:58
-04. The B-52 s - Love Shack 05:21    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:42:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:94A42B37472CF0C584B998A9A124A4E606E80011
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1165664.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 165 609
-
-Тина Кароль - 7 альбомов, 14 синглов, 6 сборников  2006 - 2017  [MP3|192-320 Kbps] <Pop, Soul, J
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Тина Григорьевна Кароль  укр. Тіна Григорівна Кароль , имя при рождении Татьяна Григорьевна Либерман  укр. Тетяна Григорівна Ліберман; род. 25 января 1985, Оротукан, Ягоднинский район, Магаданская область, РСФСР, СССР  — украинская певица, актриса и телеведущая. Народная артистка Украины  2017 .
-
-Татьяна Григорьевна Либерман родилась 25 января 1985 года в посёлке     Читать дальше...    2006 - Show Me Your Love
-2006 - Ноченька
-2007 - Полюс притяжения
-2010 - 9 жизнейЖанр: Pop, Soul, JazzПродолжительность: 14:19:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E625E3857E324D54F83A7271FAB20731127FB26E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1165609.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

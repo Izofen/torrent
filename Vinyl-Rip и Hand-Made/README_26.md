@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 000 790
+
+Electric Light Orchestra - Time  1981  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Progressive Ro
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Prologue  1:15 
+02. Twilight  3:37 
+03. Yours Truly, 2095  3:17 
+04. Ticket to the Moon  4:07     Читать дальше...    Производство: Jet Records - 25AP 2111 JT Жанр: Progressive RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1E9F84897677346A07E5D1305DA4DE691DA79362
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000790.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 997 355
+
+Manfred Mann s Earth Band - Nightingales & Bombers  1975  [FLAC 2.0|192 24|image|Vinyl-Rip]<
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Spirits In The Night  6:27 
+A2. Countdown  3:06 
+A3. Time Is Right  6:33 
+A4. Crossfade  3:41     Читать дальше...    Производство: Bronze Records - 89 059 XOTЖанр: Progressive RockПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6438D39027558495235AE58EBC30CBE7229CD865
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997355.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 997 330
+
+a-ha - Cast In Steel  2015  [WavPack 2.0|192 32|image +.cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+sideA
+A1 Cast In Steel 3:50
+A2 Under The Makeup 3:25
+A3 The Wake 3:45    Читать дальше...    Жанр: PopПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:84A8B87831341F03980378CAD74954B95B1EEC13
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997330.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 996 679
+
+Nightwish - Endless Forms Most Beautiful  2015  [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Symphonic M
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Shudder Before The Beautiful
+A2. Weak Fantasy
+A3. Elan
+B1. Yours Is An Empty Hope    Читать дальше...    Жанр: Symphonic Metal, Heavy MetalПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04FAF093F6150CCE86D55D0F1BB354A025FD6C63
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996679.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 996 399
+
+Владимир Кузьмин - Ромео и Джульетта  1987  1989, Мелодия ТЗГ [FLAC 2.0|192 24|image + .cue|Vi
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Ромео и Джульетта  4:13 
+A2. Долгая ночь  4:19 
+A3. Блеск в ее глазах  3:51 
+A4. Когда меня ты позовёшь  5:30     Читать дальше...    Производство: Мелодия ТЗГ - С60 27991 004Жанр: RockПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:507A90084A700B8FEDED72B5489EE7AAC14E1B7D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996399.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 994 866
+
+Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely  2001  [FLAC 2.0|44,1 16|image+c
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Nobody Wants To Be Lonely - Ricky Martin & Christina Aguilera
+02. El Amor De Mi Vida - Ricky Martin
+03. El Beso Del Final - Christina Aguilera
+04. Fuego Contra Fuego - Ricky Martin    Читать дальше...    Жанр: PopПродолжительность: 01:28:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_994866.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 994 695
+
+Александр Барыкин - Ступени; Больше не встречу  1985-1986  Мелодия [FLAC 2.0|192 24|image+cue|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01 - Ступени
+02 - Элегия
+03 - Но всё-таки лето
+04 - Мона Лиза    Читать дальше...    Жанр: RockПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29745FA174E2247A62D845D13313F9B1D794D99A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_994695.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 993 828
+
+Кикки - Полуночное солнце   Kikki - Midnight Sunshine   1985  [FLAC 2.0|96 24|image+.cue|Vin
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Wasn t That Love  Кто Идет 
+02. Undercover Lovers  Тайные Влюбленные 
+03. Somebody Else Will  Кто-To Другой 
+04. Fallin In Love, Fallin Apart  Влюбиться, Разлюбить     Читать дальше...    Жанр: Folk RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9DE2AAAC1C27647C413F393F8EFF4E12C01966D6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_993828.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 993 458
 
 Hana & Dana, ORM - Talisman  1984  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
@@ -1777,207 +1977,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_953999.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 953 402
-
-Lesek Semelka  Lešek Semelka  - Coloured Dreams  1985  [FLAC 2.0 24 96|image+.cue  Vinyl
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Sea Fish Ways  Rybí Dráhy 
-A2	Will You Help Me  Tak Mi Pomoz 
-A3	Shoe Shine  Čistič Tváŕí 
-A4	Hi Hi Hi  Vtip     Читать дальше...    Жанр: Blues Rock, Prog RockПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:48B383381F211F2600167B9E196651428328B42B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_953402.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 952 170
-
-The Alan Parsons Project - I Robot  1977  Reissue  1982, Arista Records  [FLAC 2.0 24 96|i
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. I Robot  6:02 
-A2. I Wouldn t Want To Be Like You  3:23 
-A3. Some Other Time  4:06 
-A4. Breakdown  3:53     Читать дальше...    Производство: Arista RecordsЖанр: Progressive RockПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B9840B532FDF4A68C2B717B5EEA03070BF1ACCF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_952170.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 951 021
-
-The Mamas & The Papas - Best Of The Mamas & The Papas: California Dreamin   1977  [FLAC 2.0 24
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	California Dreamin 
-A2	Creeque Alley
-A3	Glad To Be Unhappy
-A4	Safe In My Garden    Читать дальше...    Жанр: Folk Rock, Pop RockПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:94D802A466F7E87DCB33DE46555D0660B7D76426
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_951021.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 950 683
-
-Jive Bunny And The Mastermixers - два магнитоальбома  1989,1990  [FLAC 2.0 16 44,1|image+.cue
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Can Can You Party
-02. Best Of British
-03. Still In Love
-04. Sounds Like Fun    Читать дальше...    Жанр: Rock n RollПродолжительность: 01:32:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950683.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 950 072
-
-Czeslaw Bartkowski  Czesław Bartkowski  - Drums Dream  1976  [FLAC 2.0 24 96|tracks+.cue <
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1a	Drums Dream
-A1b	Przejsciowka
-A2a	FAO
-A2b	Rozmowa Z Dzwonem    Читать дальше...    Жанр: Contemporary JazzПродолжительность: 00:40:22
-Издатель  лейбл : Polskie Nagrania Muza
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EA0CA3E7C449618A05146B4EDADB990BC3FE83C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950072.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 866
-
-The Doors - The Doors  1967  Reissue  1980, Warner Pioneer   [FLAC 2.0 24 96|image  Viny
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Break On Through  To The Other Side   2:28 
-A2. Soul Kitchen  3:32 
-A3. The Crystal Ship  2:33 
-A4. Twentieth Century Fox  2:32     Читать дальше...    Производство: Elektra Records   Warner PioneerЖанр: Psychedelic RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4EE4C3463260518783618A23B2960ECA6298FDE5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949866.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 781
-
-The Beatles - Let It Be  1970  [FLAC 2.0|192 24|tracks|Vinyl-Rip]<Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-1. Two Of Us  3:36
-2. Dig A Pony  3:54
-3. Across The Universe  3:48    Читать дальше...    Жанр: Pop RockПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9B1F26D630AF5C5EB577FAF4E2AB95463A30728F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949781.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 761
-
-VA - Девочка Моя Синеглазая - Песни В. Дорохина и Л. Воропаевой  1989  [FLAC 2.0 24 96|image+.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Е. Белоусов -	Девочка Моя Синеглазая
-A2	Е. Семенова -	Мужчина, Который Спешит
-A3	Е. Белоусов -	Алушта
-A4	Е. Семенова -	На Минутку    Читать дальше...    Жанр: PopПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6CE0E7A934960643F398F9CD49EE3A6DCDD36852
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949761.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

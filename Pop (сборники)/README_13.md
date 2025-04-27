@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 670 434
+
+VA - Dos Décadas Dance 2  2002  5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Patrick Hernandez - Born To Be Alive
+02. Sylvester - You Make Me Feel  Mighty Real 
+03. Amii Stewart - Knock On Wood
+04. Delegation - You And I    Читать дальше...    Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 06:21:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:419FD849BA0455A4A0A401C8FFAE365CFD369151
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670434.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 670 403
+
+VA - Любовь всегда права  2023  Посвящение Александру Шевченко [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Валерий Сюткин - Будет всё, как ты захочешь
+2. A Studio - Это было
+3. Олег Митяев - Подумать о тебе
+4. Саша Попова - Никто не скажет мне    Читать дальше...    Жанр: PopПродолжительность: 01:36:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:877B84AF82BFA397399A25F6F5B25C4F18BBA2F3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670403.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 670 289
+
+MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2023, Maschina Records [MP3|320 Kbps] <D
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+1. SEX
+2. Шишки (Колбасный Цех 3)
+3. Колбасный Цех 2
+4. Дискотэка(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:66EF74A0F9E61ACFBAE324D3BC7C4332CB97529A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670289.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 670 241
+
+VA - Italo 2000 - Italo Rarities Vol. 3  2000  2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Dis
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Mark Adams - I Know Your Mind
+02. Deborah Haslam - Let Me Trouble
+03. Max Coveri - Bye Bye Baby
+04. Joe Yellow - Last Call    Читать дальше...    Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:17:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A2C9D733667B94F667E17CF6EF5C8C79AA5DD7EA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670241.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 670 200
+
+Игорь Николаев - Лучшие хиты (2023) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Пять причин
+2. Выпьем за любовь
+3. Синий Ветер - Белый Лён
+4. Такси, такси(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED1DF3E8FE528F51C32125E253DE6ADF3025333F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670200.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 670 179
+
+VA - Italo 2000 - Italo Rarities Vol. 2  1998  2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Dis
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Koto - Japanese War Game
+02. Linda Jo Rizzo - Heartflash
+03. Ken Laszlo - Glasses Man
+04. Paul Boy - Lucky Guy    Читать дальше...    Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9A929D23DFCA0BE0F6A50B0B742FA22C762A4D77
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670179.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 669 917
+
+Фактор 2 - Начало (2023) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. 200 грамм (Первая версия)
+2. Белый снег
+3. Биография
+4. Бродяга(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:58173528E85B36EFA2EF516457B85DB2E34AA7E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1669917.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 669 831
+
+VA - Italo 2000 - Italo Rarities (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro Ho
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Patrick Colby - Madrill
+02. Patty Ryan - (You're) My Love, (You're) My Life
+03. Alexander Robotnic - Las Vacances
+04. Valerie Dore - Lancelot(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:24:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:81618E47DAA0193948AE076059DD53A374442639
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1669831.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 669 679
+
+Italove - Chasing Ghosts I-II Albums 2023  [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Viva la Victoria [00:03:08]
+02. Chasing Ghosts [00:04:12]
+03. At the Disco [00:03:13]
+04. Space Crusaders [00:04:10]    Читать дальше...    Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:186C39BDCD020524CC8D49B8C3536B7327CE6A52
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1669679.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 669 672
+
+Amanda Lear - The Sphinx•1976-1983   2006   3CD [FLAC|Lossless|tracks + .cue] <Disco, Pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Fashion Pack -   Studio 54     Albom Version   - 1979
+02. Love Your Body - 1983
+03. Intellectualy - 1979
+04. Enigma   Give A Bit Of Mmh To Me   - 1978    Читать дальше...    Жанр: Disco, PopПродолжительность: 02:53:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:38C7D04B6AEFF23F6511866D29237223D1F1E668
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1669672.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 669 666
+
+ВИА Ариэль - Старая пластинка  1995  2CD [MP3|320 Kbps] <Retro, Folk Rock>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Порушка - Параня
+02. Храни меня дождь
+03. Где ждёт любовь
+04. Комната смеха    Читать дальше...    Жанр: Retro, Folk RockПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D372BCC9DA1A9E85AD779F18553F24C640198843
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1669666.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 669 186
 
 Agnetha Faltskog - A+ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1714,279 +1989,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653447.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 861
-
-Nel Oliver - Nel Oliver (1980) LP [MP3|320 Kbps] <Disco, Reggae, Funk/Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. In The Heart Of The Ghetto (5:16)
-02. I Have A Good Job (5:39)
-03. On The Boulevard (4:49)
-04. Funny Love (4:44)(   Читать дальше...   )Жанр: Disco, Reggae, Funk/SoulПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F07EA126D657A7391E3BDCC8E730E2AC4916A01A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652861.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 605
-
-VA - Hottest Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Post Malone - Sunflower (Spider-Man: Into the Spider-Verse) (02:37)
-02. Avicii - Wake Me Up (Radio Edit) (04:06)
-03. The Weeknd - Reminder (03:38)
-04. Imagine Dragons - Demons (02:57)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02F18FB5173D27559CA9400F7B897DADB2B2A814
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652605.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 596
-
-VA - Party Nacht 2024 (2023) 2CD [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD 1:
-01. Giovanni Zarrella - Senza te (Ohne dich)Жанр: Pop, DanceПродолжительность: 02:17:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1F93956C52D57D49BECEF15AD8A93854A4465085
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652596.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 141
-
-VA - Now That's What I Call 90's Pop (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Spice Girls - Wannabe
-02. Backstreet Boys - Everybody (Backstreet's Back) (Radio Edit)
-03. NSync - I Want You Back (Radio Edit)
-04. Salt-N-Pepa - Shoop(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, DowntempoПродолжительность: 01:08:39 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:842CD8CAD698D43F254DFB276BAD79A013728C13
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652141.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 140
-
-VA - Now That's What I Call Music 87 (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Miley Cyrus - Flowers
-02. Post Malone - Chemical
-03. NF - Happy
-04. Ed Sheeran - Eyes Closed(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, Post-DiscoПродолжительность: 01:15:48 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D788F208E0BEF6C562D4A30340C1C6864E77BA78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652140.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 017
-
-E-Type - Loud Pipes Save Lives (2004) [OGG Vorbis|480 Kbps] <Electronic, Hi NRG, Euro House>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. Loud Pipes Save Lives
-02. Paradise (feat. NaNa)
-03. Camilla
-04. The Predator(   Читать дальше...   )Жанр: Electronic, Hi NRG, Euro HouseПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9AEFA46910AB6412CB995AE685D8A87675FD9B31
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652017.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 651 807
-
-Jef Scott - Ten Stories  1986  Remastered, 2013, Yesterrock [FLAC|Lossless|image + .cue] <Pop Ro
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. One By One  3:37 
-02. I Watch My City Sleep  3:14 
-03. Mega-Millionare  4:26 
-04. You Are The Only One  3:32     Читать дальше...    Жанр: Pop Rock, New Wave, AORПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D486C4A5A6041ADBB8EBF4ADF3840E9C0E69E47C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651807.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 651 696
-
-Pussycat - Unreleased Demos 1983 (2023) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Can't Get over You (Demo Version) [00:03:02]
-02 - See White Wishes Fall (A Christmas Song) (Demo Version) [00:03:22]
-03 - Don't Come Crying to Me (Demo Version) [00:03:43]
-04 - Nothing Left for Us (Demo Version) [00:03:54](   Читать дальше...   )Жанр: PopПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2E70B3E30302043D644BF249B1161A1AD4A75AE3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651696.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 651 460
-
-Shalamar - 10 Albums (1977-1990) Collection [MP3|320 Kbps] <Electronic, Disco, Funk/Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Shalamar (Шаламар) - американская музыкальная группа 1970-х - 1980-х годов, созданная букинг-агентом Диком Гриффи и британским продюсером Саймоном Суссаном.Список альбомов:
-1977 - Uptown Festival
-1978 - Disco Gardens
-1979 - Big Fun(   Читать дальше...   )Жанр: Electronic, Disco, Funk/SoulПродолжительность: 06:45:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D5EB2B6FFC391D6471F0DEE29C048C78384A820B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651460.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 651 411
-
-Odds - Crash The Time Machine  2023  [FLAC|Lossless|WEB-DL|tracks] <Power Pop, Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Crash the Time Machine [00:03:09]
-02. Unlikely Saviour [00:03:24]
-03. Fall Guy [00:06:27]
-04. The Traveling Light [00:02:23]    Читать дальше...    Жанр: Power Pop, Pop RockПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:91C95ADEB794A54CFD5FCBED48FF1D297275AE9D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651411.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 651 345
-
-Bill Wray - Seize The Moment  1983  Reissue, Remastered, 2023, Bad Reputation [FLAC|Lossless|ima
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.  You’re A  Heartbreaker  3:21 
-02. She Loves The Radio  3:19 
-03. Goin’ Down  3:55 
-04. After All These Years  3:38     Читать дальше...    Жанр: Pop Rock, AOR, Arena RockПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:20F6AA300BE8C2FD61EE3F1843FB51F07740BDBB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651345.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,429 @@
 ﻿
+###  Публикация: 655 643
+
+VA - Медляк  2013  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Dj Shopot - Медляк
+002. Justin Timberlake - Pusher Love Girl
+003. Группа Пм - Черешневый Закат
+004. Шахзода - Московская Любовь
+005. Master Spensor & Алисия - Странная Любовь
+006. Roller Sis - Tell Me Lies  Radio Edit 
+007. Лера Кондра - Далеко
+008. Самира - Без Тебя
+009. Cheryl Cole - Telescope
+010. Ika - Половина    Читать дальше...    Жанр: PopПродолжительность: 06:13:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C1534A0E3AA507F3F81170FF4E24DB166F259F20
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 655 513
+
+VA - ЕвроХит Топ-40  11.05.2013  [MP3|128-320 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Mia Martina - Tu Me Manques  3:37 
+02. Pink - Try  4:06 
+03. Lykke Li - I Follow Rivers  4:40 
+04. Calvin Harris & Tinie Tempah - Drinking From The Bottle  4:00 
+05. Nelly Furtado - Waiting For The Night  4:28 
+06. Will.I.Am & Britney Spears - Scream & Shout  4:44 
+07. Movetown - Here Comes The Sun  3:21 
+08. Loreen - My Heart Is Refusing Me  3:45 
+09. Franky - Hysteria  3:54 
+10. Bruno Mars - Locked Out Of Heaven  3:54 Жанр: Pop, DanceПродолжительность: 02:26:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:30AF83174B3153CC00B8ECD296DE4C9E25EEB864
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 655 480
+
+Various Artists - Run Is Motivation Part1-4  2013  [MP3|320 кб с]<Breaks, Dubstep, Drum & Bass
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Жанр: Breaks, Dubstep, Drum & BassПродолжительность: 03:00:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B822A14DBE2FCBB7153EDA84AAE7B8A159AD18D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 655 329
+
+VA - New Age Style - Infinity Music Vol. 1-11  2012-2013  [MP3|320 кб с]<Ambient, Space, Atmos
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+1. Taliesin Orchestra - Sacred  3:11 
+2. CaPa - Belief  4:52 
+3. Philip Mayer - Sing In The Mist  Original Mix   6:32 
+4. Rassolodin - Rain Inside Us  6:30 
+5. Piotro - Uncontrollable  Day After Kortowiada Version   5:48 
+6. U.O.K. - Vesper  3:56 
+7. Rassolodin - Extraterrestrial Love  4:54 
+8. Алексей Коваленко - Храм Белой Пагоды  10:35 
+9. Oise - Empty Hallway  2:18 
+10. Eva Schlegel - Shanti  5:58     Читать дальше...    Жанр: Ambient, Space, AtmosphericПродолжительность: 30:06:08
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_655329.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 655 261
+
+VA - Best of Lounge Music  2013  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Diario - Beijo Grande [05:39]
+ 02. Chairman Maocat - Audrey s Ghost [04:35]
+ 03. Shoshon - A Funky Thing [03:52]
+ 04. Tanya Blessing - Kembo [04:02]
+ 05. Sonis R - Night [03:56]
+ 06. Muner DJ - This Is My Dream - Performant Mix [04:55]
+ 07. Claudia Kisslinger - Dancing Coyote [04:57]
+ 08. Squibb - Masks [03:52]
+ 09. Q.q.q. - Your Romance [05:44]
+ 10. Sonis R - Into [04:29]    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:04:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A13A62935FC4479EB5D7D1DCF949F23137AA755F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 655 251
+
+VA - Рок в Авто  vol. 12   2013  [MP3|227-320 кб с]<Power Metal, Alternative Metal, Heavy
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Masterplan - Heroes
+02. Skillet - Monster
+03. Mustasch - Мine
+04. The Living End - Raise The Alarm
+05. Dionysus - Queen Of Madness
+06. Pink Cream 69 - Seas Of Madness
+07. Axel Rudi Pell - Ride The Bullet
+08. All That Remains - The Last Time
+09. Rawhead Rexx - Return Of The Dragon
+10. Mustasch - Angel s ShareЖанр: Power Metal, Alternative Metal, Heavy MetalПродолжительность: 04:36:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:76B5B48B7028EA9D7A834ABE4016695D4C8518DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 655 241
+
+VA - Romantic Dance  2013  [MP3|224 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Anouk - What Have You Done
+002. Cliff Richard - Somewhere Over The Rainbow
+003. Eros Ramazzotti - Un Grosso No
+004. Sandra - Sisters And Brothers
+005. Tal - Renaitre
+006. Bryan Adams - Deux Freres Sous Soleil
+007. Darren Hayes - Bloodstained Heart
+008. Mark Knopfler - Everybody Pays
+009. Shayne Ward - Stand By Me
+010. Templecloud - One Big Family    Читать дальше...    Жанр: PopПродолжительность: 06:34:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C5C1B5BA19C800F9334FA9D74F51732090AABFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 654 992
+
+VA - We Are Only Guests In This World  Compiled by batist   2013  [MP3|320 кб с]<Deep Hous
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Roundhead  Italy  - As Wire Alone  Original Mix 
+02. Manu Shrine - Wave Form
+03. Pink ft. Sven Dorau & Antonia - Try  Florian Paetzold Edit 
+04. Bat For Lashes - Laura  Schegg Edit 
+05. Locked Groove - Do It Anyway
+06. Mario Basanov - We Are Child Of Love  The Mekanism Remix 
+07. Fly o Tech - Funk Me Down  Original Mix 
+08. Dan Guidance - Back In The Day  Seathasky Chillstep Remix 
+09. Axel Thesleff - Look at Me
+10. Destiny s Child - Say My Name  Cyril Hahn Remix     Читать дальше...    Жанр: Deep HouseПродолжительность: 01:38:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:651E139A3C1E3E7FC9B7A002ED17F0363ADC22F5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 654 882
+
+VA - Super Dance Party-24  Special edition   2013  [MP3|320 кб с]<Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. J-Art feat. Lexter - Don t Look Back  Radio Edit 
+02. Mike Nero - The Weekend Starts Tonight  Adrima Edit 
+03. Sak Noel & Sito Rocks - Party On My Level  House Sceptic Edit 
+04. Michael Wendler feat. Anika - Honey Kiss  4 Fuste Fr Den Wendler Club Mix Edit 
+05. Remady & Manu-L feat. J-Son & Bodybangers Vs.Gotye feat. Kimbra - Single Ladies  Joker Mashup 
+06. Lasgo feat. Taylor Jones - Something 2k13  Radio Edit 
+07. James Allan - U Can Light My Love  Radio Mix 
+08. Culture Beat - Mister Vain ReloaD  Dj H@rd Tune ! RemixX 
+09. Philipp Ray feat. Viktoriya Benasi & Miami Inc. - Bailar Bailar  Cj Stone Edit 
+10. MaLu Project & Henny-M feat. James Stefano & K-Brown - Back to Life  MaLu Project feat. Amfora Hands Up Mix     Читать дальше...    Жанр: Dance, ClubПродолжительность: 05:07:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1701E1327D74B838B9E67CC44265566C3735B3E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 654 859
+
+VA - Блатной Топ 100  2013  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Граф Гагарин - Одиночество И Мартини
+002. Сборная Cоюза - Выпьем За Лося
+003. Владимир Чернов - В Натуре
+004. Черновской Сергей - Ингодинская
+005. Сергей Князев - Отцовский Наказ
+006. Лукьяновка - Комбат
+007. Алёна Скок - Пожинаю Что Посеяла
+008. Геннадий Лист - Птица
+009. Аня Воробей - Сорняк-Трава
+010. Могилевский Анатолий - Сады Сноведений    Читать дальше...    Жанр: ШансонПродолжительность: 06:05:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6011DB11C0386259440EFCD34C9477FC9C018EDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 654 777
+
+VA - Amnezia Super Hits 83  2013  [MP3|256 кб с]<Dance, Club House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Klubbingman ft. Beatrix Delgado – Revolution 2k13  Empyre One Edit 
+02. Manian & Floorfilla – Just Another Night  Anthem 4 
+03. Pulsedriver – Able To Love  Oldschool Flavour Edit 
+04. Dj Shog – Tell Me Why  Megara vs Dj Lee Edit 
+05. Dj Gollum ft. Dj Cap – Handzup Isnt Dead
+06. Slin Project & Rene De La Mone – Seven Words  Radio Edit 
+07. Michael Mind Project – Unbreakable
+08. Marco van Bassken ft. Richard Oliver – Holding Out  Frisco Disco Edit 
+09. Christopher S & Porsha ft. Max Urban – Star 2013
+10. Mad Mark & Flamemakers – All I Live For  Radio Edit     Читать дальше...    Жанр: Dance, Club HouseПродолжительность: 01:20:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4070076350758EA24A2902D40A77E639B6263196
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 654 638
+
+VA - Музыкальный Тайфун. Europa Plus 50 50  2013  [MP3|192 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Ирина Кулькова - Нас Нет
+002. Анастасия Стоцкая - Влюбляться
+003. Денис Барканов - Не Говори
+004. МакSим - Ты Говоришь
+005. DJ Antonio feat. Tiana - Take It  Radio Edit 
+006. Нюша - Воспоминание
+007. Наталья Могилевская - Ночь
+008. Группа Герои - Пока мы молоды
+009. Наталья Подольская и Владимир Пресняков - Kissлород
+010. Батыр - Я Любил Тебя Другой    Читать дальше...    Жанр: PopПродолжительность: 08:30:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A393FBD377C9BDC8278B008ACF99039466965AF1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 654 519
+
+VA - Клубная молодёжная тусовка. Выпуск 50 50  2013  [MP3|256 кб с]<Dance, Club>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Ferry Corsten Feat Aruna - Live Forever  Shogun Remix 
+002. Инфинити - Я Так Скучаю  Dj Sergey Fisun Remix 
+003. Dj Sava Feat. Misha & J. Yolo - Leah
+004. Саша Зверева - Женщина  Q.S.P. Remix 
+005. Sean Paul Feat. Beenie Man - Greatest Gallis
+006. Оксана Краски - А Девочке Хочется  Dj V1t & Dj Scruche Remix 
+007. Fabio Da Lera & Alenna - Morena  Radio Edit 
+008. Dj Antoine, Cristian Marchi & Mad Mark - Now Or Never  Radio Edit 
+009. Децл - Вечеринка  Loud Bit Project Remix 
+010. Dj Half & Serpo - Любовь Минное Поле  Dj Amor Remix     Читать дальше...    Жанр: Dance, ClubПродолжительность: 06:09:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:940155DC655FFD056296059BB80C44430AB23487
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 654 498
+
+DJ JIM - April Chart  2013  [MP3|320 кб с]<Electro House, Electro Progressive>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Sgt Slick, Stazz - Feel The Fire  Saturn   Original Vocal Mix   5:33 
+02. Housemaxx & Scotty - Just The Way It Is  Bryce Club Mix   5:33 
+03. Chardy & Kronic - S.W.A.T Team  Reece Low Remix   5:12 
+04. R3hab & David Solano - Do It  Life In Color Anthem 2013  Original Mix   4:30 
+05. Justin Timberlake - Sexy Blade  Gordon & Doyle Bootleg Mix   6:26 
+06. Ferry Corsten - Rock Your Body Rock  Arty Rock-N-Rolla Mix   7:37 
+07. Pat Farrell ft. John Anselm - Saving My Love  Original Mix   5:34 
+08. Roberto Da Costa ft. Daphne Khoo - Excited  Sick Individuals Remix   5:48 
+09. Indo - Eviscerate  Original Mix   5:10 
+10. Nicky Romero - Symphonica  Original Mix   5:18     Читать дальше...    Жанр: Electro House, Electro Progressive, Progressive HouseПродолжительность: 04:46:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:893441B5C08564C5D842C6AB1854BF9139A55385
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 654 323
 
 VA - XXXL Весенняя дискотека Зарубежный выпуск  2013  [MP3|256 кб с]<Dance, Pop>
@@ -2038,425 +2463,6 @@ Pop  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:DED72EE1F62BD3A0ADFF8004ED1BC4EE5B7AB218
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 933
-
-VA - Мелодии Весны  2013  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Лера Туманова  Электра  - ВеSна
-02. Ray feat. МС Брат - Девочка Из Лета
-03. Та Сторона - Пластилин
-04. Юлия Руднева - Идеал
-05. Тимашов feat. RaSta Rt - Ложь
-06. Rim - Я Не Забуду  Radio Edit 
-07. KReeD - Для Тебя
-08. Сабина Бабаева - Oceans Away
-09. Тамерлан и Алена Омаргалиева - Может Это Ты  DJ Igor PradAA Remix 
-10. Катя Баглаева - ШагЖанр: PopПродолжительность: 06:09:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0014B57BCA7898C129881A305416C24EB810E2B4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 793
-
-VA - Beautiful Saxophone  2013  [MP3|320 кб с]<Sax, Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Super Trouper
-02. Clous Van Mechelen - You Needed Me
-03. George Katsaros - Woman In Love
-04. Morks, Jan - My Man
-05. Piet Noordijk - Feelings
-06. Love Story
-07. Same girl
-08. Boney James - Ain t no sunshine
-09. Gerald Albright - So Amazing
-10. Grover Washington Jr - In the name of love    Читать дальше...    Жанр: Sax, InstrumentalПродолжительность: 06:53:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0EE50FB592E28F28182AAA6E9413CB2928FB0029
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 571
-
-VA - Дискотека На MTV Русский  2013  [MP3|256 кб с]<Pop,Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Аслан Махов - Если Рядом Ты
-02. Дима Билан - Лови Мои Цветные Сны  DJ Fisun Remix 
-03. Мохито & NT Lex - Слёзы Солнца  Sasha Abzal Radio Edit 
-04. Рома Жуков - Диско-Ночь
-05. Татьяна Ширко - В Небесах
-06. Доминик Джокер - Прощай  Paul Vine Remix 
-07. Макс Барских - По Фрейду
-08. Пара Нормальных - Беги, Беги
-09. Потап и Настя - Вместе
-10. Artik pres Asti - Сладкий Сон  DJ Nejtrino & DJ Baur RU Edit Жанр: Pop,DanceПродолжительность: 06:26:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:619273ED6D9122EB203B41AD989B7AB52DF08ABB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 568
-
-VA - XXXL Весенняя Энергичная Поп Тусовочка  2013  [MP3|256-320 кб с]<Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Ярослава - Ангел-Хранитель  3:25 
-2. NikitA - Синее Платье  3:18 
-3. 23 45 - Love Forever  3:47 
-4. Юлия Савичева - Не Уходи  3:59 
-5. Город 312 - Невероятный День  3:05 
-6. Шахзода - Мой Золотой  Dr. Costi Mix   3:34 
-7. MatreShka Girls - А я милого  2:56 
-8. Время и Стекло feat. Потап - Слеза  3:12 
-9. Паша Мавриди - Все начинается с понедельника  3:00 
-10. Рома Жуков - Диско-Ночь  2:55 Жанр: PopПродолжительность: 06:14:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DCB520F9C47226A46A02B387D8EAEB2ACD834416
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 542
-
-VA - Рок в Авто  vol. 11   2013  [MP3|320 кб с]<Power Metal, Alternative Metal, Heavy Meta
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Sons Of Seasons - Bubonic Waltz
- 02. Visions Of Atlantis - Machinage
- 03. Casus Belli - Mirror Out Of Time
- 04. Sonata Arctica - Victoria s Secret    Читать дальше...    Жанр: Power Metal, Alternative Metal, Heavy MetalПродолжительность: 05:05:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FDF6AFBA484256CF36DA2D4F99D0BE38DDEA8F92
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 348
-
-VA - Electric Guitar - The Best  1957-2013  [MP3|320 кб с]<Rock, Blues, Hard-Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Joe Walsh - Analog Man  4:03 
-2. Joe Walsh - Wrecking Ball  3:45 
-3. Joe Walsh - Band Played On  4:03 
-4. Joe Walsh - India  3:44 
-5. Joe Walsh - Fishbone  3:48 
-6. Joe Walsh - Midnight Moodies  3:38 
-7. Joe Walsh - Wolf  3:11 
-8. John Mayall - Double Crossing Time  3:03 
-9. John Mayall & The Bluesbreakers - Have You Heard  5:55 
-10. John Mayall & The Bluesbreakers - Hideaway  3:16     Читать дальше...    Жанр: Rock, Blues, Hard-RockПродолжительность: 17:23:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A6E761D5D6C04613C40C6BF754988666810893B1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_648348.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 320
-
-VA - Давай Заставим Этот Город Танцевать  2013  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-1. Сергей Куренков - Женщина  3:58 
-2. Игорь Пермский - Девочки-Конфеточки  3:03 
-3. Андрей Горшков - Не грусти  3:57 
-4. Михаил Шуфутинский - Давай заставим этот город танцевать  3:45 
-5. Вика Цыганова - Июнь  3:50 
-6. Николай Тимошенков - Девочка понтовая  4:04 
-7. Могилевский Анатолий - Сады Сноведений  4:21 
-8. Валерий Гааг - Крест Судьбы  4:20 
-9. Игорь Латышко - Любимая Женщина  3:53 
-10. Лора Кокс - Бутырочка  3:00 Жанр: ШансонПродолжительность: 06:10:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E3099DA14E3C0D9292C2642F54546059B53AA94
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 222
-
-VA - Hit-Mix В твою машину. Отдыхаем и наслаждаемся  2013  [MP3|224-320 кб с]<Pop,Club, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Оксана Почепа - Стаи Птиц  Dj Audiophil Remix   6:29 
-2. Жанна Прохорихина - Ничего Не Бойся  Bufa Dance Remix   3:11 
-3. Alexey Romeo feat. Kapriz - Ты Больше Мне Не Нужен  Mike Crystal Remix   3:18 
-4. Алексей Кабанов & Володя Aspirin - Лети  Extended Mix   5:06 
-5. Светлана Лобода - 40 Градусов  Alex Ortega & Ivan Demsoff Remix   3:45 
-6. Михаил Жуков feat. OPIUM Project - Девочка Люба  3:14 
-7. Винтаж feat. DJ Saha Dith - Позови Меня  3:54 
-8. Электра - Поцелуй В Сердце  Dj V1T Remix   4:22 
-9. Ильяна - 12 Ночи  Dj Slon Remix   3:27 
-10. Карина Кокс - Летать Высоко  Via Sirius Feat. Dj Meg Club Mix   6:28 Жанр: Pop,Club, DanceПродолжительность: 06:52:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BA5A9BBCE8AFEE29BB11620DBF3F26E8E50237F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 164
-
-VA - Хитовый свежачок Europa Plus  2013  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Dzham feat. DJ Vini - Радиолюбовь
-02. DJ Misha Klein feat. Kathy Soul - Время
-03. Perestrelki feat. Sound Kids feaf. Ачи - Вера
-04. DJ Skazka - Правда
-05. Deepside Deejays feat. Dollarman - Million Miles Away  Radio Edit 
-06. Эльбрус Джанмирзоев - Буду Рядом
-07. Маша Собко - Останови Меня
-08. Bogdan Vladau - Menina Linda  Radio Edit 
-09. Пара Нормальных - Беги, Беги
-10. Наталья Сенчукова - Я Полечу За Тобою В Рай    Читать дальше...    Жанр: PopПродолжительность: 06:44:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:876DEDC426D3B469ADDD2BD4049F78EF46B04FA1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 156
-
-VA - Популярные трэки на ХитFM  2013  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. МакSим - Ты Говоришь
-002. Иван Дорн - Идолом
-003. Денис Любимов - Она
-004. Юля Яночкина - Цунами-Любовь
-005. Джиган  Geegun  и Николай Басков - Паранойя
-006. Валерия - Я Буду Ждать Тебя
-007. Юрий Шатунов - От Белых Роз
-008. Влад Соколовский - Мир Сошёл С Ума
-009. Дилайс - Без Тебя
-010. Юля Беретта - Сколько Можно    Читать дальше...    Жанр: PopПродолжительность: 05:24:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E4ADA7AF993CC81B055C87C4C150305C41EDE55
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 122
-
-VA - Весенний TOP  2013  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Belka - Выпускной
-02. Наташа Королева feat. Наталья Медведева - La Bomba
-03. Влад Дарвин - Сохраню Любовь  Light Mix 
-04. Джанго - До Тебя
-05. Роман Полонский - Скажи
-06. МакSим - Ты Говоришь
-07. Mary - Весна! Банзай!
-08. Денис Клявер - Автобан
-09. Роман Полонский - Скажи
-10. Эльбрус Джанмирзоев - Не ГрешиЖанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A888DF2B3D2E8F046E39A22158F5BBF102E9D3CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_648122.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 080
-
-VA - 100% Hits - Best Ballads Vol.1-16  12CD   2001-2006  [MP3|320 кб с]<Pop, Disco, Dance
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Londonbeat - The Air
-02. Enrique Iglesias - Addicted
-03. Kylie Minogue - Loving Days
-04. Blue - Guilty
-05. Lene - Scream
-06. Natasha St-Pier - Tant Que C est Toi
-07. Michael Jackson - One More Chance
-08. Britney Spears - Shadow
-09. Yello - Junior B
-10. Dido - Life For Rent    Читать дальше...    Жанр: Pop, Disco, Dance, Rock, BluesПродолжительность: 01:15:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5885AEFF4C190D369D0A603E87D3020205A81965
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 647 879
-
-VA - Eurovision Song Contest. Malmo 2013  2013  [MP3|320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 647 682
-
-VA - Лучшие песни русского шансона  2009  4СD  [MP3|192 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. А. Могилевский - Одесса - Мама
-02. М. Шелег - Между Нами Города
-03. В. Черняков - За Друзей
-04. Гр. Лесоповал - За Меня Невеста Отрыдает Честно
-05. М. Шуфутинский - Наколочка
-06. Е. Амирмов - Аленка
-07. Г. Кричевский - Левандовка
-08. А. Днепров - Любовь Уходит По-Английски
-09. Л. Успенская - Карусель
-10. М. Гулько - Мурка    Читать дальше...    Жанр: ШансонПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA05BB5CBF9D560620C2FF50C5706A0976CCC4B9
 ```
 
 <div id="header" align="center">

@@ -1,4 +1,654 @@
 ﻿
+###  Публикация: 1 388 213
+
+Блондинка Ксю - Сахар  2020  [MP3|320 Kbps] <Punk Rock, Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Дориан Грей
+2. Самоубийцы
+3. После закрытия магазина
+4. Посадила сердце    Читать дальше...    Жанр: Punk Rock, RockПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FF2DB90AAA0A91EB43F6C883D1FA6487398F1881
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388213.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 212
+
+Йорш - Счастье, Часть 2  2020  [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. 16 - Сила в количестве ран
+2. 17 - Глава 4. Про счастье
+3. 18 - Счастье
+4. 19 - Зомбиленд    Читать дальше...    Жанр: Punk RockПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:308FAB4AC119387A8B38AFB4CE0EBF20856A7453
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388212.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 181
+
+Мумий Тролль - The Best  2014  Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Где Такой Я?  6:33 
+ 02. Кот Кота  3:11 
+ 03. Странные Игры  3:35 
+ 04. Моя Певица  4:10     Читать дальше...    Жанр: Pop-RockПродолжительность: 02:17:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4581C2258B61F2D4F7A2228444DA35BF608BE801
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388181.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 168
+
+Rocket From The Crypt - Scream, Dracula, Scream!  1995  [FLAC|Lossless|tracks + .cue] <Rock, Roc
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Middle  1:02 
+02. Born in  69  2:17 
+03. On A Rope  2:54 
+04. Young Livers  2:54     Читать дальше...    Жанр: Rock, Rock & RollПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8CA02497F9B6ECC52F4EF1AB74AD47EA0FF92CAE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388168.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 157
+
+Hole - Live Through This  1994  [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+Rock, Alternative, Punk, Metal
+Alternative, Punk  Lossless 
+
+###  Подробнее
+
+01. Violet  3:24 
+02. Miss World  3:00 
+03. Plump  2:34 
+04. Asking For It  3:29     Читать дальше...    Жанр: Alternative RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:86FF29BE25E6272F778A037F9598060906CA35E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388157.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 150
+
+Drive Like Jehu - Yank Crime - Yank Crime  1994  [FLAC|Lossless|tracks + .cue] <Rock, Hardcore>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Here Come The Rome Plows  5:45 
+02. Do You Compute  7:13 
+03. Golden Brown  3:15 
+04. Luau  9:28     Читать дальше...    Жанр: Rock, HardcoreПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A46BDACE797BBF6AB82E9A9A3E895443CF9F22C1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388150.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 148
+
+Elvis Costello - Brutal Youth  1994  [FLAC|Lossless|tracks + .cue] <Rock, Rock & Roll>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Pony St.  3:25 
+02. Kinder Murder  3:26 
+03. 13 Steps Lead Down  3:20 
+04. This Is Hell  4:27     Читать дальше...    Жанр: Rock, Rock & RollПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C347AC943EB3DAC8B8B6F367BA005216CAA3EE02
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388148.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 127
+
+Hinds - The Prettiest Curse  2020  [MP3|320 Kbps] <Indie Rock, Pop - Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Good Bad Times  03:19 
+ 02. Just Like Kids  Miau   02:09 
+ 03. Riding Solo  03:37 
+ 04. Boy  03:17     Читать дальше...    Жанр: Indie Rock, Pop - RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C6AC36BD0554455BDC549AC0A8D8FD722F19A24
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388127.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 083
+
+Pattern-Seeking Animals - 2 Albums  2019-2020  [FLAC|Lossless|tracks + .cue] <Progressive Rock,
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+Pattern-Seeking Animals – дочерний проект музыкантов Spock’s Beard – вокалиста Теда Леонарда, басиста Дейва Мероса и уже бывшего барабанщика этой группы Джимми Кигана, а также композитора Джона Богехолда, автора, вероятно, более половины всех произведений Spock’s Beard за 17 лет, прошедших после ухода Нила Морса. В Pattern-Seeking Animals Богехолд также играет на     Читать дальше...    --------------------------
+
+01. Raining Hard in Heaven  8:32 
+02. Here in My Autumn  7:57     Читать дальше...    Жанр: Progressive Rock, Crossover Prog |Продолжительность: 01:53:54 |
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B40EF4FFBA2AC7095507808DA6504FDDBDAFEC2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388083.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 040
+
+VA - Охота 24  2009  [MP3|320 Kbps] <Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. A La Ru - I am strong
+02. МартЪ - Океан
+03. СубМарина - Чёрная луна
+04. Клерки - Звезда    Читать дальше...    Жанр: Indie RockПродолжительность: 01:07:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9350F1E26EE241435AD2B93341BB0F63AAA482B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388040.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 037
+
+Girls Against Boys - Venus Luxure No.1 Baby  1994  [FLAC|Lossless|tracks + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. In Like Flynn  4:25 
+02. Go Be Delighted  3:57 
+03. Rockets Are Red  5:03 
+04. Satin Down  5:56     Читать дальше...    Жанр: RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A2CAEA24489F9A2A5165A06DDC2421980F3EA32
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388037.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 031
+
+The Boo Radleys - Giant Steps  1993  [FLAC|Lossless|tracks + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. I Hang Suspended  3:57 
+02. Upon 9th And Fairchild  4:51 
+03. Wish I Was Skinny  3:38 
+04. Leaves And Sand  4:26     Читать дальше...    Жанр: RockПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F312F1CD2CE115559FF187040FBA0EE2A4D14B5A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388031.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 028
+
+Brian Eno - Here Come The Warm Jets  1973  Remastered 2004 [FLAC|Lossless|tracks + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Needle in the Camel s Eye  3:11 
+02. The Paw Paw Negro Blowtorch  3:05 
+03. Baby s On Fire  5:19 
+04. Cindy Tells Me  3:25     Читать дальше...    Жанр: RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F5DF40B0957DDFC66803C6DEBBCA837B525BBC03
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388028.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 022
+
+Soen - Lotus  2019  [MP3|320 Kbps] <Progressive Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. Opponent  05:44 
+ 02. Lascivious  05:37 
+ 03. Martyrs  06:23 
+ 04. Lotus  05:24     Читать дальше...    Жанр: Progressive MetalПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DFD36617DDE0409A23D80C4EE4117BD1B614770E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388022.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 020
+
+Todd Rundgren - Something   Anything?  1972  [FLAC|Lossless|tracks + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+Рундгрен выступил продюсером «Something Anything?», играл на всех инструментах, исполнил все вокальные партии в 19 треках из 25 и написал все песни за исключением двух в попурри и «Dust In The Wind». В результате вышел альбом, поднявший Рундгрена на вершину, как в коммерческом, так и творческом плане. «Hello It s Me» - одна из серии великолепных баллад, украсивших     Читать дальше...    Part 3 - The Kid Gets Heavy:
+
+01. Black Maria  5:20 
+02. One More Day  No Word   3:43     Читать дальше...    Жанр: RockПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3F59419B98857540F3F6FB66AA8329C196A0D287
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388020.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 010
+
+Gene Clark - White Light  1972  [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Country Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. The Virgin  3:39 
+02. With Tomorrow  2:27 
+03. White Light  3:40 
+04. Because Of You  4:05     Читать дальше...    Жанр: Rock, Folk Rock, Country RockПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A82945E5D0AF3248C34DB54C4092B3A5B90140B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388010.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 008
+
+Don McLean - American Pie  1971  Limited Edition [FLAC|Lossless|tracks + .cue] <Rock,  Folk Rock
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. American Pie  8:39 
+02. Till Tomorrow  2:16 
+03. Vincent  Starry Starry Night   4:06 
+04. Crossroads  3:44     Читать дальше...    Жанр: Rock,  Folk RockПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:30332FC79EAC5CC05DACD75C02E8FFEA94717732
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388008.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 002
+
+New Found Glory - Forever And Ever x Infinity  2020  [MP3|320 Kbps] <Pop Punk>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Shook By Your Shaved Head  02:44 
+ 02. Greatest Of All Time   02:57 
+ 03. Double Chin For The Win  02:39 
+ 04. Nothing To Say  02:01     Читать дальше...    Жанр: Pop PunkПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:38231F3F89B8EE2B538F2CC631A252A3A1D183B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388002.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 387 996
+
+The Stooges - Fun House  1970  [FLAC|Lossless|tracks + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Down On The Street  3:44 
+02. Loose  3:34 
+03. TV Eye  4:18 
+04. Dirt  7:04     Читать дальше...    Жанр: RockПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:833E4460F543DF17D040EF3F26A02BB951453B7B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1387996.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 387 991
+
+Sly & The Family Stone - Stand  1969  [FLAC|Lossless|image + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Stand!  3:08 
+02. Don’t Call Me Nigger, Whitey  5:59 
+03. I Want to Take You Higher  5:22 
+04. Somebody’s Watching You  3:20     Читать дальше...    Жанр: RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6C2AD1D293E4B95ED6E964E14351BA2F00950D27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1387991.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 387 990
+
+MC5 - Kick Out The Jams  1969  [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Ramblin  Rose  4:15 
+02. Kick Out The Jams  2:52 
+03. Come Together  4:29 
+04. Rocket Reducer No. 62  Rama Lama Fa Fa Fa   5:41     Читать дальше...    Жанр: Rock, Garage RockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3879BC5B0E380457DCC30FC365EFC5DA8940D3BF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1387990.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 387 921
+
+Nicole Atkins - Italian Ice  2020  [MP3|320 Kbps] <Female Vocal, Pop, Singer-Songwriter>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Am Gold  04:35 
+ 02. Mind Eraser  04:06 
+ 03. Domino  04:04 
+ 04. Forever  03:57     Читать дальше...    Жанр: Female Vocal, Pop, Singer-SongwriterПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FDC865309645D64E43609E5E53A764DC165B2541
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1387921.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 387 907
+
+Foreigner & Aerosmith - FM Broadcasts  2020  [MP3|320 Kbps] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+1. Aerosmith - Dream On  Live 
+2. Aerosmith - Love In An Elevator  Live 
+3. Foreigner - Cold As Ice  Live 
+4. Foreigner - I Need You  Live     Читать дальше...    Жанр: Hard RockПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FF3DB93657D523A40B4426B9AED81A7547FDBE48
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1387907.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 387 906
+
+Дмитрий Губерниев - У микрофона  2020  [MP3|320 kbps] <Heavy Metal, Power Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Известный спортивный комментатор Дмитрий Губерниев представил свой сольный альбом, продюсером которого стал Кирилл Немоляев.  Новый альбом вышел! Ребята, мы это сделали! Мой полноценный музыкальный альбом на всех цифровых площадках. Огромное спасибо друзьям, музыкантам и группе  Легион , - написал Губерниев в своем инстаграме. Отметим, что у комментатора     Читать дальше...    01. Ветер биатлона  03:36 
+02. Птица  04:53 
+03. Руки прочь  03:53 
+04. Это ты  03:41     Читать дальше...    Жанр: Heavy Metal, Power MetalПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B5D10505DD0E24F136100156340426C05762B70
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1387906.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 387 864
+
+ZZ Top & Van Halen - FM Broadcasts  2020  [MP3|320 Kbps] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+1. ZZ Top - Hi Fi Mama  Live 
+2. Van Halen - Panama  Live 
+3. Van Halen - Finish What You Started  Live 
+4. ZZ Top - Dust My Broom  Live     Читать дальше...    Жанр: Hard RockПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5E629D7EE815AD66F85A504BE87CDF9CB517EF07
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1387864.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 387 861
+
+Metallica & AC DC - FM Broadcasts  2020  [MP3|320 Kbps] <Thrash Metal, Hard Rock>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+1. Metallica - Enter Sandman  Live 
+2. AC DC - Highway To Hell  Live 
+3. Metallica - Harvester Of Sorrow  Live 
+4. AC DC - Baby Please Don t Go  Live     Читать дальше...    Жанр: Thrash Metal, Hard RockПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B08A51AB4134B1B254EE6A191FE48B2FBC49CBD7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1387861.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 387 860
 
 Bon Jovi & Guns N  Roses - FM Broadcasts  2020  [MP3|320 Kbps] <Hard Rock, Rock>
@@ -1341,653 +1991,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385122.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 385 093
-
-Testament - Titans Of Creation  2020  2CD, Japanese, Limited Edition [FLAC|Lossless|image + .cue
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Children Of The Next Level  6:14 
-02. WWIII  4:48 
-03. Dream Deceiver  4:59 
-04. Night Of The Witch  6:32     Читать дальше...    Жанр: Heavy Metal, Thrash MetalПродолжительность: 02:16:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:49BD962EFEFC7E8FEB13DB3B34FE8DE3491A8EDA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385093.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 385 021
-
-Pavlov s Dog - At The Sound Of The Bell  1976  [FLAC|Lossless|image + .cue]<Progressive Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. She Came Shining  4:20 
-02. Standing Here With You  Megan s Song   3:52 
-03. Mersey  3:05 
-04. Valkerie  5:22     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59877B90D58A60C5B22FD747460EECE38EA470C5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385021.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 853
-
-ЛЯПИС 98 - Неизвестные песни Ляписов  2020  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-1. Девочка с бездонными глазами
-2. Саяны
-3. Любови капец
-4. Холодная мамба    Читать дальше...    Жанр: RockПродолжительность: 01:23:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BA246FD80D49EE65D89FAAD68EBB19E2D333DBC8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384853.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 852
-
-KUZMIN Absolute Band - Я - твой рокенрол  2020  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Я - твой рокенрол
-2. Жизни бесконечность
-3. Никто меня так не любил
-4. Одноглазый Джон  Пират     Читать дальше...    Жанр: RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E79B12DB56ACD6F5BB309C0304E0AD4BD19E052
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384852.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 817
-
-Mercenary - The Hours That Remain  2006  [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Redefine Me
-02. Year Of The Plague
-03. My World Is Ending
-04. This Eternal Instant    Читать дальше...    Жанр: Melodic Death MetalПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C68D67A67B777EB4F8C1DFCF3759CC8E98DA208A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384817.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 802
-
-Annie Barbazza - Vive  2020  [FLAC|Lossless|tracks + .cue] <Rock, Experimental, Avantgarde>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Ys  4:09 
-02. June  3:35 
-03. From Too Much Love of Living  2:38 
-04. Time  1:04     Читать дальше...    Жанр: Rock, Experimental, Avantgarde, Post Rock, Prog RockПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4EDE67DC1ADBC88987844CF3AB5D9699EC7D357B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384802.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 750
-
-7раса - Avidya  2020  [MP3|320 Kbps] <Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Я выбираю альтернативу
-2. Жёлтое пламя
-3. Масло
-4. Слёзы    Читать дальше...    Жанр: AlternativeПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7A92CA70C88F5B10444F12009ED9A095EA74120
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384750.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 577
-
-Anubis - Different Stories  2018  [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. The Passing Bell  13:20 
-02. The Deepest Wound  04:29 
-03. Fool s Gold  06:34 
-04. Dead Trees  07:21     Читать дальше...    Жанр: RockПродолжительность: 01:00:0948
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25384215D0D71F4F2C6A7E3CEA345F61DAB8A5CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384577.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 567
-
-Tethra - Empire Of The Void  2020  [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Melodic Death Meta
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Cosmosgenesis  1:46 
-02. Cold blue Nebula  6:51 
-03. Gravity Pt I Ascension  5:53 
-04. Gravity Pt II Aeons Adrift  6:53     Читать дальше...    Производство: Black Lion RecordsЖанр: Doom Metal, Funeral Doom, Melodic Death Metal, Gothic MetalПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A92DA43B77B746D47251DC04247EED2C1522D5DC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384567.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 566
-
-Wolfheart - Wolves of Karelia  2020  [FLAC|Lossless|Web-DL|tracks] <Melodic Death Metal, Melodic
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Hail of Steel  5:42 
-02. Horizon on Fire  5:59 
-03. Reaper  4:59 
-04. The Hammer  6:09     Читать дальше...    Производство: Napalm RecordsЖанр: Melodic Death Metal, Melodic Black MetalПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F432D5746BCFCE6BB59E67822E1C4E76EA8783E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384566.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 379
-
-Anubis - Homeless  2020  [FLAC|Lossless|tracks + .cue] <Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Reflective  07:10 
-02. Entitled  04:15 
-03. White Ashes  03:23 
-04. Home  05:13     Читать дальше...    Жанр: RockПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DEEA6027EB9E6A3503A263BDD176A9EC1DB3A156
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384379.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 368
-
-The Used - Heartwork  2020  [FLAC|Lossless|tracks + .cue] <Indie Rock>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Paradise Lost  A Poem by John Milton   02:47 
-02. Blow Me  feat. Jason Aalon Butler   03:20 
-03. Big, Wanna Be  03:30 
-04. Bloody Nose  03:04     Читать дальше...    Жанр: Indie RockПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:15ABC29D6BB5A16221719F3EFAF57F22D595EEC3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384368.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 328
-
-Ladies Ballbreaker - Whole Lotta Bobby  2020  [MP3|320 Kbps] <Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-Female AC DC cover band:01. Hell Ain t a Bad Place to Be [4:21]
- 02. Whole Lotta Rosie [4:19]
- 03. Dirty Deeds Done Dirt Cheap [4:09]
- 04. Back in Black [5:23]    Читать дальше...    Жанр: Hard RockПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5BA367FF7327256E61F92EF4C3665FA4948F55D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384328.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 319
-
-Chris De Burgh - Crusader  1979  A&M 394 746-2 [FLAC|Lossless|image + .cue]<Soft Rock, Art Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Carry On  3:58 
-02. I Had the Love In My Eyes  3:30 
-03. Something Else Again  3:47 
-04. The Girl With April In Her Eyes  4:15     Читать дальше...    Жанр: Soft Rock, Art RockПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C806FEAE5B6700EA30E56D2A0F972E483C611434
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384319.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 310
-
-Ёzh! - Самогон троллей  2020  [MP3|320 Kbps] <Folk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Самогон троллей
-2. Богатырь Илья
-3. Тролль под мостом
-4. Герой    Читать дальше...    Жанр: Folk RockПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CC107F434444002E396F94865D74E5D378245A17
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384310.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 309
-
-Красная плесень - Союз параллельных проектов 60  2020  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Я хочу девушек любить
-2. Отсос
-3. Харлей
-4. Гимн лётчиков    Читать дальше...    Жанр: Punk RockПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A61198DCA254AB4FA97D586FA94EEE215BC9F7F5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384309.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 202
-
-Mike Tramp - Second Time Around  2020  [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-01. All of My Life  06:49 
-02. The Road  04:46 
-03. Anymore  04:57 
-04. Come On  03:58     Читать дальше...    Жанр: Melodic Hard RockПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13D793015E15308F90240FFCC1033D216950C29B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384202.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 178
-
-Taurus 5 - Taurus 5  1980  LP [MP3|320 Kbps] <Hard Rock, Prog Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. La Haine Des Gens  4:56 
-02. La Fille Du Diable  3:56 
-03. Toujours Ce Meme Reve  3:43 
-04. Quand Je Te Vois  5:03     Читать дальше...    Жанр: Hard Rock, Prog RockПродолжительность: 00:34:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2ADF2985896D01B4DBD7BA39944B5EA092D1E4BA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384178.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 138
-
-Fort Royal - 12 альбомов  1995-2020  [FLAC|Lossless|image + .cue] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок  Lossless 
-
-###  Подробнее
-
-01. Мисс Китти
-02. Не впускай зверя в дверь
-03. Безумие
-04. Ловите ведьму    Читать дальше...    Жанр: RockПродолжительность: 11:22:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA9E5BF8CB31A9EF0CE97CBCA4563076473B596A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384138.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 121
-
-Бранимир - Верная смерть  2020  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Вальс
-2. Ангел бездны земной
-3. Кали-хали-гали
-4. Невиличка    Читать дальше...    Жанр: RockПродолжительность: 00:27:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:067E302D62E877498AA6777E7E7A5C4ADFEA0DF3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384121.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 949
-
-Penumbra - Emanate  2005  [Re-release] [FLAC|Lossless|image + .cue] <Gothic Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Intro  02:10 
-02. Lycanthrope  04:40 
-03. New Scaring Senses  06:24 
-04. Bloody Experience  06:07     Читать дальше...    Жанр: Gothic MetalПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BBD052DDF010BF365A96917C95070E8749EE46CA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383949.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 929
-
-Clouds - Durere  2020  [FLAC|Lossless|Web-DL|tracks] <Melodic Doom, Funeral Doom, Death Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Cold Guiding Light  8:03 
-02. Empty Hearts  8:45 
-03. Images And Memories  6:57 
-04. Above The Sea  9:05     Читать дальше...    Жанр: Melodic Doom, Funeral Doom, Atmospheric Doom, Death MetalПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:928C84AB6F665E9E6C77F21D9F052B4709D66E48
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383929.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 809
-
-Def Leppard - Too Many Jitterbugs  B-Sides and Rarities   2020  [MP3|320 Kbps] <Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. Ride Into The Sun  The  Def Leppard E.P.  Version  [3:06]
- 02. Getcha Rocks Off  The  Def Leppard E.P.  Version  [3:53]
- 03. The Overture  The  Def Leppard E.P.  Version  [7:59]
- 04. Wasted  Early Version  [3:17]    Читать дальше...    Жанр: Hard RockПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:77D4C722CE23F427513DE11B6D1B3CBF0DEF0E9D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383809.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 604
-
-Paradise Lost - Obsidian  2020  Limited Edition [FLAC|Lossless|image + .cue] <Gothic, Doom Metal
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Darker Thoughts
-02. Fall from Grace
-03. Ghosts
-04. The Devil Embraced    Читать дальше...    Жанр: Gothic, Doom MetalПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:821D5A0B69642DB285636E91436DC4F6E232B833
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383604.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 598
-
-Декабрь feat. Jack Benzin - Дорога Победы  2020  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01.Дорога ПобедыЖанр: RockПродолжительность: 00:03:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2BC93C8D96965EE2885F8180E212FE5BCAC54AD9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383598.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 532
-
-The Pretty Reckless - Collection 7 Releases  2010-2022  [FLAC|Lossless|tracks + .cue] <Alternati
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-2010 - The Pretty Reckless EP  Interscope Records B001447232, CA 
-2011 - Light Me Up  Interscope Records - UICS-1227, JP 
-2012 - Hit Me Like a Man EP  Interscope Records B001678002, CA 
-2014 - Going to Hell  Deluxe Edition   Victor - VIZP-130, JP     Читать дальше...    Жанр: Alternative Rock, Hard Rock, Post-Grunge |Продолжительность: 04:47:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA4FAB952C5768B808B6E0C131355F522BA0E610
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383532.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

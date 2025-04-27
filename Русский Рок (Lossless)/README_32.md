@@ -1,4 +1,123 @@
 ﻿
+###  Публикация: 1 199 791
+
+Адаптация Пчёл - Стеклянный шар  2017  Single [MP3|320 Kbps] <Alternative Rock, Cyber Rock, Spac
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Стеклянный шарЖанр: Alternative Rock, Cyber Rock, Space RockПродолжительность: 00:03:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A8026E7EF57162E5DA820EBF2EA0726430BAB444
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199791.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 753
+
+Метанойя - Антициклон  2017  [MP3|320 Kbps] <Acoustic Art Rock, Art Punk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Свет твой
+02. Подо льдом
+03. Успело стемнеть
+04. Карнавал    Читать дальше...    Жанр: Acoustic Art Rock, Art PunkПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB7DCF7E2F1AAE25A09371A1BDF3926E88E32AB7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199753.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 699
+
+Полини - Время дождей  2017  [MP3|320 Kbps] <Acoustic Rock, Folk Rock, Art Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Так и стоял до рассвета
+02. Солнце на коне
+03. Золотое правило
+04. Время дождей    Читать дальше...    Жанр: Acoustic Rock, Folk Rock, Art RockПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4D3D09498E4ACBF30BCF72186D65DBE7E961A17F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199699.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 411
+
+ДМЦ  Дороги Меняют Цвет  - Что снится собаке?  2018  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Что снится собаке?Жанр: RockПродолжительность: 00:05:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5678D38769868D944CA3F51A0832DBAB7488288A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199411.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 118
+
+Forces United - Egorov  2017  [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Евгений Егоров, известный поклонникам рок-музыки как фронтмен power metal группы  Эпидемия  и участник мюзикла  Последнее Испытание  выпускает свой перый сольный альбом! Во многом это стало возможно, благодаря, неиссякаемой  энергии продюсера Кирилла Немоляева  Бони Нем, Слот , который в рамках своей международной музыкальной лаборатии Forces United     Читать дальше...    1. Beconing Heights
+2. Lie
+3. Facing The Storm
+4. Father To Son    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C9AE46AA4895AA22873736FB35A7177D31C3F111
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199118.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 199 116
 
 Мавзолей - Рок-опера  2017  [MP3|320 Kbps] <Heavy Metal>
@@ -1843,131 +1962,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1180099.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 179 937
-
-700 кг Золота - Моя страна  Live RJ-Club   2005  [MP3|128-181 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01-Жесть
-02-Про это
-03-Забудь меня
-04-Где я, где ты    Читать дальше...    Жанр: RockПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A6EF2A912B4825F46D2CEA26E81BDAD67095B91C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1179937.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 179 734
-
-700 кг золота - Движение  2004  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01.Автоответчик
-02.Движение реки
-03.Корабли
-04.Не спеша    Читать дальше...    Жанр: RockПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D24AF5D30F03483827C659A83A04DEEA71F622A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1179734.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 179 594
-
-Stigmata - Mainstream?  2017  [MP3|320 Kbps] <Alternative Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Кобра
-02. Цунами
-03. Восток  feat. Гарри Топор 
-04. Килогерцы    Читать дальше...    Жанр: Alternative MetalПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BB44F89045F1D52D1A8F1633855A6662A09080E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1179594.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 179 512
-
-700 кг Золота - Снежное лето  2012  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01.Поверь
-02.Города сны
-03.Звонок
-04.Когда нибудь    Читать дальше...    Жанр: RockПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF0269131D0CB6EDA92D59C4C51343500D443ECF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1179512.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 179 444
-
-700 кг Золота - Время  2016  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Новый ковчег
-02. Девочки-снежинки
-03. Я хороню рок-н-ролл
-04. С завтрашнего дня    Читать дальше...    Жанр: RockПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF21F32C199F2685EAA65214406C2EFDD7FF98ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1179444.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

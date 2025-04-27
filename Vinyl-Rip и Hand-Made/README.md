@@ -1,4 +1,203 @@
 ﻿
+###  Публикация: 1 791 931
+
+Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Groove Metal
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Damnation Plan - метал-группа из Эспоо, Финляндия, образована в 2004 году.2013 - The Wakening
+2017 - Reality Illusion
+2023 - The New HorizonЖанр: Progressive/Melodic Groove MetalПродолжительность: 02:25:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1683E08EECD22897B0BC9C3A35ACCEB85624A8BB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1791931.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 791 908
+
+Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 You Wanna Love Me • Ты Снова Хочешь Меня Любить
+A2 Everybody Knows • Всем Известно
+A3 Bad Girl • Плохая Девчонка
+A4 I Feel The Heat Of The Night • Я Чувствую Жар Ночи(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9D87B9C631605660766791C2BDC4A3E6F87046EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1791908.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 791 741
+
+Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1-Eye For An Eye
+A2-No Hope = No Fear
+A3-Bleed
+A4-Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4DCF9F0D8C0D076FDFEDBBC808DAA98297268B6B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1791741.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 791 728
+
+Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 - Crush Depth
+A2 - Tear Down The Walls
+A3 - Beyond My Destiny
+A4 - Arena(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:5746
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A5EC8D278E5F039D015C11E9DDE787796F3363A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1791728.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 791 518
+
+Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The Song Of Songs (1986) Repress, Quadraphonic [FLAC 2.0|96/24|image +.cu
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Osculetur Me	2:55
+A2 Trahe Me	2:50
+A3 Nigra Sum, Sed Formosa	4:25
+A4 Vineam Meam Non Custodivi	2:50(   Читать дальше...   )Жанр: Classical, RenaissanceПродолжительность: 01:32:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0DE0C8427675FD79E66C2AB4E67F0EBB79FA3CCB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1791518.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 791 405
+
+Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Fighting The World
+A2 Blow Your Speakers
+A3 Carry On
+A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:94EE362D7BB4F8975E2E84D7050B8705647A7EBF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1791405.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 791 398
+
+Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Met
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 - The Industrialist
+A2 - Recharger
+A3 - New Messiah
+B1 - God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:16:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A54E354492DA761104DFEF7EF8216CCC5FE4127B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1791398.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 791 357
+
+Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Power Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Music
+02. Noise
+03. Shoemaker
+04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:13A9D05148E448F7B57F62B866C2D20A315C7588
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1791357.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 790 932
 
 Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
@@ -1782,206 +1981,6 @@ Jonne Aaron (Йонне Аарон Лииматайнен) - финский пе
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1775813.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 775 284
-
-Faith No More - Studio Albums (7 releases) (1985-2015) hand made [restored, declipped] [FLAC |16/44.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Faith No More — американская рок-группа из Сан-Франциско, Калифорния, образованная в 1979 году.1985 - We Care A Lot
-1987 - Introduce Yourself
-1989 - The Real Thing
-1992 - Angel Dust(   Читать дальше...   )Жанр: Avant-garde/Alternative Rock/MetalПродолжительность: 06:41:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B68402504DA0E2A4CF3880C7D87C6A2254F97EDC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1775284.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 775 001
-
-Fates Warning (& Arch/Matheos) - Studio Albums (16 releases) (1984-2020) hand made [restored, declip
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Fates Warning — американская прогрессив-метал-группа, образованная в Хартфорде, штат Коннектикут, в 1982 году.1984 - Night On Brocken
-1985 - The Spectre Within
-1986 - Awaken The Guardian
-1988 - No ExitЖанр: Progressive MetalПродолжительность: 14:02:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:61FBAFD99F0841C75DC0DA0AFF74517F85BEC2B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1775001.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 774 852
-
-Witchwood (ex-Buttered Bacon Biscuits) - Studio Albums (4 releases) (2009-2020) hand made [restored,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Witchwood — итальянская хард-рок-группа, основанная в 2014 году.2009 - From The Solitary Woods (as Buttered Bacon Biscuits)
-2015 - Litanies From The Woods
-2016 - Handful of Stars
-2020 - Before the WinterЖанр: Hard Rock, Prog Rock, Southern RockПродолжительность: 03:50:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FBBD40BD5CF113A7E7760072782A0A0DAA916B4D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774852.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 774 471
-
-Dalibor Janda - Take Them To Mars (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Take Them To Mars (Vsechno Na Mars)
-A2 Try To Be A Man (V Parku, V Herne)
-A3 Lookin' On The Tiger Eyes (Nejvic)
-A4 Poor Old Tricks (Znam Tvuj Trik)(   Читать дальше...   )Жанр: Europop, Pop RockПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DD1D1DEE9A309A7FC723CEDD073740B72BBC576F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774471.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 774 334
-
-Dream Express - Дрийм Экспресс (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side I
-A1 Hi Lili Hilo • Kaper, Deutsch
-A2 I'm A Lion • L. Smets, E. VerheeS
-A3 Got To Have You Back • L. Smets, C. Pilditch(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:00E10FF7D94D161227BF607A6EE8B7AF6B4B7D37
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774334.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 774 310
-
-Nostradameus - Studio Albums (6 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Nostradameus — шведская пауэр-метал группа из Гетеборга, сформированная в 1998 году.2000 - Words of Nostradameus
-2001 - The Prophet of Evil
-2003 - The Third Prophecy
-2004 - HellboundЖанр: Power MetalПродолжительность: 04:59:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3857F0FB702B7EE045CD2655C1A02A88C3EB6188
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774310.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 774 301
-
-Sybreed - Studio Albums (4 releases) (2004-2012) hand made [restored, declipped] [FLAC |16/44.1|trac
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Sybreed — швейцарская индастриал/грув-метал группа из Женевы, основанная в 2003 году.2004 - Slave Design
-2008 - Antares
-2009 - The Pulse Of Awakening
-2012 - God Is An AutomatonЖанр: Industrial/Groove MetalПродолжительность: 04:28:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9CC405A35871419CE8B65196B73EC4FA6D09ABAD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774301.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 773 193
-
-VA - Romantic Collection. Italia '2000 (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-SIDE A:
-01. Toto Cutugno - l'Italiano
-02. Collage - Donna Musica'99
-03. Adriano Celentano - Il Tempo Se Ne Va(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AE78891696DFF776329E58CD0CFF2D54C16D6DCB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1773193.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

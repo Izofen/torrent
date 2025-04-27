@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 775 284
+
+Faith No More - Studio Albums (7 releases) (1985-2015) hand made [restored, declipped] [FLAC |16/44.
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Faith No More — американская рок-группа из Сан-Франциско, Калифорния, образованная в 1979 году.1985 - We Care A Lot
+1987 - Introduce Yourself
+1989 - The Real Thing
+1992 - Angel Dust(   Читать дальше...   )Жанр: Avant-garde/Alternative Rock/MetalПродолжительность: 06:41:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B68402504DA0E2A4CF3880C7D87C6A2254F97EDC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1775284.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 775 001
+
+Fates Warning (& Arch/Matheos) - Studio Albums (16 releases) (1984-2020) hand made [restored, declip
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Fates Warning — американская прогрессив-метал-группа, образованная в Хартфорде, штат Коннектикут, в 1982 году.1984 - Night On Brocken
+1985 - The Spectre Within
+1986 - Awaken The Guardian
+1988 - No ExitЖанр: Progressive MetalПродолжительность: 14:02:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:61FBAFD99F0841C75DC0DA0AFF74517F85BEC2B2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1775001.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 774 852
+
+Witchwood (ex-Buttered Bacon Biscuits) - Studio Albums (4 releases) (2009-2020) hand made [restored,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Witchwood — итальянская хард-рок-группа, основанная в 2014 году.2009 - From The Solitary Woods (as Buttered Bacon Biscuits)
+2015 - Litanies From The Woods
+2016 - Handful of Stars
+2020 - Before the WinterЖанр: Hard Rock, Prog Rock, Southern RockПродолжительность: 03:50:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FBBD40BD5CF113A7E7760072782A0A0DAA916B4D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774852.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 774 471
+
+Dalibor Janda - Take Them To Mars (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Take Them To Mars (Vsechno Na Mars)
+A2 Try To Be A Man (V Parku, V Herne)
+A3 Lookin' On The Tiger Eyes (Nejvic)
+A4 Poor Old Tricks (Znam Tvuj Trik)(   Читать дальше...   )Жанр: Europop, Pop RockПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD1D1DEE9A309A7FC723CEDD073740B72BBC576F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774471.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 774 334
+
+Dream Express - Дрийм Экспресс (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side I
+A1 Hi Lili Hilo • Kaper, Deutsch
+A2 I'm A Lion • L. Smets, E. VerheeS
+A3 Got To Have You Back • L. Smets, C. Pilditch(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:00E10FF7D94D161227BF607A6EE8B7AF6B4B7D37
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774334.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 774 310
+
+Nostradameus - Studio Albums (6 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Nostradameus — шведская пауэр-метал группа из Гетеборга, сформированная в 1998 году.2000 - Words of Nostradameus
+2001 - The Prophet of Evil
+2003 - The Third Prophecy
+2004 - HellboundЖанр: Power MetalПродолжительность: 04:59:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3857F0FB702B7EE045CD2655C1A02A88C3EB6188
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774310.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 774 301
+
+Sybreed - Studio Albums (4 releases) (2004-2012) hand made [restored, declipped] [FLAC |16/44.1|trac
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Sybreed — швейцарская индастриал/грув-метал группа из Женевы, основанная в 2003 году.2004 - Slave Design
+2008 - Antares
+2009 - The Pulse Of Awakening
+2012 - God Is An AutomatonЖанр: Industrial/Groove MetalПродолжительность: 04:28:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9CC405A35871419CE8B65196B73EC4FA6D09ABAD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774301.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 773 193
+
+VA - Romantic Collection. Italia '2000 (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+SIDE A:
+01. Toto Cutugno - l'Italiano
+02. Collage - Donna Musica'99
+03. Adriano Celentano - Il Tempo Se Ne Va(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE78891696DFF776329E58CD0CFF2D54C16D6DCB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1773193.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 772 862
 
 Paper Lace - The Best Of Paper Lace (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Glam>
@@ -1759,205 +1959,6 @@ A3 Abandoned(   Читать дальше...   )Жанр: Folk Rock, Country Roc
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750663.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 750 516
-
-Imminence - Studio Albums (6 releases) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tr
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Imminence — шведская металкор-группа из Мальмё и Треллеборга, основанная в 2009 году.2013 - Return to Helios (EP)
-2014 - I
-2017 - This Is Goodbye
-2019 - Turn the Light OnЖанр: MetalcoreПродолжительность: 05:41:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AAE1EEAED5126AF791586689A043EE74A827EA99
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750516.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 750 458
-
-Lyle Lovett And His Large Band - Lyle Lovett And His Large Band (1989) [FLAC 2.0|48/24|image +.cue|M
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-A1 The Blues Walk
-A2 Here I Am
-A3 Cryin' Shame(   Читать дальше...   )Жанр: Big Band, CountryПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7B1797327DEC3A90901D3552AE8A8C50FA135F41
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750458.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 750 309
-
-It Dies Today - Studio Albums (3 releases) (2004-2009) hand made [restored, declipped] [FLAC |16/44.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-It Dies Today — американская металкор-группа, образованная в Буффало, штат Нью-Йорк, в сентябре 2001 года.2004 - The Caitiff Choir
-2006 - Sirens
-2009 - LividityЖанр: MetalcoreПродолжительность: 02:44:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5C7372AACEF0E2BCB6D2549DF9E4B1A1C415965A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750309.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 750 135
-
-Miseration - Studio Albums (4 releases) (2006-2022) hand made [restored, declipped] [FLAC |16/44.1|t
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Miseration — шведская дэт-метал-группа, организованная в 2006-м году. Коллектив является одним из многих проектов Яни Стефановича и бывшего вокалиста Scar Symmetry Кристиана Альвестама.2006 - Your Demons - Their Angels
-2009 - The Mirroring Shadow
-2012 - Tragedy Has Spoken
-2022 - Black Miracles And Dark WondersЖанр: Melodic/Technical Death MetalПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:45D98CA2F86CF4B4186141BB5BE9EA92C99D17C5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750135.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 750 127
-
-Земляне & Supermax - Sergey Skachkov & Kurt Hauenstein (2009) Unofficial Release [FLAC|Lossless|imag
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Love Machine
-02. World of today
-03. It aint easy
-04. Hotline(   Читать дальше...   )Жанр: Rock, Reggae, Funk / SoulПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:67944DCB5EEC1A6CD49AC22F44753B1B082E995A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750127.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 749 979
-
-He Is Legend - Studio Albums (9 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-He Is Legend — американская альтернативная метал-группа из Уилмингтона, Северная Каролина, основана в 2003 году.2004 - 91025
-2004 - I Am Hollywood
-2006 - Black Unicorn
-2006 - Suck Out The PoisonЖанр: Southern Metal, Stoner Rock, Post-hardcoreПродолжительность: 06:41:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:69DA395E0D6D6A5344DD8805D0C2D8F2CB493215
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1749979.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 749 811
-
-Killswitch Engage - Studio Albums (8 releases) (2000-2019) hand made [restored, declipped] [FLAC |16
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Killswitch Engage - американская металкор-группа из города Уэстфилд, штат Массачусетс, образовалась в 1999 году.2000 - Killswitch Engage
-2002 - Alive Or Just Breathing
-2004 - The End Of Heartache
-2006 - As Daylight DiesЖанр: MetalcoreПродолжительность: 06:50:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:09BC81786056C9E84ED555D0E533B0032A676548
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1749811.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 749 650
-
-As I Lay Dying - Studio Albums (9 releases) (2001-2019) hand made [restored, declipped] [FLAC |16/44
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-As I Lay Dying — американская металкор-группа из Сан-Диего, Калифорния.2001 - Beneath The Encasing Of Ashes
-2003 - Frail Words Collapse
-2005 - Shadows Are Security
-2007 - An Ocean Between UsЖанр: MetalcoreПродолжительность: 06:57:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59EFDD5BCBC8BA412CD28EC01AF57C47C44CCA8B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1749650.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

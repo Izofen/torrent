@@ -1,4 +1,354 @@
 ﻿
+###  Публикация: 1 514 024
+
+VA - Beatport Ambient: Sound Pack #377  2021  [MP3|320 Kbps] <Ambient, Meditation, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Liquid Bloom - Heart Active8 Meditation
+002. Enya - Oíche Chiúin
+003. Max Cooper - Weakness Of The Flesh
+004. Aswekeepsearching - Sleep Again    Читать дальше...    Жанр: Ambient, Meditation, LoungeПродолжительность: 09:07:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3EFBD0CC03F0ED3D999E76B55EF7AA6CC2573E76
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1514024.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 514 021
+
+VA - Beatport Funky House: Sound Pack #375  2021  [MP3|320 Kbps] <Funky, Disco House, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Alexander Koning - Rollerdisco
+002. Serge Funk - I Can Feel
+003. Rory Hoy - 2021
+004. Mдx Varano - Be Good    Читать дальше...    Жанр: Funky, Disco House, ElectroПродолжительность: 10:07:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6785DD3650A10210CDEB756BF6DEF5A09352C7D9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1514021.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 513 989
+
+VA - Soft Pop  2021  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Alicia Keys - Girl on Fire  3:44 
+002. Andy Grammer - Keep Your Head Up  3:09 
+003. OneRepublic - Counting Stars  4:17 
+004. Rachel Platten - Fight Song  3:24     Читать дальше...    Жанр: PopПродолжительность: 05:59:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE9C09FFC75A40B5FAB4365E5327B6C57424FC16
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1513989.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 513 866
+
+VA - SVS Collection vol. 7 by MR.DJ  2021  [MP3|320 Kbps] <Deep House, Electro House, Other>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. 2 Brothers On The 4th Floor - Dreams  Dino Brown & Paky Francavilla 2K20 Remix 
+002. A-Cтудио - Fashion Girl  D.Slap & Upfinger Remix 
+003. A-Mase, Sharliz, Natune - The Weekend
+004. Adam Twelve x Boney M - Gotta Go Home    Читать дальше...    Жанр: Deep House, Electro House, OtherПродолжительность: 13.34.32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C36560D4B6964460E9EA49DDD3EAA5788E29BC78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1513866.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 513 698
+
+VA - Autumn Dances  2021  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Neptunica, Shockz, Rebecca Helena - Marble  2:18 
+02. Alan Walker, Georgia Ku - Don t You Hold Me Down  2:12 
+03. Tungevaag, Bassjackers - Written In The Stars  3:10 
+04. Wankelmut, Selva, MATTN - Scary Monsters  2:34     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 03:21:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:88CB412DAAC33F9AC7F94FBCECCE5AD183267266
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1513698.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 513 432
+
+VA - Music News vol.152  2021  [MP3|320 Kbps] <Pop, Soul, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Lida Lee - On Fire  03:51 
+ 002. AKVA - Танцуй В Темноте  02:54 
+ 003. Allergia - Эйфория  02:10 
+ 004. Andreea D - All That You Say Is  Ta Ta Ra   03:16     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 04:43:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:968BFF5D5E6B5B2666946DDEFDA0D739C32350DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1513432.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 513 328
+
+VA - Record Super Chart 27.11.2021 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Tiesto & KAROL G - Don t Be Shy  2:20 
+02. Kungs - Never Going Home  2:49 
+03. Alok - It Don t Matter  Feat. Sofi Tukker, Inna   2:53 
+04. Ed Sheeran - Bad Habits  3:51     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:40:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8838E4543A01351408D8228898D835786C755C4B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1513328.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 513 245
+
+VA - The Official UK Top 100 Singles Chart 26.11.2021 [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Adele - Easy On Me
+002. Adele - Oh My God
+003. Ed Sheeran - Shivers
+004. Adele - I Drink Wine    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 05:34:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE665C82428A8B6633C29BE5F7EEE75F189641A2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1513245.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 513 187
+
+VA - Fresh Pop 4  2021  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Skylar Grey,Polo G - Last One Standing  4:17 
+002. Ed Sheeran - Overpass Graffiti  3:56 
+003. Coldplay,Selena Gomez - Let Somebody Go  4:01 
+004. Glass Animals - Heat Waves  3:58     Читать дальше...    Жанр: PopПродолжительность: 05:09:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CF05ADA29D39FAF16EA4DC0F8E8B1851526D6DBE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1513187.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 512 952
+
+VA - Uplifting Trance: Beach Dance Classics Mix  2021  [MP3|320 Kbps] <Uplifting Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Solid Sleep - Tears
+002. Alexei Maslov - Autumn Renaissance
+003. Dan Iwan - Heaven&Earth
+004. Coredata - Ea4    Читать дальше...    Жанр: Uplifting TranceПродолжительность: 10:06:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65A2457E3D7F993B2E01AB4E8502B68942CAA931
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1512952.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 512 950
+
+VA - Raise Your Flag Rock World s Fest  CD 01   2021  [MP3|320 Kbps] <Rock, Punk, Alternat
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Jakethehawk - Ochre And Umber
+002. Jxdn - Angels & Demons
+003. Home Brewed Universe - Gallifrey Funk
+004. Rostam - Kinney    Читать дальше...    Жанр: Rock, Punk, AlternativeПродолжительность: 09:40:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F142280A84EA8487855715E3248A025ED5EC3698
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1512950.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 512 948
+
+VA - Clubbing Electro House: E-Dance Mix  Vol.06   2021  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Andronicus - Make You Whole
+002. Orkidea Ft. Lowland - From Within
+003. Piero Pirupa - Loving You
+004. Latanya Hall - Set Me Free    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 08:32:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D927981D54F561A2E9B9EA7A9882361879C772F0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1512948.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 512 943
+
+VA - Beatport Chill Electronic: Sound Pack #374  2021  [MP3|320 Kbps] <Chillout, Electronic, Dow
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Der Waldläufer - Naranja Nubis
+002. Pablo Bolívar - Uncut
+003. Jabu - Sweet Company
+004. Matthew Dear - Heart To Sing    Читать дальше...    Жанр: Chillout, Electronic, DowntempoПродолжительность: 08:40:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04C7898640E8312C11D2E2BD9D5E2D87A42D8C10
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1512943.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 512 934
+
+VA - Beatport Trance: Sound Pack #373  2021  [MP3|320 Kbps] <Trance, Electro, Progressive>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Semper T - Serenade Radio Edit
+002. Snowface - Paranoia
+003. Everlight - Echoes feat. Justin B
+004. Terranation - Amazonas    Читать дальше...    Жанр: Trance, Electro, ProgressiveПродолжительность: 08:48:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F1D8EBD428DCF0217BBE2368BBBC5F19270C4A5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1512934.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 512 638
 
 VA - Rockin  Around the Christmas Tree  2021  2CD [MP3|320 Kbps] <Pop, Rock, Folk>
@@ -1644,356 +1994,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507443.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 388
-
-VA - October Hip Hop Compilation  2021  [MP3|320 Kbps] <Hip Hop, Rap>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. Veysel - Bobby
-002. Monsta X - Fantasia
-003. Waterr & Ty Farris - Need A Hero
-004. Haiyti - Barkash    Читать дальше...    Жанр: Hip Hop, RapПродолжительность: 07:43:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B26671A3142DEDF0B226B16E78864D247364FAAF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507388.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 385
-
-VA - My Little Planet: Pop Rock Indie  2021  [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Dopamoon - Ailleurs Que Le Soleil
-002. The Underground Youth - For You Are The One
-003. Cerberus Shoal - Yes Sir, No Sir
-004. Sam Valdez - For A While    Читать дальше...    Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:33:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:165C77ACC8FD92A7D83EBEC19097246CADA77384
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507385.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 380
-
-VA - Hymn For The Weekend  2021  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Kairo And Svniivan - Hymn For The Weekend
-002. Marina - Venus Fly Trap
-003. Hiatus Kaiyote - Get Sun
-004. Darius And Finlay - Last Flame    Читать дальше...    Жанр: Pop, DanceПродолжительность: 08:47:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6C2F13577E2E8F7F9281078E5459030CF9577642
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507380.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 378
-
-VA - House Beat: Spin Electro Party  2021  [MP3|320 Kbps] <Electro House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Eyes Faces - Get Relax
-002. Strinner - Falling Back
-003. Gino Love - Gotta Let Go 2021
-004. Franck Roger - Free Fall    Читать дальше...    Жанр: Electro HouseПродолжительность: 12:51:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2AD3EC5768B549CB82B86607E8114FBD16B555F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507378.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 302
-
-VA - Herbal Ambient Sounds  2021  [MP3|320 Kbps] <Ambient, Relax, Meditation>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Chris Decato - Transmissions
-002. Paul Oednom - Flux
-003. Forest Robots - Meditation Vii
-004. Audio Obscura - The Quiet Night    Читать дальше...    Жанр: Ambient, Relax, MeditationПродолжительность: 09:32:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2D622E7F7C78B20B3B5ACC328A73D9F783E40B59
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507302.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 294
-
-VA - Funky House: Sunday Mixtape  2021  [MP3|320 Kbps] <Funky, Disco House, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Soul Power - Supa Fly
-002. Frank Montana - Rokit
-003. Guillaume - The Chase
-004. Anacca Jez - Cntrol    Читать дальше...    Жанр: Funky, Disco House, ElectroПродолжительность: 09:22:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F943DEACC3CE62AE6198F6637BE7B33A1B8BE130
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507294.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 288
-
-VA - Beatport Organic House: Sound Pack #361  2021  [MP3|320 Kbps] <Organic, Deep House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Internal Deep - Circle Path
-002. Last Bar - I Can t Lie
-003. Loka Deep - Bass Up
-004. Max Tenrom - Armenia    Читать дальше...    Жанр: Organic, Deep HouseПродолжительность: 12:23:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4BCD74A7BFDC7929CB2BF58C60543D7372638D9C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507288.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 271
-
-VA - Beatport Electro Pop: Sound Pack #364  2021  [MP3|320 Kbps] <Electro Pop, Synthpop, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Fede Cabral - Bomba
-002. Methyl Ethel - Neon Cheap
-003. Laurence-Anne - Strange Feeling
-004. Lusine - Not Alone    Читать дальше...    Жанр: Electro Pop, Synthpop, DanceПродолжительность: 07:24:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:37299FEBF59A9E603BE04E3ED4B9901BC11AD3A0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507271.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 248
-
-VA - Свежаки Осени Remix NNM  2021  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Estradarada - Вите Надо Выйти  Mamoru Max Flame Radio Remix   3:03 
-02. Unity - Im dollar   Yura Sychev Remix   4:11 
-03. Maya Tk Gangsterlova - Алый закат  4:19 
-04. Клава Кока - Ла Ла Ла  John Bis.T Myron Remix  Radio Edit  3:15     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:33:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF9D410FA77679B1CEAA5FCD9EEE8CFBB0BCAC48
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507248.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 152
-
-VA - Beat, Bass, Melody vol.3  mixed by Dj V   2021  [MP3|320 Kbps] <Bass House, Electro Hou
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01-Lazy Bear - Yo DJ Pump This Party!
-02-Relanium & Deen West vs. Lion - Get Buzz  Extended Mix 
-03-Laidback Luke & Gregor Salto  - Step by Step  Dannic Extended Remix 
-04-Swanky Tunes - Big Love To The Bass  Extended Mix     Читать дальше...    Жанр: Bass House, Electro House, Big Room, Future RaveПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:53380A7836864A67AE5E3616D35F849E6B2500AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507152.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 035
-
-VA - Shazam & Apple Music Chart  Россия Топ 100 Октябрь   2021  [MP3|320 Kbps] <Pop, Dance,
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. JONY, HammAli - Наверно, ты меня не помнишь  3:10 
-002. Akmal  - Из-за тебя  2:52 
-003. MOT - Август - это ты  2:45 
-004. DOROFEEVA, Scriptonite - Невеста  3:30     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 05:00:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13D8948C012546E6FAFA08F1431112BD43DE8E7D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507035.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 506 764
-
-VA - Жирные Хиты Осени Remix NNM  2021  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Andrew Spencer Andre Picar feat. Ice MC - It s A Rainy Day 2021  Bigroom Mix   3:43 
-02. RASA x Chris Lake Green Velvet - DIOR  NEIJI Edit   2:50 
-03. DJ Yankovski - Foule sentimentale  Ayur Tsyrenov remix   2:26 
-04. Riton x Nightcrawlers feat. Mufasa Hypeman - Friday  Arteez DMC Cox Radio Edit   2:36     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 07:02:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6F5E168C7866099DF09183AC042C696FEFFD5171
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506764.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 506 578
-
-VA - Halloween Songs  2021  [MP3|320 Kbps] <Pop, Rock, Electronic>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Duran Duran - Hungry Like the Wolf  2009 Remaster   3:38 
-02. Talking Heads - Psycho Killer  2005 Remaster   4:19 
-03. Warren Zevon - Werewolves of London  2007 Remaster   3:27 
-04. Ava Max - Sweet but Psycho  3:05     Читать дальше...    Жанр: Pop, Rock, ElectronicПродолжительность: 01:51:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FA684F327E5248E061D9EC3FF0B4A9F21AD81418
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506578.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 506 577
-
-VA - Halloween Pop  2021  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. M.I.A. - Bad Girls  3:47 
-02. Billie Eilish - bad guy  3:13 
-03. Nelly Furtado - Maneater  4:25 
-04. Rockwell - Somebody s Watching Me  Single Version   3:56     Читать дальше...    Жанр: PopПродолжительность: 01:35:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:663C94A04ECBF1192C62FEBB73301617A80E7ACF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506577.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

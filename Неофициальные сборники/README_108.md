@@ -1,4 +1,354 @@
 ﻿
+###  Публикация: 1 200 156
+
+VA - The Best Of Progressive Trance  2018  [MP3|320 Kbps] <Progressive, Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Andre Visior & Daniel Kandi - Freedom  Original Mix 
+002. Alizera - Galaxy
+003. Paul Hawcroft - Your Eyes  Original Mix 
+004. Hoof - Heart and Zeal  Original Mix     Читать дальше...    Жанр: Progressive, TranceПродолжительность: 09:35:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2D5B7AB5902914687E8DE7BFF98A157074BA9460
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200156.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 200 155
+
+VA - Лучшие клубные новинки Vol.9  2018  [MP3|320 Kbps] <House, Electro House, Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. A-Mase, Stash & Spider - Inspiration  Breaks Mix  6:54
+02. Abe Kor & SIIK - Mor  Original Mix  3:52
+03. Adaptiv & Max Fail - Right Here 2:43
+04. Aelyn - Water & Fire  Original Mix  4:06    Читать дальше...    Жанр: House, Electro House, Vocal TranceПродолжительность: 21:24:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:985D7B112E93F98F5F06E0A81BBD973051A17319
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200155.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 200 131
+
+Владимир Высоцкий - Высоцкий & Co. Песни и стихи-посвящения  2CD  к 80-летию поэта  1962-1980<
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+Этот сборник приурочен к 80-летию со дня рождения В.С.Высоцкого  25 января 1938 г.  и содержит его песни  42  и стихи  4 , которые он посвятил свои друзьям, близким людям и известным личностям того времени.CD1
+01-Лежит камень в степи  Артуру Макарову   1962   01:08 
+02-Большой Каретный  Левону Кочаряну   1962   01:15 
+03-В этом доме большом раньше пьянка была  Георгию Епифанцеву   1964   01:04     Читать дальше...    Жанр: Авторская песня, стихиПродолжительность: 02:15:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:802E6E2D119067245E76A79B8230D7459531E56E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200131.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 200 100
+
+VA - De Top 100 Aller Tijden 1977  Radio Veronica   2017  [MP3|320 Kbps] <Pop, Rock, Disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+ De Top 100 Aller Tijden   Топ 100 на Все Времена  от голландской радиостанции  Radio-Veronica  .001. Boney M - Ma Baker  4:07 
+002. Vader Abraham -  T Smurfenlied  3:22 
+003. Supertramp - Give A Little Bit  4:09 
+004. Guys  N Dolls - You re My World  3:12     Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 06:17:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:484DB397125D8033990AAF67E64852C27CDD8098
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200100.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 200 060
+
+VA - Italo Disco Hits Vol.17  2018  [MP3|320 Kbps] <Italo-Disco>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Heaven42  -  Give Me Your Love  6:18
+02.  D.White feat. Soulya ID  -  Wonderful Day  6:02
+03.  Ken Laszlo  -  Fire And Ice  Synth Rock Mix by Mirko Hirsch   5:32
+04.  Tom Hooker  -  Find A Day And A Time  Club Version   6:04    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 06:55:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7821162CF71134E6938E7F9E6A151C7264ECC802
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200060.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 200 022
+
+VA - Vibrancy Of Deep House  2018  [MP3|320 Kbps] <Deep House, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Bes & Meret - Flying High  Extended Mix 
+002. Terry Lee Brown Junior - Outback
+003. Aaliyah - Try Again  Hakan Akkus Remix   Idyl Cover 
+004. Poenitsch & Jakopic - Beautiful  Tom Appl Remix     Читать дальше...    Жанр: Deep House, ElectroПродолжительность: 11:56:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:097B8E0035C956B7F85182201C6746083290AF8A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200022.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 200 011
+
+VA - Tech House For Runing: House Garden Music  2018  [MP3|320 Kbps] <Club, Dance, Tech House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Hammer - Rails
+002. Five T - Graale  Guido Schneider Remix 
+003. Florian Carpentier - Lulumatata  Asem Shama Remix 
+004. Nils Hoffmann - Storms    Читать дальше...    Жанр: Club, Dance, Tech HouseПродолжительность: 11:49:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8893EDB01135ED26F31102727212C20DA2BE4E41
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200011.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 995
+
+VA - Kiss FM: Top 100 2017 - Итоговый  2018  [MP3|320 Kbps] <Pop, House, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001.  CamelPhat & Elderbrook  -  Cola  6:53
+002.  Platon feat. Joolay  -  Last  Radio Edit   3:32
+003.  Netsky & Lost Frequencies  -  Here With You  2:39
+004.  Axwell & Ingrosso  -  More Than You Know  3:23    Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 06:32:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9E74E09D01F73F1CAF9E43BE58D5E0B8248E033A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199995.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 867
+
+VA - German Top 100 Single Charts 19.01.2018 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Eminem - River  feat. Ed Sheeran 
+004. Camila Cabello - Havana  feat. Young Thug     Читать дальше...    Жанр: PopПродолжительность: 05:40:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4F5110B41EA195A75600BB4AFC852542230EBD59
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199867.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 846
+
+VA - Cosmotronica & Space Disco Vol.6  2018  [MP3|320 Kbps] <Synthwave, Ambient, House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Earmake  -  In Your Dreams  3:15
+02.  Liquid Crystal  -  Floating With Treasures  5:04
+03.  York & DreamMan  -  Moonrise On The Beach  Vokoss Ambient Trance Symphony   6:46
+04.  Playme  -  The Silver Tree  Bart Panco Remix   4:58    Читать дальше...    Жанр: Synthwave, Outrun, Retrowave, Chillout, Ambient, HouseПродолжительность: 05:05:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CD166D2BFFA7F74D3C79840001A30349F45367A0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199846.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 843
+
+VA - Дискотека 2018 Dance Club Vol.173 от NNNB  2018  [MP3|320 Kbps] <Club, Deep House, Synth Po
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Part 1  Discoteka :
+01.  Pade  -  The Olive  In The Air Tonight   Original Mix   3:26
+02.  Blasterjaxx & Olly James  -  Phoenix  3:47
+03.  A-Mase & Sharliz  -  Зима в сердце  Deep Radio Mix   3:52    Читать дальше...    Жанр: Club, Deep House, Synth Pop, Dance и другиеПродолжительность: 16:48:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1EEA4ED4E747ABBEECECB39948906A2AC4FDF16A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199843.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 836
+
+VA - Vocal Trance Collection Vol.7  2018  [MP3|320 Kbps] <Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Roman Messer feat. Christina Novelli - Fireflies  Extended Mix 
+02. Andy Moor, Somna & Diana Leah - There Is Light  Extended Mix 
+03. A.M.R Ft. Dianne - Light That Never Died  Original Mix 
+04. Lucid Blue ft. Ruslan Radriges - Breaking Waves  extended mix     Читать дальше...    Жанр: Vocal TranceПродолжительность: 03:47:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C34959D1E306F7BF309D20F88DFF04AD4D67028E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199836.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 833
+
+VA - Long Live Guitar  2018  [MP3|320 Kbps] <Acoustic, Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Boyce Avenue - Game of Thrones  Main Theme 
+02. Chuck Ragan - In The Eddy
+03. Jesse Cook - Broken Moon
+04. Chequerboard - Like A Bell To A Southerly Win    Читать дальше...    Жанр: Acoustic, InstrumentalПродолжительность: 02:56:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5F25CA32820225B05AEA1062B5A5F3380A27AF16
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199833.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 199 819
+
+VA - Golden Cadillac  2018  [MP3|320 Kbps] <Blues, Country>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001.  The Cadillac Three  -  Bury Me In My Boots  3:52
+002.  Albert Castiglia  -  I Been Up All Night  5:27
+003.  The Kenny Wayne Shepherd Band  -  Nothing But The Night  4:54
+004.  Christine Parri  -  All I Have Is A Heartbeat  3:28    Читать дальше...    Жанр: Blues, CountryПродолжительность: 06:38:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CADA46B656891B5C9BB73439ECB1B4D12CE91D9C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199819.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 199 818
 
 VA - Relax Traveling  2017  [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -1644,356 +1994,6 @@ VA - Electric Oxygen Workout Music  2017  [MP3|320 Kbps] <Club, Dance, House>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196003.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 864
-
-VA - Spotify – Top Tracks of 2017 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01 – Ed Sheeran – Shape of You
-02 - Luis Fonsi – Despacito  Remix 
-03 – Luis Fonsi – Despacito  Featuring Daddy Yankee 
-04 – The Chainsmokers – Something Just Like This    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 06:04:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AD703D20ABF17EB721C71F021A220E9B9AECC796
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195864.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 853
-
-VA - Союз Новогодний  2017  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Ленинград vs. Slider & Magnit - Не со мной
-02. Валерия - А4
-03. Сергей Лазарев - Доигрались
-04. ЭЛДЖЕЙ - Hey, Guys    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:47:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:49732EE328DC76C18F5591C3D1A681F0A7F3622B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195853.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 799
-
-VA - super rock KYOi от NNNB  2017  [MP3|320 Kbps] <Rock, Disco, Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Toto  -  Africa  4:55
-02.  Van Halen  -  Jump  4:00
-03.  Van Stephenson  -  Modern Day Delilah  4:13
-04.  Ambrosia  -  How Much I Feel  4:44    Читать дальше...    Жанр: Rock, Disco, PopПродолжительность: 04:54:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F29DB59C0CB504D4B765C0D4B6CE1E2F21513F9A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195799.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 726
-
-VA - De Top 100 Aller Tijden 1988  RadioVeronica   2017  [MP3|320 Kbps] <Electronic, Rock, P
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
- De Top 100 Aller Tijden   Топ 100 на Все Времена  от голландской радиостанции  Radio-Veronica  .001. Bill Medley & Jennifer Warnes -  I ve Had  The Time Of My Life  6:47 
-002. Glenn Medeiros - Nothing s Gonna Chance My Love For You  3:47 
-003. Sam Brown - Stop  4:02 
-004. Womack & Womack - Teardrops  7:39     Читать дальше...    Жанр: Electronic, Rock, PopПродолжительность: 06:57:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:785F2A0AF8E543215F3DEB087B4F6063288D992F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195726.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 725
-
-VA - De Top 100 Aller Tijden 1978  RadioVeronica   2017  [MP3|320 Kbps] <Pop, Rock, Disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
- De Top 100 Aller Tijden   Топ 100 на Все Времена  от голландской радиостанции  Radio-Veronica  .001. John Travolta & Olivia Newton John - You re The One That I Want  2:49 
-002. Mighty Sparrow With Byron Lee & The Dragonaires - Only A Fool  2:46 
-003. Boney M - Rivers Of Babylon  4:22 
-004. Scott Fitzgerald & Yvonne Keeley - If I Had Words  3:51     Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 06:16:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D516CEA9BAF3347D90F41457B075ACEDCC615AC2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195725.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 634
-
-Dee D. Jackson - The Singles Collection  1977-1984  [MP3|320 Kbps] <Electronic, Disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Малоизвестные синглы от известной исполнительницы.01. Fire Ball  Long Version   5:57 
-02. Moonlight Starlight  5:32 
-03. Man Of A Man  4:07 
-04. Talk Me Down  3:25     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B22D72D7F10F99BB789728F759BF72C955766912
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195634.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 613
-
-VA - Kiss FM Top 40: December  2017  [MP3|320 Kbps] <House, Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Probass & Hardi  -  Indy  4:34
-02.  Lost Frequencies & Netsky  -  Here With You  3:41
-03.  Zhu & Nero  -  Dreams  4:28
-04.  Matt Nash & Delayers  -  Run  4:02    Читать дальше...    Жанр: House, Pop, DanceПродолжительность: 02:25:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F0CA9080A9CDCC4AB363F932505FA11D7467693D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195613.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 592
-
-VA - Top 100 - Best Radio Hits 2017  2017  [MP3|320 Kbps] <Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001.Luis Fonsi feat. Daddy Yankee - Despacito
-002.Zayn Malik feat. Sia - Dusk Till Dawn
-003.Katy Perry feat. Skip Marley - Chained To The Rhythm
-004.Arilena Ara - Nentori  Bess Remix     Читать дальше...    Жанр: DanceПродолжительность: 05:39:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4E7D22C219E65E661A592BF53AA9483DADA9E52D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195592.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 588
-
-VA - Подставляйте ладони-я насыплю Вам солнца!  Часть 38   Compiled by Виктор31RUS   2017<
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Лариса Голубкина и Валентин Манохин  -  Королева  2:23
-02.  Николай Тимченко  -  Песня о Москве  3:12
-03.  Евгений Нестеренко  -  Солнце скрылось за горою  2:10
-04.  Леонид Утесов  -  Сердце  3:23    Читать дальше...    Жанр: Советская Эстрада, РетроПродолжительность: 02:39:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FD563FFCB71E180AEB20545A2B255474AEB5835C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195588.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 544
-
-VA - Подставляйте ладони-я насыплю Вам солнца!  Часть 37   Compiled by Виктор31RUS   2017<
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Виталий Доронин  -  Поручение  2:29
-02.  Зоя Рождественская  -  Тропинка  2:04
-03.  Леонид Утесов  -  Песня старого извозчика  3:04
-04.  Олег Анофриев  -  Солнечный круг  3:35    Читать дальше...    Жанр: Советская Эстрада, РетроПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:83C8EBEA161440D1561AE00EEAC5AFA034B773AF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195544.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 471
-
-VA - Подставляйте ладони-я насыплю Вам солнца!  Часть 36   Compiled by Виктор31RUS   2017<
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Леонид Кострица  -  Вернулся на Родину  3:22
-02.  Владимир Бунчиков и Владимир Нечаев  -  Ты да я  2:48
-03.  Клавдия Шульженко  -  Всё проходит  2:52
-04.  Людмила Гурченко  -  Песенка о хорошем настроении  2:39    Читать дальше...    Жанр: Советская Эстрада, РетроПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7A91C1ACA9EEF9036F9E811F7CC01055775B1D81
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195471.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 427
-
-VA - Подставляйте ладони-я насыплю Вам солнца!  Часть 35   Compiled by Виктор31RUS   2017<
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Иосиф Кобзон и Виктор Кохно  -  Под волною  3:27
-02.  Леонид Утесов  -  Пароход  2:53
-03.  Евгений Кибкало  -  Комсомольцы-добровольцы  2:34
-04.  Валентина Левко  -  А годы летят  3:15    Читать дальше...    Жанр: Советская Эстрада, РетроПродолжительность: 02:01:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A79ABD03BCF5F8C70D5647065549A741745CEE86
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195427.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 391
-
-VA - De Top 100 Aller Tijden 1974  Radio Veronica   2017  [MP3|320 Kbps] <Pop, Rock>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
- De Top 100 Aller Tijden   Топ 100 на Все Времена  от голландской радиостанции  Radio-Veronica  .001. George Mccrae - Rock Your Baby  3:18 
-002. Rubettes - Sugar Baby Love  3:26 
-003. Cats - Be My Day  2:59 
-004. Mud - Dyna-Mite  2:58     Читать дальше...    Жанр: Pop, RockПродолжительность: 05:46:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:881A0617FD51D796D4265E63DA6379526830E4EB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195391.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 195 362
-
-VA - German Top 100 Single Charts 29.12.2017 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Eminem - River  feat. Ed Sheeran 
-004. Camila Cabello - Havana  feat. Young Thug     Читать дальше...    Жанр: PopПродолжительность: 06:01:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C85ED72959ED28B98AC7CCFE6DC815B5BDFD22B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1195362.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

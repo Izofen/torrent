@@ -1,4 +1,354 @@
 ﻿
+###  Публикация: 1 608 014
+
+VA - Музыка для машины Vol.3  2023  [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Angel  - Не Пиши Мне  03:08 
+02. T1one  - Увела  03:13 
+03. Anouk Feat. & Emma Heesters - Met Jou Kan Ik Het Aan  04:03 
+04. Dimitri Vegas & Like Mike Feat. & Ne-Yo - Higher Place  Ayur Tsyrenov Dfm Remix   03:25     Читать дальше...    Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:52:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:812E4EBCC0D58AB6301E2AFF3A0FC6BE8BEF927B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608014.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 979
+
+VA - 100 Love Songs Classic Hits  2023  [MP3|320 Kbps] <Soft Rock, Soul, Acoustic>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Rod Stewart – Have I Told You Lately 4:02
+02. Coldplay – Everglow 3:48
+03. The Goo Goo Dolls – Iris 4:50
+04. Ed Sheeran – Perfect 4:23    Читать дальше...    Жанр: Soft Rock, Soul, AcousticПродолжительность: 06:20:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D7C9D20859373119A25DDA3F776524E93FA472CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607979.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 975
+
+Laura Cox - Compilation  2023  [MP3|320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Fire Fire
+02. So Long
+03. The Australian Way
+04. One Big Mess    Читать дальше...    Жанр: RockПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B1736954F147A5112310443E849B26B147EFCD3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607975.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 787
+
+VA - Now That s What I Call A Love Song  4CD   2023  [MP3|320 Kbps] <Rock, Pop>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+CD 1
+
+01. George Michael – I Can’t Make You Love Me 5:21
+02. Ed Sheeran – Thinking Out Loud 4:42    Читать дальше...    Жанр: RockПродолжительность: 05:12:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F414D40D62672BCCF68C7BA2ADD03D9A5403D294
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607787.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 674
+
+VA - Dream Dance Vol 94 - The Annual  2023  [MP3|320 Kbps] <Trance, Progressive>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Dream Dance Alliance - Make It Better  Edit   3:04 
+02. Armin van Buuren & Gareth Emery feat. Owl City - Forever & Always  Extended Mix   6:52 
+03. Cosmic Gate & Nathan Nicholson - Follow You Anywhere  Extended Mix   7:51 
+04. Jam & Spoon x FREY x Amfree feat. Plavka - Right In The Night  Extended Mix   3:31     Читать дальше...    Жанр: Trance, ProgressiveПродолжительность: 04:47:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D6A244D76827CD12009D58836F4C608EA2F450D8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607674.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 567
+
+VA - Workout Music 2023 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. twocolors - Heavy Metal Love  2:28 
+02. Glockenbach - Dirty Dancing  2:40 
+03. Felix Jaehn - Call It Love  2:34 
+04. MEDUZA - Bad Memories  2:28     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:34:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4C90B74C02797877615E12634C08ADDA481433F4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607567.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 394
+
+VA - Music News vol.240  2023  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. HAKEN - Taurus  Bonus Exclusive   04:49 
+ 002. 3-ий Январь - Позволь Мне  02:52 
+ 003. 4K feat. Татем & Яд Добра - Чёрные Куртки  03:40 
+ 004. 84 feat. Kecha & Bard - Моя Половина  02:45     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 07:37:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:46D417DB3665F6AF2A74EA22A05400DD42DBF00A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607394.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 376
+
+VA - We Got The Soul  2023  [MP3|320 Kbps] <Reggae, Dub, Riddim>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+001. Artikal Sound System - Too Soon [02:20]
+002. Roots Raid - Weeping & Wailing [03:33]
+003. Anthony B - Weed Baby [02:42]
+004. Trixstar - Beautiful DayЖанр: Reggae, Dub, RiddimПродолжительность: 11:33:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:02BA386AE04FE0E37714A2D5FE6FC1D321A383B1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607376.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 133
+
+VA - Music For You vol. 28  2023  [MP3|320 Kbps] <Rock, Metal, Other>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Rush - Xanadu  11:06 
+ 02. Ashra - Midnight On Mars  06:56 
+ 03. Renaissance - Opening Out  04:16 
+ 04. Galahad - Empires Never Last  09:06     Читать дальше...    Жанр: Rock, Metal, OtherПродолжительность: 03:42:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A34FEDC02318465F65C9CE4A145694E641E373FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607133.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 038
+
+VA - Beatport Tech House Top 100 January  2023  [MP3|320 Kbps] <Tech House, Techno, Soulful, Dee
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Abbud, Freenzy Music - Taka  Original Mix  130
+002. Acraze - Do It To It  Extended Mix  125
+003. Andruss, Fatboi - Agachalo  Original Mix  130
+004. Anthony Attalla, Max Styler, Brux - Talk To Me  With Brux   Extended Mix  126    Читать дальше...    Жанр: Tech House, Techno, Soulful, Deep HouseПродолжительность: 09:18:42 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:290DDB4C1BE7AA371B3A3E8B64075283B98451D8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607038.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 034
+
+VA - Beatport Progressive House Top 100 January  2023  [MP3|320 Kbps] <Deep Progressive, Electro
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Yotto, Something Good - Rhythm  Of The Night   Extended Mix 
+002. Grum, Tigerblind - Shout  Extended Mix 
+003. Sandeep Pai - Mirrors  Jerome Isma-Ae Remix 
+004. BT - Mercury & Solace  Helsloot Extended Remix     Читать дальше...    Жанр: Deep Progressive, Electronica, Melodic House & TechnoПродолжительность: 12:16:58 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2D6CEEDDE363E48CE78CA653F6000947A2074CF7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607034.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 028
+
+VA - Chilled Hits Easy Vibes  2023  [MP3|320 Kbps] <Pop, Soul, Ballad, Soft Rock>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. Bruno Mars - Leave the Door Open
+02. Wiz Khalifa - See You Again  feat. Charlie Puth 
+03. Omar Apollo - Evergreen  You Didn’t Deserve Me at All 
+04. Benson Boone - In the Stars    Читать дальше...    Жанр: Pop, Soul, Ballad, Soft RockПродолжительность: 02:46:09 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7668CBBC2EF5366A3BEC46D7C53C7E0D63049739
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607028.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 025
+
+VA - Hits Nu Disco Views 003  2023  [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep Groove, Soulful>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. MR Werback - I m So Sorry  Instrumental Mix 
+02. Harry Borg - I ll Be Waiting  Original Mix 
+03. Idos - Dance Like You re Alone  Rina & Tom Antopolsky Remix 
+04. NAASA, Margaryan, Shan Tazh - Alone In The Desert  Original Mix     Читать дальше...    Жанр: Indie Dance, Nu Disco, Deep Groove, SoulfulПродолжительность: 02:11:11 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:943396468988B91CD8A22AE6B0A2239345F9CE72
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607025.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 607 000
+
+VA - Simply Dance Vol. 07  2023  [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Hostel Kidz - Standing In Line
+02. David Garner - Silent Night
+03. yaml - Dance The Night Away
+04. DJ Spacig - Hearts On Fire    Читать дальше...    Жанр: Europop, Dance, Club, ProgressiveПродолжительность: 01:46:13 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1874A78BA8DC4860A09DD147DCCB63CF2FD407FC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1607000.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 606 998
 
 VA - Simply Dance Vol. 06  2022  [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
@@ -1641,356 +1991,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598110.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 077
-
-Bliss  Denmark  - Compilation  2022  [MP3|320 Kbps] <Downtempo, Ambient>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. People Among Us
-02. Breathe
-03. Calling  Feat Sophie Barker 
-04. Desert Sun    Читать дальше...    Жанр: Downtempo, AmbientПродолжительность: 03:12:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6F9D77E3C5F7F5BB0942DE9D2A51DAFD12E16C9D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598077.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 903
-
-VA - Кайфуем Зиму  2022  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Artem Smile - Танцуй принцесса  1:29 
-002. ARCHI - Всё для своих  1:34 
-003. ROBBI - ТАМ GUN  1:36 
-004. IKON - Ты не та  1:40     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 07:02:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:07B2E55A1ECDD56A0241F6104F51DA23909E219A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597903.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 879
-
-VA - 100 Club Hits - Edition 2023  2022  [MP3|320 Kbps] <Electro Pop, Dance, Future House, Groov
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Klaas - Ocean Eyes
-002. Hight - I m with You
-003. Dino Mileta - Up
-004. The Disco Boys - Promised Land    Читать дальше...    Жанр: Electro Pop, Dance, Future House, GrooveПродолжительность: 04:38:14 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:433578816DF4576DB9CA3C7D0C403C7235BD723D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597879.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 856
-
-VA - Свежий Русский Хит от ALEXnROCK часть 12  2022  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-С Наступающим Новым Годом всех! Уходящий год выдался сложным, но трудности укрепляют и делают сильнее. Пускай пламя надежды, вера в правду и успех не гаснут в ваших сердцах, а горят ещё ярче, освещая путь к истине, всем тем кто заблудился во тьме! В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 12я часть. Приятного     Читать дальше...    01. Ислам Итляшев - Ресторан
-02. Jony - Давай На Ты  Nervouss Remix Radio Edit 
-03. Subbota - Бом Бом Бом
-04. Ани Лорак - Лабиринт    Читать дальше...    Жанр: PopПродолжительность: 03:47:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:17DF9FBFE0004588D66E8DFCDC4BE299F70EF682
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597856.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 852
-
-VA - Top Dance Hits  2022  [MP3|320 Kbps] <Synthpop, Disco, Electro Pop, Indie Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. David Guetta, Bebe Rexha - I m Good  Blue 
-02. KSI, Tom Grennan - Not Over Yet  feat. Tom Grennan 
-03. LF SYSTEM - Afraid to Feel
-04. Oliver Tree, Robin Schulz - Miss You    Читать дальше...    Жанр: Synthpop, Disco, Electro Pop, Indie DanceПродолжительность: 01:30:49 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E103E8BC8610F433BCBB160BA6381CBE601F7384
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597852.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 844
-
-VA - Funky Just Away Dance  2022  [MP3|320 Kbps] <Chicago House, Soulful, Indie Dance, Nu Disco>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. GhostMasters - Funky Feeling  Extended Mix 
-02. Audio K9 & Kurtis Mantronik - 77 Strings 2021  Gotta Have Your Love   Vocal Club Mix 
-03. Natema & Saccao - Run Away  Gusttavo C, Arn Bootleg 
-04. Terry Waites & Eyan - Just Dance  Original Mix     Читать дальше...    Жанр: Chicago House, Soulful, Indie Dance, Nu DiscoПродолжительность: 03:04:04 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7C19534A6609DA8D1D5B91B741C012CF1A1EBDD2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597844.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 646
-
-Alannah Myles - Compilation  2022  [MP3|320 Kbps] <Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Black Velvet
-02. You Love Who You Love
-03. Comment Ca Va
-04. Love Is    Читать дальше...    Жанр: RockПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ED1CBA64E38E07759F39D218D8505270DF973E20
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597646.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 372
-
-VA - Music News vol.231  2022  [MP3|320 Kbps] <Pop, Dance, Soul>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. SZA - Love Language  03:04 
- 002. 4K - Эй Молодой  03:08 
- 003. 3333 feat. Леонид Агутин - Последний Трек  03:10 
- 004. Adam Lambert - Ordinary World  03:20     Читать дальше...    Жанр: Pop, Dance, SoulПродолжительность: 05:17:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E5395C060C75A4B175088001C010798A5DC183B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597372.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 596 970
-
-VA - Deep Night Deep House 4  2022  [MP3|320 Kbps] <Deep House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Vintage Culture - All Night Long  Digital Exclusive   6:52 
-02. A-Mase & Sharliz - My Love  A-Mase Ocean Mix   6:45 
-03. Spectral Knight feat. Roxi Drive - Focus Every Scene  Deepscale Remix   6:32 
-04. Luis Valencia feat. Jadeyes - Don t Go  Original Mix   6:24     Читать дальше...    Жанр: Deep HouseПродолжительность: 05:42:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6CE2E952C2A898EABCABD3500F6FB615F285D4E0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596970.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 596 736
-
-VA - The True Romance  2022  [MP3|320 Kbps] <Pop, Lyric, Romantic>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Giovanni Toscano - Amore Mio
-02. I Le Lucertole - Supercoppa
-03. Philipp Dittberner - Marie
-04. Pom Poko - Cheater    Читать дальше...    Жанр: Pop, Lyric, RomanticПродолжительность: 03:44:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF3E1A09F563B8D9BA5B16945E7658C08381BE70
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596736.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 596 692
-
-Delta Goodrem - Compilation  2022  [MP3|320 Kbps] <Pop, Vocal>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. In This Life
-02. Innocent Eyes
-03. Touch
-04. Wings    Читать дальше...    Жанр: Pop, VocalПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BE04E498FCCD5D7CA3BFEF12F7F737CDCBFF2476
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596692.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 596 591
-
-VA - В машине с музыкой Vol.324  2022  MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Soldout - Задушу  03:49  2022
-02. Татьяна Буланова Feat. & Алексей Beezon - Жми На Delete  03:22  2022
-03. Dj. Dark & Mentol Feat. & Georgia Alexandra - Riders On The Storm  Radio Edit   03:00  2022
-04. Elena Ilang - Мама  03:38  2022    Читать дальше...    Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:46:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C3478DBE89FDB706551BA25709810506FD35BF08
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596591.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 596 576
-
-VA - Новогодние песни Vol.2  2022  MP3 [320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Просто Лера - Песня Про Новий год
-002. Вера Снежная - С Новым Годом
-003. Тимур Родригез - Останься
-004. Июль В Токио - Бенгальские    Читать дальше...    Жанр: Pop, DanceПродолжительность: 14:55:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D0B17A8FCDFF597A6E7AA02371ECF5AE6151A570
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596576.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 596 507
-
-Guns N’ Roses - Collection  2022  [MP3|320 Kbps] <Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-С творчеством Guns N Roses я познакомился в 96 году. Услышал альбом 93 года The Spaghetti Incident и с первых нот он сразу залетел в душу. До этого слышал только песню Don’t Cry. Энергетика у музыкантов бешеная. К сожалению, Spaghetti Incident стал последним крутым детищем группы. Записаны и сведены альбомы в среднем качестве. Послушал ремастеры и звучание не понравилось.     Читать дальше...    01. Welcome To The Jungle
-02. It s So Easy
-03. Nightrain
-04. Out Ta Get Me    Читать дальше...    Жанр: RockПродолжительность: 04:35:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BCE225A931AEE27BB59C8CBD72A37D81F51C684F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596507.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

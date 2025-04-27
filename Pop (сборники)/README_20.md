@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 600 154
+
+Manizha - Колыбель для повзрослевшего  2022  [MP3|320 Kbps] <Alternative Pop, Ethno Pop, Electro
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Здравствуй  Intro  [00:00:40]
+02 - гость [00:02:22]
+03 - Мы снова окажемся  Interlude  [00:01:10]
+04 - под небом голубым _ poyoni osmoni [00:03:13]    Читать дальше...    Жанр: Alternative Pop, Ethno Pop, ElectronicПродолжительность: 00:14:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3279E632DEEFA5DD85ED8464323C3057A8759590
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600154.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 600 101
+
+Pentatonix - Holidays Around the World  2022  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Pentatonix  PTX  - американская a cappella группа из Arlington, Texas, которая сформировалась в 2011 году. Их канал на YouTube в настоящее время имеет 19,8 миллиона подписчиков и 5,7 миллиарда просмотров. Pentatonix выиграли три премии Grammy в 2015, 2016 и в 2017 годах. 21 сентября 2022 года члены группы анонсировали свой шестой рождественский альбом Holidays Around     Читать дальше...    01. feat. Meghan Trainor - Kid on Christmas  3:22 
+02. It’s the Most Wonderful Time of the Year  2:50 
+03. feat. Grace Lokwa - Love Came on Christmas  Joy to the World × Kumama Papa   4:08 
+04. Star on Top  3:22     Читать дальше...    Жанр: PopПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9FDF76E1EE55F2EB62B8A6B422BB510A76199C28
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600101.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 997
+
+Gene Ferrari And The Disco Roma Band - Disco Italiano  1978  LP [MP3|320 Kbps] <Funk-Soul, Disco
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Al Di La  2:57 
+02. Volare  3:20 
+03. Mala Femmina  2:31 
+04. Mama  2:03     Читать дальше...    Жанр: Funk-Soul, DiscoПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:305C7B4EAA3A5B0EA02452C8B703E2737B66ECDC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599997.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 917
+
+VA - Winter Chill 2023  2022  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Dean Lewis - How Do I Say Goodbye  2:43 
+02. Olivia Rodrigo - drivers license  4:02 
+03. Taylor Swift - Anti-Hero  3:20 
+04. Elton John - Cold Heart  PNAU Remix   3:22     Читать дальше...    Жанр: PopПродолжительность: 04:33:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E28D6BCAD3F4FA413BFEE63E5BCC74BA46355771
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599917.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 853
+
+VA - NOW That s What I Call Christmas  4CD   2022  MP3 [320 Kbps] <Pop, Rock, R&B>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Frankie Goes To Hollywood - The Power Of Love  05:33 
+02. Idina Menzel - Let It Go  03:44 
+03. Robbie Williams - Angels  04:25 
+04. Spice Girls - 2 Become 1  04:01     Читать дальше...    Жанр: Pop, Rock, R&BПродолжительность: 05:01:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C54BC4EEEDB98633AE596E06828FC3C537A10190
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599853.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 797
+
+Sarah Brightman - Diva : The Singles Collection  2006  [OGG Vorbis|480 Kbps] <Modern Classical,
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. The Phantom Of The Opera
+02. The Music Of The Night
+03. Pie Jesu
+04. Who Wants To Live Forever    Читать дальше...    Жанр: Modern Classical, Downtempo, Synth-popПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:610DD8F0AD9CF679238A60FC5D43A054E1CE18EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599797.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 713
+
+Gwen Stefani - You Make It Feel Like Christmas  2017  Japanese Edition [FLAC|Lossless|image + .c
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Jingle Bells
+02. Let It Snow
+03. My Gift Is You
+04. Silent Night    Читать дальше...    Жанр: PopПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7E520513669F6920A062BD2143E7A4EF1B740241
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599713.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 573
+
+VA - Nu-Disco & Re-Edits Vol.1  2022  [MP3|320 Kbps] <Deep Disco, Funky, Soulful, Nu Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Chewy Rubs - Strange Love
+02. Chewy Rubs - The Game
+03. Chuggin Edits - I Get Satisfied
+04. Chewy Rubs - Garage Disco  Chewy Rubs Dub     Читать дальше...    Жанр: Deep Disco, Funky, Soulful, Nu DiscoПродолжительность: 03:58:09 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2CAB046A74402C296E576E3414426FCB1C1341A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599573.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 562
+
+VA - Broken Beat & Nu Disco The Best Of  2022  CD, Compilation [MP3|320 Kbps] <Soulful, Nu Disco
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Vito Lalinga  Vi Mode inc project  - Angola  Zane Wayne Massey Saxophone 
+02. Vito Lalinga  Vi Mode inc project  - Legend
+03. Vito Lalinga  Vi Mode inc project  - Driving
+04. Vito Lalinga  Vi Mode inc project  - Party Groove    Читать дальше...    Жанр: Soulful, Nu Disco, Indie Dance, FunkПродолжительность: 01:53:47 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0D8DD1412BD6003FA612254572B57A54CC3FD5C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599562.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 310
+
+ВИА   Здравствуй, песня   - 4 Albums  1979-1982  LP [MP3|320 Kbps] <Rock, Funk-Soul, Pop
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+«Здравствуй, песня» - советский вокально-инструментальный ансамбль  ВИА . Формирование коллектива началось в городе Макеевка Донецкой области, когда музыканты Донецкого музыкального училища во главе с Аркадием Хаславским получили предложение создать ВИА при крупном заводе города Донецка. Предложение было принято. Ансамбль назывался «Калейдоскоп» и все музыканты получали     Читать дальше...    Список альбомов:
+1979 - Здравствуй, песня
+1979 - Мы любим диско
+1981 - Вокруг любви    Читать дальше...    Жанр: Rock, Funk-Soul, Pop, DiscoПродолжительность: 02:23:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E34A89E0CF2006678450C91F2B9F5EF65D3F9FDB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599310.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 264
+
+VA - THE BEST OF EFFECTIVE RECORDS 2022  2022  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+1. Imanbek BYOR - Belly Dancer
+2. Антон Токарев - Седьмой лепесток
+3. GaoDagamo Nesvyat Miyagi - На уверенном
+4. RASA - ПОГУДИМ    Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:182F22F51E3684D57A4BBB3B104EF52DA0A77D2F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599264.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 598 811
 
 Abba - Voyage  2021  [OGG Vorbis|600 Kbps] <Pop, Vocal>
@@ -1711,273 +1986,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591069.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 022
-
-Лицей - Паровозик-облачко  1997  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Лицей - Паровозик-облачко  03:49 
-02. Лицей - Было и прошло  03:25 
-03. Лицей - Расставание  04:26 
-04. Лицей - Девушка-зима  03:35     Читать дальше...    Жанр: PopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8062FBC38AF45E0873BADB0122F4F2AE76469084
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591022.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 946
-
-Bee Gees - Number Ones  2004  [OGG Vorbis|480 Kbps] <Rock, Funk   Soul, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Massachusetts
-02. World
-03. Words
-04. I ve Got A Message To You    Читать дальше...    Жанр: Rock, Funk   Soul, PopПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C29287C17711B4486467EA2455B5C49B81E57A23
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590946.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 920
-
-C.C. Catch - Super Disco Hits  1989  [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Heartbreak Hotel    Room 69   Mix 
-02. One Night s Not Enough  Maxi Version 
-03. Back Seat Of Your Cadillac
-04. I Can Lose My Heart Tonight  Extended Club Remix     Читать дальше...    Жанр: Electronic, Disco, Synth-popПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E73DD72817280B622B30C1BA7B23C95D6092575
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590920.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 798
-
-C.C. Catch - Super 20  1989  [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Summer Kiss
-02. Soul Survivor
-03.  Cause You Are Young
-04. Heaven & Hell    Читать дальше...    Жанр: Electronic, Disco, Synth-popПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:836D8E9ED0655743524A44DBA5CDF10FFC24DCF6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590798.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 660
-
-Savage - Greatest Hits and More  1990  1995 Reissue, Compilation, Unofficial [FLAC|Lossless|trac
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Savage - Ten Years AgoЖанр: Italo-DiscoПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3508247AE02810946B9C7A8187BF4826A3B4A21C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590660.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 619
-
-C.C. Catch - Hear What I Say  1989  [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Midnight Hour
-02. Big Time
-03. Love Away
-04. Give Me What I Want    Читать дальше...    Жанр: Electronic, Disco, Synth-popПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D6031F628872E0D581F2520A0CD2473D3D7F6F51
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590619.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 478
-
-C.C. Catch - Classics  1989  [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Back Seat Of You Cadillac
-02. Are You Man Enougth
-03. Good Guys Only Win In Movies
-04. Midnight Gambler    Читать дальше...    Жанр: Electronic, Pop, DiscoПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:906FBA469B23D3F734BE99CFA58A3DE29E1E0717
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590478.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 460
-
-Living in a Box - Blow the House Down  1989  Single [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Living in a Box - Blow the House DownЖанр: PopПродолжительность: 00:20:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:871CFF66D334BCE754E4004E0AF01CD9BE093BE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590460.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 421
-
-C.C. Catch - Strangers By Night  1988  [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Strangers By Night
-02. One Night s Not Enough
-03.  Cause You Are Young
-04. Don t Wait Too Long    Читать дальше...    Жанр: Electronic, Disco, Synth-popПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E6D6268FE783F11FC5EBB136CB5219F5849CEB3B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590421.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 408
-
-Roxette - The Very Best of Roxette  1994  Compilation, Unofficial [FLAC|Lossless|tracks + .cue]
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Roxette - Joyride  04:24 
-02. Roxette - The LookЖанр: Pop RockПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6B867DBEBCEF8620989D7988F740E8B398570933
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590408.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 403
-
-C.C. Catch - Diamonds - Her Greatest Hits (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. House Of Mystic Lights (Long Version - Dance Mix)
-02. Are You Man Enough
-03. 'Cause You Are Young
-04. Don't Shoot My Sheriff Tonight(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DBF3C9796B3043EDF51E0FE78FA2A9561E35A77C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590403.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 708 769
+
+Слот - Мэшап  2024  [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Танцуй, Вселенная  feat. 7000$ 
+2. Марсово поле  feat. Нейромонах Феофан 
+3. Северный Слот  feat. Северный Флот 
+4. Жесть и чернуха  feat. ТАйМСКВЕР & Гарри Топор     Читать дальше...    Жанр: AlternativeПродолжительность: 00:28:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8282997BC790D5AEB6C59A8AF667EB9F59806780
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708769.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 708 680
+
+Слот - Мэшап (2024) [MP3|320 Kbps] <Alternative>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Танцуй, Вселенная (feat. 7000$)
+2. Марсово поле (feat. Нейромонах Феофан)
+3. Северный Слот (feat. Северный Флот)
+4. Жесть и чернуха (feat. ТАйМСКВЕР & Гарри Топор)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:28:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A84DDB3C636375C39C9CAAEF4AC5BFA2233A77BF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708680.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 708 623
+
+The Aquarius - Страшные сказки (2017) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Туда и обратно 02:19
+02. У дракона на спине 03:14
+03. Записки маньяка 05:15
+04. На северо-юг 05:09(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B912602F97155E486B41FA6C97A828D7368426E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708623.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 708 615
+
+Trust X - Перевёрнутые Сны  2017  [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Очнись ото сна 04:45
+02. Верни свою жизнь 04:37
+03. Перевёрнутые сны 07:01
+04. Мы ещё вернёмся 06:19    Читать дальше...    Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6778DDEBCE4BE5049F2F590101F9CD368FE96A19
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708615.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 708 608
+
+Схоластика - На Абордаж (2013) Reissue, 2018, Narcoleptica Prod; More Hate Productions; United By Ch
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. На абордаж 03:26
+02. Самоволка 05:23
+03. Рокенрол, В.М. 04:20
+04. Я не устал 04:38(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:07FE918F54092368419075F0BAE1FC992E427C29
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708608.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 708 578
 
 Dark Voice of Angelique - Endgame (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial Punk, Dar
@@ -1860,131 +1985,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1695155.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 694 925
-
-Ночные Снайперы - сет-лист юбилейного тура 2022-2023  2024  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. интро
-2. цой
-3. самый красивый гопник
-4. неторопливая любовь    Читать дальше...    Жанр: RockПродолжительность: 01:27:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D2A0AE24621FB5131998F7D05F395ED2B45C4278
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694925.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 694 922
-
-Лётная школа - Цели и средства  2024  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1.  не вместе
-2. Бывает тепло
-3. Ты
-4. Про секс    Читать дальше...    Жанр: RockПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:747A4A67F1BC4244C9FEC0C307F0D5F8DBA29AC9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694922.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 694 864
-
-Машина Времени - Легенды русского рока  1998  4 x CD [FLAC|Lossless|image + .cue] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1998 - Легенды русского рока, CD1:
-01. Кого ты хотел удивить!
-02. Сколько лет, сколько зим
-03. Скажи мой друг    Читать дальше...    Жанр: RockПродолжительность: 04:55:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:333513B59735B35ABE9D58489193E077D977F77C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694864.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 694 857
-
-Би-2 - All the Best, Vol. 1  2024  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Революция
-2. Дурочка
-3. Сердце
-4. Последний герой    Читать дальше...    Жанр: RockПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3924519C1A8A00390B7E89CCDA6B7D1A200397D4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694857.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 694 484
-
-Аквариум - Радио Африка  1983  2023, 2CD, 40 Anniversary Deluxe Edition [FLAC|Lossless|image + .
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-CD1:
-01. Музыка Серебряных Спиц
-02. Капитан Африка
-03. Песни Вычерпывающих Людей    Читать дальше...    Жанр: Rock |Продолжительность: 01:41:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:565E9DF81579FE0F5A162DC0C0F2DEDA2C705DAB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694484.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

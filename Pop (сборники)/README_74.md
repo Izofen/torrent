@@ -1,4 +1,281 @@
 ﻿
+###  Публикация: 1 212 629
+
+Judit Neddermann - Nua  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Em diras adeu
+02. Vai Vai Vai
+03. Els ocells
+04. 21    Читать дальше...    Жанр: PopПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A2C982859EA24B606F93BA3C67448769A48FC8B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212629.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 212 614
+
+VA - Indie Dance and Nu Disco Tales  2018  [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Indie Dance>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+1. Feindrehstar – Dirty Stomping 04:29
+2. Jewmanji – Clearing Crews 06:35
+3. Marian – For You 04:08
+4. Omar Gharbi – Lost In Aegean  Stan Kolev remix  06:51    Читать дальше...    Жанр: Nu Disco, Indie DanceПродолжительность: 02:35:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D9DE1A41C25E160719AD89F7271670E36C1CD4E2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212614.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 212 425
+
+Saskia & Serge - 2 Albums, 1 Compilations  1984-1992  [MP3|320 Kbps] <Pop, Folk, World>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Голландский вокальный дуэт, состоящий из певицы Trudy van den Berg  родилась 23 апреля 1947 года, Grootebroek  и вокалиста-гитариста Ruud Schaap  родился 22 марта 1946 года в Den Helder . Известность получили ещё приняв участие в конкурсе песни Евровидение 1971. Выпустили вереницу хитов на английском и на голландском.01. The Country Disco Train  8:33 
+02. Mama He s A Soldier Now  4:09 
+03. Toulouse Lautrec  3:38 
+04. There s A Song  3:23     Читать дальше...    Жанр: Pop, Folk, WorldПродолжительность: 02:14:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DADDA12F8F54F365A9330721D05BE2CF0E0E53AF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212425.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 212 152
+
+Гоша Куценко - Ду это!  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Капли  feat. Ёлка 
+02. Солнце  feat. Анжелика Варум 
+03. Люди летят  feat. Полина Гагарина 
+04. ONE TWO  feat. IOWA     Читать дальше...    Жанр: PopПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6FBAF7ECC60019E4C863747E46A7355FCFF4A9B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212152.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 212 026
+
+Nadia Cassini - 3 Studio Albums  1978-1985  LP Discography [MP3|320 Kbps] <Electronic, Disco, It
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Надя Кассини  итал. Nadia Cassini род. 2 января, 1949, Вудсток, США  - итало-американская актриса, певица и модель. Известна благодаря ролям в итальянских эротических комедиях 1970-1980 годов. Очень рано ушла из родительского дома. Работала певицей в ночном клубе, хористкой, была моделью. Близкие отношения связывали Надю Кассини с известным писателем Жоржем Сименоном.     Читать дальше...    Список альбомов:
+1978 - Encounters Of A Loving Kind
+1983 - Get Ready
+1985 - Dreams    Читать дальше...    Жанр: Electronic, Disco, Italo-Disco, Hi NRGПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:56A8315782A386797E585789CE37DFA13737061A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212026.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 211 957
+
+Girls Aloud - Tangled Up  2007  Fascination, Polydor [MP3|320 Kbps] <Pop, Drum n Bass, Synth-Pop
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин     Читать дальше...    01. Call The Shots 3:45
+02. Close To Love 3:53
+03. Sexy! No No No... 3:18
+04. Girl Overboard 4:11    Читать дальше...    Жанр: Pop, Drum n Bass, Synth-Pop, Euro HouseПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FF7BE478C19B63FD55928DA76BA90A688F07CC2D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211957.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 211 953
+
+Girls Aloud - Chemistry  2005  Polydor, Christmas Edition [MP3|320 Kbps] <Pop, Electro, Synth-Po
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин     Читать дальше...    01. I Wish It Could Be Christmas Everyday 4:01
+02. I Wanna Kiss You So  Christmas In A Nutshell  3:36
+03. Jingle Bell Rock 1:57
+04. Not Tonight Santa 2:42    Читать дальше...    Жанр: Pop, Electro, Synth-Pop, Ballad, DiscoПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7DA99A6BE88F74768609CB6130BEF72FE34C604
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211953.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 211 934
+
+Girls Aloud - What Will The Neighbours Say?  2004  Polydor [MP3|320 Kbps] <Pop, Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+«Girls Aloud» - очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars».
+
+Самая младшая из девчонок, Надин     Читать дальше...    01. The Show 3:38
+02. Love Machine 3:27
+03. I ll Stand By You 3:45
+04. Jump 3:41    Читать дальше...    Жанр: Pop, Synth-popПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:92A11E1419EA5F160F56703C993629A2200F565D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211934.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 211 892
+
+VA - Time For A Kiss  2CD   2016  [FLAC|Lossless|image + .cue] <Pop, Oldies>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Dean Martin - Kiss  2:25 
+02. Tony Bennett - Kiss You  2:57 
+03. Billie Holiday - Prelude To A Kiss  5:38  
+04. Vic Damone - We Kiss In A Shadow  4:01     Читать дальше...    Жанр: Pop, OldiesПродолжительность: 01:26:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B5FF659C03A2B188AB3063693781D240932D0ABF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211892.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 211 692
+
+VA - Mastermix Pro Disc 213 - March  2018  [MP3|320 Kbps] <Indie, Folk, Neo Soul, Dancehall, Ele
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Iggy Azalea Ft, Quavo - Savior
+02. James Bay - Wild Love
+03. Blocboy JB Ft, Drake - Look Alive
+04. The Chainsmokers - Sick Boy    Читать дальше...    Жанр: Indie, Folk, Neo Soul, Dancehall, ElectropopПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:445F2C233DBA778A2AF95C1331314E9D8FEC290A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211692.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 211 682
+
+Donna McGhee - Make It Last Forever  1978  Reissue CD, Big Break Records, 2012 [MP3|320 Kbps] <E
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Make It Last Forever  8:26 
+02. Do As I Do  10:21 
+03. It Ain t No Big Thing  6:45 
+04. Mr. Blindman  5:14     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7792C31CDF2C54C3DAF99104A8CEA3C8F47F4EA1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1211682.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 211 636
 
 Андрей Губин - Всегда с тобой  2002  [FLAC|Lossless|image + .cue]<Pop>
@@ -1716,281 +1993,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207545.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 207 543
-
-Алсу - Алсу  1999  Переиздание, 2001, J.R.S. [FLAC|Lossless|image + .cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Осень
-02. Когда любовь ко мне придет
-03. Босиком
-04. Зимний сон    Читать дальше...    Жанр: PopПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE66267001B4A2A6C60F92D501B4C64AB6CC6952
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207543.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 207 529
-
-Natasha Barnes - Real  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. You Don t Mean It
-02. Sun, Moon and Stars
-03. Supermodel
-04. Dollar Signs    Читать дальше...    Жанр: PopПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8377009D7CD68B87BD84259D5641A01DBC2F30A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207529.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 207 476
-
-DJ Piligrim - 3 Albums  2011-2014  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. One Way
-02. Yulduz  feat. Lola 
-03. Ты Да Я...
-04. Я Дышу Сердцем    Читать дальше...    Жанр: Dance, PopПродолжительность: 02:27:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7024447AE7F2EDF8E9BDF22345C4BEAFF3EDBEA7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207476.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 207 400
-
-Giorgia - Oronero Live  2018  Deluxe Edition [FLAC|Lossless|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Come neve  3:31 
-02. Chiamami tu  2:25 
-03. Credo  Live   3:42 
-04. È l amore che conta  Live   3:41     Читать дальше...    Жанр: PopПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:099B3B77A4651CD5E7E86584C47954269A9B9756
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207400.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 207 264
-
-DJ Piligrim - Ночером...вечером...кечером  1999  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Intro
-02. Мне не жить без тебя
-03. Хайр, дустим, прощай
-04. Кур булсин    Читать дальше...    Жанр: PopПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA2BFB142FD8B0B01F36C3E1B71FB2ED47325561
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207264.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 207 218
-
-Telex - 11 Studio Albums  1978 - 2006  Discography [MP3|320 Kbps] <Electronic, Disco, Synth-pop,
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Telex - бельгийская группа, образованная в 1978 в Брюсселе бывшим участником джаз-рок-группы Cos Марком Муленом  1942—2008 , Даном Лаксманом и Мишелем Мером с намерением «создать что-нибудь по-настоящему европейское, непохожее на рок-музыку, без использования гитар: этим критериям больше всего соответствовала электронная музыка». Группа соединяла эстетику диско-музыки,     Читать дальше...    Список альбомов:
-1978 - Looking for St. Tropez
-1980 - Neurovision
-1981 - Sex    Читать дальше...    Жанр: Electronic, Disco, Synth-pop, House, TechnoПродолжительность: 08:52:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D315954CDF0B75CCF154EB2EE63A3CDE48507DC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207218.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 207 047
-
-Antoine Elie - Antoine Elie  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1 L amas d chair
-2 Aie
-3 Soirees parisiennes
-4 Toi qui m ecoutes    Читать дальше...    Жанр: Pop, ChansonПродолжительность: 00:17:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207047.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 206 849
-
-VA - Disco 80 s Vol.2  2018  [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Blanco Y Negro Music - I Love Disco Diamonds  Hidden Track   0:07 
-02. Bolero - I Wish  7:52 
-03. Danny Keith - Keep On Music  6:42 
-04. Grant Miller - Colder Than Ice  5:36     Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BE6A8A3EF48788F43D31A1A1C9E98EA30493405E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1206849.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 206 815
-
-VA - Disco 80 s Vol.2  2018  [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Blanco Y Negro Music - I Love Disco Diamonds  Hidden Track   0:07 
-02. Bolero - I Wish  7:52 
-03. Danny Keith - Keep On Music  6:42 
-04. Grant Miller - Colder Than Ice  5:36     Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9817C16FE21CB6CDC40C4C599116F088E17900AF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1206815.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 206 810
-
-Тина Кароль - Show Me Your Love  2006  [FLAC|Lossless|image + .cue]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Money Doesn t Metter 3:55
-02. Russian Boy 3:14
-03. Life Is Not Enough 3:21
-04. Honey 3:02    Читать дальше...    Жанр: PopПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2573ACDDCBF4BE14EA770D8B6833C7374737843C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1206810.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 206 805
-
-Ирина Билык - Любовь.Яд  2004  [FLAC|Lossless|image + .cue]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. О любви 3:26
-02. Помнить 3:44
-03. Не такая, как все 3:36
-04. Шутка 3:13    Читать дальше...    Жанр: PopПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA0036392C8D3D183041C1EA56B6081C08FD83F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1206805.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

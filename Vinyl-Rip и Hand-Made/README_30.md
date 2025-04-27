@@ -1,4 +1,232 @@
 ﻿
+###  Публикация: 710 422
+
+Б.Г. - Русский альбом  1992  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Рок>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Архистратиг  1:12 
+A2. Никита Рязанский  2:38 
+A3. Государыня  3:03 
+A4. Ласточка  3:51     Читать дальше...    Жанр: РокПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA81DF2A22CC0BC1268C2A7116831EC7F6A1E316
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_710422.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 710 370
+
+Bert Jansch & John Renbourn - Bert and John  1966  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Bri
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side1:
+01,  East Wind   1:29 
+02.  Piano Tune   1:43 
+03.  Goodbye Pork Pie Hat   3:54 
+04.  Soho   3:03 
+05.  Tic-Tocative   2:00 
+06.  Orlando   1:42 
+Side2:
+01.  Red s Favourite   1:37 
+02.  No Exit   1:29     Читать дальше...    Жанр: British-Folk-Rock AcousticПродолжительность: 00:27:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F843AB087FED7F2721182D09FDA010E61FBB91F8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 710 351
+
+John Renbourn - The Lady and The Unicorn  1970  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Britis
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side1:
+01.  Trotto   Saltarello   2:35 
+02.  Lamento di Tristano   La Rotta   2:58 
+03.  Veri Floris   Triple Ballade   2:44 
+04.  Bransle Gay   Bransle de Bourgoyne   2:50 
+05.  Alman   Melancholy Galliard   4:41 
+06.  Sarabande in B Minor   2:45 
+
+Side2:
+01.  The Lady and The Unicorn   3:31     Читать дальше...    Жанр: British Folk-Rock AcousticПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A1AC1FE608794E72836C60D63B751C424469330
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 710 283
+
+Inker & Hamilton - Dancing Into Danger  1987  Germany [FLAC 2.0 24 192|image  Vinyl-Rip ]<
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Inker & Hamilton - это Мюнхенский поп-дуэт, состоящий из британца Дэйва Инкера  3 мая 1953 года, Бристоль  и новозеландки Хиллари Гамильтон  родилась 4 августа 1952 года в Веллингтоне . Их хит  Dancing Into Danger   выпущен на WEA Records  с одноименного альбома, который спродюсировал Michael Cretu, в 1988 году был в Top 20 Германии. В 1979 году они выпустили первый альбом  Highs and Lows . Следующий альбом  Человек Человеку   Person to Person  1981 и  Двойная Функция   Double Feature  1983 были опубликованы Sony Music. Когда был записан четвертый альбом,  Ум и Тело   The Mind and the Body  в 1984 году на студии Метроном, они выступали в разогревах на концертном туре Крис де Бурга. В 1988 трек  Dancing Into Danger , написанный Hubert Kah, был 15 недель в чарте синглов и достиг 19 места.A1. Dancing Into Danger :: 03:39
+A2. Think About Me :: 03:55
+A3. Heaven Knows :: 04:03
+A4. Wild World :: 04:00
+A5. One Way Love Affair :: 03:23
+B1. Motivation :: 04:46
+B2. Guardian Angel :: 04:34
+B3. Innocent :: 04:26
+B4. Question :: 04:15Жанр: Synth-Pop, Europop, Pop RockФормат: Vinyl, LP, AlbumПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0AD9700175F9E7A554FD253B98C413123FC0FBCE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 710 246
+
+Split Mirrors - Voices  1987  12  Maxi-Single Germany [FLAC 2.0 24 192|image  Vinyl-Ri
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Split Mirrors - одна из лучших синтипоп групп второй половины 80-х и первой половины 90-х. Split Mirrors местами напоминает Alphaville образца 84 года, т.к. в альбоме  1999  был задействован Френк Мертенс, бывший клавишник Alphaville, который покинул группу после дебютного альбома  Forever Young .A. Voices  Extended Version  :: 07:16
+B1. Love Me :: 04:14
+B2. Voices  Instrumental Version  :: 04:01Жанр: Synth-PopФормат: Vinyl, 12 , Maxi-Single, 45 RPMПродолжительность: 00:15:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE59D5991DA6FE15BD274777797BCEAEEE563B26
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 710 203
+
+Калинов Мост - Золотое Толокно  2012  [FLAC 2.0 24 44.1|tracks  DC-CD ]<Folk-Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Бей, Бей!  5:11 
+02. Высоко  6:10 
+03. Разметал  6:01 
+04. Спозаранку  5:32 
+05. Горемыки  6:00 
+06. Восхищение  6:06 
+07. Солнечное Злато  5:11 
+08. Ушкуйники  5:32 
+09. Продали  4:36 
+10. Реки Мои  4:56     Читать дальше...    Жанр: Folk-RockПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A9B2DDF832DD245A900C7CF3186A6C67350DD0C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 710 099
+
+Святослав Рихтер - П. Чайковский  – Концерт №1 Си Бемоль для фортепиано с оркестром  1973  [FLAC
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Allegro Non Troppo E Molto Maestoso. Allegro Con Sprito  22:04
+Сторона 2
+1. Andantino Semplice  6:44    Читать дальше...    Жанр: ClassicalПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:83DD8E0C7BA4566AFB6AB201940DCC45AB7F3523
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_710099.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 710 018
+
+Annie Lennox - Diva  1992  Holland [FLAC 2.0 24 192|Tracks  Vinyl-Rip ]<Synth-pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Diva - первый сольный студийный альбом шотландской певицы и автора песен Энни Леннокс, выпущенный в 1992 году. Диск возглавил чарт Великобритании и получил статус четырежды платинового. Он также имел большой успех в США, где он был сертифицирован дважды платиновым. В 1993 году альбом был включен в список 50 лучших альбомов года по версии журнала «Q». Альбом получил награду «BRIT Awards» а также был номинирован на «Грэмми».A1. Why :: 04:53
+A2. Walking On Broken Glass :: 04:11
+A3. Precious :: 05:07
+A4. Legend In My Living Room :: 03:46
+A5. Cold :: 04:20
+B1. Money Can t Buy It :: 04:57
+B2. Little Bird :: 04:48
+B3. Primitive :: 04:16
+B4. Stay By Me :: 06:26
+B5. The Gift :: 04:53Жанр: Synth-popФормат: Vinyl, LP, AlbumПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3ADFB87D693C9A33C9C71F930112CCE3BF03C1A7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 709 970
 
 Пикник - Родом ниоткуда  1988   1990, Мелодия  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Рок>
@@ -2072,237 +2300,6 @@ B4. Back To Your Planet [4:00]Жанр: Space Rock, New WaveПродолжите
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:48F0E1A63541DBB5BC3F7CECD966C391B0604843
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 674 884
-
-Jean-Michel Jarre - Equinoxe  1979  Polydor Japan [FLAC|2.0 24 96|image  Vinyl-Rip ]<Exp
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Equinoxe Part 1
-A2. Equinoxe Part 2
-A3. Equinoxe Part 3
-A4. Equinoxe Part 4
-B1. Equinoxe Part 5
-B2. Equinoxe Part 6
-B3. Equinoxe Part 7
-B4. Equinoxe Part 8Жанр: Experimental Electronic, AmbientПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:71C9A88DC88A94E363CD7218E2B3750CE7D4466E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 674 062
-
-Шарль Азнавур - Шарль Азнавур  1973  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Шансон>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Изабелла  2:34 
-Шэнклин - Ш.Азнавур
-A2. Потому что  2:44 
-Вагенгейм - Ш.Азнавур
-A3. Жить с тобой  3:20 
-музыка и слова Ш.Азнавура
-A4. Ты была слишком красива  3:07 
-музыка и слова Ш.Азнавура
-A5. Прекрасный облик твой  3:04 
-Ш.Азнавур - ПатрикЖанр: ШансонПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA12FD40010EB506368D1BD7A668952DA59840AE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 672 215
-
-Владимир Высоцкий - Коллекционное издание  8 LP Box Set   Vinyl-Rip   2013  [FLAC|2.0 24
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Рассказ о письмах слушателей [01:18]
- 02. Я не люблю [02:00]
- 03. Рассказ о слушателях, об аплодисментах, о друзьях, ответы на записки [05:05]
- 04. Товарищи ученые [02:44]
- 05. Поездка в город [02:52]
- 06. Горизонт [03:06]
- 07. Дорожная история [02:36]
- 08. Песня автозавистника [03:13]
- 09. Чужая колея [03:32]
- 10. Песенка про козла отпущения [03:16]    Читать дальше...    Жанр: Авторская песняПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_672215.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 671 587
-
-Ария - Герой Асфальта  2013  Limited Edition  Vinyl-Rip  [FLAC|2.0 24 96]<Hard Rock, Heavy
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. На Службе Силы Зла [07:12]
- 02. Герой Асфальта [05:12]
- 03. Мёртвая Зона [06:37]
- 04. 1100 [04:54]    Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 671 487
-
-Fausto Papetti - Фаусто Папетти  1984  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Jazz, Easy List
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Первая любовь  3:19 
-Primo Amore
- Depsa 
-A2. Райская мелодия  3:18 
-Theme From Paradise
- J.Diamond - L.Russel - Brown 
-A3. Память  3:36 
-Memory
- A.L.Webber - T.Nunn Жанр: Jazz, Easy ListeningПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ADD414FA2D8D0842865133625C6C88DBAF6CD8D7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 670 907
-
-Jean Michel Jarre - Oxygene  1976  Polydor Japan [FLAC|2.0 24 96|image  Vinyl-Rip ]<Expe
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-«Oxygene»  Кислород  — музыкальный альбом Жана-Мишеля Жарра, вышедший в 1976 году. Этот альбом считается дебютным в дискографии Жарра: хотя тот и выпускал пластинки ранее, они были малотиражными и экспериментальными.
-Альбом является одним из ранних образцов музыки эмбиент — это медленная, лёгкая и медитативная электроника. Несмотря на то, что в прессе звучание Oxygene часто называют «космическим», сам Жан-Мишель в интервью рассказал, что пытался в музыке выразить движение атмосферы Земли, о чём и говорит название.Жанр: Experimental Electronic, AmbientПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F970FC0C9ECBFF10423175F1AC7AB19C83CF91C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 670 528
-
-Jean Michel Jarre - Revolutions  1988  [FLAC|2.0 24 192|tracks  Vinyl-Rip <Experimental El
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Ouverture
-A2 Part 1
-A3 Part 2
-A4 Part 3
-A5 London Kid
-B1 Revolutions
-B2 Tokyo Kid
-B3 Computer Weekend
-B4 September
-B5 The EmigrantЖанр: Experimental Electronic, AmbientПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:366A3FB3D9D75EDD468F77BC3C427DBB8D1A6149
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 670 148
-
-Two Door Cinema Club - Beacon  2012  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Alternative Indi
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Next Year  4:10 
-02. Handshake  3:29 
-03. Wake Up  3:45 
-04. Sun  3:06 
-05. Someday  3:39 
-06. Sleep Alone  3:53 
-07. The World is Watching  with Valentina   3:34 
-08. Settle  3:51 
-09. Spring  3:23 
-10. Pyramid  3:07     Читать дальше...    Жанр: Alternative Indie RockПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D75AFD41382BCB422A422F6AB897CF77B354365
 ```
 
 <div id="header" align="center">

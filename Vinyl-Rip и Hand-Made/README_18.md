@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 433 242
+
+The Beatles - Легенды Зарубежного Рока  1999  Unofficial Release [FLAC 2.0|48 24|image+.cue|MC
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+A1 Michelle  Rubber Soul 
+A2 Girl  Rubber Soul 
+A3 Help!  Help!     Читать дальше...    Жанр: Beat, Pop RockПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1433242.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 431 813
+
+Урия Хип - Ансамбль «Урия Хип» | Uriah Heep - Innocent Victim  1980  1977 [FLAC 2.0|96 24|imag
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Keep On Ridin  = Я Снова В Пути
+A2 Flyin  High = Летаю Высоко
+A3 Roller = Легкомысленная
+A4 Free N  Easy = Свободно И Легко    Читать дальше...    Жанр: Hard Rock, Classic RockПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B332C759FFC0F1C225F42B8BC2FC01E6B3C80480
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1431813.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 431 042
+
+Tangerine Dream - Stratosfear  1981  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Electronic, Ambie
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Stratosfear	10:04
+A2 The Big Sleep In Search Of Hades	4:45
+B1 3AM At The Border Of The Marsh From Okefenokee	8:10
+B2 Invisible Limits	11:38Жанр: Electronic, Ambient, Berlin-SchoolПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9988EF09DB2BA403F6D9AB26745AE208C6AF3A06
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1431042.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 430 827
+
+ЭВМ  Эх Вашу Мать! - экс  Круиз   - Здравствуй, Дурдом!  1990  [FLAC 2.0|192 24|image
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+В 1985 году Александр Монин, Григорий Безуглый, Олег Кузьмичёв и Николай Чунусов организовали проект под названием «Э. В. М.»  Эх Вашу Мать! . В 1985 году «Э. В. М.» выпустили магнитоальбом «Три дороги», а позже был выпущен альбом «Здравствуй, дурдом !». В эту пластинку вошли песни, записанные в 1989 году на студии Виктора Векштейна - известного музыканта и продюсера.     Читать дальше...    A1 Здравствуй, Дурдом!
+A2 Кинули!
+A3 Эйфория
+A4 Мария    Читать дальше...    Жанр: Hard RockПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4B62B3000B55DB173E73E57C52489EBA47E8C4F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430827.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 430 188
+
+VA - Ленинградский Рок-клуб  1988  Записи 1986 - 1987 гг. [FLAC 2.0|192 24|image +.cue|Vinyl-R
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Игры - Освобождение  I Want To Be Free 
+A2 Алиса - Мое Поколение  My Generation 
+A3 Присутствие - Выйди Вон  Get Out 
+A4 АВИА - Шла Машина Грузовая  The Passing Lorry     Читать дальше...    Жанр: Alternative Rock, New WaveПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430188.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 429 650
+
+Георги Бейков, Ваня Цокова  Дуо Нове  - Завръщане  1983  [FLAC 2.0|96 24|image +.cue|Vinyl
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Земя
+A2 Спомен подир спомен
+A3 Циганката
+A4 Любовта, която остава    Читать дальше...    Жанр: PopПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4BDA3403F6CAB1454C51DBB792713612209758C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1429650.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 429 648
+
+Puhdys - Puhdys 11: Computer-Karriere  1983  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Synth-po
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Computer-Karriere
+A2 Flieg Mit Mir
+A3 Jahreszeiten
+A4 Stop, Baby, Stop    Читать дальше...    Жанр: Synth-pop, Classic Rock, New WaveПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1429648.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 428 854
+
+Roxy Music - Manifesto  1979  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Art Rock, New Wave, Pop
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+East Side
+A1 Manifesto
+A2 Trash
+A3 Angel Eyes    Читать дальше...    Жанр: Art Rock, New Wave, Pop RockПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F83ACB44E747F4FA6D5EE396478127C262650E15
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428854.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 428 056
 
 Massive Attack - Mezzanine   1998  2013, Europe, Reissue [FLAC 2.0|96 24|tracks +.cue|Vinyl-Ri
@@ -1793,206 +1993,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1328062.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 328 054
-
-Teddy Ikeya Quintet - Dream  1967  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Lis
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Sekai Wa Futari No Tameni
-02. Kitaguni No Aoi Sora
-03. Koi
-04. Nagisa No Senorina    Читать дальше...    Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1328054.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 328 046
-
-Yujiro Mabuchi  68 All Stars - Attractive Tenor-Sax Mood Best 16  1973  [FLAC 2.0|44,1 16|tr
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Watashi No Kare Wa Hidarikiki
-02. Hitorikko Amaekko
-03. Muneippai No Kanashimi
-04. Ai No Kurashi Dosei Jidai    Читать дальше...    Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1BFCF68DFA330C20F90284DE40338B5615755663
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1328046.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 327 959
-
-The Prodigy - No Tourists  2018  [FLAC 2.0|96 24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Need Some1  2:43 
-A2. Light Up The Sky  3:20 
-A3. We Live Forever  3:43 
-B1. No Tourists  4:18     Читать дальше...    Жанр: Drum & Bass, Big BeatПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1327959.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 326 269
-
-Yujiro Mabuchi  68 All Stars - Okizari Ni Shita Kanashimi Wa   Soshun No Minato  1973  [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Ai No Banka
- A2 Okizari Ni Shita Kanashimi Wa
- A3 Maruyama Hanamachi Haha No Machi
- A4 Ken To Mary - Ai To Kaze No Yoni    Читать дальше...    Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:62046206D8BC624EE55326F6E99665A95C91B372
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326269.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 326 146
-
-Yujiro Mabuchi '68 All Stars - Minatomachi Blues. Crown Golden Series, Tenor Saxophone (1969) [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Toki Ni Wa Haha No Nai Ko No Yoni
- A2 Yoake No Scat
- A3 Nanairo No Shiawase
- A4 Kaze(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F5EBCC0B5A046021743BEE380E142C16DDD2F538
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326146.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 326 075
-
-VA - Best Hit Of Japan  Shungo Sawada Akira Fukuhara Quintet   19??  [FLAC 2.0|44,1 16|i
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Shungo Sawada - Koi No Kisetsu
-02. Shungo Sawada - Tenshi No Yuwaku
-03. Shungo Sawada - Koi No Hallelujah
-04. Shungo Sawada - Mona Lisa No Hohoemi    Читать дальше...    Жанр: Pop, InstrumentalПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A907E39A90C84424D2D2F3DF477F72BC0FF9228E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326075.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 324 794
-
-Wanda Jackson & Karel Zich - Let s Have A Party In Prague  1988  [FLAC 2.0|96 24|image +.cue
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1:
-01. Let s Have A Party
-02. Long-Legged Guitar Picking Man
-03. Losing Game    Читать дальше...    Жанр: Rock & RollПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8ABE2B3FAE979738E819F01AD605CAD9AD7FE355
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324794.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 324 758
-
-Timothy Farrell & Christopher Green - Organ and Cello Music from Westminster Abbey  1973  [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side One:
-A1 Fanfare, Op. 85
-A2 Pfingsten, Op. 145, No. 6
-A3 Improvisation on  Schonster Herr Jesu , Op. 55 for cello and organ    Читать дальше...    Жанр: Classical, Cello & Organ
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:607B33E9CF1A42CA95129DA5027E0C7FB9D76B93
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1324758.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,354 @@
 ﻿
+###  Публикация: 1 345 090
+
+VA - My Lyric Soul: Romantic Music Compilation  2019  [MP3|320 Kbps] <Pop, Lyric>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Duncan Laurence - Love Dont Hate It 2:51
+002. A Great Big World - Fall On Me 4:23
+003. Adda - Plang In Hohote 3:30
+004. Amanda Batista - Ti Sento 3:27    Читать дальше...    Жанр: Pop, LyricПродолжительность: 09:05:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:447DA3FAABA57174D51C28B96E84F95496152CBE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345090.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 904
+
+VA - Electro House: Clubber s Dream  2019  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Matchy - Standstill Earth
+002. Mv.Screamer - Summer Vacation
+003. Diego Barrera - Try Me  Original Mix 
+004. Croatia Jam - Take Me Up  Original Mix     Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 13:50:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5C377A0A0CBB2A1B667465D7F94735448EC8724B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344904.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 900
+
+VA - Groovy Day: Beach Party  2019  [MP3|320 Kbps] <Techno, Tech House, Deep House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Macavoy - Scary People
+002. Maguta - Depression
+003. Tabis - Nighttrain
+004. Diego Alvez - Sleepless Night    Читать дальше...    Жанр: Techno, Tech House, Deep HouseПродолжительность: 12:10:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:55CAB0769089CE9E7DF009211895F989711942D1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344900.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 897
+
+VA - Majestic Drum And Bass Vol.07  2019  [MP3|320 Kbps] <Drum & Bass, Bassline, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Duoscience & Msdos - Hold It
+002. Dreadcore - Guttersnipe
+003. Sl8r - Coordinates
+004. Afrik & Vanger - Waiting For A Wonder    Читать дальше...    Жанр: Drum & Bass, Bassline, ElectroПродолжительность: 08:10:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E633B9EA0E28B24488AB374C39BA1B58893257C4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344897.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 896
+
+VA - Mastiff: Hard Rock Music  2019  [MP3|320 Kbps] <Hard Rock, Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. No Home - Separation
+002. It Prevails - Lair Hill
+003. Leeway - I m Your Pusher
+004. Smeltz - Nemesis    Читать дальше...    Жанр: Hard Rock, MetalПродолжительность: 08:38:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80D47BE1E903CA59B8628A9C1BF2C8C97A0742C4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344896.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 895
+
+VA - If U Need Me: Rap Selection  2019  [MP3|320 Kbps] <Rap>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+001. Co Cash - No Competition
+002. Roc Marciano - Consigliere
+003. Koblack - Play It Off
+004. Underrated - Honey Comb Zone    Читать дальше...    Жанр: RapПродолжительность: 09:35:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7BC45C66A8AAB35FC0D837EED0719E0BE48A60FC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344895.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 751
+
+VA - Velvet Sunset: Chillout Balearic  2019  [MP3|320 Kbps] <Chillout, Balearic, Downtempo, Rela
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Marga Sol - Hold Me  Original Mix 
+002. Ascent & Argus - Eros  Original Mix 
+003. Nale - Wizards Of The Sonic
+004. Chad - Highlighted  Filter Main     Читать дальше...    Жанр: Chillout, Balearic, Downtempo, RelaxПродолжительность: 12:37:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A04682D066682241D210DA63C8D5D948DE7DE638
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344751.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 750
+
+VA - Planet Dance Music: Euromix Energia Total  2019  [MP3|320 Kbps] <Dance, Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Mc Kevinho - O Grave Bater
+002. Jason Born - Give Me Everything
+003. Dj Snake, J Balvin, Tyga - Loco Contigo
+004. Olivia Grace - Higher Ground    Читать дальше...    Жанр: Dance, PopПродолжительность: 09:11:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A350659179DAC6CFA3F8BA9A25BDEE9DCCF5DAFF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344750.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 735
+
+VA - Новый Год 2020  2019  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Моральный кодекс - Москва новогодняя 8:02
+02. Мумий Тролль - С Новым годом, крошка! 5:05
+03. Григорий Лепс - Новый год 4:34
+04. Emin - Первый снег 3:20    Читать дальше...    Жанр: PopПродолжительность: 03:56:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0808A15A02CC6A176D3DE6463EF5239C6FCF5637
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344735.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 708
+
+VA - Новый Год вдвоём  2019  [MP3|320 Kbps] <Pop, Christmas, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+98º - Christmas Wish  3:48 
+2.Ariana Grande - Santa Tell Me  3:24 
+3.Carly Rae Jepsen - Last Christmas  3:32 
+4.Coldplay, Guy Berryman, Will Champion, Chris Martin, Jonny Buckland - Christmas Lights  4:02     Читать дальше...    Жанр: Pop, Christmas, OtherПродолжительность: 01:39:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:44DFD546A841EEDE04CE5A27B75BCFA6696D2F48
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344708.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 661
+
+VA - Top Grade Disco Hits  2020  [MP3|320 Kbps] <Electronic, Funk Soul, Pop Rock, Disco>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Boney M. - Let It All Be Music  1979   4:55 
+002. Pappy ion - 1001 Nights  Ali Baba   1979   3:51 
+003. Barrabas -  Be Me  Rebel  1982   6:32 
+004. Claudja Barry -  Boogie Woogie  Dancin  Shoes  1978   5:01     Читать дальше...    Жанр: Electronic, Funk Soul, Pop Rock, DiscoПродолжительность: 14:13:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57D26122CCA3B0BBB0E4A3E0696AB2EEF9173607
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344661.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 479
+
+VA - НГ 2020  2019  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1.Моральный кодекс - Москва новогодняя  8:02 
+2.Мумий Тролль - С Новым годом, крошка!  5:04 
+3.Григорий Лепс - Новый год  4:34 
+4.Дискотека Авария - Новогодняя  4:27     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 03:34:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D775DE2D4A3054B34E19E31BD10A75223F976932
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344479.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 315
+
+VA - Disco House Party  2019  [MP3|320 Kbps] <Disco House, Funky House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Scotch - Penguin Invasion
+002. Modern Boots - You re My Night, You re My Day
+003. Michael Gray - 24 7 People
+004. Shay Jones - When Love Calls    Читать дальше...    Жанр: Disco House, Funky HouseПродолжительность: 12:49:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4CD81EED97BFAE3E8718DB07BB3F7A15644340E5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344315.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 344 314
+
+VA - Reverse Echoes: Ambient Music  2019  [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Rinat Kaas - Children Of The Metropolis
+002. Alphaxone - Reverse Echoes
+003. Suduaya - Journey Of Aquila
+004. Grinzato - Look    Читать дальше...    Жанр: Chillout, Ambient, DowntempoПродолжительность: 12:28:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E8019E38B1683E98BF78D5A92AAEE4F821ED351
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344314.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 344 311
 
 VA - The Sound Of Dance House  2019  [MP3|320 Kbps] <Dance House>
@@ -1644,356 +1994,6 @@ Jazz, Blues, Soul  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341473.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 461
-
-VA - Green Rave Bass  2019  [MP3|320 Kbps] <Drum And Bass, Jungle>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Devastate - Trust Issues
-02. Didier Lomba - Opening
-03. Prolix - Snake
-04. E Lisa Ft Iffy Palmer - Let Go    Читать дальше...    Жанр: Drum And Bass, JungleПродолжительность: 05:24:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5B0E78BB27A814F90A626252C12B871B886F477
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341461.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 459
-
-VA - New Dance Musical Releases  2019  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Hospital Pavlova - Dysontopia  Original Mix 
-002. Jax Jones - All Day And Night
-003. Alle Farben Feat. James Blunt - Walk Away
-004. Tony Delta - Bang Bang  Extended Mix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 07:20:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DD856C029E7322D91D5544A939C52DBD7D470451
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341459.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 457
-
-VA - Shallow Sleep: Chill Electronic  2019  [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Kinoa - Kinoa  Original Mix 
-002. Bauri - Hertsi
-003. Go March - Meristem
-004. Sons Of Winter - Meet The Family    Читать дальше...    Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:07:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4F1C4B21AD9233E64621B3E2D269435CDEE9AB8A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341457.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 454
-
-VA - Union Of Tropic Riddim  2019  [MP3|320 Kbps] <Reggae, Reggaeton, Dancehall>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. Dosa Medicine - Hustling Hard
-002. Jeffery Mykals - Gyal Bad
-003. Dj Mimi - Lamizment
-004. Vital Blaq - Jah Jah Blessing    Читать дальше...    Жанр: Reggae, Reggaeton, DancehallПродолжительность: 11:07:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:16E3BED1D42E84646B8246597717C4FCF90AAA49
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341454.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 453
-
-VA - Yoga And Meditation Ambient Music  2019  [MP3|320 Kbps] <Ambient, New Age, Relaxation>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-001. Hilsa - Ilish
-002. Niteanday - Always There
-003. Melezh - Flying With Meteors  Ambient Edit 
-004. Marga Sol - Morning Sun    Читать дальше...    Жанр: Ambient, New Age, RelaxationПродолжительность: 11:30:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:47D2CAB0D03ED0A7ECDA10F32D63339F55849A73
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341453.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 295
-
-VA - Shazam Хит-парад Russia Top 100 Ноябрь  2019  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Tones And I - Dance Monkey 3:30
-002. NILETTO - Любимка 3:40
-003. SAINt JHN - Roses  Imanbek Remix  2:56
-004. Gayazovs Brothers - Увезите меня на Дип-Хаус 3:43    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:21:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF5521D50DC9D052100D267C9C98383DD90804B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341295.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 168
-
-VA - Classic Trance Vocals  2019  [MP3|320 Kbps] <Vocal, Uplifting Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Armin vаn Buurеn fеаt. Susаnа - Shivеrs
-002. Bеtsiе Lаrkin & Andу Mооr - Nоt Afrаid
-003. Gаrеth Emеrу & Alаstоr - Hаnds
-004. W&W - Thе Onе  Rаdiо Edit     Читать дальше...    Жанр: Vocal, Uplifting TranceПродолжительность: 08:52:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B64DEF41D6CBDCE7591B07E471F52D873A209BA8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341168.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 147
-
-VA - Luky Number: Electronic Euphoria  2019  [MP3|320 Kbps] <Electronic, Synthetics Sound>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Mugwump - Empty Peculiar
-002. Daniel Jaeger - Generation Change
-003. Sainmusic - To Dream Alone
-004. Lower Synth Department - Fall Of Man    Читать дальше...    Жанр: Electronic, Synthetics SoundПродолжительность: 11:14:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3B322AF62005975714ADBBA7A805F97A5DD53549
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341147.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 144
-
-VA - Sounds Of New Generation  2019  [MP3|320 Kbps] <Electronic, Synth Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Three Women In Charge - Dilly Dally
-002. Mentallo & The Fixer - Sacrilege
-003. Low Tape - Walking The Streets
-004. Beatamines - I Got  Original Mix     Читать дальше...    Жанр: Electronic, Synth ElectronicПродолжительность: 13:25:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7355135B1E05DC2B937815E46F49BB701BE3583
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341144.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 089
-
-VA - The Playlist - Big Ones 2019 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-CD1:
-01. Lil Naz X Ft Billy Ray Cyrus - Old Town Road
-02. Kygo & Whitney Houston - Higher Love
-03. Tones And I - Dance Monkey    Читать дальше...    Жанр: PopПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:533A37B9FC7A2F748F2DE4EB5ADE3E1E0D7A25C2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341089.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 340 967
-
-VA - Зайцев.нет Свежие хиты Ноябрь 2019 [MP3|320 Kbps] <Pop, Club, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1.Bon Jovi - Unbroken  6:07 
-2.SHOO - Кольцо  6:06 
-3.Agnes Obel - Island Of Doom  5:28 
-4.Jessie Ware - Mirage  Don’t Stop   4:47     Читать дальше...    Жанр: Pop, Club, OtherПродолжительность: 02:12:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A104F8CCDA8335A63CF2A5C6BB3987D41AE1C086
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340967.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 340 938
-
-VA - Зайцев FM Тор 50 Ноябрь 2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Тайпан - Школа 3:19
-02. МЭВЛ - Холодок 2:02
-03. Nebezao & Андрей Леницкий - Как ты там  SerG ProJecT & DJ DeN PoZitiVe RemiX  3:13
-04. Don Diablo & Элджей - UFO  KalashnikoFF Remix  4:27    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:44:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:46248FBC3E546561C29EB94241899B1971CC1DBA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340938.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 340 788
-
-VA - Radio DFM Top D-Chart Ноябрь 2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48
-02. Tones and I - Dance Monkey  DJ Noiz Remix  4:00
-03. Audiosoulz - Dancefloor 3:13
-04. SAINt JHN - Roses  Imanbek Remix  3:58    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:34:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:765106E8C31B9616651C25FA73B933B41281AB3C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340788.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 340 738
-
-VA - Нормас Пати  2019  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1.Джоззи - Сердце Бродяги  4:57 
-2.Дима Карташов - Давай останемся никем  4:16 
-3.Marselle - Вещий сон  4:02 
-4.104 x Скриптонит feat. Truwer - Потом и Кровью  4:01     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 05:23:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A88273C75925226DB07733AE45285F54B17B7CF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1340738.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

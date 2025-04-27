@@ -1,4 +1,699 @@
 ﻿
+###  Публикация: 1 582 752
+
+VA - Chapter 1 Uplifting Trance  2022  [MP3|320 Kbps] <Uplifting Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Habashi - I Am King  Original Mix 
+02. Habashi - Christine  Extended Mix 
+03. Habashi & FAWZY - Orientalism  Extended Mix 
+04. Kinngs - Feel The Energy  Extended Mix     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1E6400F4AC8CF026F8C15FCC8031869DA4BE481A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582752.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 749
+
+Daxson - Face The Future  2022  [MP3|320 Kbps] <Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Big Giant Circles - Outside The Realm  Daxson Remix 
+02. Daxson & Lachi - Unmask  Album Mix 
+03. Daxson - Ethereal  Original Mix 
+04. Daxson - Hakuba  Original Mix     Читать дальше...    Жанр: TranceПродолжительность: 01:12:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:517CCD99982E4423C087DF092867373F5BDD7A70
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582749.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 744
+
+Thomas Datt - Trance Pioneers 003  2022  [MP3|320 Kbps] <Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Thomas Datt - Still Alone  Original Mix 
+02. Thomas Datt - Long Distance  Original Mix 
+03. Thomas Datt - Mass Effect  Original Mix 
+04. Thomas Datt - Evaporate  Part 2   Original Mix     Читать дальше...    Жанр: TranceПродолжительность: 02:26:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:59D49D3D1BC42C16E908B1D1633481AF12C12DF8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582744.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 743
+
+VA - Trance Vol.9  2022  [MP3|320 Kbps] <Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Kaimo K & Tiff Lacey - Linger  Original Mix 
+02. THIRDWAVE & Stine Grove - Electric Love  Original Mix 
+03. 1st In Line & Cris von X - The Light  Original Mix 
+04. Costa & Neev Kennedy - My Own Way  Original Mix     Читать дальше...    Жанр: TranceПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:60F9AB3F804AB1997B6A947A61B7228037425557
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582743.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 653
+
+Eurythmics - Boxed  1981-1999  Box Set: 8 CD, Reissue, Remastered, 2005, Sony BMG Music Entertai
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. English Summer
+02. Belinda
+03. Take Me To Your Heart
+04. She s Invisible Now    Читать дальше...    Жанр: Rock, New Wave, Pop RockПродолжительность: 09:16:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7153A99F6C07C1CE5F48995ED6126F6CF2CC6788
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582653.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 321
+
+Aeon Rings - Enemy  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Beat, New Wave, Synthwave
+Electronic
+Industrial, EBM, Dark Electro  Lossless 
+
+###  Подробнее
+
+01 - Fully Operational  00:04:21 
+02 - Enemy  00:04:21 
+03 - Closet Case  00:04:40 
+04 - Io  00:05:08     Читать дальше...    Жанр: Synthpop, New Beat, New Wave, SynthwaveПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:335FE81CDE08E432203616CF6C31B3E47A2107DE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582321.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 050
+
+Sasha - LNOE TEN  2022  [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+Electronic
+House, Techno, Electro, Minimal  Lossless 
+
+###  Подробнее
+
+01. Sasha & Pumarosa - Just Us
+02. Sasha & Alex Banks - Australia
+03. Sasha & Photek - Aviator
+04. Sasha & Qrion - Dry & High    Читать дальше...    Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B2791721778D32DC60355714287F89E9C6BCA1C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582050.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 582 030
+
+Occams Laser - Occult 91  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01 - Prometheus  00:03:20 
+02 - Charred  00:04:06 
+03 - Kindling  00:04:09 
+04 - Scintillation  00:02:18     Читать дальше...    Жанр: Synthwave, RetrowaveПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2FA25A0FCC908CB5C232812573CB0BAA9B9D100C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1582030.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 801
+
+VA - Sensual Lounge: Chillout Your Mind  2022  [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtemp
+Electronic
+Downtempo, Trip-Hop, Lounge  Lossless 
+
+###  Подробнее
+
+01. Fake & True - Seas Of Passion  05:04 
+02. Michael E - Mind Games  feat Ashley Slater, Fabio Testa - original mix   04:48 
+03. Peter Pearson - Cool Of The Night  original mix   06:39 
+04. Beamy - Summer Dreams  03:00     Читать дальше...    Жанр: Balearic, DowntempoПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F7C178BF6299D4884AC87D05F8D29F6C4A94C06
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581801.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 736
+
+VA - Paratov Live 2022.08.13  Mixed and Compiled by DJ Suhov   2022  WebDLRip [MP3|224 Kbps|
+Electronic
+Radioshow, Live Mixes
+
+###  Подробнее
+
+01. VA - Paratov Live 2022.08.13  Mixed and Compiled by DJ Suhov   86:47 
+02. John Summit & Guz feat. Stevie Aplleton - What A Life  3:35 
+03. Alok, Ella Eyre & Kenny Dope feat. Never Dull - Deep Down  3:21 
+04. Malone & Calussa - Bessame  4:18     Читать дальше...    Жанр: House, Tribal House, Club HouseПродолжительность: 02:53:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:38E39A259A53DD702782ED4328E09FC688A7E503
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581736.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 617
+
+A-Ha - Foot Of The Mountain  2009  [OGG Vorbis|484 Kbps] <Electronic, Synth-pop, New Wave>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. The Bandstand
+02. Riding the Crest
+03. What There Is
+04. Foot of the Mountain    Читать дальше...    Жанр: Electronic, Synth-pop, New WaveПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B6F38EBD4BF20984344856F871E12EE1C3B5321
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581617.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 553
+
+A-Ha - Original Album Series  1985-1993  5 CD Box Set, Reissue, 2011, Warner Bros. Records [OGG
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. Take On Me	3:49
+02. Train Of Thought	4:15
+03. Hunting High And Low	3:45
+04. The Blue Sky	2:37    Читать дальше...    Жанр: Electronic, Rock, PopПродолжительность: 03:35:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9E1EFC5900631AF5F731DF08E88C4875C7DD54E9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581553.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 410
+
+Abbsynth - Starlines  2009  [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. Starlines  Single 
+02. End Of Space  2009 Mix Жанр: Electronic, Synth-popПродолжительность: 00:14:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:71667CC55C934B02D9F4C558796119A975B501A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581410.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 347
+
+VA - Daybreakerz  Trance & Souls  Vol.3  2022  [MP3|320 Kbps] <Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. James Dust & DJ Eternity - World In Your Hands  Instrumental Radio Mix 
+02. Thomas Lloyd & Dave Joy - Captain Future  Extended Mix 
+03. DJ Simple - Mainstation Theme  Wavetraxx Remix 
+04. Eclipse - Future Sequence  Extended Mix     Читать дальше...    Жанр: TranceПродолжительность: 02:55:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CC5167B11EA6385441141A96280B4B4559810E24
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581347.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 343
+
+VA - New Trance 2021  2022  [MP3|320 Kbps] <Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Iberian - Preludio  George Crossfield Emotional Remix   8:41 
+02. Dreamlife & SounEmot - Aun Recuerdo Ese Dia  Extended Mix   9:40 
+03. Sothzanne String - Matter Of Time  Original Mix   7:33 
+04. SounEmot - Juntos  Emotional Mix   10:30     Читать дальше...    Жанр: TranceПродолжительность: 07:58:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AB9B88911481BD652B290BE9DA3421278A8AB06D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581343.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 341
+
+VA - FSOE - October  2022  [MP3|320 Kbps] <Trance, Uplifting Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Aly & Fila x Billy Gillies - Kings  FSOE750 Anthem   Extended Mix 
+02. Sean Tyas & Victoriya - Perfect World  Amos & Riot Night Extended Remix 
+03. Omar Sherif & Susie Ledge - Here With Me  Extended Mix 
+04. Stoneface & Terminal - Moonraver  Extended Mix     Читать дальше...    Жанр: Trance, Uplifting TranceПродолжительность: 02:22:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A4CAEAA87238B38F71051F2E7D5DBD273D80F3A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581341.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 581 275
+
+Waveshaper - Forgotten Shapes  2022  [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retro
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. Edelo  Intro  [00:01:41]
+02. Disco on The Baltic Sea [00:03:17]
+03. Changed Plans [00:02:38]
+04. Brutal Resonance [00:03:42]    Читать дальше...    Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:12D81AA87551C9A64D5B49798762D490F137C936
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1581275.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 987
+
+Macrocosm - Second Voyage  2005  [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. Alien Invasion
+02. Galactic Fighters
+03. Maximum Power
+04. Out of the Ordinary    Читать дальше...    Жанр: Electronic, Synth-popПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D4665806A037E1CF7F482F507301E3AEFD24A11F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580987.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 929
+
+Macrocosm - First Mission  2002  [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. Secret Universe
+02. Magic Miles
+03. Virtual Voltage
+04. Silent Warriors    Читать дальше...    Жанр: Electronic, Synth-popПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:594A7FDB383BBA7CF80F6C067310ECB6BD8D9226
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580929.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 588
+
+Jeremiah Kane - Ronin  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Industrial Metal>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. Yōkoso [00:01:55]
+02. Never Back Down [00:04:01]
+03. Lights Out [00:04:01]
+04. This Night is Ours [00:03:45]    Читать дальше...    Жанр: Synthwave, Industrial MetalПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:82F4E934CBF4646E1491A8AA99ADAB1321C3B36E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580588.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 566
+
+Extize - MonStars  2022  [FLAC|Lossless|WEB-DL|tracks] <Darkwave, EBM, Electro-Industrial>
+Electronic
+Industrial, EBM, Dark Electro  Lossless 
+
+###  Подробнее
+
+01. Intro [00:03:08]
+02. Dirty Freddy  A Nightmare on Elm Street  [00:05:47]
+03. Xeno Queen  Alien  [00:04:23]
+04. Furious Max  Mad Max  [00:04:45]    Читать дальше...    Жанр: Darkwave, EBM, Electro-IndustrialПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:19C1B09034AB18EC6A058D2ADFF1EA6ACA64BDA9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580566.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 421
+
+VA - Suanda Music 2022 - Mixed by Roman Messer [MP3|320 Kbps] <Uplifting Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Jordy Eley - Nova  Original Mix   4:13 
+02. NoMosk - Better For You  Extended Mix   3:19 
+03. Milad E & David Deere - Got You  Extended Mix   5:05 
+04. Jon The Dentist - Global Phases  Aimoon Extended Remix   6:31     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 04:50:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D6800BCF8C91480C70B258F479FA699C1A39EDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580421.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 260
+
+VA - Beautiful Vocal Trance Progressive 2022 [MP3|320 Kbps] <Uplifting Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Emma Hewitt Markus Schulz - Into My Arms  Markus Schulz Remix   3:54 
+02. Costa Neev Kennedy - My Own Way  4:01 
+03. Cosmic Gate Diana Miro - Hear Me Out  4:39 
+04. Tom Boldt Rozemary - Till We Turn The Tide  3:37     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 01:34:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:664BC01346D992A572D222FC5795DF7664083B0E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580260.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 162
+
+Surge - Wings of Fury  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. Afterburner [00:04:02]
+02. Flight Deck Sunset [00:03:57]
+03. The Rookie [00:03:07]
+04. Let It Fade [00:02:46]    Читать дальше...    Жанр: Synthwave, RetrowaveПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1493054196E9D31E593423D684A0557DF90BE2AF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580162.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 557
+
+Avto-Graf - Этот мир...  2022  [MP3|320 Kbps] <Electronic>
+Electronic
+Industrial, EBM, Dark Electro (Lossless)
+
+###  Подробнее
+
+01 This world... [00:00:26]
+02 Pulsar [00:04:01]
+03 For rock [00:04:46]
+04 Trilogy [00:03:55]    Читать дальше...    Жанр: ElectronicПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:719D6852D9A82A56985DAB7A7577629B301599A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579557.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 518
+
+FGFC820 - 6 Albums  2006-2022  [MP3|320 Kbps] <Military EBM, Dark Electro>
+Electronic
+Industrial, EBM, Dark Electro (Lossless)
+
+###  Подробнее
+
+01. Democracy [00:05:09]
+02. Insurrection [00:04:25]
+03. Killing Fields [00:05:36]
+04. G.B.A. [00:07:01]    Читать дальше...    Жанр: Military EBM, Dark ElectroПродолжительность: 6 CD, 06:32:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B270E297EC20622E9758193704162074C5F4A1B6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579518.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 508
+
+VA - Uplifting Trance Top 25  2022  [MP3|320 Kbps] <Uplifting Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Sam Laxton & Katty Heath - Forever As One  Original Mix Жанр: Uplifting TranceПродолжительность: 01:33:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9DAB1FADAFFFC9DB29C8F85188BB1EDD99003B97
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579508.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 505
+
+VA - Silent Shore Trance - Autumn  2022  [MP3|320 Kbps] <Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Bluespark - Magic Solstice  Extended Mix 
+02. Redchild - Alertness  Extended Mix 
+03. Db Mokk - Millennium  Extended Mix 
+04. District 5 - Heartless  Extended Mix     Читать дальше...    Жанр: TranceПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BDB085EF2C008B6087626A6036226B73FB2F6DC1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579505.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 579 491
 
 Ludovico Technique - 4 Albums  2012-2022  [MP3|320 Kbps] <Industrial Rock, Synth Rock>
@@ -1290,708 +1985,6 @@ Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573492.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 433
-
-Oblivion - Secrets Of Time  The 4-th Album   2021  [OGG Vorbis|485 Kbps] <Synthpop, Electron
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. The Time Keeper  Intro 	1:59
-02. A New World  Terminator Koto Theme 	5:21
-03. Future Mind	5:26
-04. Galaxy Of Broken Dreams	7:13    Читать дальше...    Жанр: Synthpop, ElectronicПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F82C285FF4383A9408558960EC76CE45BBF4E248
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573433.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 412
-
-Oblivion - Voyage To Discovery  2017  [OGG Vorbis|485 Kbps] <Synthpop, Electronic>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Fasten Seat Belts  Intro 	1:08
-02. A Voice Of The Universe	6:46
-03. Dreams Come True	5:42
-04. Into Another Galaxy	4:35    Читать дальше...    Жанр: Synthpop, ElectronicПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7ADC2EC08BBDA5696604DEAB648070DC50B751DF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573412.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 573 327
-
-Eyeless In Gaza - Skeletal Framework  2022  5CD, The Cherry Red Recordings 1981-1986 [FLAC|Lossl
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Big Clipper Ship [00:03:22]
-02. Dreaming at Rain [00:06:46]
-03. Pale Saints [00:05:17]
-04. Lies Of Love [00:03:02]    Читать дальше...    Жанр: New Wave, Synth-pop, AvantgardeПродолжительность: 5 CD, 05:32:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B55D63C6C6E1820448D33C4A9AD0556E52943293
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1573327.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 757
-
-JODA - JODA  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, House, New Wave, Indie Dance>
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Fall Away  5:28 
- 02. We Find Ourselves  5:53 
- 03. Try  3:44 
- 04. Closer  ft. Robyn Sherwell   4:59     Читать дальше...    Жанр: Synthpop, House, New Wave, Indie DanceПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9CA6F0146F2C1AB293EA03C4535BE3C586F2320
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572757.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 374
-
-VA - Summer Hits 2022 [MP3|320 Kbps] <Trance>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Roman Messer - Back To The Future  Extended Mix   7:45 
-02. Feel & Andrew Mirt & Alexandra Badoi - Our Love  Extended Mix   5:32 
-03. Miroslav Vrlik & Dave Steward - Behind Me  Extended Mix   6:04 
-04. Tycoos & PITTARIUS CODE with Josie Sandfeld - Not Alone  Moon   Original Mix   3:14     Читать дальше...    Жанр: TranceПродолжительность: 02:22:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CCBD8E64E8F4AED1ED2CB8C271AAB84CA01D79F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572374.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 356
-
-Satin Jackets - Reunion  2022  [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, House, Nu D
-Electronic
-House, Techno, Electro, Minimal  Lossless 
-
-###  Подробнее
-
-01. For What We Have  4:02 
- 02. Move On  ft.Panama   4:27 
- 03. First Thing  ft. Tailor   4:00 
- 04. Coffee and Feels  4:08     Читать дальше...    Жанр: Electronic, Indie Pop, House, Nu DiscoПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5C7F11A943CC859F8D9AD8B076A4D98F3EC1A419
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572356.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 303
-
-VA - A State Of Trance, Ibiza 2022  Mixed by Armin van Buuren  [MP3|320 Kbps] <Uplifting Trance>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Armin van Buuren feat. Maia Wright - One More Time  Mixed   Worakls Remix   3:03 
-02. This Culture - Your Love  Mixed   2:24 
-03. Armin van Buuren & Shapov - Welcome Home  Mixed   4:15 
-04. Vintage Culture & Three Drives - Greece 2000  Mixed   2:51     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 02:24:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:68C420B4BF2A7943A756966BEC7C1612EDC7F806
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572303.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 212
-
-A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2  1992  [OGG Vorbis|485 Kbps] <Electronic>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Move To Memphis
-02. I ve Been Losing You
-03. The Living Daylights
-04. Crying In The Rain    Читать дальше...    Жанр: New Wave, Synth-pop, Soft RockПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CBD57BA9B8D8506B924390CBDDDDBD8F77A6FEE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572212.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 119
-
-VA - Summer Collection 2022 [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Organic House>
-Electronic
-House, Techno, Electro, Minimal  Lossless 
-
-###  Подробнее
-
-01. BUDD - Beginners Guide To Procrastination  Original Mix   6:18 
-02. Dkeymusik - Atatakai  Original Mix   6:26 
-03. Traumhouse - Thousand  Original Mix   7:30 
-04. Alan Schultz - Marea  Original Mix   6:52     Читать дальше...    Жанр: Progressive House, Organic HouseПродолжительность: 02:46:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:48E0B66672AEEA71AB3CE9F2A82CF8AFB20878BB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572119.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 111
-
-VA - Particle Of Emotions Chapter 017  2022  [MP3|320 Kbps] <Trance>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Autumnal Poplar Groves - Inner World  Original Mix 
-02. XMeng & AzureZenith - Eternal Love  Original Mix 
-03. Cj Mover - Miracle Of Love  Original Mix 
-04. AXIS-Y - Fight For Freedom  Michele Cecchi Remix     Читать дальше...    Жанр: TranceПродолжительность: 01:43:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FC386723CE8609ACE34A301DFB045DD606AFD476
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572111.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 109
-
-VA - Piano Calming Hours: Chillout Your Mind  2022  [FLAC|Lossless|WEB-DL|tracks] <Balearic, Dow
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-01. Joseph Nimoh - In The Shadows  original mix   4:54 
-02. Igor Berin - Moonlight  original mix   2:48 
-03. Lynn Tredeau & Sherry Finzer - Behind The Door  original mix   3:02 
-04. Biljana Petrovska - Son  7:02     Читать дальше...    Жанр: Balearic, DowntempoПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A841C8E44ADADAA91D9DC8D60002AD31156AFD68
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572109.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 572 108
-
-VA - Uplifting Only Top 15: August   Extended Mixes   2022  [MP3|320 Kbps] <Uplifting Trance
-Electronic
-Trance
-
-###  Подробнее
-
-01. LR Uplift - Sunrise  Intro Mix 
-02. SounEmot - Nuestra Promesa De Amor  Emotional Mix 
-03. Last Soldier - Harmony  Extended Mix 
-04. Avar - You  Extended Mix     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 01:46:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25479DB76D29106A21A8A7BDF3F711CEB9157438
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1572108.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 795
-
-VA - Summer Compilation 2022  2022  [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech
-Electronic
-House, Techno, Electro, Minimal  Lossless 
-
-###  Подробнее
-
-01.  Kebin van Reeken -  Sound Leak   7:27 
-02.  FiveP -  Running With You   6:50 
-03.  Home Shell, Olven -  Shaman   6:26 
-04.  L E N K E -  Revelation   7:23     Читать дальше...    Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DC16488B1E8395324C95DA063BF7BFF11761D028
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1571795.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 663
-
-Sandra - Curated By Blank & Jones – So80s  Soeighties  Presents Sandra, 2CD  2012  [OGG Vorb
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Maria Magdalena  Extended Version 	7:11
-02. In The Heat Of The Night  Extended Version 	7:24
-03. Little Girl  Extended Version 	5:21
-04. Innocent Love  Extended Version 	6:46    Читать дальше...    Жанр: Synth-popПродолжительность: 02:37:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E209CC2FDCDF72104258A5419487690CE3946314
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1571663.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 648
-
-Röyksopp  Royksopp  - Profound Mysteries II  2022  [FLAC|Lossless|tracks + .cue] <Downtempo,
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-01. Denimclad Baboons  3:43 
-02. Let s Get It Right  feat. Astrid S   5:06 
-03. Unity  feat. Karen Harding   5:05 
-04. Oh, Lover  feat. Susanne Sundfør   6:14     Читать дальше...    Жанр: Downtempo, House, AmbientПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3AFA076A5B53FB0B703D6A2B484E07DEF0B1F3F6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1571648.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 467
-
-Space - Deeper Zone  1980  1996, PolyGram [FLAC|Lossless|image + .cue] <Electro, Synthpop, Instr
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Deeper Zone  7:16 
-02. Inner Voices  3:32 
-03. Space Media  3:29 
-04. Mixed Up  5:44     Читать дальше...    Жанр: Electro, Synthpop, Instrumental, Space RockПродолжительность: 00:28:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6DB6B80C0520F9E27AD53A95CEB0258A18E4205F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1571467.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 257
-
-Kim & Buran - Orbita  2016  Limited Edition, 2022 Reissue, Maschina Records [FLAC|Lossless|track
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-Kim & Buran - петербургский музыкальный коллектив, назван в честь главных героев советского мультфильма «Тайна третьей планеты» и играющий в жанре Space disco, Cosmic easy-listening, Downtempo, sci-fi.
-Коллектив использует в своём творчестве аналоговые синтезаторы такие как Фаэми-1М, Opus, Электроника ЭМ-25, Алиса, Yamaha CS-5, Roland Juno 106 и сэмплы из фильмов     Читать дальше...    01. Delayed Flight
-02. Breeze
-03. Jet Disco
-04. Voyager    Читать дальше...    Жанр: Synthpop, Space disco, DowntempoПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A657E8F762A802707EEE810814CCE01D263CF994
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1571257.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 915
-
-VA - Vocal Trance Gems - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Darren Porter & Susana - The Hero In Me  3:37 
-02. Ana Criado - Lockdown Heart  Daxson remix   3:51 
-03. Sarah Lynn & Main Engine - Shadows & Dust  3:27 
-04. THIRDWAVE & Stine Grove - Electric Love  3:34     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 04:25:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5EFE992350F8C421907DE54C446E6BAB37E0B931
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570915.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 911
-
-VA - Black Hole Trance Music 08-22  2022  [MP3|320 Kbps] <Trance>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Cosmic Gate & Nathan Nicholson - Follow You Anywhere  Extended Mix 
-02. BT & JES - Every Other Way  MaRLo Extended Remix 
-03. D72 & Natalie Gioia - For Our Freedom  Extended Mix 
-04. Dennis Sheperd & MR. CLN with Gid Sedgwick - Wishful Thinking  Extended Mix     Читать дальше...    Жанр: TranceПродолжительность: 02:40:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63610B4976CEA0323C2470CBA4AD81FC4F0557FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570911.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 778
-
-Eurythmics - Revenge  1986  Remastered, 2018, Sony Music [OGG|485 Kbps] <Synthpop>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Missionary Man  4:28 
-02. Thorn In My Side  4:15 
-03. When Tomorrow Comes  4:31 
-04. The Last Time  4:15     Читать дальше...    Жанр: Synth-popПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:58D1A62F55E72B8C6A9E143FC52DF545D2BA8877
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570778.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 768
-
-A-Ha - Lifelines  2002  Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 Kbps] <New Wave,
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Lifelines
-02. You Wanted More
-03. Forever Not Yours
-04. There s a Reason for It    Читать дальше...    Жанр: New Wave, Synthpop, Pop RockПродолжительность: 02:35:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:441E89362247D2F2FBFAA616A4C933B54EB32073
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570768.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 733
-
-Eurythmics - We Too Are One  1989  Remastered ,2018, RCA [OGG|485 Kbps] <Synthpop>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. We Two Are One  04:35 
-02. The King and Queen of America  04:32 
-03.  My My  Baby s Gonna Cry  04:56 
-04. Don t Ask Me Why  04:24     Читать дальше...    Жанр: SynthpopПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4ED0B601FEF4DD1373C39FDF455D82CA3B36A0CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570733.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 598
-
-Koto - Masterpieces  1989  [OGG|485 Kbps] <Synthpop>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Visitors  The Alien Mix 	6:09
-02. Time	6:26
-03. Dragons Legend  Siegfried s Mix 	6:21
-04. Minoan War	5:53    Читать дальше...    Жанр: SynthpopПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:31F271FC0B66DC17CAE9666FAABD959F4F86CA27
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570598.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 528
-
-Alphaville - Forever Young  1984  Vinyl-rip [OGG|485 Kbps] <Synth-pop>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. A Victory Of Love	4:14
-02. Summer In Berlin	4:45
-03. Big In Japan	4:43
-04. To Germany With Love	4:15    Читать дальше...    Жанр: Synth-popПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5C842EE39793CEF4C0541CEA63DA732117F3D9DA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570528.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 461
-
-Moby - Play  2000  [OGG|485 Kbps] <Breakbeat, Leftfield, Downtempo>
-Electronic
-Downtempo, Trip-Hop, Lounge (Lossless)
-
-###  Подробнее
-
-01. Honey
-02. Find My Baby
-03. Porcelain
-04. Why Does My Heart Feel So Bad?    Читать дальше...    Жанр: Breakbeat, Leftfield, DowntempoПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:281462732D501C3E9BBFFEE4CBF6EE95295A775A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570461.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 313
-
-Masterboy - Generation Of Love - The Album  1995  Vinyl-rip, Reissue, Remastered, 2021, Maschina
-Electronic
-Techno, Electro, Minimal
-
-###  Подробнее
-
-01. Intro	2:51
-02. Give Me Your Love	4:12
-03. Anybody  Movin  On 	3:53
-04. Baby Let It Be	4:06    Читать дальше...    Жанр: ElectronicПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:189F37B622B314C5AE0517453024C99B150C59E6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570313.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 211
-
-Kim & Buran - Tramplin  2022  Limited Edition [FLAC|Lossless|tracks + .cue] <Synthpop, Space dis
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-Kim & Buran - петербургский музыкальный коллектив, назван в честь главных героев советского мультфильма «Тайна третьей планеты» и играющий в жанре Space disco, Cosmic easy-listening, Downtempo, sci-fi.
-Коллектив использует в своём творчестве аналоговые синтезаторы такие как Фаэми-1М, Opus, Электроника ЭМ-25, Алиса, Yamaha CS-5, Roland Juno 106 и сэмплы из фильмов     Читать дальше...    01. Walk In The Stratosphere
-02. Phazerdelique
-03. I Will Meet You In Summer
-04. French Train    Читать дальше...    Жанр: Synthpop, Space disco, DowntempoПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0795CBA09454F51B806552216D6262C50424D702
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570211.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 570 178
-
-VA - FSOE Ibiza  2022  [MP3|320 Kbps] <Trance>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Aly & Fila vs The Noble Six - Moonlit  Extended Mix 
-02. Sunlounger & Susie Ledge - Sail Away  FSOE 734   Roger Shah & Yelow Remix 
-03. Aly & Fila vs Scott Bond & Charlie Walker - Shadow  Paul Thomas Extended Remix 
-04. Aly & Fila - Sunrise At Cala Bassa  Ferry Tayle Extended Remix     Читать дальше...    Жанр: TranceПродолжительность: 03:00:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C9CE9BC382CD0BD293D36A0237D266BD0DF16DE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570178.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

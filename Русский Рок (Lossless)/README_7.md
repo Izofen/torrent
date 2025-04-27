@@ -1,4 +1,130 @@
 ﻿
+###  Публикация: 1 682 237
+
+Атака Сверху - Одинокая дорога к совершенству  2023  [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Пролог [00:01:18]
+02. Мы [00:03:15]
+03. Сердце на джинсовке [00:02:54]
+04. Дальтонизм [00:03:22]    Читать дальше...    Жанр: AlternativeПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:44F57495F019A4FE7B155B587B699005A0325006
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682237.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 682 235
+
+Джекилл и Хайд - Иначе быть не могло  2023  [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Бобовый стебель [00:02:19]
+02. Пустые диалоги [00:02:52]
+03. Утонуть [00:02:38]
+04. Иначе быть не могло [00:02:58]    Читать дальше...    Жанр: RockПродолжительность: 00:36:29
+https:  deezer.com album 510946991
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06B041034FEE0E4C9F8C4FE168E8C6FDF0C1F5BF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682235.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 682 072
+
+Коса - Плодуродие  2022  [FLAC|Lossless|image + .cue] <Punk, Black Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Лихие дни 3:54
+02. Стонут 3:48
+03. Весна неизбежна 3:04
+04. В братских могилах 4:10    Читать дальше...    Жанр: Punk, Black MetalПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:688D553BB36BD472EFBECCFDBA6E25A5E37C1B43
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682072.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 682 066
+
+Kaban - В Мире Животных  2021  [FLAC|Lossless|image + .cue] <Thrash Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Начало 1:04
+02. Kaban 2:18
+03. Раб 4:03
+04. Пушечный Корм 3:51    Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:27:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:252BA71549F33D2F739C7D368D68AC9CE75225FD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682066.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 681 451
+
+Rage Titanium - Настало Время Героев  2022  [FLAC|Lossless|tracks] <Heavy, Power Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Настало время героев
+02. Хранитель
+03. Сумрачный лес
+04. Армия тьмы    Читать дальше...    Жанр: Heavy, Power MetalПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F00251A0BB7125508F950C7E83016D13A32D9BAE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1681451.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 681 407
 
 МОРАХЪ - Откровение Первое, Второе  2023  [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock inde>
@@ -1861,131 +1987,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1664502.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 664 457
-
-Stonehand - Rock n Roll Wizards (2023) [MP3|320 Kbps] <Hard 'n' Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Ride the Storm (04:03)
- 02. In the Dark Arabian Night (05:39)
- 03. Rising on the Highway (06:49)
- 04. We Are Dancing Under Moon (05:03)(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D6FA452626FED5FB3E273D86DCCAA97C74815C1E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1664457.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 664 308
-
-Сны Африканца - Кислота (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Мир 2.0 [00:03:56]
-02. Мертвая порномодель [00:03:43]
-03. Черное белым [00:04:53]
-04. От одиночества [00:02:49](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7CEC584236F1B7FB160CC4DF37D4E460C2BD9C64
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1664308.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 664 214
-
-public static void main - Всё_пропало (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. ВСЁ_ПРОПАЛО [00:05:24]
-02. ВОССТАНИЕ_КОФЕМАШИН [00:05:55]
-03. ЖЁЛТОЕ_ФОРТЕПИАНО [00:03:45]
-04. ЗАРЯДКА_ДЛЯ_ХВОСТА [00:03:16](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0FD770909CB7E5A3E762F4738C1046BE796F2561
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1664214.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 664 134
-
-Обе Две - Циники (2023) [MP3|320 Kbps] <Indie Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. УГОСТИЛ
-2. ФАНТАЗИИ
-3. СТЕНДАП
-4. ЖЕЛАНИЕ(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:28:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6AEB618793AE308223D597DFB05802BDADBFE511
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1664134.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 664 098
-
-Nitrogenium - Игра Теней (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Она — это тьма [00:03:27]
-02. Во льдах [00:00:54]
-03. Холодно [00:03:12]
-04. Не знаю [00:02:39](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:21:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A9C9ED585D25184BBCF32F000297B4C19C75B4EB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1664098.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

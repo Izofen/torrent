@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 219 301
+
+НОМ - Я тебя услышал  2018  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Жили-были
+2. Раньше было лучше
+3. Я тебя услышал
+4. Песня про зайцев    Читать дальше...    Жанр: RockПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B0BE22FEE1BE5A96D94A40748FB0E6FAA1FCEE5C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219301.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 187
+
+Директор Азовского Моря - Здравствуй И Прощай  2015  [MP3|320 Kbps] <Rockabilly, Rock n roll
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Здравствуй, и прощай!  03:42 
+02. Пилот  04:01 
+03. Лето  03:39 
+04. Не бiда  Егеж   04:01     Читать дальше...    Жанр: Rockabilly, Rock n rollПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1FD53AD6220D583187CFF5E700D09B09287FE3F2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219187.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 179
+
+Ленинград - Всякое  2018  EP [MP3|320 Kbps] <Ska, Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+ В последние годы, если честно, не было ни времени, ни сил на то, чтобы посидеть неделю-другую в студии. И вот, у нас открылась новая реп-точка, что немаловажно в двух шагах от моего нынешнего места проживания, это и поспособствовало записи нескольких необязательных композиций. Наверное, то что получилось можно считать синглом. Сделал, так сказать, себе подарок     Читать дальше...    1. Чашечки
+2. С.Ш.
+3. Путин
+4. Эстетика    Читать дальше...    Жанр: Ska, RockПродолжительность: 00:21:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A74DED0C8DFBDC75D2B5781B503142388DE49B51
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219179.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 102
+
+Северный Флот - Иной  2018  [MP3|320 Kbps] <Alternative metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Иной  feat. Nookie 
+02. Здравствуй, страна!
+03. Ленинград
+04. Удачи солдат    Читать дальше...    Жанр: Alternative metalПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BE192E327A8D81F88C25DBD0D4DAD74B15E5863E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219102.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 848
+
+Aeterna - Легенда Начинается  2018  [MP3|320 Kbps] <Folk Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Intro  1:24 
+ 2. Vänner Och Fränder  4:45 
+ 3. Полюшко-поле  5:25 
+ 4. Мёд Одина  5:11     Читать дальше...    Жанр: Folk MetalПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:230C0536F212B63AE284B35296E7B422A1086C59
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218848.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 218 533
 
 Достучаться до небес - Все твои мечты  2018  [MP3|320 Kbps] <Rock>
@@ -1848,125 +1973,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199817.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 199 791
-
-Адаптация Пчёл - Стеклянный шар  2017  Single [MP3|320 Kbps] <Alternative Rock, Cyber Rock, Spac
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Стеклянный шарЖанр: Alternative Rock, Cyber Rock, Space RockПродолжительность: 00:03:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A8026E7EF57162E5DA820EBF2EA0726430BAB444
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199791.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 199 753
-
-Метанойя - Антициклон  2017  [MP3|320 Kbps] <Acoustic Art Rock, Art Punk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Свет твой
-02. Подо льдом
-03. Успело стемнеть
-04. Карнавал    Читать дальше...    Жанр: Acoustic Art Rock, Art PunkПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB7DCF7E2F1AAE25A09371A1BDF3926E88E32AB7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199753.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 199 699
-
-Полини - Время дождей  2017  [MP3|320 Kbps] <Acoustic Rock, Folk Rock, Art Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Так и стоял до рассвета
-02. Солнце на коне
-03. Золотое правило
-04. Время дождей    Читать дальше...    Жанр: Acoustic Rock, Folk Rock, Art RockПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4D3D09498E4ACBF30BCF72186D65DBE7E961A17F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199699.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 199 411
-
-ДМЦ  Дороги Меняют Цвет  - Что снится собаке?  2018  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Что снится собаке?Жанр: RockПродолжительность: 00:05:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5678D38769868D944CA3F51A0832DBAB7488288A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199411.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 199 118
-
-Forces United - Egorov  2017  [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Евгений Егоров, известный поклонникам рок-музыки как фронтмен power metal группы  Эпидемия  и участник мюзикла  Последнее Испытание  выпускает свой перый сольный альбом! Во многом это стало возможно, благодаря, неиссякаемой  энергии продюсера Кирилла Немоляева  Бони Нем, Слот , который в рамках своей международной музыкальной лаборатии Forces United     Читать дальше...    1. Beconing Heights
-2. Lie
-3. Facing The Storm
-4. Father To Son    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C9AE46AA4895AA22873736FB35A7177D31C3F111
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1199118.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

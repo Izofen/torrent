@@ -1,4 +1,150 @@
 ﻿
+###  Публикация: 779 941
+
+Аркона - Явь  2014  [MP3|320 кб с]<Folk Pagan Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Зарождение
+2. На Страже Новых Лет
+3. Сербия
+4. Зов Пустых Деревень
+5. Город Снов
+6. Ведьма
+7. Чадо Индиго
+8. Явь
+9. В Объятьях КрамолыЖанр: Folk Pagan MetalПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE5D2CA2FFD99CD6ED52893DEC1C13BC91605FA3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 779 673
+
+SilverCast - Имя Ветра  2014  EP [MP3|320 кб с]<Symphonic Power Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Скоро Самайн
+2. Идут Часы
+3. На Одном Крыле
+4. За Линией Огня  Feat. Михаил Нахимович 
+5. Над Рассветной Зарёй
+6. Prayer  Instrumental Жанр: Symphonic Power MetalПродолжительность: 00:27:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F26AFE741A132E04AFA63F2FB0794D4225328E1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 779 587
+
+Психея - ПесниТрущобНадеждыРазбитыхСердец часть 2 - Оттенки Любви  2014  [MP3|320 кб с]<Altern
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Учи Меня  feat. Лёха Никонов   05:36 
+2. Пустая Голова  06:15 
+3. 5+2=7  Дети ZX–Spectrum   03:59 
+4. Жжёные Спички Города  feat. МС Докта Враг   08:44 
+5. НЕSEX  07:08 
+6. Между Молотом и Наковальней  08:13 
+7. Л.и В.  06:35 
+8. Андрогины  05:04 
+9. Реальная Жизнь  07:12 
+10. ЭлекIIIчество  07:37     Читать дальше...    Жанр: AlternativeПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:05877E0484820D321BE9B60176D45A2E9A5DF069
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 779 576
+
+Restless Oblivion - Sands Of Time  2014  [MP3|320 кб с]<Doom Death Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Prologue
+2. Deadline Of Essence
+3. Edge Of Existence
+4. Resolution Of Slavish Pain
+5. Like The Hope Of Escape
+6. Sands Of Time
+7. Our Tunnel Light
+8. Sin Of Pure Life
+9. EpilogueЖанр: Doom Death MetalПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A8EB00A4081F28A03F936C001E9CBF0D4E537AD1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 779 470
+
+N.Tesla - Lux Manifesto  2014  [MP3|320 кб с]<Post-Hardcore, Experimental>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Ør-Vænn
+2. North. Spring. Aurora
+3. Lux Manifesto
+4. Determination Of Giants
+5. Characters Drawn In Taupe
+6. Megalodon
+7. Here Speak Only The BirdsЖанр: Post-Hardcore, ExperimentalПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C600243FEFB89BB4AA0041D89DC97D30DB3C063D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 779 193
 
 Ю-Питер - НауРок  2014  [MP3|320 кб с]<Rock>
@@ -2234,147 +2380,6 @@ Rock, Alternative, Punk, Metal
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:983E8AF27B1FD232D9ED02993AFD8E6BD5871FB8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 729 086
-
-Океан Ельзи  Океан Эльзы  - Избранное  2013  2xCD [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Там, де нас нема  3:29 
-02. 911  3:29 
-03. Без бою  4:20 
-04. Сосни  4:29 
-05. 18 хвилин  4:26 
-06. Онлайн  3:54 
-07. Позич менi сонце  4:07 
-08. Новий день  2:48 
-09. Кавачай  4:38 
-10. Майже весна  4:12 Жанр: RockПродолжительность: 02:32:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5DF2B1D436219821E2DB3742FCCE5083F4E0EE66
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 728 587
-
-БГ - Праздник урожая во дворце труда  Single   2013  [MP3|320 кб с]<Hard Rock, Acoustic>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Губернатор  03:37 
-02. Праздник урожая во дворце труда  03:35 
-03. Не было такой и не будет  02:53 Жанр: Rock, Русский рокПродолжительность: 00:10:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:96FF7FF1126A69665DCD1ECE8A93645F7DF5D910
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 728 563
-
-Несчастный Cлучай - Гоняясь за Бизоном  2013  [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Гоняясь за бизоном
- 02. Товарищ прапорщик
- 03. Ящерка
- 04. Классовая ненависть
- 05. Краски на снегу
- 06. Мясо Криля
- 07. Культ безличия
- 08. Военноподданный романс
- 09. Господи, дай
- 10. Moorka  The Cat     Читать дальше...    Жанр: RockПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E304FCFEBCC8A3291087C41D3C16CC17D7154A4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 727 021
-
-Х*й Забей - Гараж  2013  [MP3|320 кб с]<Acoustic, Ska>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Гараж
-02. Домик для б...дей
-03. 23 февраля
-04. Оливье
-05. Майский жук
-06. Из фейсбука
-07. Светка — 3
-08. Уважаю
-09. Видеорегистратор
-10. КочергойЖанр: Acoustic, SkaПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF219B4AA7186E4A436A5D2BB6DEF4001EDA5430
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 726 939
-
-The Uchpochmack  Земфира  - First & Last  Single   2013  [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Someday  02:47 
- 02. Mistress  feat. David Brown   03:22 
- 03. Lightbulbs  05:55 Жанр: RockПродолжительность: 00:12:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FBE4DD6A39301038453301D82FA0DADB5FEED42D
 ```
 
 <div id="header" align="center">

@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 420 545
+
+VA - Acoustic Classic Rock Covers  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Shannon & Keast - Free Fallin’  04:17 
+02. Meg Birch - Never Tear Us Apart  03:02 
+03. Karizma Duo - Somebody Told Me  03:36 
+04. Thom Cooper - Sex on Fire  03:19     Читать дальше...    Жанр: Pop, Pop-RockПродолжительность: 01:49:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E3CE7D4AE91B19B59EBFA2F87ABBDA58BE9AAA9D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1420545.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 420 489
+
+VA - Романтические дуэты 2  2005  [FLAC|Lossless|tracks + .cue]<Рор>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Ф. Киркоров и М. Распутина - Роза чайная
+02. И. Аллегрова и И. Николаев - Старый знакомый
+03. А. Руссо и К. Орбакайте - Просто любить тебя
+04. А. Губин и О. Орлова - Я всегда с тобой    Читать дальше...    Жанр: РорПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:07141BDEB8FA1B1603AFE7256A79782D32EAA96D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1420489.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 420 487
+
+VA - Высшая лига 3  2004  [FLAC|Lossless|tracks + .cue]<Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. В. Сердючка и Глюк оZа - Жениха хотела
+02. В. Меладзе и виа Гра - Притяжения больше нет
+03. Иванушки International - Я люблю
+04. Валерия - Радуга-дуга    Читать дальше...    Жанр: PopПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:797BB298AE51A93751187E1F2530AA088BEBA9B3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1420487.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 420 486
+
+Валерий Леонтьев - Прикоснись  1994  [FLAC|Lossless|tracks + .cue]<Рор>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Кабаре
+02. Прикоснись
+03. Тайна
+04. Дай мне уйти с тобой    Читать дальше...    Жанр: РорПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF7C62664F97BF1463CC1C4B38FFB8569CFE50C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1420486.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 420 392
+
+VA - Holiday Christmas 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Dean Martin - Let It Snow, Let It Snow, Let It Snow  Capitol Version   Remastered 1998   02:01 
+02. Bing Crosby - White Christmas  1947 Version   03:05 
+03. Ella Fitzgerald - Sleigh Ride  02:55 
+04. Jackson 5 - Santa Claus Is Coming To Town  02:24     Читать дальше...    Жанр: Pop, Pop-RockПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:065CD4D63DA354B29E735FD7C490CFAFC4592C14
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1420392.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 420 206
+
+Bonnie Tyler - The Ultimate Collection  2020  3xCD [FLAC|Lossless|image + .cue] <Pop, Pop Rock,
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+CD - 1:
+01. Total Eclipse Of The Heart
+02. Holding Out For A Hero
+03. Faster Than The Speed Of Night    Читать дальше...    Жанр: Pop, Pop Rock, Soft RockПродолжительность: 03:18:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2AADC518161972748C92F266E1A991891D1AD546
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1420206.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 420 114
+
+Amy Macdonald - The Human Demands  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Fire [00:04:15]
+02. Statues [00:03:46]
+03. Crazy Shade of Blue [00:04:13]
+04. The Hudson [00:04:59]    Читать дальше...    Жанр: Pop, Alternative RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9B04870157A44C95A23D940CFB2960B7F15278C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1420114.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 420 075
+
+Roxette - Bag Of Trix Vol. 1  Music From The Roxette Vaults   2020  [FLAC|Lossless|WEB-DL|tr
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Help!  Abbey Road Sessions November 15, 1995   2:54 
+ 02. Listen To Your Heart  Abbey Road Sessions November 15, 1995   3:34 
+ 03. Let Your Heart Dance With Me  3:07 
+ 04. Waiting For The Rain  Studio Vinden Demo 1997   3:33     Читать дальше...    Жанр: Pop-RockПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C0EA0F33A3DA3CD05CC14CBCD774E2BAD7D3291
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1420075.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 419 894
+
+Митя Фомин - Слышь, да ладно  2020  EP [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Ломаный бит
+2. Слышь, да ладно
+3. Пилами
+4. Снова начать    Читать дальше...    Жанр: PopПродолжительность: 00:16:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4DFFE7851253305F440B4B4C59B29785B9B9B4CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1419894.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 419 892
+
+Стас Михайлов - Шестое чувство  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Не отпускай
+2. Я тебя люблю
+3. Шестое чувство
+4. Доченька    Читать дальше...    Жанр: PopПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D67D76E7F54B264EC33C22E14121ED070AC04C4F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1419892.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 419 884
+
+Bravo - Bravo  1980  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Touch Me Now   7:31 
+02. Chiricaua   4:45 
+03. Look At Me Baby   6:12 
+04. Soul Sacrifice Medley   13:16     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:589D48F4FFEC2ED1E910351E15BB7BEF12D7D44A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1419884.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 419 876
 
 VA - Bravo the Hits 2020 [MP3|320 Kbps] <Pop>
@@ -1708,281 +1983,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1412489.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 411 728
-
-VA - Best of New Generation Maxi Disco Vol. 1  2020  [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco,
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Grant Miller - One Day  Italo Disco Extended Mix   5:38 
-02. Linda Jo Rizzo - Day of the Light  Electro Potato Alternative Edit   3:39 
-03. Energy Voice - Discolights  Extended Mdr Party Mix   6:55 
-04. Luca Gold - A Little Love in My Life  Extended Cut   4:27     Читать дальше...    Жанр: Euro-Disco, Italo-Disco, Hi-NRG, Nu-DiscoПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4706636950D8A4F26E1670B9346970578AD2FF99
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1411728.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 411 647
-
-Юрий Антонов - Коллекция. 3 альбома  1996  [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Folk>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-Релиз содержит альбомы, переизданные студией СОЮЗ в 1996 году. Весь тираж произведён в Швеции. Первое издание этих альбомов было выпущено студией Jeff Records в 1993 году и произведено в Екатеринбурге.Список альбомов:
-1996 - Несёт меня течение
-1996 - Зеркало
-1996 - Лунная дорожкаЖанр: Pop, Pop Rock, Folk, World & CountryПродолжительность: 02:21:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C90A1A502585877B6A6C293974C7AB8ED0BE5D5C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1411647.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 411 628
-
-Joji - Nectar  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Ew
-02. MODUS
-03. Tick Tock
-04. Daylight  with Diplo     Читать дальше...    Жанр: PopПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A4C954EDFA8FA036733A83B2E31DE7F7CA8FDB5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1411628.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 411 620
-
-Will Butler - Generations  2020  [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Outta Here  04:44 
-02. Bethlehem  03:31 
-03. Close My Eyes  04:30 
-04. I Don t Know What I Don t Know  03:30     Читать дальше...    Жанр: Indie PopПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ABAA2FD53012F31AA38803BBACB94CE3BBBCFC14
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1411620.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 411 386
-
-Леонид Утёсов - Записи 30-40 годов  2020  Remastered [MP3|320 Kbps] <Retro, Эстрада>
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-1. Мишика-одессит  2020 Remastered Version 
-2. О чем ты тоскуешь, товарищ моряк?  2020 Remastered Version 
-3. Партизанская тихая  2020 Remastered Version 
-4. На Унтер Ден Лиден  2020 Remastered Version     Читать дальше...    Жанр: Retro, ЭстрадаПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:43ED0AB13ACCEC810DB7472C4B4D888B86DA7D09
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1411386.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 410 782
-
-Michael Fortunati - The Best Of Disco Covers  2018  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco,
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Turn Around And Count 2 Ten  5:56 
-02. Eat You Up  3:50 
-03. You Spin Me Round  Like A Record   4:05 
-04. Never Gonna Give You Up  3:27     Читать дальше...    Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C446BE57DE0B92A6C08AFF7756835DEE3D344EC2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1410782.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 410 781
-
-The Naked and Famous - Recover  2020  [FLAC|Lossless|tracks + .cue] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Recover  03:04 
-02. Sunseeker  03:48 
-03. Bury Us  03:09 
-04. Easy  03:53     Читать дальше...    Жанр: Indie PopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9FAA6CD2664B532C8D8431F50F863FCABDF88B26
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1410781.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 410 595
-
-Alicia Bridges - 2 Albums  1978, 1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Downtemp
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Алисия Бриджес. Родилась 15 июля 1953 года  в Шарлотте, штат Северная Каролина и выросла в маленьком городке округа Кливленд-Лондейл, где пела с самого раннего возраста, научившись играть на гитаре в возрасте 10 лет. В возрасте 12 лет у нее была своя собственная радиопрограмма: шоу Алисии Бриджес, транслируемое каждую субботу на станции  WADA в Шелби. Написала в соавторстве     Читать дальше...    01. Body Heat   3:03 
-02. Break Away   3:25 
-03. High Altitudes   5:03 
-04. We Are One   4:18     Читать дальше...    Жанр: Electronic, Funk Soul, Disco, DowntempoПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:92276ED199C505DF18D797B108602A96426D4CFD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1410595.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 410 366
-
-Hank Marvin - Gold  2019  3xCD [FLAC|Lossless|image + .cue] <Instrumental Pop, Instrumental Soft
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD - 1:
- 01. The Good, The Bad and The Ugly  4:14 
-02. Sealed With A Kiss  3:31 
-03. Peggy Sue  2:48     Читать дальше...    Жанр: Instrumental Pop, Instrumental Soft RockПродолжительность: 03:53:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:411430F87BE692518097D052D2C89DB86673E348
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1410366.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 410 190
-
-VA - 90er Hits  2020  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. No Doubt - Don t Speak  04:22 
-02. Vanilla Ice - Ice Ice Baby  04:29 
-03. 4 Non Blondes - What s Up?  04:55 
-04. 3 Doors Down - Kryptonite  03:54     Читать дальше...    Жанр: PopПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DA898E1EB21148624CF4457B047C5641FCBA448
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1410190.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 410 152
-
-На-На - Прикинь  1997  [FLAC|Lossless|tracks + .cue]<Рор>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Прикинь, да?
-02. Пилот
-03. Провожу тебя до дома
-04. Полуночный ковбой    Читать дальше...    Жанр: РорПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5AADEB3CAACCF2B118A87685B671CB08C9BE1DE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1410152.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

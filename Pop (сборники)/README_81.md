@@ -1,4 +1,285 @@
 ﻿
+###  Публикация: 1 166 788
+
+Kaleida - Tear The Roots  2017  [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Synthpop, Indie
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Convolution
+02. Echo Saw You
+03. All The Pretty Pieces
+04. Division    Читать дальше...    Жанр: Alternative Pop, Synthpop, Indie PopПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:05FDD09C8F8A51670C4FD19DA36B5F2C14805148
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166788.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 166 606
+
+Anastacia - Evolution  2017  [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+1. Caught In The Middle
+2. Redlight
+3. Stamina
+4. Boxer    Читать дальше...    Жанр: PopПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:191B3AB8346BAC401F7B13BE8B961E6252F0CB2B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166606.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 166 555
+
+VA - Skitzmix 90 s Anthems  Mixed by Nick Skitz   2017  [MP3|320 Kbps] <Eurodance, Euro-Ho
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01.  VA - Skitzmix 90 s Anthems  Continuous Mix 1   1:19:09
+02.  VA - Skitzmix 90 s Anthems  Continuous Mix 2   1:18:07
+03.  Nick Skitz - 90 s Anthems Megamix  6:39
+04.  Nick Skitz - Disco Burn  Skitz Burnin  Radio Edit   3:45    Читать дальше...    Жанр: Eurodance, Euro-HouseПродолжительность: 05:33:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C181C235BE643A933C6B3D7F75A866028F970CC7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166555.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 166 428
+
+Батыр  Батырхан Шукенов  - Дискография  2006-2013  [MP3|320 Kbps] <Рор>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Батырхан Шукенов советский казахский и российский эстрадный певец, музыкант, саксофонист, композитор, поэт. Заслуженный деятель искусств Казахстана. Посол доброй воли ЮНИСЕФ в Казахстане. Один из основателей и солист казахстанско-российской музыкальной поп-группы «А’Студио», в составе которой обрёл широкую популярность. После ухода из группы осенью 2000 года занялся     Читать дальше...    2006 - Отан Ана
+2006 - Твои шаги
+2007 - Batyr@XMZ
+2010 - Осторожно, милая девушка!Жанр: РорПродолжительность: 03:47:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE5E1A47C42CB61352BDB5FE589D24B3E2704D6E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166428.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 166 370
+
+А’Студио  А-Студио, A Studio  - Дискография  1988-2010  [MP3|320 Kbps] <Рор>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+А’Студио — советская, казахстанская и российская музыкальная поп-группа.
+С момента создания группы у неё было название «Алма-Ата», затем «Алма-Ата-студио», но после вступления коллектива в «Театр песни» А. Б. Пугачёвой название сократилось до «А-Студио», в дальнейшем — А’Студио.
+До 2000 года вокалистом и лицом группы был Батырхан Шукенов. После него в группе солируют     Читать дальше...    1988 - Путь без остановок  LP 
+1991 - Джулия  LP 
+1993 - A Studio
+1994 - Солдат любвиЖанр: РорПродолжительность: 14:53:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D7C968407FB891B202EF470D30F5EDDF5E659790
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166370.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 166 158
+
+Lx24 - 5 альбомов, 51 сингл  2016-2017  [MP3|320 Kbps] <Рор>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Алексей Назаров, известный публике под псевдонимом Lx24 – российский исполнитель, продюсер и битмейкер, очень быстро завоевавший признание публики благодаря своим душевным песнями о любви и отношениях.
+Алексей Назаров родился 26 июня 1992 года в небольшом городе Орске Оренбургской области.
+Одиночный проект «Lx24» был создан в 2013 году. Известно, что при записи вокала     Читать дальше...    2016 - Зависимость
+2016 - Привет
+2017 - RemixesЖанр: РорПродолжительность: 07:15:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0C31D3C7AA8DFE3F95F52AC955FC4BAA8EA784A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166158.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 166 007
+
+Александр Буйнов - Сто недель  2017  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Сто недель
+2. Танцуй, как Петя
+3. Ранняя зима
+4. Нам с тобою по пути    Читать дальше...    Жанр: PopПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A03D03270A5C3EA9A7F8E175A43DC1EB54D3E559
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166007.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 166 006
+
+VA - Romantic Love Collection  20 Smooth & Tender Tunes   2017  [MP3|320 Kbps] <Pop, Oldies,
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Riccardo Arrighini - Evanescent 5:36
+2. GnuQuartet - Unintended 3:56
+3. Federico Foglia - Full Day of Love 3:19
+4. Angel  Pocho  Gatti e la sua grande orchestra - Sonntag 3:11    Читать дальше...    Жанр: Pop, Oldies, Easy ListeningПродолжительность: 01:14:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CEEAB2B9DFBD7646FDD90F14607B576F7566AE0F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166006.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 165 859
+
+Carlos Peron  ex Yello  - 18 Albums  1981 - 2009  Collection [MP3|320 Kbps] <Electronic, Pop
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+_______________________________________________________________________
+Carlos Peron родился 9 июня 1952 года в Цюрихе. Один из основателей группы  Yello , которую оставил, не выдержав диктата Бориса Бланка в 1984 году. В этом же году основал свой лэйбл Kristall Sound. В качестве продюсера принимал участие в таких проектах, как Wolfsheim, Sielwolf, The     Читать дальше...    Список альбомов:
+1981 - Impersonator
+1984 - Die Schwarze Spinne
+1984 - Nothing Is True; Everything Is Permitted    Читать дальше...    Жанр: Electronic, PopПродолжительность: 17:14:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5CA9C005EDF4DCD2E82CD7CB1A0F5BCCDA21C6D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1165859.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 165 664
+
+VA - Good Times 80s  2017  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Spinners - Cupid   I ve Loved You For a Long Time 03:57
+02. Duran Duran - Rio  Remastered  05:38
+03. George Benson - Give Me the Night  Single Version  04:58
+04. The B-52 s - Love Shack 05:21    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:42:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:94A42B37472CF0C584B998A9A124A4E606E80011
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1165664.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 165 609
+
+Тина Кароль - 7 альбомов, 14 синглов, 6 сборников  2006 - 2017  [MP3|192-320 Kbps] <Pop, Soul, J
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Тина Григорьевна Кароль  укр. Тіна Григорівна Кароль , имя при рождении Татьяна Григорьевна Либерман  укр. Тетяна Григорівна Ліберман; род. 25 января 1985, Оротукан, Ягоднинский район, Магаданская область, РСФСР, СССР  — украинская певица, актриса и телеведущая. Народная артистка Украины  2017 .
+
+Татьяна Григорьевна Либерман родилась 25 января 1985 года в посёлке     Читать дальше...    2006 - Show Me Your Love
+2006 - Ноченька
+2007 - Полюс притяжения
+2010 - 9 жизнейЖанр: Pop, Soul, JazzПродолжительность: 14:19:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E625E3857E324D54F83A7271FAB20731127FB26E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1165609.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 165 603
 
 Secret Service - Aux Deux Magots  1987  Japanese Edition, 1988, Sonet [FLAC|Lossless|image + .cu
@@ -1716,278 +1997,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156145.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 100
-
-D. White - One Wish  2017  [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Fоllоw Mе
-02. Оnе Wіsh
-03. Wаlkіng
-04. Оnе Dау    Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4848C5DC41A767A6D729DB28BD558491ECE6BEF8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156100.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 060
-
-Ken Laszlo - Disco collection  2002  [FLAC|Lossless|image + .cue] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01.Hey Hey Guy
-02.Tonight
-03.Don t Cry
-04.1,2,3,4,5,6,7,8    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F5F16F6655D80BB41AC837B67405D65B37EA7BA5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156060.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 155 576
-
-VA - Italo Top Hits  1979  LP [MP3|320 Kbps] <Electronic, Pop Rock, Italodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Alan Sorrenti - Tu Sei L Unica Donna Per Me  3:36 
-02. Umberto Tozzi - Gloria  4:23 
-03. Gianna Nannini - America  4:19 
-04. Armonium - Bambina Mia  2:54     Читать дальше...    Жанр: Electronic, Pop Rock, ItalodanceПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0CC16E8D06A7104B78AA5833A72F881258764F10
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1155576.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 155 423
-
-VA - I Love The Bee Gees Volume 2  Strictly DJ Only   2017  [MP3|320 Kbps] <Disco, Funky>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01.  Kevin Sweeney - Saturday Night Fever  A 30 Year Celebration Mix   12:14
-02.  Blockster vs. Bee Gees - All Mixed Up  Tom Newton Mix   6:12
-03.  Bee Gees - Stayin  Alive  Rod Layman RKL Double Up Remix   5:52
-04.  Bee Gees vs. Donny Osmond - How Deep Is Your Love  DJ Santana 2017 Mix   4:56    Читать дальше...    Жанр: Disco, FunkyПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:056556B3527622B1B2C9AB3E204329DB0BD5C5AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1155423.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 155 321
-
-Pussycat - Gold  1999  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.Mississippi
-02.Georgie
-03.Smile
-04.My Broken Souvenirs    Читать дальше...    Жанр: PopПродолжительность: 00:62:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFEF5E09DB72902AFE52136FC49CF25E36EA6D08
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1155321.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 155 115
-
-Milli Vanilli - Greatest Hits  2006  [FLAC|Lossless|tracks + .cue] <Europop, Hip-Hop, 80 s>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. All Or Nothing  3:22 
- 02. Baby Don t Forget My Number  4:10 
- 03. Blame It On The Rain  4:09 
- 04. Boy In The Tree  3:12     Читать дальше...    Жанр: Europop, Hip-Hop, 80 sПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:83E0C1C7E3F69EEE24C3E20318D0BDC71AA91FDB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1155115.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 154 822
-
-Blackwell - Boogie Down  1978  LP [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Boogie Down And Mess Around  5:14 
-02. Put The Funk Back  4:09 
-03. That s What It s All About  4:30 
-04. Move Your Ass Gringo  3:58     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DFF0DA67D0021F17D5344C674E35109C850C8D5D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154822.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 154 570
-
-ЕVгеника - Оптимистка  2017  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Оптимистка 3:44
-02. Бабы 3:47
-03. Мигалки 3:20
-04. Остров 3:31    Читать дальше...    Жанр: PopПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06C8BDED8E5DE126B398ED2D10319FBCE234214C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154570.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 154 467
-
-Sheila & B. Devotion - 2 Albums  1977, 1980  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Диско - шоу проект известной французской  исполнительницы Шейлы и негритянского сопровождения  Черная Преданность   BLack Devotion . Выпустили совместно только эти два альбома, достигнув пика популярности в Европе и распались в 1980 м. Далее Шейла продолжила свою сольную карьеру.01. Love Me Baby  3:37 
-02. Shake Me  4:41 
-03. Kiss Me Sweetie  6:49 
-04. Singin  In The Rain  6:47     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FD45EC46B5B70A03C0A0A8D59C962DDA9A874011
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154467.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 154 441
-
-Tom Jones - The Best Of Tom Jones  1999  3CD Box Set [MP3|320 Kbps] <Pop, Blues, Soul>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Жанр: Pop, Blues, SoulПродолжительность: 02:35:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FDFB8505053A03ADF5C30C30EF9ED42547495C5B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154441.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 154 305
-
-Den Harrow - ForeveR  The Album  By Eurokrimen  2017  [MP3|256 Kbps] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. A Taste Of Love  Krimen Project Scratch 
-02. Memories Of Mad Desire  Krimen Project Version 
-03. Day By Day  The Other Day Re-Mix 
-04. Bad Boy  The Ultimatum Re-miX     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BA301B203A0BA2CF5088033768527E05084C6FCB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154305.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

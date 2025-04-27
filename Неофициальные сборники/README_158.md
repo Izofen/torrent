@@ -1,4 +1,354 @@
 ﻿
+###  Публикация: 1 032 212
+
+VA - Зарубежная Дискотека ХХ Века - 73  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Vanilla - Bamboleo   1988  
+02. Lala - Johny Johny   1987  
+03. Lena - Run To Me   1987  
+04. Joe Maran - Give Me A Break   1983      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B3FA10FE537A23B2D0D8B1DEC970F8F0219B9669
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032212.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 207
+
+VA - Зарубежная Дискотека ХХ Века - 72  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Hurricanes - Only One Night   1988  
+02. Seal - Kiss From A Rose   1994  
+03. Night Society - Hold Me Tight   1985  
+04. E-Lusion - Use Your Love   1998      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:23025483C437DCF4E6EE3288A27D8929A8A3E5CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032207.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 205
+
+VA - Best of Lounge, Ambient and Chill Out, Vol. 3  2013  [MP3|320 Kbps] <Balearic, Downtempo>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. Sylvering - Sunday Bloody Sunday [04:16]
+02. Guenter Haas - Lost in a Dream [06:39]
+03. Metaharmoniks - From Soul to Soul [03:17]
+04. Simon Le Grec - Crying Souls [11:21]    Читать дальше...    Жанр: Balearic, DowntempoПродолжительность: 01:59:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99EDFEF0FD8BE56732ECC12FB8C310844A7D0ABC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032205.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 195
+
+VA - Outline Deep House  2016  [MP3|320 Kbps] <Club, Deep House, Electro House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Amirali - Chromatic Dreams
+002. Damon Paul - Rhythm Is a Dancer  Patricio Amc Luna Mix 
+003. Sante - Awake Feat. J.U.D.G.E  Agoria Remix 
+004. Danky & Brain - Chasing Cars  R.I.C.K. Remix     Читать дальше...    Жанр: Club, Deep House, Electro HouseПродолжительность: 09:51:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0A4302D05F45E6FD7BD6FDF28EB7756F8F564503
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032195.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 194
+
+VA - Trance Is Love - Trance Is  Life  2016  [MP3|320 Kbps] <Trance, Melodic, Energy>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Ayla -  Ayla  Omar Sherif 2016 Remix  6:49
+002. John Sander -  Filling Hearts  Original Mix  7:09
+003. Ben Gold Feat. Christina Novelli -  All Or Nothing  Allen Watts Extended Remix  5:31
+004. Masters & Nickson Feat. Justine Suissa -  Out There  Robert Nickson 2016 Extended Remix  7:30    Читать дальше...    Жанр: Trance, Melodic, EnergyПродолжительность: 09:49:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE113EE718A61BD6B5207D608A8575D0E1346976
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032194.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 187
+
+VA - Electrodance Latino  2016  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Kike Puentes - Shake That  Original Mix 
+02. Clase-A - Pa Que Bailes  Original Mix 
+03. Fran Garzziak - El Que Te Daba Era Yo  feat Sergio Requena - Radio Edit 
+04. Charly Rodriguez & Tarek Dollar-T - Ella Es  Original Mix     Читать дальше...    Жанр: PopПродолжительность: 02:16:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1F480981038710B6C8290E6040A1773FE5F21E8F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032187.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 186
+
+VA - Зарубежная Дискотека ХХ Века - 69  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Video Kids - Woodpeckers From Space   1985  
+02. Michael Fortunati - Energyse   1987  
+03. Gazebo - Masterpiece   1983  
+04. Digital Emotion - Humanity   1984      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6AE4F29000528C67198DA6A0DB0453DCC06E8577
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032186.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 183
+
+VA - Зарубежная Дискотека ХХ Века - 68  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Fancy - Bolero   Hold Me In Your Arms Again 1986  
+02. Scooter - Let Me Be Your Valentine   1996  
+03. Eurythmics - The First Cut   1984  
+04. Baby s Gang - Happy Song   1983      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B733B3B16BF899D5E851680682E58B159D4C162
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032183.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 181
+
+VA - Зарубежная Дискотека ХХ Века - 67  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Fake - Frogs In Spain   1984  
+02. Scala - Macchina Nera   12   Version 1989  
+03. Cherry   Lian Ross   - If You Believe   Cherry Mix 1999  
+18. Dr. Alban - It s My Life   1992      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C34B06630E52BEA727121214001067DDE09B4D17
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032181.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 180
+
+VA - Зарубежная Дискотека ХХ Века - 66  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Digital Mind - Count Down   1985  
+02. Charly Danone - Take Me To Bed   1988  
+03. Martinelli - Voice   In The Night     1983  
+04. Noe Willer - Toi Femme Publique   1985      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C929E1DE7CD09A6D9CDB2BC2D9C02332EEEAE04
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032180.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 176
+
+VA - Зарубежная Дискотека ХХ Века - 65  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Divine - I m So Beautiful   Original 12   Mix 1984  
+02. Limbo Koblaz - Doctor Edison   1984  
+03. Wow - The ABC s Of Love   1996  
+04. Fancy - Save The Moment   1986      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2ECB0B87A909F7320AE29307604DA31F3BFEC7ED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032176.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 173
+
+VA - Зарубежная Дискотека ХХ Века - 64  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Torrevado - Living In The Shuttle   1985  
+02. David Lyme - Bambina   Original Version 1986  
+03. C. C. Catch - Stay   1986  
+04. Laban - Jeg Ka  Li  Dig Alligevel   1982      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43B6AAA733C47552D4907920BD12B30B103F0BCE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032173.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 172
+
+VA - Зарубежная Дискотека ХХ Века - 63  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Eddy Huntington - May Day   1989  
+02. LLL - Republika   1990  
+03. Joy Peters - You`re So Vain   1986  
+04. Beatles - Something   1969      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:22:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80884B0885042FD44F31B9A6DF58930925887719
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032172.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 170
+
+VA - Зарубежная Дискотека ХХ Века - 62  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Riccardo Fogli - Le Donne Degli Amici   1985  
+02. Max Mix - Version Megamix   Vol. 1     1984  
+03. Sandra - Change Your Mind   1985  
+04. Radar - China Darling   1983      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:32800E9246D74225B8B01FFC51F1546111BA6A96
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032170.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 032 169
 
 VA - Зарубежная Дискотека ХХ Века - 61  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -1633,355 +1983,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031279.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 031 257
-
-Dj ruS - Radioshow summer june 2016 Vol.1  2016  [MP3|192 Kbps] <House, Dance Pop>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-Dj ruS Radioshow summer june 2016 Vol.1
-Radioshow summer june 2016 Vol.1
-Nvrdjstudio@2016Жанр: House, Dance PopПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF1BACDDFF08DB7BA2912A4D51F4885DAB20C3B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031257.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 031 087
-
-VA - Зарубежная Дискотека ХХ Века - 46  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Patty Ryan - I Don t Want To Lose You Tonight   1987  
-02. Alan Barry - Gimme Gimme   1986  
-03. 2 Eivissa - Move Your Body   1998  
-04. Pet Shop Boys - Two Divided By Zero   1986      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44B1B095D059444F52203E1E51E9AEBB783F2118
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031087.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 031 060
-
-VA - Chill out Summer Sounds  2016  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Stars Over Foy - Until We Meet Again in Heaven - Vechigen Alternative Chillout Remix
-02. The Rex-Factor - Dog Ate My Shoe - Chill Mix
-03. Dr. J. James - Mind Peace - Healing Nature Mix
-04. Jamie Duvel - Gift of Magic    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:180FAE8609498683B704E64AC4B5C2C6A7F6420C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031060.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 031 036
-
-VA - Kamasutra Erotic and Sexy Compilation 2016: Love Making Music  2016  [MP3|320 Kbps] <Downte
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Radney Lee - Free Your Mind
-02. Jagdish Kay - Purity of Mind
-03. Sanjay Farrell - Cloud Line
-04. Deepak Rajesh - Body of Joy    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:696DBA56948BC748580A0CF2E21C23F7EDD976EE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031036.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 982
-
-VA - Русская Дискотека ХХ Века - 20  Юбилейный   2010  [MP3|320 Kbps]<Disco, Dance, Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Мираж - Электричество   1988  
-02. Жуков Рома - Первый Снег   1988  
-03. Анонс   Александр Касимов   - СССР   1991  
-04. Планета Икс   Агафонов Владислав   - Лебеди   1988      Читать дальше...    Жанр: Disco, Dance, Pop.Продолжительность: 01:18:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C08D35E82AF444D4F9E66842A4241137253FE008
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030982.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 981
-
-VA - Русская Дискотека ХХ Века - 19  2010  [MP3|320 Kbps]<Disco, Dance, Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Вишневый Сад - Дельфин   1993  
-02. Шторм Анна - Электрошок   1994  
-03. Быков Вячеслав - Любимая Моя   1996  
-04. Гуляй Поле - Свадьба   1991      Читать дальше...    Жанр: Disco, Dance, Pop.Продолжительность: 01:26:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C35112BC56F298BB12BF7CFF408E3E777C01F5F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030981.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 978
-
-VA - 50 оттенков музыки 18+  06.2016  [MP3|112-320 Kbps] <Pop, Dance, Electronic, Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. ATB Feat. Sean Ryan - All I Need Is You
-02. Kaskade feat. Rae Morris - Call My Name
-03. Kito and Reija Lee - Sweet Talk
-04. Eli and Fur - You re so High  Radio Edit     Читать дальше...    Жанр: Pop, Dance, Electronic, RockПродолжительность: 07:21:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4B8407A28CCB94EE57B9BE800930B9A414689B41
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030978.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 976
-
-VA - Русская Дискотека ХХ Века - 18  2010  [MP3|320 Kbps]<Disco, Dance, Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Лолита - Забытые Герои   Бони М     1990  
-02. Королева Наташа - Желтые Тюльпаны   1990  
-03. Mr. Credo - Cosa Nostra   1998  
-04. Студия Звук - Чико   1989      Читать дальше...    Жанр: Disco, Dance, Pop.Продолжительность: 01:13:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:327EA327C3FD25325271A1F016611A6A39020A35
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030976.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 972
-
-VA - Русская Дискотека ХХ Века - 17  2010  [MP3|320 Kbps]<Disco, Dance, Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Журавлева Марина - Белая Черемуха   1991  
-02. Лагуна   Виктория Харенко   - Вот И Все   1992  
-03. Комбинация - Не Грусти   1991  
-04. Игра   Игорь Гранов   - Неспелая Вишня   1989      Читать дальше...    Жанр: Disco, Dance, Pop.Продолжительность: 01:12:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D5A2A168DDA180E7CA1C6058378D07339A971C88
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030972.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 968
-
-VA - Русская Дискотека ХХ Века - 16  2010  [MP3|320 Kbps]<Disco, Dance, Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Куклы Напрокат   Валерий Залкин   - Капали Слезы   1999  
-02. Президент & Амазонка - Жу-Жу   1997  
-03. Стеклянные Крылья - Чертенок   1989  
-04. Империя - Малышка   1992      Читать дальше...    Жанр: Disco, Dance, Pop.Продолжительность: 01:15:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FFD5DB8D4E18051DDD3E404453FAE57C5145AB18
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030968.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 958
-
-VA - Русская Дискотека ХХ Века - 15  Именной   2010  [MP3|160-320 Kbps]<Disco, Dance, Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Веселые Ребята   Александр Добрынин   - Розовые Розы   1988  
-02. Пахомов Константин   Ласковый Май   - Светлана   1989  
-03. Сладкий Сон   Сергей Васюта   - Оля   1992  
-04. Апина Алена - Призывник Мой, Леха   1993      Читать дальше...    Жанр: Disco, Dance, Pop.Продолжительность: 01:22:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B2E393E7B492FD1F91005216160736A2FDAED9A7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030958.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 956
-
-VA - Русская Дискотека ХХ Века - 14  2010  [MP3|320 Kbps]<Disco, Dance, Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Метов Кай - Position № 2   1993  
-02. Неоновый Мальчик - Остановись   1990  
-03. МГК - Свечи   1997  
-04. 140 Ударов В Минуту - Тополя  1999      Читать дальше...    Жанр: Disco, Dance, Pop.Продолжительность: 01:13:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA99E42E9A7DF6898BB4A966CA4D5726AE791752
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030956.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 952
-
-VA - Русская Дискотека ХХ Века - 13  2010  [MP3|320 Kbps]<Disco, Dance, Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Божья Коровка - Гранитный Камешек   1994  
-02. Неигрушки - 100 Дней До Приказа   1999  
-03. Глызин Алексей - Зимний Сад   1990  
-04. Корнелюк Игорь - Милый   1989      Читать дальше...    Жанр: Disco, Dance, Pop.Продолжительность: 01:13:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3FDFFC85E43B21AA06F1330B2EE1288D7A4D2DF0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030952.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 947
-
-VA - Русская Дискотека ХХ Века - 12  2010  [MP3|320 Kbps]<Disco, Dance, Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Уик-Энд - Фотомодель   1991  
-02. Ида - Реку Перейти   1993  
-03. Забытый Разговор - Если Хочешь   1990  
-04. Малинин Игорь - Штирлиц   1995      Читать дальше...    Жанр: Disco, Dance, Pop.Продолжительность: 01:14:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF750B3EFDC00B251D26B68D15337F696CEC4671
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030947.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

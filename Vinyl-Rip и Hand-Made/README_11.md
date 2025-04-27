@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 645 674
+
+VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Country, Soul>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Hot Chocolate - You Sexy Thing
+A2 Silver Convention - Save Me
+A3 Chequers - Rock On Brother
+A4 Drifters - Hello Happiness(   Читать дальше...   )Жанр: Pop Rock, Glam, Country, SoulПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:23BBC4E9ACA3EF0514DC61B52F614085D892AE85
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1645674.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 645 475
+
+VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-Rip] <Funk, Pop Rock,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Manuel & The Music Of The Mountains - The Windmills Of Your Mind
+A2 Cliff Richard - Spanish Harlem
+A3 Bobbie Gentry - Ode To Billy Joe
+A4 Roger Whittaker - Dirty Old Town(   Читать дальше...   )Жанр: Funk, Country, Pop Rock, Easy ListeningПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FAD8D4E54EAE979C637F7A47C69564A37CD4CC0F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1645475.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 645 217
+
+Katatonia - Studio Albums (13 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|t
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Katatonia — шведская группа, основанная в 1991 году в Стокгольме Йонасом Ренксе и Андерсом Нюстрёмом. Раннее творчество коллектива принято характеризовать как дэт-дум-метал, а сама группа, наряду с My Dying Bride, Anathema и Paradise Lost, считается лидером этого жанра.1993 - Dance Of December Souls
+1996 - Brave Murder Day
+1998 - Discouraged Ones
+1999 - Tonight's DecisionЖанр: Doom/Death Metal; Gothic/Progressive RockПродолжительность: 14:29:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C484DD37B26F5F06B982CB204938193505EB5ACE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1645217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 644 684
+
+Валерия - Звёздная Коллекция (2001) Compilation, Unofficial Release [FLAC|24/48|image + .cue|Tape-Ri
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. Не Обманывай
+02. Не Обижай Меня
+03. Рига-Москва(   Читать дальше...   )Жанр: Europop, Euro House, Pop RockПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:71F207E6629AC8C46C0C88C5F6B30D40BCA9CBD6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1644684.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 644 307
+
+Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Electronic,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1		I'm Your Baby Tonight	5:00
+A2		My Name Is Not Susan	4:38
+A3		All The Man That I Need	4:09
+A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1644307.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 643 972
+
+Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, Reissue, Gatefold 180
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+00:38:54
+
+A1 Atomic
+(A. Maratrat, G. L'Her)(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 03:11:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1643972.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 643 464
+
+Presto Ballet - Studio Albums (6 releases) (2005-2018) hand made [restored, declipped] [FLAC |16/44.
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Presto Ballet — прогрессив-рок-группа, основанная гитаристом Metal Church Курдтом Вандерхофом.2005 - Peace Among The Ruins
+2008 - The Lost Art of Time Travel
+2011 - Invisible Places
+2012 - Relic of the Modern World(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 05:00:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:19A6E9A8F9E2B3623EB50A2D988D4F33686E3769
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1643464.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 642 992
+
+Emperor - Studio Albums  7 releases   1993-2001  hand made [restored, declipped] [FLAC|16 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Emperor — норвежская блэк-метал-группа, основанная в 1991 году и оказавшая значительное влияние на развитие жанра.1993 - Emperor  EP 
+1994 - As The Shadows Rise  EP 
+1994 - In the Nightside Eclipse
+1998 - Anthems To The Welkin At DuskЖанр: Symphonic Black MetalПродолжительность: 04:17:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6CC8EDBE9CC8A2E1A81A8C3BDD8F5C6ADA895EFC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1642992.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 642 795
 
 Deserted Fear - Studio Albums (5 releases) (2012-2022) hand made [restored, declipped] [FLAC 2.0|44/
@@ -1787,206 +1987,6 @@ A4 Калифорния · California    Читать дальше...    Жан�
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630590.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 459
-
-Sentenced - Studio Albums (12 releases) (1990-2005) hand made [restored, declipped] [FLAC 2.0|44/16|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Sentenced — финская англоязычная метал-группа, сменившая с момента основания в 1989 году до момента распада в 2005 несколько различных метал-стилей.1991 - Shadows Of The Past
-1993 - North From Here
-1995 - Amok
-1996 - DownЖанр: Melodic Death/Gothic MetalПродолжительность: 09:02:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E6F8C1601CBCD2593A55A89E50F59ED4A3AB2CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630459.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 340
-
-Орк. Большого театра СССР, дир. А. Жюрайтис - Р. Щедрин - Сюита № 2 из балета «Конек-горбунок» (1963
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Р. ЩЕДРИН (р. 1932)
-2-я сюита из балета "Конек-Горбунок"
-01. Танец с балалайками
-02. Братья в ночном дозоре(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:45283206E50DD258C2C51C4AD0FF3D051359274C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630340.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 326
-
-Т. Николаева/Л. Брук и М. Тайманов - И. Стравинский/Ф. Пуленк - Каприччио/Концерт для двух ф-но с ор
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Каприччио Для Ф-но С Оркестром
-A1 Presto
-A2 Andante Rapsodico
-A3 Allegro Capriccioso Ma Non Giusto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D2E61958C216378831928B25235310246FEA534
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630326.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 250
-
-Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1		S.O.S. (Love To The Rescue)	4:21
-A2		Which Way Is Up	4:26
-A3		Living In A Dream	4:56
-A4		Teach You How To Dance	5:31(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C5254D9BB5A34611EB66977C6F87B0DCBA08C3C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630250.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 238
-
-Dee D. Jackson - Cosmic Curves  1978  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Pop
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Automatic Lover 4:08
-A2 Red Flight 4:10
-A3 Galaxy Of Love 4:48
-A4 Meteor Man 4:47    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C7C57E8EC626A14CA1AD3EF1767C7F9A56EA7A12
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630238.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 232
-
-Stream of Passion - Studio Albums  5 releases   2005-2014  hand made [restored, declipped] [
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Stream of Passion — мексикано-нидерландская симфоник- готик-метал-группа, образованная в 2005 году Арьеном Антони Люкассеном и Марселой Бовио.2005 - Embrace the Storm
-2006 - Out in the Real World  EP 
-2009 - The Flame Within
-2011 - Darker DaysЖанр: Progressive Symphonic MetalПродолжительность: 04:11:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D32D97DBEB6C81168B9B3BDE39813A4408ACD96F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630232.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 226
-
-Gorillaz - Cracker Island  2023  [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip Hop, Rock, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Cracker Island  3:33 
- 02. Oil  3:50 
- 03. The Tired Influencer  3:31 
- 04. Tarantula  3:32     Читать дальше...    Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CC458EC151F24CA9F2FCC5F22DBF416BD57AF0BB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630226.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 630 201
-
-Красные Маки - Если Не Расстанемся...  1980  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-А1 Встречай Меня
-А2 Если Не Расстанемся
-А3 Скажет Девчонка
-А4 Давай Попробуем Вернуть    Читать дальше...    Жанр: PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E6CDF7484CFC3EF2251AAEFB65F308B95B16B3D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630201.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

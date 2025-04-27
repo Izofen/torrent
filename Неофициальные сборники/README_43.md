@@ -1,4 +1,354 @@
 ﻿
+###  Публикация: 1 464 320
+
+VA - Emotional Chill  2021  [MP3|320 Kbps] <Pop, Chill House, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Braaten & Chrit Leaf - Vacation Night  2:55 
+02. ConKi, Daniel Robinson - True Colors  2:20 
+03. Surf Mesa, Emilee - ily  i love you baby   2:56 
+04. Robin Schulz, Nico Santos - More Than a Friend  3:12     Читать дальше...    Жанр: Pop, Chill House, OtherПродолжительность: 03:39:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E93F0FD38DFBEE8BAD320CEFF034010C597F2928
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464320.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 464 292
+
+VA - NYE: Electro Dance Music Session  2021  [MP3|320 Kbps] <EDM, House, Techno, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+То, что вы сейчас услышите, должно как минимум повысить Ваше настроение. Как максимум - неописуемый взрыв эмоций, зашкаливающих в середине данного сборника, треки которого в этом миксе абсолютно все заслуживают пристального внимания. Они интересны, динамичны, и имеют очень глубокое и насыщенное звучание.001. Hikari Ft. Bjorn Verbex - Karma
+002. Cj Alexis - Phantom
+003. Zentral Brothers - Spending My Time
+004. Rgmusic Allstars - With Thanks From Allstars    Читать дальше...    Жанр: EDM, House, Techno, ElectroПродолжительность: 09:55:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:30BFDE588C5D62ABFEC5D8B11B192F60F4F7D4A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464292.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 464 290
+
+VA - Nu Disco: New Generation And The Remixes  2021  [MP3|320 Kbps] <Nu Disco, Funky, Dance, Dis
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+Взрывная энергетика, яркие образы, аутентичный вокал и дух старого доброго диско в сборнике  Nu Disco: New Generation And The Remixes . Само название лонгплея уже говорит, что здесь Вы услышите не заезженные ретро хита, а новые композиции в стиле диско от наших современников.001. Aldous - Birthday
+002. Probably Shouldnt - Canon
+003. The Beat Broker - Hold Your Horses
+004. Erdinc Erdogdu - Skin    Читать дальше...    Жанр: Nu Disco, Funky, Dance, Disco HouseПродолжительность: 09:31:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:32E3D510422E14214720738268EB74DFE672665D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464290.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 464 284
+
+VA - Best Classic Blues & Soul  2021  [MP3|320 Kbps] <Blues, Soul, R&R>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+Сборник  Best Classic Blues & Soul  для тех, кто знает толк или просто находит удовольствие в ретро музыке, где вокал исполнителя далеко не на последнем месте. Здесь Вы услышите самые яркие и непредсказуемые импровизации как  новой волны  мирового вокала, так и шедевры прошедших лет.001. Blues on the Loose - A Bad Influence
+002. Ike & Tina Turner - A Fool For You
+003. Dr  Wu and Friends - The Devil in Me
+004. Peter Martinsson Group - Why So Sad    Читать дальше...    Жанр: Blues, Soul, R&RПродолжительность: 10:36:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E8C2B2E66D2804C5EE0853B10927A57153172331
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464284.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 464 276
+
+VA - Beatport Electro House: Sound Pack #277  2021  [MP3|320 Kbps] <Electro House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Очередная подборка наиболее интересных треков апреля в стиле Electro House от известного музыкального интернет лейбла в 277-м релизе!001. Alessandro Cenatiempo - Midnight Sax
+002. Javier Bollag - Volta
+003. Carloscres - Future Tan
+004. Carloscres - Jetlag    Читать дальше...    Жанр: Electro HouseПродолжительность: 11:38:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C52F1607DE9E724569CE966C8A6450459833EEAA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464276.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 464 186
+
+VA - Deep House Relax 2  2021  [MP3|320 Kbps] <House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Alex Hook, Rene - No More Lies  Tosel & Hale Remix   7:48 
+002. Deepjack - Can t Stop  Original Mix   7:04 
+003. Sako Isoyan, Irina Makosh - Dreamer  7:03 
+004. A-Mase, Sharliz - My Love  6:45     Читать дальше...    Жанр: HouseПродолжительность: 07:24:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A7D1CAE5FF8AC4D9F9D5C0B68924C45A11E3CF5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464186.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 463 637
+
+VA - Three Shaman  2021  [MP3|320 Kbps] <Native American, World music>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Red Nativity - Three Shaman
+02. Soulfood - Vision Quest
+03. Joseph Fire Crow - War Dancer
+04. Navajo - Ly-O-Lay Ale Loya    Читать дальше...    Жанр: Native American, World musicПродолжительность: 04:10:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E8DBB3736F9DD0D276EC4693C78A95D91C6A11AD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1463637.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 463 541
+
+VA - Best 80s Disco Hits 3  2021  [MP3|320 Kbps] <Pop, Disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Culture Beat - Mr. Vain  5:41 
+02. Army Of Lovers - Crucified  3:34 
+03. Army Of Lovers - La Plage De Saint Tropez  3:33 
+04. Arabesque - Midnight Dancer  3:40     Читать дальше...    Жанр: Pop, DiscoПродолжительность: 04:10:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B9F32EC03C3F6B6BB496CC1C8A0F1E8A8D28F0C3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1463541.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 463 480
+
+VA - Record Super Chart 17.04.2021 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Ваня Дмитриенко - Венера-Юпитер  D. Anuchin Radio Edit   2:54 
+02. Eneli, Monoir - 3 to 1  3:39 
+03. Tiesto - The Business  2:44 
+04. Phao KAIZ Remix - 2 Phut hon  3:03     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:32:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:39A8489E88BBB1FEC435D0B8ED3FAD2753FAA0D7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1463480.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 463 376
+
+VA - Зайцев.нет Лучшие новинки Апреля  2021  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. КерамикА - Журналюги  4:30 
+02. Катя Адушкина, ЛСП - Малэнкий малчик 2.0  3:14 
+03. Maior - EASY  3:13 
+04. Вадвэй & Арианна - Последний раз  3:04     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:15:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:185FC6561545028AC1C9AE239C089FBB1ECC1944
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1463376.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 463 319
+
+VA - Chill Hits  2021  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Conan Gray - Heather  3:18 
+002. LEON - In a Stranger s Arms  3:21 
+003. Sasha Sloan - smiling when i die  3:26 
+004. ZAYN - Vibez  2:43     Читать дальше...    Жанр: PopПродолжительность: 06:55:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:842F5633783977BCEF4D9CB9B69089956CD9CD65
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1463319.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 463 218
+
+VA - Music News vol.92  2021  [MP3|320 Kbps] <Pop, Soul, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Iguana - Минимум  03:51 
+ 002. AFSHINAM feat. Vivranmodi - Ajnabi  03:35 
+ 003. Alexa - Como Hare  04:26 
+ 004. Alyona Poli - Свет  02:40     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 09:01:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6ADD526C34CA747E9BF4C7ECD1D09ED88A699B23
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1463218.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 463 118
+
+VA - German Top 100 Single Charts 16.04.2021 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Nathan Evans - Wellerman  Sea Shanty   220 KID x Billen Ted Remix 
+02. Santos, Sido & Samra - Leere Hände
+03. Luciano - KIDS FROM THE BLOCK
+04. Lil Nas X - MONTERO  Call Me By Your Name   But Lil Nas X Is Silent The Entire Time     Читать дальше...    Жанр: PopПродолжительность: 04:54:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2D1029B79DDBA85BEAE9692B4F24B979AD304AEF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1463118.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 463 103
+
+Harvey Mandel - The Best Of Harvey Mandel  1971-2020   2021  [MP3|320 Kbps] <Blues, Rock Blu
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+Американский гитарист, известный своим неординарным стилем игры на электрогитаре. Будучи профессионалом в свои двадцать, он играл с такими коллективами как Canned Heat и the Rolling Stones, а также начал свою сольную карьеру.001. Shorts Stuff
+002. 90 In The 53
+003. Campus Blues
+004. Free Flow    Читать дальше...    Жанр: Blues, Rock BluesПродолжительность: 08:04:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B8578F9E597F89FD966ADF2AEE3DA21B7D5C1ED7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1463103.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 463 099
 
 VA - Beatport Tech House: Sound Pack #276  2021  [MP3|320 Kbps] <Tech House, Club, Dance>
@@ -1644,356 +1994,6 @@ Jazz, Blues, Soul  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460564.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 556
-
-Alamесоs Dе La Siеrra - Las Pacas  2021  [MP3|320 Kbps] <Latin, Folk>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Подборка лучших песен коллектива  Alamесоs Dе La Siеrra ! Типичные народные мексиканские песни, в которых выражен весь национальный колорит этого народа!01. Bajando Del Rancho
-02. Casita De Adobe
-03. Como Te Extraсo
-04. El Caiman    Читать дальше...    Жанр: Latin, FolkПродолжительность: 04:48:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E7A4FE2AED1B8465E986093BC244DC41EA3F7F9F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460556.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 554
-
-VA - CrossFit  2021  [MP3|320 Kbps] <Rap, Dirty Dubstep, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Riles - !I ll Be Back!  2:58 
-002. NEFFEX - Soldier  3:36 
-003. BTS, Desiigner, Steve Aoki - MIC Drop  Steve Aoki Remix   3:58 
-004. Hollywood Undead - Undead  4:25     Читать дальше...    Жанр: Rap, Dirty Dubstep, OtherПродолжительность: 06:23:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6017CB7560E87FFB5865FA94C472D64743A8DC3C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460554.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 431
-
-VA - Music News vol.89  2021  [MP3|320 Kbps] <Pop, Soul, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Lova - One Day Left  TOMMI Remix   02:35 
- 02. AlphaLove feat. Conor Maynard - Don t Wanna Stop  VIP Mix   03:41 
- 03. Anet Fadeeva - Fire Love  03:55 
- 04. Antoine Simar - Free Your Mind  Da Brozz Remix   02:35     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 04:31:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BD93B7B1D56D089A31CE8137CAE867EE20480661
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460431.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 401
-
-VA - 200 mp3  2021  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Travis Scott - SICKO MODE  5:12 
-002. Dj Dru - Feel The Burn  2:38 
-003. Kura - Beast Mode  2:41 
-004. Steve Angello, BROHUG - KNAS  BROHUG Remix   3:21     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 10:19:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3DA17ABF65576E5F580E197968C93392CD3E09E8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460401.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 197
-
-The Beatles - Sgt. Pepper s Lonely Hearts Club Band  SMRP Stereo from Mono Originals   1967<
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01-Sgt. Pepper s Lonely Hearts Club Band  02:02 
-02-With A Little Help From My Friends  02:45 
-03-Lucy In The Sky With Diamonds  03:27 
-04-Getting Better  02:47     Читать дальше...    Жанр: Classic RockПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:092C6E016B545DE556E932ED0B7F31A817236CFD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460197.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 156
-
-VA - Record Super Chart 03.04.2021 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Ваня Дмитриенко - Венера-Юпитер  D. Anuchin Radio Edit   2:54 
-02. Tiesto - The Business  2:44 
-03. Eneli, Monoir - 3 to 1  3:39 
-04. Slava Marlow - ТЫ ГОРИШЬ КАК ОГОНЬ  2:19     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:30:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E96E397893173C89CDB1B37383B2C3F061E312C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460156.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 148
-
-VA - Tik Tok Треки выстрелили весной 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. creamy, Solace - Can t Take My Eyes Off You  3:14 
-002. Beach Bunny - Cloud 9  2:27 
-003. nowifi, LissA - High  3:02 
-004. Henri Purnell, Gia Koka, Karma Child - In My Feelings  3:16     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 10:06:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EA4E1E8D9D7ABC68D1963B1BF6ACA84FA2BBC3D2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460148.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 133
-
-VA - Top 100 DJs  2021  [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Jason Derulo, Adam Levine - Lifestyle  David Guetta Slap House Mix 
-002. Dimitri Vegas & Like Mike, DVBBS, Roy Woods - Too Much
-003. Martin Garrix, Tove Lo - Pressure  feat. Tove Lo 
-004. Armin van Buuren - Turn The World Into A Dancefloor  ASOT 1000 Anthem     Читать дальше...    Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 05:59:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BBA6D05EEA7894DE8596AABA44F6B858721522B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460133.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 122
-
-VA - German Top 100 Single Charts 02.04.2021 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Nathan Evans - Wellerman  Sea Shanty   220 KID x Billen Ted Remix 
-02. Miksu - Macloud, Nimo & Jamule - Frag mich nicht
-03. Nightcrawlers, Riton & Mufasa & Hypeman - Friday  feat. Mufasa & Hypeman   Dopamine Re-Edit 
-04. Bausa & Apache 207 - Madonna    Читать дальше...    Жанр: PopПродолжительность: 04:54:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC40ED757533A0D421E64920CA8127C2CDD131D9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460122.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 460 057
-
-VA - Новинки с разных популярных MP3 сайтов, vol.106  2021  [MP3|320 Kbps] <Club, Dance, Disco,
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Rus 
-001. 10AGE - Нету Интереса
-002. 104 feat. Miyagi, Скриптонит - Не Жаль
-003. Agunda, Тайпан - Мерцают Огни    Читать дальше...    Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:15:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2624785F7D6FFD2BA71E9887D7344A75C3871640
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1460057.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 459 850
-
-VA - Rap Blender Mix  Vol.03   2021  [MP3|320 Kbps] <Rap, Hip-Hop>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-Тут Вы не найдёте тем, вроде – люблю, не люблю, слёзных соплей и бездушной электронной долбежки. Тут рай для души. Композиции создаются лучшими мастерами рэпа и хип-хопа, задают правильное настроение и отвязные речитативы, которые Вы сможете услышать в сборнике  Rap Blender Mix  третьей генерации.001. Nateboi - Worst Ways
-002. Bsuavee - Move Silent Big Moves
-003. 102 Boyz - Was Ich Trink
-004. Blockrepp Shad - Thug Tears    Читать дальше...    Жанр: Rap, Hip-HopПродолжительность: 08:18:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A927D1D7D94968BE742467860DC8DCBE8EDDE303
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1459850.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 459 845
-
-VA - Landscape: Chill Ambient Music  2021  [MP3|320 Kbps] <Ambient, New Age, Chillout, Meditativ
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Ambient - это не просто музыка, это образ жизни, мышления и восприятия мира. Это самая многогранная музыка, самая непредсказуемая, самая зачаровывающая. Это музыка, которая настраивает человека на позитивный лад и несёт приятные эмоции.001. Weber & Weber - 4x Sample
-002. Ataxy - Air
-003. A Winged Victory - Nothing
-004. Fridrik Karlsson - Chillout Heaven    Читать дальше...    Жанр: Ambient, New Age, Chillout, MeditativeПродолжительность: 11:42:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:593E70C6E8EB225586C6EB36B3B4B5DCA9DD044C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1459845.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 459 843
-
-VA - E-Dance: Synergetic Nightclub  2021  [MP3|320 Kbps] <EDM, Club, Dance, House, Tech House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Зажигаем под музыку сборника  Synergetic Nightclub  - с Вами будет отличная танцевальная музыка, модные музыкальные новинки и горячие хиты. Не смотря на то, что весна и теплое время задерживаются, не расстраиваемся - ещё есть время для хорошего драйва!!! А пока, наслаждаемся очередными новинками.001. Topmodelz - Keep On Moving
-002. Harris - My Way
-003. Rene Rodrigezz - The Moment
-004. Armin Van Buuren - Feel Something    Читать дальше...    Жанр: EDM, Club, Dance, House, Tech HouseПродолжительность: 08:31:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C4D838431A2F8B62098E577B09BB4A5BE1BF3340
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1459843.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 459 841
-
-VA - Dread Lion Dub  2021  [MP3|320 Kbps] <Reggae, Riddim, Dub, Ska>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-Reggae — это путь. Это такая тропинка. Через тьму, через страх, через cвои собственные ночные кошмары. Если у тебя в груди живет боль, и ты поешь, ты играешь ее — ты выводишь ее в мир. Выводишь себя к свету.01. Max Romeo - Chi Chi Bud
-02. Prince Fatty - Black Rabbit
-03. Mad Professor - Dub Dread
-04. Dennis Brown - Easy, Take It Easy    Читать дальше...    Жанр: Reggae, Riddim, Dub, SkaПродолжительность: 04:27:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA7A3B957C54F391A1730708BDEB6D016D3C2592
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1459841.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

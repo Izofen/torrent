@@ -1,4 +1,330 @@
 ﻿
+###  Публикация: 830 015
+
+Tokio Hotel - Kings Of Suburbia  2014  [FLAC|Lossless]<Pop Rock, Alternative Rock, Electronic>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. RIAЖанр: Pop Rock, Alternative Rock, ElectronicПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A2BE2C448BE0CA3ED120A148F3F0E3118FE0805
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 829 769
+
+Lian Ross - The Best Of And More  2005  [FLAC  image+.cue |Lossless]<Italo-Disco, Euro-Disco
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Say You ll Never 5:48
+02. Fantasy 5:32
+03. Scratch My Name 5:17
+04. It s Up To You 5:37
+05. Neverending Love 5:47
+06. Oh Won t You Tell Me 4:52
+07. Do You Wanna Funk 6:52
+08. Feel So Good 4:29
+09. Say Say Say 5:39
+10. Neverending Love  Rap  5:37    Читать дальше...    Жанр: Italo-Disco, Euro-Disco, Hi-NRGФормат: CD, CompilationПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A87614FC5CD1E1AA85350C50980A86E78487F9E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 829 445
+
+A-ha - Лучшая коллекция  2012  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Take On Me	 3:47 
+02. A Fine Blue Line	 4:09 
+03. Analogue	   3:50 
+04. Birthright	   3:44 
+05. Celice	 3:41 
+06. Cosy Prisons	 4:10 
+07. Crying in the Rain	 4:19 
+08. Dark Is the Night for All	 3:47 
+09. Did Anyone Approach You	 4:11 
+10. Early Morning	 3:36     Читать дальше...    Жанр: PopПродолжительность: 02:11:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:85A989EBD7F16E8D5522FA46B61DBED138E2C0D4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 829 397
+
+Sophie Zelmani - Everywhere  2014  [MP3|320 кб с]<Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Софи Зельмани  швед. Sophie Zelmani, настоящее имя Софи Эдквист, Sophie Edkvist, род. 12 февраля 1972  — шведская певица и автор песен. В 1995 году Софи выпустила сингл «Аlways You», сразу завоевавший признание как в Швеции, так и за ее пределами. Альбомы, вышедшие вслед за синглом, можно отнести к стилю инди-рок, что ставит Зелмани в один ряд с такими исполнителями, как Стина Норденстам и Анна Тернхейм. Отличительными чертами произведений Софи Зелмани можно назвать мелодичность и проникновенность текстов.01. By Your Side  03:42 
+02.  Waiting Room  02:21 
+03. Everywhere  04:53 
+04. Charlotte By The Shore  03:48 
+05. When You Remember  03:15 
+06. Got To Go With Love  03:23 
+07. I Pray  03:39 
+08. Should I Tell You  03:32 
+09. The Lord  03:40 
+10. My Dear  02:03     Читать дальше...    Жанр: Indie PopПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:01B16136B0B885A8E8D805E533968B27B3B7F8A8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 829 327
+
+VA - Reinas De La Noche  2009  [MP3|320 кб с]<EuroDisco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01.Snap! - The Power  5:41 
+02.2 Unlimited - Get Ready For This  3:43 
+03.Corona - The Rhythm Of The Night  5:30 
+04.Haddaway - What Is Love  6:40 
+05.Double You - Please Don t Go  6:11 
+06.Rozalla - Everybody s Free  To Feel Good   5:01 
+07.Whigfield - Saturday Night  3:40 
+08.Mystic - Ritmo De La Noche  5:46 
+09.Crazy Eddie & Q. Q. Freestyle - Nena De Ibiza  4:16 
+10.Ice MC - It  S A Rainy Day  6:51     Читать дальше...    Жанр: EuroDiscoПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C3770AC22FC3F8A79B2BD38E52F81D2C892170DC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_829327.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 829 184
+
+VA - ZYX Italo Disco New Generation. Vol. 1-6  2012-2015  [FLAC|image+.cue]<Italo-Disco, Euro-Di
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+2012 - ZYX Italo Disco New Generation Vol. 1
+2013 - ZYX Italo Disco New Generation Vol. 2
+2013 - ZYX Italo Disco New Generation Vol. 3    Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE9F09456CAAE5320AD401BE9CA9BCF5361980EA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_829184.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 829 010
+
+Alex & Sierra - It s About Us  2014  [MP3|320 кб с]<Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Scarecrow  03:27 
+02. Give Me Something  03:13 
+03. Bumper Cars  04:00 
+04. Almost Home  03:24 
+05. Here We Go  03:24 
+06. It s About Us  01:01 
+07. Little Do You Know  03:05 
+08. Cheating  02:27 
+09. Just Kids  03:25 
+10. I Love You  03:50     Читать дальше...    Жанр: Indie PopПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A5242B266E23F08F49E0FE41DA0A2E0862B87A37
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 828 981
+
+Macy Gray - The Way  2014  [MP3|320 кб с]<Pop, R&B, NU Soul>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Stoned  4:09 
+2. Bang Bang  3:43 
+3. Hands  3:45 
+4. I Miss The Sex  3:55 
+5. First Time  3:20 
+6. The Way  4:01 
+7. Queen Of The Big Hurt  5:23 
+8. Me With You  4:52 
+9. Need You Now  4:37 
+10. Life  3:04 Жанр: Pop, R&B, NU SoulПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:849BDCF7005683B8A0FEBDB8D5C6275EDCBAF87F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 828 847
+
+АлоэВера - Легче  2014  [MP3|320 кб с]<Pop-Rock, Indie Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Красиво  04:37 
+02. Это Море  03:38 
+03. Что Я Делаю  03:32 
+04. Самокат  04:12 
+05. Кто Вы  05:22 
+06. Дочь Моряка  04:12 
+07. Та-Да-Да  03:34 
+08. Гладь  03:18 
+09. Легче  04:33 
+10. Танцы  04:45     Читать дальше...    Жанр: Pop-Rock, Indie PopПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E6F224AFFCF6AAD6C839448C6426B88C6E070532
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 828 653
+
+Витас - Я подарю тебе весь мир, Ч. 2  История моей любви   2014  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Я Тебя Люблю
+02. Прости, Прощай
+03. Выбирай
+04. Я Подарю Тебе Весь Мир
+05. Марта
+06. Запомню Тот День
+07. Бессонница
+08. Волшебник
+09. Дай, Бог
+10. Я Живой    Читать дальше...    Жанр: PopПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D591EA2F9CA744BF18116A7403B3F94E9515E33E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 828 433
+
+Dieter Bohlen - Dieter Der Film  2006  [FLAC|Lossless]<Disco, Synth-pop, Soundtrack>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Dieter Bohlen - Gasoline  Titelsong Aus Dieter Der Film  	3:40
+02. Dieter Bohlen - Take Me To The Clouds 	3:17
+03. Modern Talking - Shooting Star  Unveröffentlichter Modern Talking Titel  	4:09
+04. Dieter Bohlen - If I Were You 	3:29
+05. Dieter Bohlen - Bizarre Bizarre 	3:45
+06. Dieter Bohlen - Tears May Go 	3:43
+07. Dieter Bohlen - Don t Let Me Down 	3:50
+08. Dieter Bohlen - Love Is Stronger 	3:44
+09. Dieter Bohlen - Senorita 	3:55
+10. Dieter Bohlen - The Way You Smile 	3:28    Читать дальше...    Жанр: Disco, Synth-pop, SoundtrackФормат: CD, AlbumПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:524B7A052567EA230BE474FBC4D305B2DCE4D2EA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 828 396
 
 Amy Macdonald - This Is the Life  2008  Special Edition  Includes Bonus CD  [MP3|320 кб с]
@@ -2052,343 +2378,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812382.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 380
-
-Luv - You re The Greatest Luver  1996  [FLAC|Lossless]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. You re The Greatest Lover 2:53
-02. Casanova 3:51
-03. U.O.Me 2:56
-04. My Number One 3:14
-05. Shoes Off  Boots On  3:08
-06. Don Juanita De Carnaval 3:12
-07. Trojan Horse 3:24
-08. Louis Je T Adore 3:42
-09. Don t Let Me Down 2:36
-10. Eeny Meeny Miny Moe 2:53    Читать дальше...    Жанр: DiscoПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:030DACAB1310465A1FDE149D667AC46A0059139C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812380.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 374
-
-Luv  - Gold  1993  [FLAC|Lossless]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. You re The Greatest Lover 2:52
-02. U.O.Me 2:58
-03. Trojan Horse 3:25
-04. My Man 3:05
-05. Eeny Meeny Miny Moe 3:00
-06. Ooh, Yes I Do 2:59
-07. I Like Sugar Candy Kisses 3:37
-08. Dream, Dream 3:30
-09. One More Little Kissie 3:47
-10. Life Is On My Side 2:38    Читать дальше...    Жанр: DiscoПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E2696D53E4D00840FFAADED150C5CE77B1C87F2B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812374.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 317
-
-Francesco Salvi - Megasalvi  1989  [MP3|320 кб с]<Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Esatto ! 3:44
-02. C e  Da Spostare Una Macchina 3:45
-03. Il Lupo 4:33
-04. Universal Love  Speaker s Corner  4:31
-05. Taxi 4:20
-06. Son Contento 4:26
-07. Maionese 4:09
-08. Le Solite Promesse 5:14Жанр: Italo-DiscoПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:472ADE2B378C47C505A07543361D1288467C9E11
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812317.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 314
-
-Francesco Salvi - Megasalvi  1989  [APE|Lossless]<Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Esatto ! 3:44
-02. C e  Da Spostare Una Macchina 3:45
-03. Il Lupo 4:33
-04. Universal Love  Speaker s Corner  4:31
-05. Taxi 4:20
-06. Son Contento 4:26
-07. Maionese 4:09
-08. Le Solite Promesse 5:14Жанр: Italo-DiscoПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C8E6369DA6B1B716CBBE9B3C62D839F3BEABC6C7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812314.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 261
-
-VA - I Love Italo Disco Legends Vol.1-5  2011  5CD [MP3|320 кб с]<Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Pink Project - Amama 5:32
-02. Fun Fun - Happy Station  Scratch Remix  6:49
-03. Doctor s Cat - Feel The Drive  Remix  5:51
-04. Time - Shaker Shake  Dub  5:00
-05. Ken Laszlo - Hey Hey Guy  Swedish Mega-Mix  7:48
-06. Max Him - No Escape  Remix  6:10
-07. Kano - Another Life  Instrumental  5:40
-08. Amnesie - Turas 6:55
-09. B.W.H. - Livin  Up 4:48
-10. Mr.Flagio - Take A Chance  Instrumental  7:44    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 06:30:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A54DC6978DE2AD115DC7F95F2EF1C870D8C39018
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812261.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 178
-
-C.C. Catch - Welcome To The Heartbreak Hotel  1986  Germany, 1st Press [FLAC|Lossless]<EuroDisco
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Heartbreak Hotel 3:40
-02. Picture Blue Eyes 3:35
-03. Tears Won t Wash Away My Heartache 4:24
-04. V.I.P.  They re Callin  Me Tonight  3:33
-05. You Can t Run Away From It 3:17
-06. Heaven And Hell 3:46
-07. Hollywood Nights 3:17
-08. Born On The Wind 3:55
-09. Wild Fire 3:42
-10. Stop - Draggin  My Heart Around 3:09Жанр: EuroDiscoПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B85A95700A6DDFBB2F9222D4C32945572F0AC86A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812178.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 167
-
-Arabesque - Best Three  1995  Japan [FLAC|Lossless]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-1. Time To Say  Good Bye   Jean Frankfurter - John Moering 
-2. Heart On Fire  Jean Frankfurter - John Moering 
-3. Parties In A Penthouse  Jean Frankfurter - John Moering 
-4. Dance Dance Dance  Jean Frankfurter - John Moering 
-5. Hit The Jackpot  Jean Frankfurter - John Moering 
-6. Young Fingers Get Burnt  Jean Frankfurter - John Moering 
-7. Make Love Whenevr You Can  Jean Frankfurter - John Moering 
-8. Peppermint Jack  Jean Frankfurter - John Moering 
-9. High Life  Jean Frankfurter - John Moering      Читать дальше...    Жанр: DiscoПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6DA324C803819EE16E60D14627817D270976002B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812167.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 811 910
-
-Dieter Bohlen - Best Of  2012  [FLAC  image+.cue |Lossless]<EuroDisco, Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Monza - Hallo Taxi Nummer 10  3:50 
-02. Monza - Cola Und Rock n  Roll  4:10 
-03. Monza - Hei.E Nacht In Der City  3:10 
-04. Monza - Ginny  3:32 
-05. Steve Benson - Don t Throw My Love Away  3:16 
-06. Steve Benson - I m In Love With You  3:05 
-07. Steve Benson - Love Takes Time  3:42 
-08. Steve Benson - Marie-Elaine  3:25 
-09. Sunday - Jung Und Frei  3:44 
-10. Sunday - Heut  Halt Mich Nichts Zu Haus  3:08     Читать дальше...    Жанр: EuroDisco, PopПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9A9623829F584604109C402872B6A71D30FD56E2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 811 879
-
-Вячеслав Быков - 9 альбомов  1996-2013  [MP3|256, 320 кб с]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Вячеслав Анатольевич Быков родился 1 января 1970 года в городе Новосибирске, где и прожил всю жизнь до начала творческой карьеры.
-В 1996 году написал песню «Любимая моя», сразу ставшую хитом отечественной эстрады. В том же году получил за эту песню первую премию в конкурсе «Лучшая песня года» и выпустил одноимённый альбом, разошедшийся большим тиражом.Список альбомов:
-1996 - Любимая моя
-1997 - Я прихожу к тебе, когда город спит
-1999 - Девочка моя
-2000 - Малыш
-2003 - Для неё весь мир
-2004 - До рассвета
-2008 - Где ночует солнце  с Александром Маршалом 
-2011 - До восхода ночной звезды  с Александром Маршалом 
-2013 - 15 лет спустяЖанр: PopПродолжительность: 06:48:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:149B4DBFC654ADA3E4CC61AFE077713546DED133
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_811879.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 811 784
-
-Zucchero - Spirito Di Vino  1995  [FLAC|Lossless]<Pop-Rock-Blues>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.Voodoo Voodoo  4:08 
-02.No More Regrets  4:00 
-03.Feels Like A Woman  5:14 
-04.Alleluja  4:45 
-05.Cosi Celeste  4:49 
-06.X Colpa Di Chi  4:00 
-07.Come In Love  4:34 
-08.Datemi Una Pompa  4:12 
-09.O.L.S.M.M.  3:32 
-10.My Love  5:32 Жанр: Pop-Rock-BluesПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73DFE1E2FA30B84A72E1670DE6ED2AE485D983FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_811784.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 811 758
-
-VA - ZYX Italo Disco Spacesynth Collection  2014  2CD [MP3|~245 кб с]<Spacesynth, Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-CD1:
-01. Laserdance – Moon Machine
-02. Galactic Warriors – Koto Tribute Mix
-03. Protonic Storm – Dreamscape  Short Mix 
-04. Rygar – Modulation
-05. Space Project – The Return Of Space Raiders
-06. Bellatrix – Hexagon
-07. Prodomo – Event Horizon
-08. Mind Vision – Digital Mind
-09. Marco Rochowski – Skylifter    Читать дальше...    Жанр: Spacesynth, Italo-DiscoПродолжительность: 02:39:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:382F64C2438989D8121ECB5DD44CC647FD4B0488
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_811758.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

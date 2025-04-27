@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 1 504 450
+
+РУБИ КОНцы! - Пуси-панк и подвески  2021  [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Пуси-панк
+2. Тупая сука
+3. Рокстар
+4. Лолли    Читать дальше...    Жанр: Punk RockПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:216A8F08429097778FBDCE6A52FD6E4C1ABFC798
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504450.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 376
+
+Элизиум - Жыве Беларусь  2020  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Жыве БеларусьЖанр: RockПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D2BB1654AB41BC992A71C18232B529676ECA2BD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504376.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 368
+
+Элизиум - Пятница, 13 Live  2012  [MP3|320 Kbps] <Рок>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01.	«Слёзы-зеркала»	3:42
+02.	«Альпинист»	2:53
+03.	«Disco `80 Set»  попурри 	8:40
+04.	«Круглый год»	3:30    Читать дальше...    Жанр: РокПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:75EF5C81EEF992970A44AE3A5A95E7BCD28464AC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504368.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 190
+
+НАИВ & Симфонический оркестр «Глобалис» - Симфопанк  2021  [MP3|320 Kbps] <Symphonic Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. НАИВная увертюра
+2. 20 лет одиночества
+3. Я панк-рокер и алкоголик
+4. ННННЗ    Читать дальше...    Жанр: Symphonic Punk RockПродолжительность: 00:59:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0E7ABDD09D7A2A5FD2E9CD2E09CC1A03308163C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504190.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 503 983
+
+Юрий Шевчук и группа ДДТ - Сборник песен  2021  Vinyl-Rip [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Белая река
+2. В последнюю осень
+3. Просвистела
+4. Что такое осень    Читать дальше...    Жанр: RockПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F1D840EF812BD52FB3A51D0F3BE5A72AD8655721
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1503983.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 503 954
 
 АнДем - 4 альбома  2008-2015  [MP3|320 Kbps] <Metal, Sympho Metal, Melodic Metal>
@@ -1860,128 +1982,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1483902.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 483 589
-
-Ногу свело! - ***beep***ЛАН  2021  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. ***beep***ЛАНЖанр: RockПродолжительность: 00:02:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F8464F2BC852061C85A6140334BC9437D0ED5E08
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1483589.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 482 821
-
-Алексей Чернышёв, Андрей Кустарёв - В твоих мирах  2021  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Поздняя осень  03:33 
- 02. Голос Долорес  05:37 
- 03. Пришла весна  04:31 
- 04. Я шпион  05:08     Читать дальше...    Жанр: RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97ACC26DF2D8384527FB42964EE53DA855613BB0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482821.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 482 276
-
-Молот Родины - Не Мир, но Меч  2021  [MP3|320 Kbps] <Русский боевой рок, Hardcore, Acoustic>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Мир вам [00:04:42]
-02 - Крепче Стали [00:03:09]
-03 - На Вечную Войну [00:03:20]
-04 - Враг    Кошка Сашка   cover  [00:04:38]    Читать дальше...    Жанр: Русский боевой рок, Hardcore, AcousticПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F8BE553A8D31D229B3A022604BFDAA4C448DBAB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482276.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 481 996
-
-Путь Солнца - 15... Что дальше?  2021  [MP3|320 Kbps] <Heavy Metal, Pagan Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Знак Победы  feat. Мастер 
-2. Северная Страна  feat. Rossomahaar 
-3. Победа или Смерть  feat. Пурген 
-4. Endless Night  feat. Amalgama     Читать дальше...    Жанр: Heavy Metal, Pagan MetalПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:514A29E0ABCB611F38A9D389E5F503AB3AF81CB8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1481996.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 481 877
-
-Heavy Raid - Железный марш  2021  [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Intro  01:08 
- 02. На небесах или на дне  03:39 
- 03. Последний отряд  04:07 
- 04. Инквизитор  04:39     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B42C3E010C45D94131D90E23C00C828E640F9F07
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1481877.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,276 @@
 ﻿
+###  Публикация: 1 507 447
+
+ABBA - Voyage  2021  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. I Still Have Faith In You
+2. When You Danced With Me
+3. Little Things
+4. Don t Shut Me Down    Читать дальше...    Жанр: PopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:32568ECA64349CFEF3127232DF41A7EA7865F569
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507447.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 507 179
+
+Goombay Dance Band - 4 Albums  1980 - 1982  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Goombay Dance Band - немецкая группа созданная в 1979 году Оливером Бендтом и названная в честь небольшой бухты на Карибском острове Сент-Люсия. Их музыка имеет своеобразное звучание представляющее собой смесь disco, soca, calypso и вестерн поп. Группа пользовалась наибольшим коммерческим успехом в начале 1980-х., порождая такие хиты, как   Sun of Jamaica »,«     Читать дальше...    Список альбомов:
+1980 - Land Of Gold
+1980 - Sun Of Jamaica
+1981 - Holiday In Paradise    Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 03:03:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC727A3C59247E275C5C8CA44E83CF428D406ABC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507179.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 507 163
+
+Blue System - My Star  2021  [FLAC|Lossless|tracks + .cue] <EuroDisco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Sorry Little Sarah  Maxi Version   5:16 
+02. Big Boys Don t Cry  3:13 
+03. My Bed Is Too Big  No Longer Too Big Bed Mix   5:28 
+04. Under My Skin  Radio Version   3:35     Читать дальше...    Жанр: EuroDiscoПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB90366F3E299C65F2992C1FC60AA88571035FA7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507163.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 507 013
+
+Duran Duran - Future Past  2021  Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop, Rock, Elec
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+ Когда мы впервые пришли в студию в конце 2018 года, я пытался убедить ребят, что все, что нам нужно сделать, это написать два или три трека для EP , - сказал вокалист Duran Duran Simon Le Bon.  Четыре дня спустя, когда у меня было ядро ​​из более чем 25 сильных песен, которые все заслуживали внимания, я понял, что мы засядем в студии надолго,     Читать дальше...    01. Invisible
+02. All Of You
+03. Give It All Up  feat. Tove Lo 
+04. Anniversary    Читать дальше...    Жанр: Pop, Rock, ElectronicПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:18C6E65FC1FF79C4B8CBE5A44486D7F94C386F2F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507013.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 506 762
+
+Milano 84 - Monochromatic  2021  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italo-Pop, Nu-Italo
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Milano 84 feat. Vanessa Elly - FanaticЖанр: Italo-Disco, Italo-Pop, Nu-ItaloПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2D9C2926943DD1A5B1A512D2BB112DF2D06BCC02
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506762.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 506 756
+
+Milano 84 - Monochromatic  2021  [MP3|320 Kbps] <Italo-Disco, Italo-Pop, Nu-Italo>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Fanatic  Extended Version   feat. Vanessa Elly   5:21 
+02. Suspiria on TV  feat. Eleonora Cardellini & Gianluca Divirgilio   4:32 
+03. Awesome  feat. Killme Alice   3:48 
+04. Play  feat. Laura Serra   4:30     Читать дальше...    Жанр: Italo-Disco, Italo-Pop, Nu-ItaloПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B9277A62E809885BA287410E2A635B72FCDC29EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506756.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 506 586
+
+VA - Retro Halloween 2021  2021  [MP3|320 Kbps] <Pop, Rock, R&B>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Rockwell - Somebody s Watching Me  3:55 
+02. Rick James - Super Freak  3:23 
+03. Aqua - Halloween  3:49 
+04. Oingo Boingo - Dead Man s Party  6:17     Читать дальше...    Жанр: Pop, Rock, R&BПродолжительность: 01:55:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A3E9F3664C62DB37675B6551221EE9E02F8947B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506586.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 506 585
+
+VA - Halloween Party 2021  2021  [MP3|320 Kbps] <Pop, Rock, Electronic>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Imagine Dragons - Demons  2:56 
+02. Jeremy Zucker - Ghosts  4:23 
+03. Ajsa Luna - Ocska Alkohol  4:20 
+04. BENEE - Evil Spider  2:32     Читать дальше...    Жанр: Pop, Rock, ElectronicПродолжительность: 02:24:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A12B7720D3136EB19F7FCC92ACEEEFB4E5AD042B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506585.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 506 582
+
+VA - Halloween Party 2021  2021  [MP3|320 Kbps] <Pop, Rock, Electronic>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Sassydee - Disturbia  4:00 
+02. Countdown Singers - Monster Mash  3:15 
+03. Countdown Singers - Ghostbusters Theme  4:07 
+04. Detroit Soul Sensation - Superstition  3:30     Читать дальше...    Жанр: Pop, Rock, ElectronicПродолжительность: 02:20:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7018D77EBA5BB74BDA1A4C9A9B4C4622EBBA3697
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506582.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 506 502
+
+VA - Best Clean Pop Hits  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Justin Bieber - Baby  3:36 
+02. Gwen Stefani - The Sweet Escape  4:06 
+03. Lmfao - Party Rock Anthem  4:24 
+04. Bag Raiders - Shooting Stars  3:55     Читать дальше...    Жанр: PopПродолжительность: 03:57:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D33A3C4FE8A8E2D436E9D0084C3BCECE6D840E1A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506502.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 506 192
+
+Kathi Baker - Feel The Heat  1979  LP [MP3|320 Kbps] <Funk   Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Fa La La  Feel The Heat , Dance To The Music  6:54 
+02. Isn t Quite Enough To Say  4:40 
+03. Movie Queen  6:03 
+04. Dancin Shoes  4:39     Читать дальше...    Жанр: Funk   Soul, DiscoПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A6BD8C6CC61787CF49E2639875FDDF91E9653081
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506192.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 506 093
 
 Beast In Black - Dark Connection  2021  [FLAC|Lossless|WEB-DL|tracks] <Disco, Power Metal>
@@ -1716,278 +1988,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497812.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 497 783
-
-Natalie Imbruglia - Firebird  2021  [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Build It Better  03:24 
- 02. Nothing Missing  03:14 
- 03. What It Feels Like 03:54 
- 04. On My Way  03:37     Читать дальше...    Жанр: Soft Rock, Pop RockПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9A96CFFD8C5AF402711F997ADEE1BA795D4058BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497783.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 497 543
-
-DJ BoBo - Pirates Of Dance  2004  [FLAC|Lossless|tracks + .cue] <Euro House>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Pirates Of Dance  3:13 
-02. Amazing Life  3:58 
-03. Pura Pasion  4:22 
-04. Dance Into The Light  4:19     Читать дальше...    Жанр: Euro HouseПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0887E6A097344DBA26B222762D405BA6D9EB7AE6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497543.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 497 542
-
-Sergio Y Estibaliz - Beans  1979  LP [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Stay On The Line  4:20 
-02. Tonight Is The Night  5:02 
-03. Asi Como Asi  3:32 
-04. Little Maggie  3:56     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CAE3ECFD1B0C92A8A334898108CEC2B0DB9A91B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497542.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 497 473
-
-Miko Vanilla - Vanilla  2021  [MP3|320 Kbps] <Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Endless LoveЖанр: DiscoПродолжительность: 01:25:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7889D9BE4AA6D79F642398662626857A736A77C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497473.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 497 359
-
-Michael B. Tretow  feat. ABBA  - Let s Boogie  1976  Reissue CD, 1998, Universal [MP3|320
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Michael B. Tretow - шведский музыкальный продюсер, звукорежиссер, автор песен и музыкант, родился 20 августа 1944 года в Норчепинге, Швеция. Работал с ABBA в 1972-1982 гг. Первый сольный альбом Микке, выпущенный после того, как ABBA добилась успеха на международном уровне. Этот альбом знаменит тем, что ABBA и все участники их группы представлены в ролях сайдмена     Читать дальше...    01. Let s Boogie  3:23 
-02. Paper Dolls  3:24 
-03. Robot Man  2:41 
-04. Bottom Coming Up  2:50     Читать дальше...    Жанр: Pop, Funk-Soul, Soft Rock, Pop Rock, ParodyПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B8A025759A93C0370D39706DF470188F3B8774D9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497359.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 497 328
-
-Игорь Латышко & Life Song - А Ты Не Знала...  2004  [FLAC|Lossless|tracks + .cue] <Pop, Dance>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. А Ты Не Знала  3:16 
-02. Первая Любовь  4:01 
-03. Осени В Глаза  3:21 
-04. Он Тебя Забыл  3:26     Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EAC52BEAEAFF82A0042AB9091FB20BD4D45D56B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497328.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 497 235
-
-Eini - Eini & Lady  1981  [MP3|320 Kbps] <Pop, Funk Soul, Disco, Schlager>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Xanadu  3:22 
-02. Ei Tiennyt Marja-Leena - Marie Magdalena  3:38 
-03. Ota Kii Jos Saat - You re Ok  3:26 
-04. Venalainen Ruletti - Ooh, La La, I m Falling  3:16     Читать дальше...    Жанр: Pop, Funk Soul, Disco, SchlagerПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0A4AFB571906B342395939D9523D6B70BADFB181
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497235.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 497 076
-
-The Disco Tramps - Disco 12  1978  LP [MP3|320 Kbps] <Electronic, Disco, Jazz, Funk Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Disco Tramps  2:37 
-02. Pink Champagne  2:30 
-03. Bubble Guns  2:25 
-04. Laser Disco  2:52     Читать дальше...    Жанр: Electronic, Disco, Jazz, Funk SoulПродолжительность: 00:32:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80AEEA06171483DF705CA58F0718A4A1B98B7855
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497076.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 496 847
-
-Stage - The Prisoner Of Your Love  2014  [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Voodoo Dance  Extended Version  [00:07:04]
-02. Ocean Of Crime  We re Movin  On   Extended Version  [00:05:09]
-03. Real  Extended Version  [00:06:04]
-04. I Can t Get You Out Of My Mind  Dance Version  [00:06:14]    Читать дальше...    Жанр: Italo-Disco, Synth-popПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8BDBA80BCE94A8CB1EF1BE383345C0F1E1E89E1C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1496847.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 496 825
-
-W. Bennett, B. Bennett - In The Groove  1985  LP [MP3|320 Kbps] <Electro, Pop, Rock, Disco, Ambi
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Really Moving  2:45 
-02. Xenon Lights  3:47 
-03. In The Groove  2:49 
-04. Master Mix  3:04     Читать дальше...    Жанр: Electro, Pop, Rock, Disco, AmbientПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC9893EC492330F031DB6C7641DCF2A6F92DA1A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1496825.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 496 712
-
-VA - Las Mejores Canciones Dance Del Siglo  1999  12CD, Box Set, Limited Edition, Mixed [FLAC|Lo
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Murray Head - One Night In Bangkok  1:54 
-02. Indeep - Last Night A DJ Saved My Life  1:55 
-03. The Twins - Ballet Dancer  1:58 
-04. The Flirts - Passion  1:42     Читать дальше...    Жанр: Italo-Disco, Pop, Euro-House, Synthpop |Продолжительность: 15:34:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2706C38333867555B5F7BA1420B0431F44DDE506
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1496712.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

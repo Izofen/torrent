@@ -1,4 +1,209 @@
 ﻿
+###  Публикация: 872 062
+
+Cassandra Wilson - Thunderbird  2015  [FLAC 2.0 24 44.1|tracks  DC-CD ]<Blues>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Go To Mexico  4:15 
+02. Closer To You  5:49 
+03. Easy Rider  7:04 
+04. It Would Be So Easy  5:10 
+05. Red River Valley  5:52     Читать дальше...    Жанр: BluesПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:888145D567E8DD6379000512BE3EC9BB4EA401EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 871 055
+
+Звуки Му - Транснадежность  1991  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Psychedelic>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Транснадежность  3:18 
+A2. Турист  2:22 
+A3. Забытый секс  6:19 
+A4. Пробковый пояс  5:15     Читать дальше...    Жанр: PsychedelicПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:27959F65A685D2657CBF9D7608BA013D309EF820
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_871055.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 870 976
+
+Юра Саркисян  кларнет  - 2002  2002  [FLAC 2.0|44.1 16|tracks|MC-Rip] <Folk Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Праздничный танец
+02. Танец Юрика
+03. Восточный таней
+04. Далеко ты от меня    Читать дальше...    Жанр: Folk PopПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1199CC2B9492386438ED62F77D76981AD3AE1F24
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 868 792
+
+Академическая русская хоровая капелла - Музыка эпохи Петра I  1975  [FLAC 2.0 24 96|traks Vi
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. «Стихи победительные во славу и честь Петру Алексеевичу…»  16:26
+Петровские торжественные песнопения. Десять номеров.
+Гаврюшов  бас , А. Лагуткин  тенор , Б. Шумилов  баритон .
+Сторона 2    Читать дальше...    Жанр: Sacred, ChoralПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E53769531F15E4849297DAFCE5D80FBD0CFC8123
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_868792.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 867 384
+
+AC DC - Let There Be Rock  1977  [FLAC 2.0 24 192|traks Vinil-Rip ]<Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Go Down  5:14
+2. Dog Eat Dog  3:30
+3. Let There Be Rock  6:06
+4. Crapsody In Blue  4:22    Читать дальше...    Жанр: Hard RockПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4402E00C2965C9DE3615437D75E4B3D42CC85956
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_867384.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 867 374
+
+Scorpions - Blackout  1982  [FLAC 2.0 24 192|tracks Vinyl-Rip ]<Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Blackout  3:50
+2. Can t Live Without You  3:46
+3. No One Like You  3:56    Читать дальше...    Жанр: Hard RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E7EDA1EB2ACBA3F8DEB7DD72295FEEC0A2FC80DE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_867374.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 867 152
+
+Оркестр Олега Лундстрема - Серенада солнечной долины  1976  [FLAC 2.0 24 192|traks Vinil-Rip
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. В хорошем настроении - Разаф, Гарланд  3:30
+2. Лунная серенада - Г. Миллер  2:42
+3. Дорога на Чаттанугу - Гордон, Уоррен  2:42
+4. Я знаю, почему - Уоррен  1:58    Читать дальше...    Жанр: JazzПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E9C3BFB4F9B7C3FD7367A8F77C080FDBF9482366
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_867152.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 867 143
+
+Джеймс Ласт - Счастливый летний вечер  1980  [FLAC 2.0 24 192|traks Vinil-Rip ]<Easy Liste
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Копакабана · Copacabana  3:44
+2. На южной границе · South Of The Border  3:30
+3. Валенсия · Valencia  2:38
+4. Однажды воскресным утром · Quando Sali Di Cuba  3:24    Читать дальше...    Жанр: Easy ListeningПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4DE303B00CBC13483740D48F7574FE7A8EB76D93
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_867143.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 866 856
 
 Various Artists - Любимые песни из фильмов   Movie Songs  1998  [FLAC 2.0  image+.cue |16<
@@ -1898,220 +2103,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_783781.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 781 909
-
-Pink Floyd - Delicate Sound Of Thunder  2 LP   1988  [FLAC 2.0 24 192|traks Vinil-Rip 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-1. Shine on You Crazy Diamond  11:46
-2. Learning to Fly 5:34
-3. Yet Another Movie & Round and Around 7:20
-Сторона 2
-1. Sorrow 9:54
-2. The Dogs of War 7:12
-3. On the Turning Away 7:56
-Сторона 3
-1. One Of These Days 6:14    Читать дальше...    Жанр: Progressive & Art RockПродолжительность: 01:37:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1BD4DEFB6EB1687BA4A15514A3D0CD7F0060A206
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_781909.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 778 284
-
-Varios - Колокольные звоны Псково-Печорского монастыря  1981  [[FLAC 2.0 24 96|traks Vinil-R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. Сторона 1  19:10
-2. Сторона 2  21:22Жанр: Church bells Russian FalcПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63222FEAC29B7C19564568D5B9A987D0FCB65856
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_778284.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 615
-
-Electric Light Orchestra - Discovery  1979   [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Progress
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Shine A Little Love  4:40 
-A2. Confusion  3:41 
-A3. Need Her Love  5:09 
-A4. The Diary Of Horace Wimp  4:22     Читать дальше...    Производство: Jet Records - FZ 35769Жанр: Progressive RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0409C9979B742FE6F320BD4223B7C9C18EDFAF7F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_776615.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 774 533
-
-Electric Light Orchestra - Eldorado  1974  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Progressive
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Eldorado Overture  2:12 
-A2. Can t Get It Out Of My Head  4:23 
-A3. Boy Blue  5:20 
-A4. Laredo Tornado  5:30     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0B52D0181E9C43236D1C00AFD00CD9B51AD090D5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_774533.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 773 795
-
-Electric Light Orchestra - On The Third Day  1973  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pro
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Ocean Breakup   King of the Universe  4:06 
-A2. Bluebird Is Dead  4:43 
-A3. Oh No Not Susan  3:07 
-A4. New World Rising   Ocean Breakup  Reprise   4:04     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_773795.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 772 457
-
-Led Zeppelin - Led Zeppelin II  1969  [FLAC 2.0 24 192|tracks Vinyl-Rip ]<Blues Rock, Hard
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-1. Whole Lotta Love	5:36
-2. What Is And What Should Never Be	4:48
-3. The Lemon Song 6:22    Читать дальше...    Жанр: Blues Rock, Hard RockПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B4ADAF8FA9FC66C1424E026D030BD04EE0979ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_772457.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 772 304
-
-Queen - News Of The World  1977  [FLAC 2.0 24 192|traks Vinil-Rip ]<Hard Rock, Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-1. We Will Rock You  2:03
-2. We Are The Champions  3:00
-3. Sheer Heart Attack 3:27
-4. All Dead, All Dead  3:10
-5. Spread Your Wings  4:35
-6. Fight From The Inside  3:05
-Сторона 2
-1. Get Down, Make Love  3:53
-2. Sleeping On The Sidewalk  3:08    Читать дальше...    Жанр: Hard Rock, Pop RockПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_772304.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 767 988
-
-Various - Peter`s Pop-Show  1987  W.Germany 2xLP [FLAC 2.0 24 96|Image  Vinyl-Rip ]<Ital
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Для тех, кто смотрел это шоу во второй половине 80-х, представлять его не нужно. И так понятно, что с тех пор лучшего музыкального шоу не было, MTV отдыхает. Для тех, кто появился позже - на Peters Pop Show, тогда была единственная возможность увидеть и услышать то, что было актуальным в поп-музыке в Европе. Да что там, просто это было единственное окошко в мир современной поп-музыки, оно открывалось только раз в году, в Новогоднюю ночь. Организатор и ведущий шоу Петер Ильманн, все это происходило в Дюссельдорфе благодаря телеканалу ZDF.A1. WAX - Bridge To Your Heart :: 03:50
-A2. DEPECHE MODE - Never Let Me Down Again :: 04:19
-A3. DESIRELESS - Voyage Voyage :: 04:04
-A4. MANDY - Positive Reaction  Our Mandyҳ Mix  :: 03:26
-A5. DEN HARROW - Day By Day :: 03:36
-A6. BONFIRE - Sweet Obsession :: 03:02
-A7. PARRISH & TOPPANO - Closer And Closer  Remix  :: 03:26
-A8. THE OTHER ONES - Holiday :: 03:35Жанр: Italo-Disco, Synth-pop, Pop, RockФормат: Vinyl, 2xLP, CompilationПродолжительность: 01:55:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F5111138C2DCBC1AC70E10906FFDCD2E44F17F2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

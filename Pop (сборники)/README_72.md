@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 225 340
+
+Marian Hill - Unusual  2018  [MP3|320 Kbps] <Alternative Pop, Electronic, Minimalist>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Subtle Thing
+02. Differently
+03. All Night Long
+04. Don t Miss You    Читать дальше...    Жанр: Alternative Pop, Electronic, MinimalistПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FA44713CA9140FD7C664B05CDF69293382CD5481
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225340.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 225 333
+
+Magic Carpet - Love On the Magic Carpet  1978  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Единственный диско-альбом от исполнителей из популярного с 60-х годов испанского музыкальный дуэта  Duo Dinamico .01. Oriental Tango  4:44 
+02. Red Kimono  3:29 
+03. Full Of Love  5:03 
+04. Tonight  4:41     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2B7642A7140D216D9C90E749644FA84504DE4E66
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225333.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 225 298
+
+Galaxy Hunter - One Nation  2018  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. One Nation  03:32 
+02. See The Light  04:26 
+03. Angel Eyes  03:56 
+04. Home Free  03:28     Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E75928A778F6F944859928C99A5965371F122B0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225298.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 225 050
+
+Manizha - ЯIAM  2018  [MP3|320 Kbps] <Alternative Pop, Ethno Pop, Electronic>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. начинается с
+02. мама
+03. дом
+04. изумруд    Читать дальше...    Жанр: Alternative Pop, Ethno Pop, ElectronicПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EAD84166BE803EC779CA94E8548B3E8ED804FD04
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225050.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 224 676
+
+John Travolta - John Travolta  1998  2001 Compilation, Reissue [FLAC|Lossless|image + .cue] <Bal
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1.		All Strung Out On You
+2.		Big Trouble
+3.		Greased Lightnin 
+4.		Let Her In    Читать дальше...    Жанр: Ballad, Rock & Roll, Pop RockПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5EF11DD7CCA0A81B840E2251F78A48CBEF310412
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1224676.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 224 631
+
+The New Seekers - The Best Of The New Seekers  2000  [FLAC|Lossless|image + .cue] <Pop, Ballad,
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. I get a little sentimental over you
+  2. You won t find another foll like me
+  3. Fire and rain
+  4. All Right My Love    Читать дальше...    Жанр: Pop, Ballad, Easy ListeningПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ADDD03B60C8C36A747369B3BC7A2B47BC02B8C34
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1224631.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 224 539
+
+VA - Beautiful Mornings - Mesmerizing Soulful Pop Vocals  2018  [MP3|320 Kbps] <Pop, Easy Listen
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Peter Godfrey - Life Is An Open Door
+02. Angela Predhomme - Extra Day
+03. Tony Sway - She s Right Here
+04. Chris Warne - The Wall    Читать дальше...    Жанр: Pop, Easy ListeningПродолжительность: 03:48:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:946C0006724AF14AAC766AA221CF5D982519F376
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1224539.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 224 463
+
+The Pointer Sisters - In Concert  2007  Compilation, Unofficial Release [FLAC|Lossless|image + .
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+1	Happiness
+2	Automatic
+3	Fairytale
+4	Slow Hand    Читать дальше...    Жанр: Funk, Soul, PopПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:23354BEC31696FA2FD4CB482A13E08D47E678B61
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1224463.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 224 128
+
+West End Players and Singers - Highlights from Grease  2000  [FLAC|Lossless|image + .cue] <Music
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01.	Grease
+02.	Summer Nights
+03.	Hopelessly Devoted To You
+04.	You re The One That I Want    Читать дальше...    Жанр: Musical, PopПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1224128.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 224 113
+
+The West End Orchestra & Singers - Joseph And The Amazing Technicolor Dreamcoat  1997  [FLAC|Los
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Prologue
+    02.   Any dream will do
+    03.   Jacob & Sons
+    04.   Joseph’s coat    Читать дальше...    Жанр: Musical, PopПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5154DB5617DD68A9610218858BC9D942A6671532
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1224113.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 224 069
+
+VA - Voll Bock auf Ballermann  2018  2CD [MP3|320 Kbps] <Pop, Schlager>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ingo ohne Flamingo - Saufen morgens, mittags, abends
+02. Almklausi - Mama Laudaaa
+03. Tobee - Helikopter 117  Mach den Hub Hub Hub   Mallorca Version 
+04. Willi Herren - Nachttischlampe    Читать дальше...    Жанр: Pop, SchlagerПродолжительность: 02:17:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B9867506FDC56F59009F046F272CB3D7D9CEDD1F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1224069.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 224 021
 
 The Three Degrees - Greatest Hits  1998  [FLAC|Lossless|image + .cue] <Disco, Soul, Funk>
@@ -1723,281 +1998,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218782.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 676
-
-Brad Paisley  Брэд Пейсли  - Who Needs Pictures  1999  Arista Nashville [MP3|320 Kbps] <Coun
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Брэд Пейсли  полное имя - Брэд Дуглас Пейсли  - американский кантри-исполнитель и автор песен, один из самых популярных в 2006-2010 годах в своём стиле в «Billboard Top 200». Обладатель трёх премий «Грэмми», четырнадцати «Academy of Country Music Awards», четырнадцати «Country Music Association Awards» и двух «American Music Awards». В 2011 году Пейсли выпустил автобиографическую     Читать дальше...    01. Long Sermon 3:19
-02. Me Neither 3:20
-03. Who Needs Pictures 3:46
-04. Don t Breath 2:54    Читать дальше...    Жанр: Country, Country RockПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D361916F5F173CFF3E17ECD7E8852F6C32F0843
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218676.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 622
-
-VA - 100 Hits - The Best Love Album  2017  [MP3|320 Kbps] <Pop, R&B, Other>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01. Eric Carmen - All By Myself 4:30
-02. The Bangles - Eternal Flame 3:56
-03. Harry Nilsson - Without You 3:17    Читать дальше...    Жанр: Pop, R&B, OtherПродолжительность: 06:23:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:928DD55CD5D335EEE9D75505CB0D47B375BA0E6F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218622.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 514
-
-Fancy - 30 Years - The New Best Of  2018  [MP3|320 Kbps] <Pop, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Flames of Love  Radio Version   3:28 
-02. Slice Me Nice  4:06 
-03. Come Back and Break My Heart  Radio Mix   4:01 
-04. We Can Move a Mountain  Single Version   3:48     Читать дальше...    Жанр: Pop, DiscoПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:60D562C87715EA9C2DE62F48ADD9760EFECF1D7A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218514.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 484
-
-The Eastern Gang - The Flasher  1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Sunny Faces  4:20 
-02. The Flasher  4:36 
-03. Hamburger Man  5:04 
-04. Charlotte  4:20     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:03CD0963C13072213499F70DDCE2F15CAFB002F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218484.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 446
-
-Наталия Могилевская - Самое... Самое  2003  |Lossless|image + .cue]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Плачь
-02. Снегопад
-03. Зима
-04. Лимоновый фонарь    Читать дальше...    Жанр: PopПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B9659F248402CBF504E72DB4F591EFA738A7B85
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218446.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 427
-
-Revanche - Music Man  1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. You Get High In N.Y.C.  8:39 
-02. Revenge  8:53 
-03. Music Man  8:17 
-04. 1979  It s Dancing Time   8:44 Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0B540858DA0A1164F7D4F1E7F62E84AE6ED7E5CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218427.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 407
-
-VA - NRJ Hit Music Only 2018  2018  3CD [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1
-01. Maître Gims - Mi Gna  00:03:36 
-02. David Guetta - Like I Do  00:03:23 
-03. Vald - Désaccordé  00:03:35     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:21:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F7E7D45AE2DA567B2CCD9361400BF1A443A12BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218407.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 369
-
-Dschinghis Khan - Moskau - Das Neue Best Of Album  2018  [FLAC|Lossless|WEB-DL|tracks] <Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Dschinghis Khan
-02. Moskau
-03. Mexico
-04. Madagaskar    Читать дальше...    Жанр: DiscoПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2BCEF097BDD729BF45B0C9C82DE8C22AEC2D1A41
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218369.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 209
-
-Fancy - 30 Years - The New Best Of  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.	Flames of Love  Radio Version 	3:28
-02.	Slice Me Nice	4:06
-03.	Come Back and Break My Heart  Radio Mix 	4:01
-04.	We Can Move a Mountain  Single Version 	3:48    Читать дальше...    Жанр: Pop, DiscoПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:58D68B39220C5637901C5AD484699E9B2B267D0B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218209.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 217 976
-
-Arpadys - Arpadys  1977  LP [MP3|320 Kbps] <Electronic, Space-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Monkey Star  6:33 
-02. Funky Bass  5:55 
-03. Pharoah Song  4:36 
-04. Stone Roller  5:34     Читать дальше...    Жанр: Electronic, Space-DiscoПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:853E52855DDD8AB8A8D060FD90EE4BBA891415D3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217976.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 217 889
-
-VA - Eurovision Song Contest Lisbon  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Eugent Bushpepa - Mall  Eurovision 2018 - Albania 
-02. Sevak Khanagyan - Qami  Eurovision 2018 - Armenia 
-03. Jessica Mauboy - We Got Love  Eurovision 2018 - Australia 
-04. Cesar Sampson - Nobody But You  Eurovision 2018 - Austria     Читать дальше...    Жанр: PopПродолжительность: 02:09:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FAB41AFE16B0CCD2C14958585A9884917F4CAFC5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1217889.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

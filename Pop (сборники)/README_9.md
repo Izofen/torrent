@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 709 541
+
+Cherry Laine - The Singles Collection - Projects, Versions & New (2023) Compilation [FLAC|Lossless|i
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Jungle Lover Boy (12″ Version) 6:20
+02. Tragedy (12″ Version) 4:31
+03. 1001 Nights (Ali Baba) (Pappy’ion) 3:50
+04. Fata Morgana (Pappy’ion) 3:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BE8B6AC0E9FBE973B17F1232A37BBFCA7BD98939
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709541.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 517
+
+Alan Barry - Maxi & Singles Collection (2023) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Come On (Vocal Version) 4:58
+02. Innocent (Extended Version) 5:11
+03. Tell Me Reason (A-Side) 6:09
+04. Gimme Gimme (Euro Mix) 5:51(   Читать дальше...   )Жанр: Italo-Disco, Hi NRGПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F52361A4A5F26C28C935232DF45E26F37371A51
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709517.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 511
+
+Sandy Marton - Maxi And Singles Collection  2023  Compilation [FLAC|Lossless|image + .cue] <Pop,
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. People From Ibiza  Vocal Version  6:11
+02 Camel By Camel 4:07
+03. Exotic And Erotic  Remix  6:21
+04. Love Synchronicity 3:49    Читать дальше...    Жанр: Pop, Europop, Synth-popПродолжительность: 01:20:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:53E97F6B30BC87F32745A3B597B6D758AF11DF92
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709511.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 394
+
+VA - Workout Gym Motivation 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Troye Sivan - Rush (2:36)
+02. ArrDee - Flowers (Say My Name) (2:38)
+03. Swedish House Mafia - Moth To A Flame (3:54)
+04. Bru-C - No Excuses (3:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5875F69DF55E43CB414301C59D70B8743D3F1E69
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709394.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 353
+
+Lobo - The Caribbean Disco Show  1981  LP [MP3|320 Kbps] <Disco, Reggae, Funk-Soul>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. The Caribbean Disco Show  21:31 
+02. Mangwene Mpulele  3:00 
+03. I Do Love You  3:47 
+04. Calypso Sound  4:04     Читать дальше...    Жанр: Disco, Reggae, Funk-SoulПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:61E79D4B43B3B3B619D1FE8A59F777841A1F5D2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709353.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 348
+
+Army Of Lovers - Sexodus  2023  [FLAC|Lossless|image + .cue] <Pop,	Europop, Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Sexodus
+02. Love Is Blue
+03. What s That Look
+04. Romanism    Читать дальше...    Жанр: Pop,	Europop, Synth-popПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A1B39853C6AE2BAD02CAE6FC78F78A2E8704503E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709348.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 098
+
+PNAU - Hyperbolic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. AEIOU (feat. Empire Of The Sun)
+02. The Hard Way (feat. Khalid)
+03. Solid Gold (feat. Kira Divine, Marques Toliver)
+04. All The Time(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A62316F9BC75DC072D64C6451B0FB81FEC50958
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709098.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 095
+
+Mike Mareen - The Maxi-Singles Collection Part 3 (2023) Compilation, Remastered [FLAC|Lossless|image
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Stand Up (Original 12″ Version) 6:34
+02. Germany (12″ Version) 5:46
+03. Love Spy Back To Spy (Dance-Hall-Medley) 5:28
+04. Agent Of Liberty (Razormaid Mix) 6:55(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:07:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:508BCFEC55482160C0F8CD8AB4FE53BB220DA2F5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709095.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 093
+
+Mike Mareen - The Maxi-Singles Collection Part 2 (2023) Compilation, Remastered [FLAC|Lossless|image
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Love Spy (The Badman-Mix) 6:25
+02. Africa (Maxi Version) 6:04
+03. Dancing In The Dark (Galactica Remix) 7:08
+04. Cecilia (12″ Remix Version) 7:20(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D45DBB737DB2DCE1997BFF48734C6E36321720C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709093.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 092
+
+VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. David Guetta - I’m Good (Blue) (2:55)
+02. Ava Max - Kings & Queens (2:42)
+03. Dua Lipa - Levitating (feat. DaBaby) (3:23)
+04. Campbell - Would You (Go to Bed with Me) (2:00)(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:48FEF653CB3E146C2BF58526EB2445E6D702F747
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709092.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 089
+
+Mike Mareen - The Maxi-Singles Collection (2009) Compilation, Remastered [FLAC|Lossless|image + .cue
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Agent Of Liberty (Nik Z. WC Remix)
+4:56
+02. Lady Ecstasy (Extended Version) 5:32
+03. Love Spy (Night Mix) 8:40(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A292C14F7DCA7575F0939424D8D3676B9F6AF79
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709089.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 708 985
 
 Gazebo - Maxi & Singles Collection Part 2 (2023) Compilation [FLAC|Lossless|image + .cue] <Italo-Dis
@@ -1711,281 +1986,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700004.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 986
-
-VA - 100 Hits 80s Pop (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Dead Or Alive - You Spin Me Round (Like A Record)
-02.  Haircut 100 - Fantastic Day
-03.  Bros - I Owe You Nothing
-04.  Altered Images - Don't Talk To Me About Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:28:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B77608A39F64296B8CC8F59530820C41D154D187
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699986.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 960
-
-Женя Любич - Лето (2021) [FLAC|Lossless|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1.Будь что будет
-2.Белая ночь
-3.ЛетоЖанр: PopПродолжительность: 00:09:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C26964816D31893B5A0BD8BF8B7F58741E7DFA66
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699960.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 958
-
-Амели На Мели - Наизусть (2017) [FLAC|Lossless|WEB-DL|tracks] <Инди-Поп>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Зима по проводам
-2. О важном
-3. Не буди
-4. Забыть её(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C06ACBA3C0A793D3A03B6DC7EEF2B1A897A28F0E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699958.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 858
-
-Teach-In - The Best Of The Best (1997) [OGG Vorbis|480 Kbps] <Pop, Europop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Fly Away
-02.  In The Summernight
-03.  Tennessee Town
-04.  Ding-A-Dong(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:85162C345E5075C5E7E1ED38B99720E94759FCE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699858.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 856
-
-VA - Driving Songs The Ultimate Collection (2014) 5 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Iggy Pop - Real Wild Child (Wild One)
-02.  Ocean Colour Scene - The Riverboat Song
-03.  The Hives - Walk Idiot Walk
-04.  Blink 182 - All The Small Things(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 05:47:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DFDE6D7AF5279491FF611D2A0A7C36058F480506
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699856.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 798
-
-Richard Marx - Ballads (1994) [OGG Vorbis|480 Kbps] <Pop, Ballad>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Now And Forever
-02.  Keep Coming Back
-03.  Hold On To The Nights
-04.  Silent Scream(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CDB88E3DC1849F343AC3097CEDD2768C2D855F71
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699798.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 719
-
-VA - Johnny Hits Vol. 1 '98 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Dana International - Diva
-02.  Scooter - How Much Is The Fish
-03.  TNN - La Cucamarcha '98
-04.  Lutricia McNeal - Stranded(   Читать дальше...   )Жанр: Electronic, Pop, Euro House, EurodanceПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:55C7893747471D23CFC68B51D7843DFB2124A0EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699719.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 538
-
-Paul McCartney & Wings - Band On The Run (1973) 2 x CD, Reissue, 2023, Capitol Records, Apple Record
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Band on the Run - третий альбом группы Wings и пятый в сольной карьере Пола Маккартни, вышедший в свет в декабре 1973. Это пожалуй самый успешный альбом группы Wings и самый знаменитый из постбитловских альбомов Маккартни. Был признан самым популярным альбомом в мире в 1974 году.
-Музыкальный критик журнала Rolling Stone считает Band on the Run "лучшей пластинкой (   Читать дальше...   )CD1 - Band On The Run:
-01. Band on the Run
-02. Jet
-03. Bluebird(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:26:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C9414D0FF6C54EDA1BC2D4C21501D88929480955
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699538.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 505
-
-VA - Billboard Top Pop Hits, 1960 (1994) [OGG Vorbis|480 Kbps] <Electronic, Rock, Funk / Soul, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Duane Eddy & The Rebels - Because They're Young
-02.  Brenda Lee - I'm Sorry
-03.  Mark Dinning - Teen Angel
-04.  Brian Hyland - Itsy Bitsy Teenie Weenie Yellow Polkadot Bikini(   Читать дальше...   )Жанр: Electronic, Rock, Funk / Soul, PopПродолжительность: 00:26:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3677C4403ECDDD9B8F36B9DE54FFAAF00FA5D966
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699505.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 486
-
-VA - Maxi Hit-Sensation 97-04 (2007) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  A Touch Of Class - Around The World (Ruegsegger # Wittwer Club Mix)
-02.  Eiffel 65 - Lucky (In My Life) (Gabry Ponte Club Mix)
-03.  Touche - This Goodbye Is Not Forever (DJ Lucky Extended Version)
-04.  Modern Talking - Juliet (Jeo's Remix)(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 03:52:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E250271E2EC526E2D625E9730CA65361F2DDAB6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699486.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 699 413
-
-Jay Aston - I Spy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - The Insecure Chief (00:04:15)
-02 - True Love (00:02:56)
-03 - Music Box (00:03:44)
-04 - The Law of Happiness (00:03:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D6ABCDE282E71157E63BB693707FE8816A4D5AF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1699413.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

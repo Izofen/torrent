@@ -1,4 +1,203 @@
 ﻿
+###  Публикация: 1 750 516
+
+Imminence - Studio Albums (6 releases) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tr
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Imminence — шведская металкор-группа из Мальмё и Треллеборга, основанная в 2009 году.2013 - Return to Helios (EP)
+2014 - I
+2017 - This Is Goodbye
+2019 - Turn the Light OnЖанр: MetalcoreПродолжительность: 05:41:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AAE1EEAED5126AF791586689A043EE74A827EA99
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750516.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 750 458
+
+Lyle Lovett And His Large Band - Lyle Lovett And His Large Band (1989) [FLAC 2.0|48/24|image +.cue|M
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+A1 The Blues Walk
+A2 Here I Am
+A3 Cryin' Shame(   Читать дальше...   )Жанр: Big Band, CountryПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B1797327DEC3A90901D3552AE8A8C50FA135F41
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750458.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 750 309
+
+It Dies Today - Studio Albums (3 releases) (2004-2009) hand made [restored, declipped] [FLAC |16/44.
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+It Dies Today — американская металкор-группа, образованная в Буффало, штат Нью-Йорк, в сентябре 2001 года.2004 - The Caitiff Choir
+2006 - Sirens
+2009 - LividityЖанр: MetalcoreПродолжительность: 02:44:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5C7372AACEF0E2BCB6D2549DF9E4B1A1C415965A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750309.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 750 135
+
+Miseration - Studio Albums (4 releases) (2006-2022) hand made [restored, declipped] [FLAC |16/44.1|t
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Miseration — шведская дэт-метал-группа, организованная в 2006-м году. Коллектив является одним из многих проектов Яни Стефановича и бывшего вокалиста Scar Symmetry Кристиана Альвестама.2006 - Your Demons - Their Angels
+2009 - The Mirroring Shadow
+2012 - Tragedy Has Spoken
+2022 - Black Miracles And Dark WondersЖанр: Melodic/Technical Death MetalПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45D98CA2F86CF4B4186141BB5BE9EA92C99D17C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750135.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 750 127
+
+Земляне & Supermax - Sergey Skachkov & Kurt Hauenstein (2009) Unofficial Release [FLAC|Lossless|imag
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Love Machine
+02. World of today
+03. It aint easy
+04. Hotline(   Читать дальше...   )Жанр: Rock, Reggae, Funk / SoulПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:67944DCB5EEC1A6CD49AC22F44753B1B082E995A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750127.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 749 979
+
+He Is Legend - Studio Albums (9 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+He Is Legend — американская альтернативная метал-группа из Уилмингтона, Северная Каролина, основана в 2003 году.2004 - 91025
+2004 - I Am Hollywood
+2006 - Black Unicorn
+2006 - Suck Out The PoisonЖанр: Southern Metal, Stoner Rock, Post-hardcoreПродолжительность: 06:41:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69DA395E0D6D6A5344DD8805D0C2D8F2CB493215
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1749979.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 749 811
+
+Killswitch Engage - Studio Albums (8 releases) (2000-2019) hand made [restored, declipped] [FLAC |16
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Killswitch Engage - американская металкор-группа из города Уэстфилд, штат Массачусетс, образовалась в 1999 году.2000 - Killswitch Engage
+2002 - Alive Or Just Breathing
+2004 - The End Of Heartache
+2006 - As Daylight DiesЖанр: MetalcoreПродолжительность: 06:50:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:09BC81786056C9E84ED555D0E533B0032A676548
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1749811.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 749 650
+
+As I Lay Dying - Studio Albums (9 releases) (2001-2019) hand made [restored, declipped] [FLAC |16/44
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+As I Lay Dying — американская металкор-группа из Сан-Диего, Калифорния.2001 - Beneath The Encasing Of Ashes
+2003 - Frail Words Collapse
+2005 - Shadows Are Security
+2007 - An Ocean Between UsЖанр: MetalcoreПродолжительность: 06:57:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:59EFDD5BCBC8BA412CD28EC01AF57C47C44CCA8B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1749650.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 749 442
 
 I Prevail - Studio Albums (4 releases) (2014-2022) hand made [restored, declipped] [FLAC |16/44.1|tr
@@ -1764,201 +1963,6 @@ A3 Child Of The Wild Blue Yonder(   Читать дальше...   )Жанр: Co
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1736516.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 736 369
-
-Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Pop Rock, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Pop, Pop Rock, DiscoПродолжительность: 02:36:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F367F64B06BAB6FB44ED0DDF90950454BF3DEF6E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1736369.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 735 823
-
-Sting - Fields Of Gold: The Best Of Sting 1984 - 1994 (1994) [FLAC 2.0|48/24|image +.cue|MC-Rip] <So
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1:
-A1 When We Dance
-A2 If You Love Somebody Set Them Free
-A3 Fields Of Gold(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2DFC1969522EA9D7873EAFFDF3B52E02FE58BAA1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735823.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 735 366
-
-Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP, Relea
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A - The Burning Voice
-B - HamartiaЖанр: Black MetalПродолжительность: 00:11:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B1C9D194A745C8DEC837854B8951547E5E852457
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735366.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 735 364
-
-Shrine of Insanabilis - Disciples of the Void (2015) Released, 2016, Fallen Empire [FLAC|24/192|imag
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 - End All
-A2 - Ruina
-A3 - Acausal Paths
-A4 - (..............)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:49F9D088B770907E2FB7B1472FD02776E87CE433
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735364.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 735 294
-
-Carpathian Forest - Through Chasm, Caves And Titan Woods (1995) EP, Reissue, 2013, Peaceville [FLAC|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 - Carpathian Forest
-A2 - The Pale Mist Hovers Towards The Nightly Shores
-A3 - The Eclipse / The Raven
-B1 - When Thousand Moon Have Circled(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:18:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5DAEC1A599786F0C45FBF7F2C9F154790CDC5E63
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735294.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 735 247
-
-Гелена Великанова - Великие Исполнители России XX Века (2005) [FLAC 2.0|48/24|image +.cue|MC-Rip] <P
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона А:
-01. Жаль, что время ушло
-(М. Табачников - А. Завальнюк)
-02. Ты запой мне эту песню(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:28FE62D32C366B6937D1CFE2C5C0E2877D902BEC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735247.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 735 169
-
-Sinistrous Diabolus - Total Doom / Desecration (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Doom, De
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Wipe Out Christianity (Exordium) (03:38)
-A2. Sleep of the Damned Pt. II (05:00)
-A3. Wipe Out Christianity (Pestis) (12:08)
-B1. Gate of Hell (02:47)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C96CFE848C5EB9063B4713B6AE3B0C39D8EDF3AE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735169.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 734 527
-
-Velvet Cacoon - Genevieve (2004) Released, 2007, Southern Lord [FLAC|24/192|tracks|Vinyl-Rip] <Black
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. 1
-02. P.S. Nautical
-03. Avalon Polo
-04. Laudanum(   Читать дальше...   )Жанр: Black Metal, Dark Ambient, DroneПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:691436E439CC7E288A84F332F0AC60B99F8C69BD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1734527.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

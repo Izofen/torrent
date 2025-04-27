@@ -1,4 +1,354 @@
 ﻿
+###  Публикация: 912 856
+
+VA - Hot Dance Summer  2015  [MP3|320 кб с]<Club, Dance, House>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. T Paul Sax - This Summer  Radio Edit 
+02. Hardwell ft Harrison vs. Darude - Sally  Obsessed Bootleg 
+03. Major Laser & DJ Snake feat. MO Feat. DJ Pitkin & DNK - Lean On  DJ Amada Mash Up 
+04. Mika - Relax  Take It Easy   Max Maikon Remix     Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 08:05:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7D51BED2E688616838F2F1C588C8162B3F0A4DC7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912856.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 851
+
+VA - Музыка для вашего офиса - 2  2015  [MP3|320 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Дискотека Авария - Самуи  Single Version 
+002. Zvika Brand feat. MC Chubik - Potahat Tik
+003. Мохито - Ловлю Моменты  DJ MriD & Tony Kart Remix 
+004. Mans Zelmerlow - Heroes  B.o.Y Remix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:35:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A946A2003B3C79AC2D68D20842EEE4E35436A1DF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912851.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 745
+
+VA - Летние хиты за рулем. Русский выпуск  2015  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Аника Далински - Птица-Удача
+002. Даша Суворова - Аранжировки
+003. Natan - Просто История
+004. Marlena - Все Как И У Всех    Читать дальше...    Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4ED9AC1E6AF75DA7E042E3093EF1E6DF00C0F5DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912745.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 620
+
+VA - Car Audio. Субботние ништяки [Sound Clinic - Special Edition]  2015  [MP3|320 кб с]<Deep,
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. 303Bastard - Microphone Commando  Original Mix 
+2. Alex Herrera - Mesmerized  Original Mix 
+3. Alexey Union - Paris Trip  Original Mix 
+4. Alma - Supernatural  Original Mix     Читать дальше...    Жанр: Deep, Tech, G-House, Dubstep, Progressive, Trance, TechnoПродолжительность: 12:32:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7393C9B324565F786DEEC597BBEEF236D888825F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912620.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 529
+
+VA - Car Audio. Русский, Душевный  Sound Clinic - Special Edition   2015  [MP3|320 кб с]<Р
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. 25-17 - Горький туман
+2. 25-17 - Звезда
+3. 25-17 - Облако
+4. 25-17 - Полёты    Читать дальше...    Жанр: Рок, Блюз, Регги, Шансон, ПопПродолжительность: 07:04:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C2E9C711B47B27F879732870F918CE2577AA1C2D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912529.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 429
+
+VA - The Ultimate Prog & Power Experience 01-03  2015  [MP3|320 кб с]<Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Transcend - Moment Of Infinity [00:08:39]
+02. Appearance Of Nothing - Without A Reason [00:10:26]
+03. Flaming Row - Burning Sky [00:06:22]
+04. Echoes - Lullaby [00:04:21]    Читать дальше...    Жанр: MetalПродолжительность: 07:33:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:502F68701A011F6CD6E1346923C6028EA0847871
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912429.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 416
+
+VA - Союз летних хитов от Европа Плюс. Часть 3  2015  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Britney Spears & Iggy Azalea - Pretty Girls
+002. Иван Дорн - Весна
+003. Guy Sebastian - Animal In Me
+004. Lx24 - Сегодня Пьяным Буду Вновь    Читать дальше...    Жанр: PopПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:300BE17B0CC8B2C01C5391EBB6BD708B9C7C78F4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 318
+
+VA - Шансон на лето. Часть 3  2015  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня (сборники)
+
+###  Подробнее
+
+001. Михаил Блат - Не Кажи Мне Зубы
+002. Марина Редкая - Бабник
+003. Андрей Бандера - Сердце Хулигана
+004. Григорий Лепс - Я Счастливый    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:736E0FFF11979468D414A5D03B0D32C081EF18A7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912318.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 257
+
+Владимир Кузьмин - 140 лучших песен  9CD   1981-2014   2015  [MP3|320 кб с]<Rock, Blue
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Пустое слово  1981 
+002. Мир надежд моих  1981 
+003. Ливень  1982 
+004. Берега  1982     Читать дальше...    Жанр: Rock, Blues, Rock N Roll, Pop RockПродолжительность: 10:36:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5F87E89A9EF7E3DAF5EA744C5036FB3FD922E0A3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912257.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 220
+
+VA - Лето в кайф. Часть 4  2015  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Слава И Любовь Успенская - Таблетка
+002. Conchita Wurst - Up For Air
+003. Мот Feat. Виа Гра - Кислород
+004. Dj Free & Purebeat - All I Wanna Be    Читать дальше...    Жанр: PopПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3C4BEC8EB5D07118E986BD87E64B5DE446BB067D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912220.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 167
+
+VA - Tallinna Lounge Collection Vol.10  2015  [MP3|320 кб с]<Downtempo, Nu Disco, Vocal House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Oliver Koletzki feat. Jake The Rapper - Fifty Ways To Love Your Liver  Original Mix   05:01 
+02. Pompeya - 90  Korablove Slow Disco Remix   06:03 
+03. Showtek feat. MC Ambush - 90 s By Nature  Sam Feldt Remix   04:24 
+04. Dolls Combers - Last tango in Paris  Original Mix   09:11     Читать дальше...    Жанр: Downtempo, Nu Disco, Vocal HouseПродолжительность: 01:08:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:20D9B6B96B8479BF037D5BB42769DCFFA7990DAC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912167.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 001
+
+VA - Neue Deutsche Harte  1999-2015  [MP3|128-320 кб с]<Industrial-Metal, Folk-Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Tyler Milchmann - Grossmutter
+02. Heldmaschine - Radioaktiv
+03. Stahlmann - SŸüchtig
+04. Ruoska - Pure minua    Читать дальше...    Жанр: Industrial-Metal, Folk-MetalПродолжительность: 03:21:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:312DA65FC057E04064FEC13F0A896CEC45E4B466
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912001.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 911 820
+
+Madonna - Madonna s 40 Biggest Billboard Hits  2015  [MP3|320 кб с]<Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Like a Virgin  Like a Virgin 
+ 02. Vogue  I m Breathless 
+ 03. Crazy For You  Vision Quest 
+ 04. Take a Bow  Bedtime Stories     Читать дальше...    Жанр: PopПродолжительность: 03:04:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E333AD4035461ADAFD3387586605547AD81B0B8C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_911820.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 911 759
+
+VA - Car Audio. Полный улет.  Sound Clinic - Special Edition   2015  [MP3|320 кб с]<Deep,
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. 351 Lake Shore Drive - Waterflow  Cafe Ping Pong Mix 
+2. Above & Beyond - Sun & Moon  Andy Cuttof Remix 
+3. Acid Pauli, Monolink - New Morning  The Micronaut Remix 
+4. Alex Dimou - Scraping    Читать дальше...    Жанр: Deep, Tech, Trap, Electro, Progressive, Drum n Bass, House, AutoПродолжительность: 20:59:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21CE54144DE4AEECBE30238DD85BADDA84E74F26
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_911759.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 911 725
 
 VA - Vocal Drum & Bass Temptation Vol 3  2015  [MP3|320 кб с]<Drum & Bass>
@@ -1640,360 +1990,6 @@ Rap, Hip-hop, RnB, Reggae  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906811.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 810
-
-Алексей Фролов - гр. Condor [MP3|320 kbps]<Romantic Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001 Так как прежде
-002 Ночь тишина
-003 Вина
-004 До утра    Читать дальше...    Жанр: Romantic RockПродолжительность: 07:53:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B629C0B8A3E15F44E426E27AABF6747F982F250
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906810.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 787
-
-VA - Шансон на лето  2015  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Яков Кирсанов, Денис Годицкий  Happy Sovok  - Ангел Мой
-002. Алехно Руслан - Оглянись
-003. Сергей Порт И Марина Вальдман - Богиня
-004. Ильдар Дияров - Голубь В Небе    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:658EBC471C4FA201CB65F991694B104BC676CAB9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906787.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 777
-
-VA - Warm Morning Sea vol 3  2015  [MP3|320 кб с]<Lounge, Chill Out>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Simon Le Grec - Decisions  Instrumental   05:26 
-02. Igor Pumphonia - Night Live Online  05:34 
-03. Saafi Brothers - Moments Of Clarity  07:07 
-04. Toddi Reed - High Times  05:25     Читать дальше...    Жанр: Lounge, Chill OutПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4E8299F9871AD19DAA5632CEA868F7147612CECC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906777.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 773
-
-VA - КаZантип Z005 Euro Trance  2005  Z-GAMES [MP3|192-320 кб с]<Euro Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001 R-TEM - VOICELESS   ГИМН - КАZАНТИП-Z005  
-002 LIVE MIX
-003 LIVE MIX
-004 LIVE MIX    Читать дальше...    Жанр: Euro TranceПродолжительность: 06:46:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1AD84B042A235B4562B862A277A0960A51C5C8B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906773.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 770
-
-VA - Шансон в дорогу 2  2015  [MP3|320 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Виталий Аксенов - Желание
-02. Александр Шапиро - Адель
-03. Алексей Ром - Наша любовь
-04. Сергей Вольный - Для настроения    Читать дальше...    Жанр: ШансонПродолжительность: 06:31:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:26D1005BF1BB027D576DE2FA1E65ABD916C4DA05
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906770.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 591
-
-Tiesto - Burn  2015  [MP3|192 кб с]<House, Progressive House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Chapter 1 of 9
-02. Chapter 2 of 9
-03. Chapter 3 of 9
-04. Chapter 4 of 9    Читать дальше...    Жанр: House, Progressive HouseПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:533158DAE25A70A5B3AED9DCB9CE4CCBDC3A195B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906591.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 514
-
-Kylie Minogue - Super Hits Collection  2015  [MP3|320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Cant Get You Out Of My Head
-02. Spinning Around
-03. I Should Be So Lucky
-04. Love At First Sight    Читать дальше...    Жанр: PopПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3AA4CD021E43388FF5C95B838720929059F763F3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906514.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 495
-
-Вольфганг Амадей Моцарт - Музыка Моцарта в дорогу  2000  [MP3|320 кб с]<Класика>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Классическая музыка Моцарта в дорогу также хорошо успокаивает. Особенно это важно для детей, которые плохо переносят переезды и часто капризничают. Грамотно подобранные произведения помогут поднять малышу настроение и вернут хорошее расположение духа, не дадут ему заскучать.
-Беря с собой сборник музыки Моцарта в дорогу, родители сочетают приятное с полезным. Ведь     Читать дальше...    01. Don Giovanni, K 527 Finale
-02. Piano Concerto No. 6 in B Flat Major, K 238- Rondo Allegro
-03. String Quartet in G Major, K 156- Presto
-04. Serenade, K 185 Menuetto-Trio    Читать дальше...    Жанр: КласикаПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7C377109F58CDED936A4E2794EED4E333979D89
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906495.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 470
-
-VA - Vocal Drum & Bass Temptation Vol 1  2015  [MP3|320 кб с]<Drum & Bass>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Invaders Of Nine - Sunlight  05:09 
-02. Dr Meaker & Cappo D & Sharlene Hector - Freaks  Extended Mix   04:16 
-03. Son Of Kick Feat. Lady Leshurr & Paigey Cakey - Hours  North Base Remix   04:19 
-04. John B Feat. Shaz Sparks - Heroes  Subsonik s Synthia Remix   06:39     Читать дальше...    Жанр: Drum & BassПродолжительность: 02:31:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A53CB1F2C81EB6EFB4831E77C457AF8B0B649C85
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906470.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 452
-
-Вольфганг Амадей Моцарт - Музыка Моцарта для игр  1997  [MP3|320 кб с]<Класика>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-В сборник музыки Моцарта для игр вошли самые разнообразные произведения. Благодаря этому можно подобрать мелодию, которая лучше всего подходит для той или иной игры. Например, для занятий, требующих сосредоточенности и внимания, лучше всего использовать спокойные мелодичные произведения. Тогда как для подвижных забав подойдет что-то более активное и быстрое.
-
-Специально     Читать дальше...    01. Champagne Aria from Don Giovanni
-02. Rondo Alla Turca
-03. Die Leyerer, K. 611
-04.  La Bataille , K. 535    Читать дальше...    Жанр: КласикаПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:71651DF38FB975D00A13078B04B6CBBEFD3132B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906452.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 449
-
-VA - Клубные хиты в тачку на прокачку  2015  [MP3|256 кб с]<Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Base Elements - Trust Me  H@ppy Tunez Project Remix 
-02. Bsharry - I Like It  Original Mix 
-03. Alexx Slam - Take Me Away  Original Mix 
-04. Above & Beyond feat. Zoe Johnston - Alchemy  Above & Beyond Club Mix     Читать дальше...    Жанр: Dance, ClubПродолжительность: 07:49:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:320A2F0A6BBE4A6E0354F7AEA3920F0992125A3B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906449.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 438
-
-Вольфганг Амадей Моцарт - Музыка Моцарта для развития детей  2000  [MP3|320 кб с]<Класика>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Благотворное влияние музыки Моцарта на развитие детей доказано научными исследованиями. Как показывают эксперименты, люди, регулярно слушающие произведения великого композитора, становятся более собранными, лучше мыслят и рассуждают.
-Сборник музыки Моцарта для развития детей можно слушать онлайн или в записи. Избранные произведения специально подобраны для малышей.     Читать дальше...    1.  Rondo  from Eine Kleine Nachtmusik, K. 525
-2. Allegro Moderato, Violin Concerto No. 2, K. 211
-3. Variations, Sinfonia, K. 297b
-4. Andante, Symphony No. 17, K. 129    Читать дальше...    Жанр: КласикаПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E5621FB6C654AC8B3AB0F520AC0EC1C6C0F4E896
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906438.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 436
-
-Владимир Кузьмин - Лучшие Хиты  2013  [MP3|320 кб с]<Pop-Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Радость
-02. Сумасшедший
-03. Глаза
-04. Друзья    Читать дальше...    Жанр: Pop-RockПродолжительность: 02:33:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3400119998DD53D446C2BA2F24E29233132178BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906436.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 433
-
-VA - The Most Essential Smooth Jazz  2015  [MP3|320 кб с]<Jazz, Smooth Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Spyro Gyra - Surrender  04:48 
-02. David Sanborn - Isnt She Lovely  03:19 
-03. Yellowjackets - Bright Lights  06:55 
-04. Chris Botti - The Look  04:22     Читать дальше...    Жанр: Jazz, Smooth JazzПродолжительность: 02:00:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CC541D1DD7D654B25F70DED8C126C5945E16008B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906433.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

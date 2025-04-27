@@ -1,4 +1,202 @@
 ﻿
+###  Публикация: 1 524 431
+
+Комиссар - Наше Время Пришло  1991  Питон, со вставками Звук [DSD2.0|11,28MHz 1bit|image+.cue|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+[0:35] 01. Студия ПИТОН представляет!
+[5:05] 02. Ты уйдешь
+[3:51] 03. Наше время пришло
+[4:56] 04. Всё изменится    Читать дальше...    Жанр: Pop, Disco, Dance, TechnoПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1F9152FEA6FA7194A80CEAA962B55981D0CC2995
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1524431.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 524 025
+
+The Beatles - 1967-1970  1973  Blue Album [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Beat, Pop R
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+LP1
+A1 Strawberry Fields Forever
+A2 Penny Lane
+A3 Sgt. Pepper s Lonely Hearts Club Band    Читать дальше...    Жанр: Beat, Pop RockПродолжительность: 01:39:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED79CAA200AAA39DE6A04C1F3E3CB96C0EB7126A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1524025.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 524 023
+
+The Beatles - 1962-1966  1973  Red Album [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Beat, Pop Ro
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+LP1
+A1 Love Me Do
+A2 Please Please Me
+A3 From Me To You    Читать дальше...    Жанр: Beat, Pop RockПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43605E3D08B535E30D60EEEFB531B46D092426FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1524023.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 523 505
+
+Dream Theater - Дискография  28 releases   1989 - 2021  hand made [restored, declipped] [FLA
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Dream Theater — прогрессив-метал-группа из США. Основана в 1985 году тремя студентами музыкального колледжа Беркли.1989 - When Dream and Day Unite
+1992 - Images and Words
+1994 - Awake
+1997 - Falling Into InfinityЖанр: Progressive MetalПродолжительность: 42:16:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A951EB5C7D7AC28897F61DC2E9B0FBC649C87C53
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1523505.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 523 022
+
+Deep Purple - Turning To Crime  2021  [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. 7 And 7 Is  2:28 
+ 02. Rockin  Pneumonia And The Boogie Woogie Flu  3:15 
+ 03. Oh Well  4:31 
+ 04. Jenny Take A Ride!  4:36     Читать дальше...    Жанр: Rock, BluesПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E52485D1D1AD75EF62EDA57DA58A8CA405BE2FB6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1523022.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 522 707
+
+Mylene Farmer - Дискография  17 releases   1986 - 2022  hand made [restored, declipped] [FLA
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Милен Жанна Готье  фр. Mylène Jeanne Gautier , профессионально известная как Милен Фармер  Mylène Farmer , французская певица канадского происхождения, композитор, актриса и поэтесса.1986 - Cendres de lune
+1988 - Ainsi soit je
+1991 - L autre
+1995 - AnamorphoseeЖанр: Chanson, Pop Rock, Synth-popПродолжительность: 22:07:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ADC167E734912BB685FEAD90C5F870D269160022
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1522707.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 522 655
+
+Queen Of The Damned OST  2002  hand made [restored, declipped][FLAC 2.0|Lossless|44 16|tracks
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Оригинальный саундтрек к фильму Queen Of The DamnedCD1 - Queen Of The Damned  original score by Richard Gibbs 
+CD2 - Queen Of The Damned  songs by Jonathan Davis Жанр: Stage & Screen, Nu Metal, Alternative RockПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA11032AC2BC113E20A228B5C04D805E31CA55F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1522655.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 522 398
+
+Александр Розенбаум - Казачьи Песни  1990  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Chanson, Ba
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+А1 Песня Красных Конников • Song Of Red Cavalry Men
+А2 Кубанская Казачья • Kuban Cossack Song
+А3 Тетя Маня • Aunt Manya
+А4 Кандальная • Irons Song    Читать дальше...    Жанр: Chanson, BalladПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1928C2509F45913B982EE8AC3964CD9AEB61630D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1522398.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 522 392
 
 Александр Розенбаум - Нарисуйте Мне Дом...  1987  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Chan
@@ -1793,206 +1991,6 @@ White Christmas
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1434719.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 433 242
-
-The Beatles - Легенды Зарубежного Рока  1999  Unofficial Release [FLAC 2.0|48 24|image+.cue|MC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-A1 Michelle  Rubber Soul 
-A2 Girl  Rubber Soul 
-A3 Help!  Help!     Читать дальше...    Жанр: Beat, Pop RockПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1433242.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 431 813
-
-Урия Хип - Ансамбль «Урия Хип» | Uriah Heep - Innocent Victim  1980  1977 [FLAC 2.0|96 24|imag
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Keep On Ridin  = Я Снова В Пути
-A2 Flyin  High = Летаю Высоко
-A3 Roller = Легкомысленная
-A4 Free N  Easy = Свободно И Легко    Читать дальше...    Жанр: Hard Rock, Classic RockПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B332C759FFC0F1C225F42B8BC2FC01E6B3C80480
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1431813.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 431 042
-
-Tangerine Dream - Stratosfear  1981  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Electronic, Ambie
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Stratosfear	10:04
-A2 The Big Sleep In Search Of Hades	4:45
-B1 3AM At The Border Of The Marsh From Okefenokee	8:10
-B2 Invisible Limits	11:38Жанр: Electronic, Ambient, Berlin-SchoolПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9988EF09DB2BA403F6D9AB26745AE208C6AF3A06
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1431042.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 430 827
-
-ЭВМ  Эх Вашу Мать! - экс  Круиз   - Здравствуй, Дурдом!  1990  [FLAC 2.0|192 24|image
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-В 1985 году Александр Монин, Григорий Безуглый, Олег Кузьмичёв и Николай Чунусов организовали проект под названием «Э. В. М.»  Эх Вашу Мать! . В 1985 году «Э. В. М.» выпустили магнитоальбом «Три дороги», а позже был выпущен альбом «Здравствуй, дурдом !». В эту пластинку вошли песни, записанные в 1989 году на студии Виктора Векштейна - известного музыканта и продюсера.     Читать дальше...    A1 Здравствуй, Дурдом!
-A2 Кинули!
-A3 Эйфория
-A4 Мария    Читать дальше...    Жанр: Hard RockПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4B62B3000B55DB173E73E57C52489EBA47E8C4F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430827.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 430 188
-
-VA - Ленинградский Рок-клуб  1988  Записи 1986 - 1987 гг. [FLAC 2.0|192 24|image +.cue|Vinyl-R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Игры - Освобождение  I Want To Be Free 
-A2 Алиса - Мое Поколение  My Generation 
-A3 Присутствие - Выйди Вон  Get Out 
-A4 АВИА - Шла Машина Грузовая  The Passing Lorry     Читать дальше...    Жанр: Alternative Rock, New WaveПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430188.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 429 650
-
-Георги Бейков, Ваня Цокова  Дуо Нове  - Завръщане  1983  [FLAC 2.0|96 24|image +.cue|Vinyl
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Земя
-A2 Спомен подир спомен
-A3 Циганката
-A4 Любовта, която остава    Читать дальше...    Жанр: PopПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4BDA3403F6CAB1454C51DBB792713612209758C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1429650.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 429 648
-
-Puhdys - Puhdys 11: Computer-Karriere  1983  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Synth-po
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Computer-Karriere
-A2 Flieg Mit Mir
-A3 Jahreszeiten
-A4 Stop, Baby, Stop    Читать дальше...    Жанр: Synth-pop, Classic Rock, New WaveПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1429648.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 428 854
-
-Roxy Music - Manifesto  1979  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Art Rock, New Wave, Pop
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-East Side
-A1 Manifesto
-A2 Trash
-A3 Angel Eyes    Читать дальше...    Жанр: Art Rock, New Wave, Pop RockПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F83ACB44E747F4FA6D5EE396478127C262650E15
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428854.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

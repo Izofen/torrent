@@ -1,4 +1,204 @@
 ﻿
+###  Публикация: 1 630 459
+
+Sentenced - Studio Albums (12 releases) (1990-2005) hand made [restored, declipped] [FLAC 2.0|44/16|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Sentenced — финская англоязычная метал-группа, сменившая с момента основания в 1989 году до момента распада в 2005 несколько различных метал-стилей.1991 - Shadows Of The Past
+1993 - North From Here
+1995 - Amok
+1996 - DownЖанр: Melodic Death/Gothic MetalПродолжительность: 09:02:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E6F8C1601CBCD2593A55A89E50F59ED4A3AB2CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630459.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 340
+
+Орк. Большого театра СССР, дир. А. Жюрайтис - Р. Щедрин - Сюита № 2 из балета «Конек-горбунок» (1963
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Р. ЩЕДРИН (р. 1932)
+2-я сюита из балета "Конек-Горбунок"
+01. Танец с балалайками
+02. Братья в ночном дозоре(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45283206E50DD258C2C51C4AD0FF3D051359274C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630340.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 326
+
+Т. Николаева/Л. Брук и М. Тайманов - И. Стравинский/Ф. Пуленк - Каприччио/Концерт для двух ф-но с ор
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Каприччио Для Ф-но С Оркестром
+A1 Presto
+A2 Andante Rapsodico
+A3 Allegro Capriccioso Ma Non Giusto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D2E61958C216378831928B25235310246FEA534
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630326.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 250
+
+Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1		S.O.S. (Love To The Rescue)	4:21
+A2		Which Way Is Up	4:26
+A3		Living In A Dream	4:56
+A4		Teach You How To Dance	5:31(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C5254D9BB5A34611EB66977C6F87B0DCBA08C3C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630250.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 238
+
+Dee D. Jackson - Cosmic Curves  1978  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Pop
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Automatic Lover 4:08
+A2 Red Flight 4:10
+A3 Galaxy Of Love 4:48
+A4 Meteor Man 4:47    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C7C57E8EC626A14CA1AD3EF1767C7F9A56EA7A12
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630238.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 232
+
+Stream of Passion - Studio Albums  5 releases   2005-2014  hand made [restored, declipped] [
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Stream of Passion — мексикано-нидерландская симфоник- готик-метал-группа, образованная в 2005 году Арьеном Антони Люкассеном и Марселой Бовио.2005 - Embrace the Storm
+2006 - Out in the Real World  EP 
+2009 - The Flame Within
+2011 - Darker DaysЖанр: Progressive Symphonic MetalПродолжительность: 04:11:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D32D97DBEB6C81168B9B3BDE39813A4408ACD96F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630232.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 226
+
+Gorillaz - Cracker Island  2023  [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip Hop, Rock, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Cracker Island  3:33 
+ 02. Oil  3:50 
+ 03. The Tired Influencer  3:31 
+ 04. Tarantula  3:32     Читать дальше...    Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CC458EC151F24CA9F2FCC5F22DBF416BD57AF0BB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630226.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 630 201
+
+Красные Маки - Если Не Расстанемся...  1980  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+А1 Встречай Меня
+А2 Если Не Расстанемся
+А3 Скажет Девчонка
+А4 Давай Попробуем Вернуть    Читать дальше...    Жанр: PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E6CDF7484CFC3EF2251AAEFB65F308B95B16B3D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1630201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 630 140
 
 Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
@@ -1792,194 +1992,6 @@ A4 Private Eye 4:44(   Читать дальше...   )Жанр: Synth-popПро
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1624080.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 884
-
-Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EF84881BE5C299EBD6ED99465AB5C841ED24A179
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623884.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 839
-
-Prince And The Revolution - Parade  1986  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Rock, Funk
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Rock, Funk   Soul, PopПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623839.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 834
-
-Spandau Ballet - Parade -  1984   [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Electronic, PopПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D1CC70CBC07EEAA5ECF6641346C04DCD0DA694BB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623834.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 730
-
-Grant Miller - Greatest Hits & Remixes  2016  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electro
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Doctor For My Heart  12  Version  5:18
-A2. Wings Of Love  12  Version  5:21
-A3. Colder Than Ice  12  Version  5:38
-A4. Lost In Paradise  Extended Version  5:05    Читать дальше...    Жанр: ElectronicПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623730.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 371
-
-Various - Flashdance - Original Soundtrack From The Motion Picture  1983  [FLAC 2.0|192 24|ima
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05919032C3DCDB93C8E83D52C977783D806CC3DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623371.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 217
-
-Londonbeat - In the blood  1990  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. It s in the blood [4:50]
-02. Getcha ya ya [4:35]
-03. She broke my heart  in 36 places  [3:40]
-04. She said she loves me [4:17]    Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623217.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 202
-
-Samantha Fox - Touch Me  1986  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Synth-Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Touch Me  I Want Your Body  3:44
-A2 I m All You Need 4:25
-A3 Suzie, Don t Leave Me With Your Boyfriend 3:54
-A4 Wild Kinda Love 3:33    Читать дальше...    Жанр: Synth-PopПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623202.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 196
-
-Space - Magic Fly  1983  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Ambient, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1  Пристегните Ремни 5:59
-A2  Баллада 2:17
-A3  Танго В Космосе 4:28
-A4  Наваждение 3:32    Читать дальше...    Жанр: Ambient, DiscoПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623196.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

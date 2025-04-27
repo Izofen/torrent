@@ -1,4 +1,192 @@
 ﻿
+###  Публикация: 1 623 884
+
+Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EF84881BE5C299EBD6ED99465AB5C841ED24A179
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623884.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 839
+
+Prince And The Revolution - Parade  1986  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Rock, Funk
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Rock, Funk   Soul, PopПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623839.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 834
+
+Spandau Ballet - Parade -  1984   [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Electronic, PopПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D1CC70CBC07EEAA5ECF6641346C04DCD0DA694BB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623834.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 730
+
+Grant Miller - Greatest Hits & Remixes  2016  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electro
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Doctor For My Heart  12  Version  5:18
+A2. Wings Of Love  12  Version  5:21
+A3. Colder Than Ice  12  Version  5:38
+A4. Lost In Paradise  Extended Version  5:05    Читать дальше...    Жанр: ElectronicПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623730.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 371
+
+Various - Flashdance - Original Soundtrack From The Motion Picture  1983  [FLAC 2.0|192 24|ima
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:05919032C3DCDB93C8E83D52C977783D806CC3DB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623371.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 217
+
+Londonbeat - In the blood  1990  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. It s in the blood [4:50]
+02. Getcha ya ya [4:35]
+03. She broke my heart  in 36 places  [3:40]
+04. She said she loves me [4:17]    Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 202
+
+Samantha Fox - Touch Me  1986  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Synth-Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Touch Me  I Want Your Body  3:44
+A2 I m All You Need 4:25
+A3 Suzie, Don t Leave Me With Your Boyfriend 3:54
+A4 Wild Kinda Love 3:33    Читать дальше...    Жанр: Synth-PopПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623202.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 196
+
+Space - Magic Fly  1983  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Ambient, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1  Пристегните Ремни 5:59
+A2  Баллада 2:17
+A3  Танго В Космосе 4:28
+A4  Наваждение 3:32    Читать дальше...    Жанр: Ambient, DiscoПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623196.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 622 959
 
 Dreamtale - Studio Albums (8 releases) (2002-2022) hand made [restored, declipped] [FLAC 2.0|44/16|t
@@ -1798,210 +1986,6 @@ In Flames — шведская музыкальная группа, играющ
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599189.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 981
-
-H.E.A.T - Studio Albums  7 releases   2008 - 2022  hand made [restored, declipped] [FLAC |16
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-H.E.A.T — шведская рок-группа из Upplands Väsby, играющая в стиле Melodic Rock и AOR.
-Группа возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году был выпущен дебютный альбом H.e.a.t.
-Группа выступала на Melodifestivalen 2009 — шведском этапе Евровидения - но не одержали победу в финале.
-После долгих летних     Читать дальше...    2008 - H.E.A.T
-2010 - Freedom Rock
-2012 - Address The Nation
-2014 - Tearing Down The WallsЖанр: Arena Rock, Hard RockПродолжительность: 06:09:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F67D57393B9F7B51789D45C7B56DF307AC85CAC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598981.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 761
-
-Sunstorm - Studio Albums  7 releases   2006 - 2022  hand made [restored, declipped] [FLAC 2.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Sunstorm — американский музыкальный проект AOR , первоначально в котором участвовали ведущий вокалист Джо Линн Тернер, басист вокалист Деннис Уорд , клавишник Йохен Вейер, а также гитарист Уве Рейтенауэр и барабанщик Крис Шмидт. В альбомах также участвовали такие исполнители, как Дэнн Хафф и Джим Петерик , в качестве дополнительных авторов песен.2006 - Sunstorm
-2009 - House Of Dreams
-2012 - Emotional Fire
-2016 - Edge Of Tomorrow    Читать дальше...    Жанр: Melodic Heavy Metal Hard RockПродолжительность: 06:03:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0C84ACC8EAF2E56EBCB4407ADD534444459A811A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598761.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 626
-
-Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made [restored, declipped
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Ронни Аткинс (имя при рождении - Пол Кристенсен, 16 ноября 1964 года) - датский певец, наиболее известный как соучредитель, ведущий вокалист и основной автор песен хэви-метал группы Pretty Maids2021 - One Shot
-2021 - 4 More Shots (The Acoustics) (EP)
-2022 - Make It Count
-2023 - TrinityЖанр: Hard Rock, Heavy MetalПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7D67D9705AEE695FE8DEBAE596892AD2401AAE73
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598626.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 477
-
-Negative - Studio Albums  6 releases   2003 - 2010  hand made [restored, declipped] [FLAC 2.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Negative — финская глэм-рок-группа, основанная в конце 1997. Уже на первых ступенях своего пути Negative получила репутацию живой группы, которая даёт публике запоминающиеся мелодии и риффы гитары. Звучание группы сравнимо с ранними исполнителями глэм-рока и группами как David Bowie и Queen. Сама группа называет свой стиль «эмоциональный rock’n’roll». В последние     Читать дальше...    2003 - War Of Love
-2004 - Sweet And Deceitful
-2006 - Anorectic
-2008 - Karma KillerЖанр: Glam Rock, Hard RockПродолжительность: 05:32:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:82DBE18EB7CD94DC5496D2003782CE9E21B1C26F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598477.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 598 370
-
-HIM - Studio Albums  10 releases   1997 - 2013  hand made [restored, declipped] [FLAC 2.0|44
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-HIM — финская рок-группа, созданная в 1991 году вокалистом Вилле Вало, гитаристом Микко Линдстремом и басистом Микко Паананеном. Первоначальное название коллектива было His Infernal Majesty  Его дьявольское Величество , но его заменили аббревиатурой HIM, когда начались обвинения в пропаганде сатанизма. Некоторое непродолжительное время во время гастролей по США и     Читать дальше...    1997 - Greatest Lovesongs Vol. 666
-2000 - Razorblade Romance
-2001 - Deep Shadows And Brilliant Highlights
-2003 - Love Metal    Читать дальше...    Жанр: Gothic Rock, Gothic MetalПродолжительность: 10:13:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9CE846906E176701A8A43C083589F4D1D55E0035
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598370.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 597 443
-
-Fozzy - Studio Albums  8 releases   2000 - 2022  hand made [restored, declipped] [FLAC 2.0|4
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Fozzy — американская хэви-метал группа.
-В 1999 году рестлер Крис Джерико и гитарист группы  Stuck Mojo  Рич Уорд создали кавер-группу  Fozzy Osbourne . Вскоре название сократилось до  Fozzy , а в 2000 году на лейбле  Megaforce Records  вышел одноименный дебютный альбом.2000 - Fozzy
-2002 - Happenstance
-2005 - All That Remains
-2009 - Chasing The GrailЖанр: Heavy Metal, Hard RockПродолжительность: 06:20:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:46559443E0979F542F4D933AF84E9D407EA52E82
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1597443.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 596 795
-
-Nordic Union - Studio Albums  3 releases   2016 - 2022  hand made [restored, declipped] [FLA
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-За названием  Nordic Union  скрывается созданный президентом компании  Frontiers Records  Serafino Perugino совместный проект Ронни Аткинса  Ronnie Atkins  из легендарной датской мелодик-хард н хэви группы  Pretty Maids  и подающего большие надежды шведского автора песен и продюссера Эрика Мартенсона  Erik Martensson  известного по таким     Читать дальше...    2016 - Nordic Union
-2018 - Second Coming
-2022 - Animalistic
-.Жанр: Melodic Heavy Metal Hard RockПродолжительность: 02:15:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9864A331F5B3E71184626604B124A9E0ACD6B449
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596795.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 596 711
-
-Audioslave - Studio Albums  3 releases   2002 - 2006  hand made [restored, declipped] [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Audioslave — супергруппа, состоявшая из бывших инструменталистов группы Rage Against the Machine Тома Морелло  гитарист , Тима Коммерфорда  бас-гитарист и сопровождающий вокал  и Брэда Уилка  ударные , а также Криса Корнелла  бывший ведущий вокалист и ритм-гитарист группы Soundgarden  в качестве ведущего вокалиста. Группа сформировалась после распада Rage Against     Читать дальше...    2002 - Audioslave
-2005 - Out Of Exile
-2006 - Revelations
-.Жанр: Hard Rock, Post-GrungeПродолжительность: 03:15:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1596711.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

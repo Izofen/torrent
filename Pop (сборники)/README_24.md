@@ -1,4 +1,280 @@
 ﻿
+###  Публикация: 1 569 370
+
+Vanessa Mai - Metamorphose  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. 747  2:23 
+02. Süchtig  3:11 
+03. Happy End  2:18 
+04. VIBE  2:36     Читать дальше...    Жанр: PopПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:023CC0A126A3C8FBEB59A6D7FF60AD0C0D41DF15
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569370.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 569 362
+
+C.C.Catch - Catch The Catch  1986  [OGG|485 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01.  Cause You Are Young  Maxi-Version 	4:43
+02. I Can Lose My Heart Tonight  Maxi-Version  5:54
+03. You Shot A Hole In My Soul  Maxi-Version  5:16
+04. One Night s Not Enough 3:23    Читать дальше...    Жанр: DiscoПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:125265E245ECB3706357B258537B24413DF986D5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569362.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 569 327
+
+Bad Boys Blue - Totally  1992  [OGG|485 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Have You Ever Had A Love Like This	3:35
+02. I Totally Miss You	3:57
+03. What A Feeling	3:52
+04. Who s That Man?	3:50    Читать дальше...    Жанр: DiscoПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7AB05C79010259496884F0C50D82D2A173B4BADD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569327.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 569 265
+
+C.C. Catch - Back Seat Of Your Cadillac  1994  [FLAC|Lossless|tracks + .cue] <Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Heartbreak Hotel
+02. ’Cause You Are Young  Long-Version 
+03. I Can Lose My Heart Tonight  Long-Version 
+04. Good Guys Only Win in Movies  Long-Version     Читать дальше...    Жанр: Euro-DiscoПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3D78D00580EC9D5E36F72D7535ED959C1C5C72C1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569265.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 569 244
+
+VA - EFFECTIVE COVERS, Vol. 3  2022  [MP3|320 Kbps] <Dance, Pop, Electronic>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+1. ONEIL KANVISE SMOLA - I Will Be Here
+2. Slider & Magnit - I Feel Your Voice
+3. Denis First - Enjoy the Silence
+4. DJ DimixeR Serge Legran MURANA - Tom s Diner    Читать дальше...    Жанр: Dance, Pop, ElectronicПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED6A8CDAE66635F211196D0E3498FF116A03FDFE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569244.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 569 082
+
+Bad Boys Blue - Game Of Love  1990  [OGG|485 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Queen Of Hearts	4:11
+02. Jungle In My Heart	3:38
+03. I Don t Know Her Name	3:23
+04. Jenny, Come Home	3:49    Читать дальше...    Жанр: DiscoПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F88835A6A248F51B354E2433F2BB3CC5136CF6E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569082.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 569 060
+
+Bad Boys Blue - Heart Beat  1986  [OGG|485 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. I Wanna Hear Your Heartbeat  Sunday Girl 	3:50
+02. Mon Amie	4:35
+03. One Night In Heaven	4:45
+04. Baby I Love You	4:05    Читать дальше...    Жанр: DiscoПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C826A6F5462691FF7AB122274E626CB762A69CB4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569060.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 569 051
+
+Bryan Ferry - Taxi  1993  [FLAC|Lossless|image + .cue] <Pop Rock, Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Taxi - восьмой студийный альбом Bryan а  Ferry, вышедший в апреле 1993. Альбом достиг 2 места в Соединенном Королевстве и по итогам продаж получил золотой сертификат. Синглы I Put A Spell On You и Will You Love Me Tomorrow достигли соответственно 18 и 23 позиции в чартах Великобритании.
+Как отмечали критики -  Taxi показывает зрелого Bryan а Ferry, вежливого,     Читать дальше...    01. I Put A Spell On You  5:26 
+02. Will You Love Me Tomorrow  4:16 
+03. Answer Me  2:46 
+04. Just One Look  3:32     Читать дальше...    Жанр: Pop Rock, Synth-popПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:486D01DFE3DA5C9915CF9B159AB05E869691B05A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569051.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 568 991
+
+Bad Boys Blue - Hot Girls, Bad Boys  1985  [OGG|480 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. You re A Woman	5:21
+02. I Live	4:54
+03. Pretty Young Girl	5:46
+04. L.O.V.E. In My Car	5:24    Читать дальше...    Жанр: DiscoПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:58E5472D9988FE933B81A93D0FA9B106254B5FF9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1568991.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 568 968
+
+VA - Love You Tonight  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Other>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Camila Cabello - Señorita  3:10 
+02. Maroon 5 - Sugar  3:54 
+03. Quavo - Intentions  3:32 
+04. Lady Gaga - The Edge Of Glory  5:20     Читать дальше...    Жанр: Pop, RnB, OtherПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F798F25EFCD511672DC52E9A2A14A7B6A4D284CF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1568968.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 568 895
+
+Corona - The Rhythm Of The Night  1995  [OGG|485 Kbps] <Euro House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Baby Baby                                    	3:45
+02. Try Me Out                                  	3:24
+03. Get Up And Boogie                           	3:13
+04. I Don t Wanna Be A Star                         	3:15    Читать дальше...    Жанр: Euro HouseПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:568070EA4A862505B1434B1CB9A42BF4C50E4BB4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1568895.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 568 880
 
 Bad Boys Blue - My Blue World  1988  [OGG|485 Kbps] <Disco>
@@ -1703,281 +1979,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555803.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 555 761
-
-Kiki Dee - 3 Albums  1977-1981  Reissue CD [MP3|320 Kbps] <Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Кики Ди  настоящее имя Полин Мэтьюс, Pauline Matthews; род. 6 марта 1947  - британская певица. Была первой белой блю-айд-соульной певицей, подписавшей контракт с мотауновским лейблом Tamla Records. За свою карьеру Кики Ди издала 40 синглов, 3 мини-альбома  EP  и 12 альбомов.Список альбомов:
-1977 - Kiki Dee
-1978 - Stay With Me
-1981 - Perfect Timing...Plus    Читать дальше...    Жанр: Pop, RockПродолжительность: 02:34:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5EE1D0D31694CC3C7F9C27BF5455CF42346C51D9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555761.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 555 708
-
-J. C. Riffaud - Emotion Life And Happiness  1979  LP [MP3|320 Kbps] <Electronic, Jazz, Easy List
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Thunder Storm  4:09 
-02. Air Ticket  3:32 
-03. The Song Of Little Bird  3:30 
-04. Blue Morning  2:54     Читать дальше...    Жанр: Electronic, Jazz, Easy Listening, DiscoПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5C3090FA2AD2ECB22AEB66AEA5719808ED1FAEE4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555708.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 555 642
-
-Giorgio Scarpinelli Y Su Orquesta - Disc-O-Tango  1979  LP [MP3|320 Kbps] <Electronic, Instrumen
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Pastora  3:42 
-02. La Yumba  5:10 
-03. A Marietta  4:20 
-04. Sombras Nada Mas  4:27     Читать дальше...    Жанр: Electronic, Instrumental, DiscoПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:791C14A00E0A59477455DFF3E78E9180B3113D0A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555642.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 555 603
-
-The Music People - Superman Y Otros Exitos  1979  LP [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Tema De   Superman    Theme From   Superman     5:36 
-02. Mujer Maravilla  Wonder Woman   2:30 
-03. Yo Robot  I Robot   3:53 
-04. Marruecos  3:24     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:31:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BC112BDA5614332F49A34A24DDE5CE5B49219B09
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555603.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 555 435
-
-Geoff Love s Big Disco Sound - 4 Albums  1976-1980  LP [MP3|320 Kbps] <Electronic, Funk Soul,
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Джефф Лав - музыкальный директор, аранжировщик, композитор и одна из самых популярных музыкальных личностей Великобритании с 1957 года. В 70х, на волне востребованного диско, создал оркестровую группу Geoff Love s Big Disco Sound.Список альбомов:
-1976 - Dance Dance Dance
-1977 - You Should Be Dancing - Volume 2
-1978 - Big Disco Movie Hits    Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:03:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7C6DD42965763812E59116EC764802123A78C47
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555435.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 555 364
-
-Made In U.S.A. - Melodies  1977  Reissue, 2017, Octave Lab [MP3|320 Kbps] <Electronic, Funk Soul
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Never Gonna Let You Go  5:08 
-02. Try Once More  4:16 
-03. Sexy Lady  4:29 
-04. Try To Find A Way  3:20     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A270120F85ADD97513A97C8948A2EACDF8E76880
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555364.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 555 108
-
-Andy Jonas  Angel X, Andreas Harde  - 7 Relises  1996-2017  [FLAC|Lossless|WEB-DL|tracks|tra
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Wie der Wind [00:03:27]
-02. Gestrandet [00:03:24]
-03. Rose in Wind [00:03:04]
-04. Verliebt [00:04:01]    Читать дальше...    Жанр: Europop, Deutchpop, ElectronicПродолжительность: 7 CD, 01:37:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3647C3A4B6CAB89D7CB94DB4D9D56C3847B9B02F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555108.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 554 983
-
-Sandra - Medley - Non-Stop Hit Mix  2020  [MP3|320 Kbps] <Electronic, Synthpop, Eurodisco, Europ
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Johnny Wanna Live
-02. Hiroshima
-03. Paintings In Yellow
-04. Steady Me    Читать дальше...    Жанр: Electronic, Synthpop, Eurodisco, EuropopПродолжительность: 02:04:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2E724B2F7809338F5CCE75E70C09F24EF96A0D74
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554983.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 554 972
-
-Leo Sayer - Northern Songs  2021  Sings The Beatles [FLAC|Lossless|image + .cue] <Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Eleanor Rigby
-02. Strawberry Fields Forever
-03. Revolution
-04. Get Back    Читать дальше...    Жанр: Pop, RockПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C0C82DA90D9FE1CF9A3CC10605816232507B7C57
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554972.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 554 926
-
-Gilla - Disco Collection  2001  [FLAC|Lossless|tracks + .cue] <Disco, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Johnny
-02. Tom Cat
-03. The Heat Is On
-04. Go Down Mainstreet    Читать дальше...    Жанр: Disco, PopПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:468423F962DF40367908675996375FC591EBD0F1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554926.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 554 685
-
-The Chainsmokers - So Far So Good  + Time Bomb   2022  [FLAC|Lossless|WEB-DL|tracks] <Pop, E
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. The Fall
-02. Why Can t You Wait
-03. Time Bomb
-04. Riptide    Читать дальше...    Жанр: Pop, ElectropopПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5780F36D02B3B806899A78095459D95F62373B23
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554685.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 358 260
+
+VA - 100 Greatest Easy Listening Classics  2020  [MP3|320 Kbps] <Pop, Rock, Jazz>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+001. Percy Faith - The Theme from  A Summer Place 
+002. Frank Sinatra - Strangers In The Night
+003. Perry Como - Magic Moments
+004. BJ Thomas - Raindrops Keep Falling On My Head    Читать дальше...    Жанр: Pop, Rock, JazzПродолжительность: 05:17:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:84FE0F6D19741AE3A0FFEBBDD7AC2BC6701C1389
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358260.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 358 256
+
+Cerrone - DNA  2020  [FLAC|Lossless|WEB-DL|tracks] <Disco, Electro>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. The Impact  5:34 
+ 02. Resolution  3:48 
+ 03. Air Dreaming  4:46 
+ 04. DNA  5:31     Читать дальше...    Жанр: Disco, ElectroПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8A43A84D824152BA68B95B51E8D485416F3C1720
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358256.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 358 200
+
+Kovacs - Shades Of Black  2015  2 CD Limited Dutch Edition [FLAC|Lossless|tracks + .cue] <Indie
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Intro  02:09 
+02. Whiskey And Fun  04:48 
+03. 50 Shades Of Black  03:17 
+04. Night Of The Nights  03:48     Читать дальше...    Жанр: Indie Pop, Soul, JazzПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0BD7FD015D95045E6D5E90DFEA7E85825EE45401
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358200.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 358 155
+
+VA - 100 Greatest Summer Songs  2020  [MP3|320 Kbps] <Pop, Rock, Other>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+001. Bob Marley & The Wailers - One Love   People Get Ready
+002. Madonna - Holiday
+003. Pharrell Williams - Happy
+004. DJ Jazzy Jeff & The Fresh Prince - Summertime    Читать дальше...    Жанр: Pop, Rock, OtherПродолжительность: 06:35:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2EBDFB13BC6B0D8CC636D48EBD3A3944394D9C4B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358155.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 358 139
+
+Richard Marx - Limitless  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Another One Down  3:13 
+ 02. Limitless  2:58 
+ 03. Love Affair That Lasts Forever  3:28 
+ 04. Let Go  3:40     Читать дальше...    Жанр: Pop, Pop-RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3BA40933B59414BAB679B56A1338EFD8D27A7B89
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358139.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 358 038
+
+Modern Talking - The 1st Album  1985  [FLAC|Lossless]<Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01.   You’re My Heart, You’re My Soul   [5:36]
+02.   You Can Win If You Want   [3:53]
+03.   There’s Too Much Blue in Missing You   [4:45]
+04.   Diamonds Never Made a Lady   [4:09]    Читать дальше...    Жанр: DiscoПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D07268526F9F6F87516A493383690B93BA0B594C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358038.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 357 919
+
+Baccara - 5 Albums  1977-2017  Collection [MP3|320 Kbps] <Europop, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+«Баккара»  исп. Baccara  - испанская женская поп-группа, наиболее популярная в конце 1970-х - начале 1980-х годов. В мире известна благодаря хитам «Cara Mia», «Yes Sir, I Can Boogie», «Sorry I’m A Lady». Группа названа в честь сорта розы, которая и служит логотипом коллектива. В раздаче представлены раздачи с первым и ставшим знаменитым составом вокалисток Майте     Читать дальше...    Список альбомов:
+1977 - Baccara  Yes Sir, I Can Boogie 
+1978 - Light My Fire
+1979 - Colours    Читать дальше...    Жанр: Europop, DiscoПродолжительность: 03:33:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A8B01157C70C0C07B329EB0EF0638FEA051FBF2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1357919.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 357 763
+
+Kovacs - Cheap Smell  2018  [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Priceless  03:47 
+02. Adickted  03:16 
+03. It s the Weekend  03:33 
+04. Freakshow  03:18     Читать дальше...    Жанр: Jazz, PopПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:189D142B019EC26B579870EB2DBC3EB320FF6E93
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1357763.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 357 757
+
+East Coast - East Coast  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Meet The Beat  7:08 
+02. I Count The Tears  5:22 
+03. Between You And Me  3:31 
+04. The Rock  7:00     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4871CDC8D7545237F3BBB27BBA87D5F7D430E279
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1357757.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 357 730
+
+Chris De Burgh - Now and Then  2008  Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Don t Pay The Ferryman  3:25 
+ 02. Missing You  4:07 
+ 03. The Lady In Red  4:15 
+ 04. Live For The Day  with Tina Yamout   3:22     Читать дальше...    Жанр: Pop-RockПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:48A0B4C89FE7B1508A28536E43913100B305EEC4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1357730.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 357 598
+
+Murray Head - Emotions  My Favourite Songs   2005  Compilation [FLAC|Lossless|WEB-DL|tracks]
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Never Even Thought  4:51 
+ 02. Say It Ain t so, Joe  4:29 
+ 03. Make It Easy  3:21 
+ 04. Corporation Corridors  3:47     Читать дальше...    Жанр: Pop-Rock, Ballad, 70s-90sПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F131268927C435D96FA2F9558BB393EFBC3C87F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1357598.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 357 487
 
 London Boys - Playlist: The Best of London Boys  2016  Compilation [FLAC|Lossless|WEB-DL|tracks]
@@ -1717,280 +1992,6 @@ Eurodance, Euro-House, Technopop  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349873.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 349 870
-
-Estimado - The Escape to Heaven  2017  [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. I’m Dancing On My Own 5:19
-02. Faster 7:08
-03. Believe In Me 7:45
-04. I Want You Heaven 6:48    Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E27CD7C56529450EB4E6C65B82E033268F4920E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349870.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 349 866
-
-Rewind Feat. Madame Denise - Video Killed The Radio Star  1993  [FLAC|Lossless|image + .cue] <Eu
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Video Killed The Radio Star  Radio Edit  4:03
-02. Video Killed The Radio Star  With An Eye 2 Techno  5:02
-03. Video Killed The Radio Star  Mother s Day  4:15
-04. Kaleidoscope  Coming Soon  2:17Жанр: Euro HouseПродолжительность: 00:15:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3836DC8A1172890128170394F2A99FAC8A1E9AFD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349866.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 349 849
-
-Chyp-Notic - Nothing Compares 2 U  1990  [FLAC|Lossless|image + .cue] <Euro House>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Nothing Compares 2 U  The Ultimate Dance-Version  6:32
-02. Nothing Compares 2 U  The Techno Mix  5:09
-03. 1-4-U 5:32Жанр: Euro HouseПродолжительность: 00:17:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:84DD6D14CB61619C3A56D4C8E0CDEE78B8A03949
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349849.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 349 675
-
-Robbie Williams - The Christmas Present  2019  2CD [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Треклист CD1:
-01. Winter Wonderland
-02. Merry Xmas Everybody  feat. Jamie Cullum 
-03. Let It Snow! Let It Snow! Let It Snow!    Читать дальше...    Жанр: Pop |Продолжительность: 01:32:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6C657B23E6469EB3409219C3F5D6D7CEE10B2085
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349675.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 349 374
-
-NЮ - В сердце  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.Веснушки
-02.В сердце
-03.Под кайфом
-04.Верь в меня    Читать дальше...    Жанр: PopПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D9C4A9985ABFD37FF19EAF048895805620ADE00
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349374.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 349 362
-
-VA - 55 Hits 2020 [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01. Angele - Oui ou non
-02. Dadju - Ma vie
-03. Gradur - Ne reviens pas    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:01:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D6E05675D1B15623E7EC57FBC3719386DB298E7A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349362.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 349 149
-
-MONATIK - Мріяти не шкідливо  2019  EP [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Мріяти не шкідливо
-2. Свято наближається
-3. Батькам
-4. КрасаЖанр: PopПродолжительность: 00:12:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73CB93B9F962B601CB571DCCC6751EA74FC7936F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349149.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 348 966
-
-VA - 100 Greatest Chillout  2019  [MP3|320 Kbps] <Pop, Relax, Easy Listening>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-001. Air - La femme d argent
-002. Otis Redding -  Sittin  On  the Dock of the Bay
-003. Morcheeba - The Sea
-004. Art of Noise - Robinson Crusoe    Читать дальше...    Жанр: Pop, Relax, Easy ListeningПродолжительность: 06:34:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5F193E80A68EEBA892976E1A6628F983F0EAEDA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1348966.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 348 948
-
-VA - 100 Greatest Indie: The Best Guitar Pop Rock  2019  [MP3|320 Kbps] <Indie, Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-001. Blur - Parklife
-002. The Smiths - This Charming Man  2011 Remaster 
-003. Liam Gallagher - Wall of Glass
-004. The Futureheads - Hounds of Love    Читать дальше...    Жанр: Indie, Pop-RockПродолжительность: 06:29:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FFBC89D472D20EA360E72CBD70F09985F70A2475
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1348948.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 348 794
-
-VA - Ibiza Day & Night  2010 - 2012  6 CD [FLAC|Lossless|tracks + .cue]<Eurodance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Musikk VS. Chiris Montana - Summer Lovin    Acapella  
-02. Martin Villeneuve - Come On Over   Up Jeet Remix  
-03. Rio Dela Duna & Dani Cohiba - El Cubano   Martin Villeneuve Remix  
-04. Do Santos - Noti Verisi    Читать дальше...    Жанр: EurodanceПродолжительность: 02:26:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:91AB6704CF234239FE618AFEB5F1CDA26429AEE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1348794.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 348 630
-
-VA - 100 Greatest 10s: The Best Songs of Last Decade  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-001. Coldplay - A Sky Full of Stars
-002. Dua Lipa - Be the One
-003. Tones and I - Dance Monkey
-004. Jason Derulo - Want to Want Me    Читать дальше...    Жанр: PopПродолжительность: 08:24:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0FBD909CF57B9836519C1CEFBF535E5376162BEC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1348630.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

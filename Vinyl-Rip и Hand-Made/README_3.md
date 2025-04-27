@@ -1,4 +1,199 @@
 ﻿
+###  Публикация: 1 736 369
+
+Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Pop Rock, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Pop, Pop Rock, DiscoПродолжительность: 02:36:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F367F64B06BAB6FB44ED0DDF90950454BF3DEF6E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1736369.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 735 823
+
+Sting - Fields Of Gold: The Best Of Sting 1984 - 1994 (1994) [FLAC 2.0|48/24|image +.cue|MC-Rip] <So
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1:
+A1 When We Dance
+A2 If You Love Somebody Set Them Free
+A3 Fields Of Gold(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2DFC1969522EA9D7873EAFFDF3B52E02FE58BAA1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735823.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 735 366
+
+Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP, Relea
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A - The Burning Voice
+B - HamartiaЖанр: Black MetalПродолжительность: 00:11:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B1C9D194A745C8DEC837854B8951547E5E852457
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735366.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 735 364
+
+Shrine of Insanabilis - Disciples of the Void (2015) Released, 2016, Fallen Empire [FLAC|24/192|imag
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 - End All
+A2 - Ruina
+A3 - Acausal Paths
+A4 - (..............)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:49F9D088B770907E2FB7B1472FD02776E87CE433
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735364.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 735 294
+
+Carpathian Forest - Through Chasm, Caves And Titan Woods (1995) EP, Reissue, 2013, Peaceville [FLAC|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 - Carpathian Forest
+A2 - The Pale Mist Hovers Towards The Nightly Shores
+A3 - The Eclipse / The Raven
+B1 - When Thousand Moon Have Circled(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:18:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5DAEC1A599786F0C45FBF7F2C9F154790CDC5E63
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735294.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 735 247
+
+Гелена Великанова - Великие Исполнители России XX Века (2005) [FLAC 2.0|48/24|image +.cue|MC-Rip] <P
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона А:
+01. Жаль, что время ушло
+(М. Табачников - А. Завальнюк)
+02. Ты запой мне эту песню(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:28FE62D32C366B6937D1CFE2C5C0E2877D902BEC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735247.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 735 169
+
+Sinistrous Diabolus - Total Doom / Desecration (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Doom, De
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Wipe Out Christianity (Exordium) (03:38)
+A2. Sleep of the Damned Pt. II (05:00)
+A3. Wipe Out Christianity (Pestis) (12:08)
+B1. Gate of Hell (02:47)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C96CFE848C5EB9063B4713B6AE3B0C39D8EDF3AE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1735169.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 734 527
+
+Velvet Cacoon - Genevieve (2004) Released, 2007, Southern Lord [FLAC|24/192|tracks|Vinyl-Rip] <Black
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. 1
+02. P.S. Nautical
+03. Avalon Polo
+04. Laudanum(   Читать дальше...   )Жанр: Black Metal, Dark Ambient, DroneПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:691436E439CC7E288A84F332F0AC60B99F8C69BD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1734527.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 734 313
 
 Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Experimenta
@@ -1784,203 +1979,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1717915.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 717 775
-
-Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Spectre Of Devastation
-02. Pestilence
-03. Rat King
-04. Left To Rot(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2824F01F2C95FC9787A4AA945F737EE835F2DD44
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1717775.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 717 401
-
-Виталий Дубинин - Бал-Маскарад (3 издания) (2022-2023) hand made [restored, declipped] [FLAC |16/44.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Бал-Маскарад - сольный проект Виталия Дубинина с участием Сергея Маврина и Михаила Бугаева (Гран-Куражъ)2022 - Бал-Маскарад
-2023 - Live-маскарад
-2023 - Бал-Маскарад. ПостскриптумЖанр: Heavy Metal, Hard RockПродолжительность: 02:16:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C1003AE418AA6C52FD362413FC35BAE7970E9DB1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1717401.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 716 779
-
-Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <He
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1:
-01. Heart Of Steel
-02. Garden Party
-03. Let My Of Myself(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:95CB92998D1079A31829EBE1339C27B851B056E8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1716779.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 716 321
-
-Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Pop, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 I'm In The Mood For Dancing
-A2 Spirit, Body And Soul
-A3 Out Of Love With Love
-A4 Bright Eyes(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:07EC8D2C89127596138BE1695609EE8CF166CB91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1716321.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 716 189
-
-Хаме-леоН - Студийные альбомы  5 изданий   2013-2024  hand made [restored, declipped] [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Хаме-леоН — российская пауэр-метал-группа из Курска.2013 - Попробуй на вкус эту душу!
-2016 - Ночь шальных машин в городе тьмы
-2020 - К.О.Д
-2022 - Крики!Жанр: Heavy Power MetalПродолжительность: 05:09:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C925C43513A5D6ADC300B8DBB208AD210E064B78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1716189.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 715 848
-
-S-Tool  Severing Tool  - Studio Albums  2 releases   2017-2020  hand made [restored, dec
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-S-Tool  или Severing Tool  — финская хэви-метал группа, базирующаяся в Оулу Лахти Хельсинки. Основана в 2015 году бывшим фронтменом2017 - Tolerance 0
-2020 - ExitusЖанр: Groove MetalПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8980719678D04F84F44C138422433D0A65FC56F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715848.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 715 639
-
-Poisonblack - Studio Albums (6 releases) (2003-2013) hand made [restored, declipped] [FLAC |16/44.1|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Poisonblack — финская метал-группа, возглавляемая бывшем фронтменом2003 - Escapexstacy
-2006 - Lust Stained Despair
-2008 - A Dead Heavy Day
-2010 - Of Rust And BonesЖанр: Heavy/Groove/Gothic MetalПродолжительность: 05:22:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C2594363B9035A13F3A27CFCB0A75CF11EE2FD1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715639.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 714 946
-
-Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tr
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Periphery — американская группа, играющая в жанре прогрессивный метал. Возникла в 2005 году в городе Бетесда. Группа популяризовала современный прогрессивный метал, в особенности поджанр джент.2010 - Periphery
-2011 - Icarus (EP)
-2012 - Periphery II: This Time It's Personal
-2014 - Clear (EP)Жанр: Progressive/Math Metal, DjentПродолжительность: 08:15:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFC09D39B5C765154131DE943D3A59AD10BBD084
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1714946.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

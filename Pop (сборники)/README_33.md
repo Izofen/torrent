@@ -1,4 +1,271 @@
 ﻿
+###  Публикация: 1 474 892
+
+Systematic - Love Is The Answer  2021  [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Love Is The AnswerЖанр: EurodanceПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CC40B7F97E1684DE147703B98BBB5C2325E71EB9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474892.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 474 886
+
+Little Big - COVERS  2021  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Everybody  Little Big Are Back 
+2. Blitzkrieg Bop
+3. Barbie Girl
+4. Koldunya    Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:13:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5291EDB78FFF255BAED487615DDDC1E70CB65C2A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474886.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 474 718
+
+Matia Bazar - The Best Platinum Collection 18 Successi Originali   2007  [FLAC|Lossless|trac
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Stasera Che Sera  3:23 
+02. Per Un Ora D Amore  3:59 
+03. Cavallo Bianco  4:57 
+04. Ma Perche   3:25     Читать дальше...    Жанр: PopПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BEF27F4033AF25894D1C56352B5E9589A467D04C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474718.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 474 639
+
+Michael Jackson - Classic-The Universal Masters Collection  2001  [FLAC|Lossless|tracks+.cue] <P
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. One Day In Your Life  4:17 
+02. Rockin Robin  2:33 
+03. People Make The World Go Round  3:14 
+04. HappyЖанр: Pop, Funk, SoulПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A8D6C120CAF5BF182D7CCB110C46A26EC208B54D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474639.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 474 441
+
+Gotham - Void Where Inhibited  1979  LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Is It Big Enough For Ya  My Love, My Love   7:04 
+02. Menage A Trois  6:06 
+03.  I m Your  AC DC Man  5:48 
+04. Put Your Money Where Your Mouth Is  5:14     Читать дальше...    Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B5FF7A103E05EDDAD6EF1BCEAE1E2E8E0F514EBD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474441.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 474 287
+
+VA - ZYX Italo Disco History 1982  2021  2CD, Compilation [MP3|~245 Kbps  V0 ] <Italo-Disco,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Klein & MBO - Dirty Talk  European Connection Mix   8:26 
+02. Sylvi Foster - Hookey  6:29 
+03. Sun La Shan - Catch  Vocal Version   6:54 
+04. Koto - Chinese Revenge  Maxi Version   6:19     Читать дальше...    Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 02:36:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:15BA0C44A650EA81894D07B379FD7DA176037EB1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474287.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 474 211
+
+VA - Italo Made In Spain 12  2021  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. VA - Italo Made In Spain 12  Long Version   14:33 
+02. VA - Italo Made In Spain 12  Mix Session   38:41 
+03. VA - Italo Made In Spain 12  Edit Version   8:31 
+04. Vincent International - I Don t Wanna Lose  Extended Mix   6:14     Читать дальше...    Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:320813577A36456106BD4E1B1ABAB18105B47A57
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474211.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 474 128
+
+VA - Fresh Pop Ballads  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect  4:23 
+02. Lianne La Havas - Paper Thin  4:58 
+03. Wiz Khalifa; Charlie Puth - See You Again  3:49 
+04. Paul Rey - Talking In My Sleep  2:58     Читать дальше...    Жанр: Pop, Rock, RnBПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:859F002CD72CE6819046123A33AD120E4F4E6DDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474128.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 474 093
+
+Boys Don t Cry - All the Very Best  серия  Другие восьмидесятые    2020  Compilation [
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Cities On Fire
+02. Lipstick
+03. I Wanna Be A Cowboy
+04. Josephine    Читать дальше...    Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D3A05AD15B61639462A21A23922552A8E62264EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474093.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 474 014
+
+VA - DMC Commercial Collection 460  2021  [MP3|320 Kbps] < DJ Mix, Electronic, Hip Hop, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. DJ MixЖанр: DJ Mix, Electronic, Hip Hop, PopПродолжительность: 02:39:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AC425A22653E584B0ADCD9F68DE89556C85129FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474014.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 473 965
+
+VA - Mastermix DJ Beats 102  2021  [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Annie Lennox - Walking On Broken Glass  DJ Beats 
+02. Five - Let s DanceЖанр: House, Dance, Dubstep, DiscoПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2DD28A37C2D386F29A57F2EDE5BD6DAF117641CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1473965.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 473 952
 
 VA - Billboard - Hot Dance & Electronic Songs  08-May-2021  [MP3|320 Kbps] <Pop, Dance, Electron
@@ -1715,281 +1982,6 @@ Paul Julien André Mauriat  4.03.1925 – 3.11.2006  был руководите
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468783.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 718
-
-B.B. Jackson - Disco March  1977  LP [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Disco March  11:20 
-02. Rachmaninov: Preludio In C Minor  3:53 
-03. Super Boogie  3:48 
-04. Beach Sea & Cerrone  6:44     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1855A7D77236AEA2C60E693EF5A191911B118899
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468718.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 553
-
-Bay City Rollers - Gold  2019  3xCD [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Rock & Roll>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD - 1:
-01. Remember  Sha La La La   2:34 
-02. Shang-A-Lang  3:06 
-03. Angel Angel  2:26     Читать дальше...    Жанр: Pop, Pop Rock, Rock & RollПродолжительность: 02:47:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ADE5DCE1E5F6360D0B1C43C9483BE989191C240E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468553.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 499
-
-VA - Greatest Covers Ever  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - I Heard It Through The Grapevine  Edit   03:53 
-02. Musical Youth - Pass The Dutchie  03:23 
-03. Toots and The Maytals - Take Me Home, Country Roads  03:21 
-04. Bahamas - Don t You Want Me  03:19     Читать дальше...    Жанр: PopПродолжительность: 01:49:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:358ACC57AF569D96D2C252ADF651DB34370853DF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468499.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 420
-
-Emma Stevens - Light Year  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Jump In  00:02:42 
-02. Forever  00:03:35 
-03. The Grass Is Always Greener  00:03:53 
-04. On a Day Like Today  00:02:50     Читать дальше...    Жанр: PopПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:229B99475730F17DCE0C2D6201279A8834C621C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468420.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 278
-
-Wilson Phillips - Wilson Phillips  2016  2CD [FLAC|Lossless|image + .cue] <  Pop, Vocal>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Release Me  Single Edit   03:54 
-02. Hold On  Single Fade   03:40 
-03. Impulsive  AOR Mix   04:35 
-04. Impulsive  Single Edit   digitally remastered 2000   03:57     Читать дальше...    Жанр: Pop, VocalПродолжительность: 01:50:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38831761F61E25ED0656824E8C1046F273396DFC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468278.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 248
-
-Mirko Hirsch - Missing Pieces - From Obsession to Desire  2021  [FLAC|Lossless|WEB-DL|tracks] <I
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. It s Love  Single Edit   4:08 
-02. And Tonight  Remastered   5:39 
-03. Rainy Day in Moscow  Remastered   6:38 
-04. Tango Tonight  Remastered   3:37     Читать дальше...    Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6E2D60165714C842228A7B4FACB242DBFCF1451D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468248.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 219
-
-VA - Ibiza Opening Megamix 2021 [MP3|320 Kbps] <House, Electronic, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Faul & Wad vs. PNAU - Changes  Zonderling Remix 
-02. The Disco Boys & Jay Frog - I Think
-03. Klaas - Push The Feeling On
-04. Darius & Finlay & LOTUS feat. Snoop Dogg - Last Flame    Читать дальше...    Жанр: House, Electronic, DanceПродолжительность: 04:27:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E72850D3265B93C05F1CF127496C12516DD634AD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468219.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 215
-
-VA - The Mastermix Collection – Summer 2  2021  [MP3|320 Kbps] <DJ Sets, Disco, Funky, Big Beat>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Mastermix - Dancehall For The Dancefloor
-02. Mastermix - On A Reggae Trip!
-03. Mastermix - Summer Party  Stars On 45 Version 
-04. Mastermix - Sound Of Tropical House    Читать дальше...    Жанр: DJ Sets, Disco, Funky, Big BeatПродолжительность: 02:06:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2DB64F1F16672601F007CAD6BDA8D5A927EAC975
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468215.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 208
-
-VA - The Mastermix Collection – Disco  2021  [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Mastermix - DJ Playlist: 70s Disco Floorfillers
-02. Mastermix - Disco Queens
-03. Mastermix - Funky Disco
-04. Mastermix - Boogie Nights    Читать дальше...    Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 02:23:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FB9D165E4EA332DB025B27E30282AF9D54D9768B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468208.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 092
-
-VA - The Mastermix Collection – Chart 2020-2021  2021  [MP3|320 Kbps] <DJ Sets, Disco, Pop, Danc
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Mastermix - Mastermixed: January 2020
-02. Mastermix - Pop Party: Spring 2020
-03. Mastermix - Mastermixed: February 2020
-04. Mastermix - Mastermixed: May 2020  Pop Dance     Читать дальше...    Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 02:07:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:54B1A5F84FF4DAFC55FDCED128BCDB4A0600D5E7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468092.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 089
-
-VA - The Mastermix Collection – Cool Dance  2021  [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Mastermix - DJ Set: Cool Dance
-02. Mastermix - Monte Carlo Cool
-03. Mastermix - Nikki Beach: The Mix
-04. Mastermix - Laidback Beats    Читать дальше...    Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 01:59:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99D0FF88775C3833DB18F5E3FAC65D9B7919D483
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468089.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 462 845
+
+Завтраккусто - Приют для мертвецов  2021  [MP3|320 Kbps] <Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Анетта
+2. Волхонка
+3. Мёртвый матрос
+4. Моника Белуччи    Читать дальше...    Жанр: Indie RockПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:861E2B2D9A16D965DF47DEEE174A170D554BB98B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462845.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 462 842
+
+LOUNA - Обратная сторона  2021  [MP3|320 Kbps] <Alternative>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Путь к себе
+2. Искусство
+3. Сигнал в пустоте
+4. Штурмуя небеса    Читать дальше...    Жанр: AlternativeПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63055E3745872B8147D2D16F43C35ACEA4CF5F22
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462842.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 462 840
+
+Эпидемия - Эльфийская рукопись навсегда  2021  Live at Adrenaline Stadium [MP3|320 Kbps] <Power
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Золотые драконы  Live at Adrenaline Stadium 
+2. Час испытания  Live at Adrenaline Stadium 
+3. Рождённый для битвы  Live at Adrenaline Stadium 
+4. Пройди свой путь  Live at Adrenaline Stadium     Читать дальше...    Жанр: Power MetalПродолжительность: 02:02:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6E7BF7195F315F2951E38A38C51CD0332E067CF1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462840.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 462 838
+
+План Ломоносова - Панки на Арбате  2021  Live [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Москва-Питер
+2. Марш муравьёв
+3. Солдаты, удачи!
+4. Калинов Гр.Об.    Читать дальше...    Жанр: Punk RockПродолжительность: 01:13:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EBCDEB9FCF4F39B7C1F7B1F326EAAF633035E513
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462838.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 462 605
+
+Рекорд Оркестр - Мир самых добрых людей  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Интро
+2. Полифем
+3. Деньги
+4. Лес    Читать дальше...    Жанр: RockПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F65B8913DC13BA3D984822DE15B5144944181FF0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462605.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 462 603
 
 Гаснет Свет - Aurum Et Sanguinem  2021  [MP3|320 Kbps] <Heavy Metal>
@@ -1856,128 +1981,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447194.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 447 026
-
-МАЧЕТЕ - News Time  2021  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Мистика
-2. Взрослые и дети
-3. Ангелы
-4. Рассвет    Читать дальше...    Жанр: RockПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D50D0D114E66042D89DA07E00596992E252A5739
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447026.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 446 980
-
-Гран-Куражъ - Эпохи, Герои И Судьбы  2021  [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Царство диких людей  05:01 
- 02. Эра пустоты  05:43 
- 03. Без потерь  04:46 
- 04. Город-призрак  04:35     Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8BFA9ED10D22504BEB440C74BC6ED0AB165399AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1446980.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 445 688
-
-VA - Трибьют Сергей  Чиж  Чиграков  2021  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Василий Уриевский - День рождения
-2. Мураками - О.К.
-3. РокфоР - Скучная история  Крокодил 
-4. Дядя Ваня - Я подобно собаке    Читать дальше...    Жанр: RockПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A129A44F67E02FEE578BF26D2D643A5FF44FAA96
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1445688.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 445 286
-
-Виталий Дубинин, Сергей Маврин - Герой асфальта 2021  2021  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Герой асфальта 2021Жанр: RockПродолжительность: 00:05:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D6D139C6364BEC077EEA2CE04E467B75AC2C957
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1445286.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 445 285
-
-Ploho - Фантомные чувства  2021  [MP3|320 Kbps] <Post Punk, New Wave>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Между нами
-2. Прости
-3. Добрые люди
-4. Камни    Читать дальше...    Жанр: Post Punk, New WaveПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9FD652F3F513D68F254ACD63E7FA5FE413CE423
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1445285.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

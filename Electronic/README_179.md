@@ -1,4 +1,820 @@
 ﻿
+###  Публикация: 847 206
+
+VA - Defected Presents Most Rated 2015  23 November, 2014  [FLAC|Lossless|WEB-DL]<Funky, Club Ho
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Andy Daniell - Defected Presents Most Rated 2015 Mix 1  1:17:02 
+02. Andy Daniell - Defected Presents Most Rated 2015 Mix 2  1:13:28 
+03. Andy Daniell - Defected Presents Most Rated 2015 Mix 3  1:10:01 
+04. Lana Del Rey - Brooklyn Baby  Konstantin Sibold remix   5:25 
+05. Oliver Dollar & Jimi Jules - Pushing On  Jesse Rose  Live From The Villa remix   6:20 
+06. Groove Armada - Highway 101  6:47 
+07. Patrick Topping - Forget  6:06 
+08. Hot Since 82 - Pound Your Soul  Sidney Charles remix   6:15 
+09. Hercules     Читать дальше...    Жанр: Funky, Club HouseПродолжительность: 08:54:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6ED443632D7196D504CA1A7A2E724B351C491051
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 847 030
+
+VA - Trance Essentials 2014 vol. 1  2014  [FLAC|Lossless]<Trance, Progressive Trance>
+Electronic
+Trance  Lossless 
+
+###  Подробнее
+
+01. Paul van Dyk feat. Second Sun - Crush  Las Salinas Remix   2:57 
+02. Bobina - Refuge  3:52 
+03. Gaia - Empire Of Hearts  3:00 
+04. Marlo feat. Jano - Haunted  4:51 
+05. Bogdan Vix & Renee Stahl - Forever  Mike Danis Remix   2:57 
+06. Protoculture - Music Is More Than Mathematics  3:12 
+07. Chris Schweizer & Mark Sixma - The Saga  3:15 
+08. Artificial - Stuck In Sa Caleta  4:11 
+09. Orjan Nilsen - The Late Anthem  Way Too Late Mix   2:57 
+10. Gareth Emery feat. Krewella - Lights & Thunder  Omnia     Читать дальше...    Жанр: Trance, Progressive TranceПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5898F3BEAAE5DA7009BD774743FEA82F54CE6E50
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 854
+
+David Guetta - Listen  Deluxe   2014  [MP3|320 кб с]<House , Big Room>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Dangerous  feat. Sam Martin   3:23 
+02. What I did for Love  feat. Emeli Sande   3:27 
+03. No Money no Love  feat. Elliphant & Ms. Dynamite   3:57 
+04. Lovers on the Sun  feat. Sam Martin   3:23 
+05. Goodbye Friend  feat. The Script   3:49 
+06. Lift me up  feat. Nico & Vinz, Ladysmith Black Mambazo   3:58 
+07. Listen  feat. John Legend   3:46 
+08. Bang my Head  feat. Sia   3:53 
+09. Yesterday  feat.Bebe Rexha   4:03 
+10. Hey Mama  feat. Nicki Minaj & Afrojack   3:12     Читать дальше...    Жанр: House , Big RoomПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE6263A7FD6A4DFAC0C972B710B4341198D85ADD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 847
+
+VA - Uplifting Only 2014: Top-Voted Tunes Vol. 2  Mixed By Ori Uplift   2014  [MP3|320 кб 
+Electronic
+Trance
+
+###  Подробнее
+
+01. Afternova - Together We Are Strong  Intro Mix Edit   6:22 
+02. Etasonic - Unrealized Dream  tranzLift Radio Edit   5:23 
+03. Giovannie De Sadeleer - Wonders Of Jakarta  Original Mix   8:57 
+04. BluEye - Pegasus  Matt Chowski Remix   7:09 
+05. Farhad Mahdavi - First Kiss  Original Mix   7:57 
+06. Advanced - Atlantis  Simon O Shine Remix   8:33 
+07. Manuel Rocca - Esperanza  Original Mix   7:15 
+08. SoundLift - Sevan  Original Mix   7:31 
+09. Michael Flint - Divination  Original Mix   7:56 
+10. Mhammed El     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 05:10:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:02B3CCB11CAF154D6BD9ADF8E583FC44324DF3D7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 791
+
+VA - Ethneomystica Vol. 1  Compiled By Maiia   2014  [FLAC|Lossless|WEB-DL] <Downtempo, Psyd
+Electronic
+Psybient, Psychill, Psydub (Lossless)
+
+###  Подробнее
+
+01. ManMadeMan - Sub Aqua  07:54 
+ 02. Chronos - Swinging Satori  08:43 
+ 03. Naturelement - Black Hole To The Soul  07:24 
+ 04. Radioactive Sandwich - Damien El Racho  08:35 
+ 05. Globular - Infinity Inside  14:06 
+ 06. Slackbaba - The Wanderer  06:00 
+ 07. Yechidah - Shamanic Wisdom  10:21 
+ 08. Vlastur & JP Illusion - Faces Come Out Of The Rain  05:51 
+ 09. Mahaon - Pink Glasses  05:42 
+ 10. Yggdrasil - Riddlefich  Maiia 2014 Remix   08:34 Жанр: Downtempo, Psydub, PsychillПродолжительность: 01:23:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B9B107BEF7BC6B7A757AFE55C06EEBF29A1559EC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_846791.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 701
+
+VA - Easy Listening Lounge Affair  2014  [MP3|320 кб с]<Lounge, Chill Out, Easy Listening>
+Electronic
+Easy listening
+
+###  Подробнее
+
+001. Bluesille - Beneath the Sea  05:27 
+002. Lovers On The Sun - Sun Sinks Low  05:14 
+003. Sven Van Paapen - The Wonder of My Tears  04:55 
+004. Soleil Fisher - Lightbox  Ibiza Guitar Mix   05:38 
+005. Zenyatta - Swimming into Vibrations  Ibiza Downbeat Vocal Mix   05:17 
+006. Lounge Traveller - How Many Times  06:21 
+007. Lounge Vargos - Feeling Love  04:08 
+008. Sweet Velvet - All I ve Been Waiting For  04:51 
+009. Lea Perry - Dubby Sunset Sky at Cafe Del Mar  Ibiza Beach Mix   05:13 
+010. Art of Chill -     Читать дальше...    Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 02:12:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C1AE5FFE2208F6E82227EE857685E7E710B3379
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 688
+
+VA - Subculture - The Residents  Mixed by John O Callaghan, Will Atkinson & The Noble Six   
+Electronic
+Trance  Lossless 
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 08:24:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE15BDDB53B72CC8D6C04F91774CD2BB3317C263
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_846688.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 667
+
+VA - Solarstone Presents - Pure Trance 3  Mixed By Solarstone & Bryan Kearney   2014  [FLAC|
+Electronic
+Trance (Lossless)
+
+###  Подробнее
+
+01. Alex Di Stefano - Escape From The Past  2:31 
+02. Mark Leanings - Dropshot  Sam Jones Remix   4:39 
+03. Will Atkinson - Harvester  2:59 
+04. Sam Jones & Rhys Thomas - The End  2:58 
+05. Mark Leanings - Inverter  3:39 
+06. John O Callaghan - The Saw  2:44 
+07. Aly & Fila vs Sneijder - Full Throttle  3:52 
+08. James Rigby - Night Owl  2:58 
+09. Paul Denton - Zonked  4:06 
+10. E-Clip vs Symbolic - Live Your Life  2:59     Читать дальше...    Жанр: TranceПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5CCFFF0EFC70E5B7DFDBA775657D0916F8F27B5D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 658
+
+VA - Grotesque Indoor Festival 2014  Mixed by RAM   2014  [MP3|320 кб с]<Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. RAM - Clockwork Orange  Edit   3:52 
+02. WeAreAliens - Outcast  Giuseppe Ottaviani Fix   6:22 
+03. Fred Baker presents Iguana - Beautiful Sunshine  James Dymond Remix   6:37 
+04. N2O vs Cell X - 414  Davey Asprey Remix   6:48 
+05. RAM & Stine Grove - RAMore  Original Mix   8:00 
+06. John Newall - Empathy  Edit   3:13 
+07. Sergey Nevone & Simon O’Shine - In Spite of Everything  Original Mix   8:28 
+08. Daniel Skyver - Panic Stations  Edit   2:54 
+09. Arctic Moon featuring Noire Lee - Revolution  Radio     Читать дальше...    Жанр: TranceПродолжительность: 02:45:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:834955E2DBAF01D101C1E4D54E1A56F06DF66EE0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 652
+
+Michael Todd - Electronic Super Joy+Groove City OST  2013  [MP3|128-320 кб с]<Electronic>
+Electronic
+Experimental Electronic
+
+###  Подробнее
+
+01. Bloom
+02. Bestammelse
+03. Call of the Wild
+04. Darkas
+05. Destination
+06. Endurance
+07. Fire Frost
+08. Flare
+09. Futureshock
+10. Generic Techno    Читать дальше...    Жанр: ElectronicПродолжительность: 01:28:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E76CF99DAC59A0336ABF59892285FEDB16C7A1CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 559
+
+Black Lung - innovation. participation. reward  2014  [FLAC|Lossless]<dubstep, electro, idm, ind
+Electronic
+IDM (Lossless)
+
+###  Подробнее
+
+01. Hype & Drive  Hologram_ Rmx   5:23 
+02. The Business of Buying  Mzo! Rmx   2:53 
+03. The Captains of Industry  Monolith Rmx   4:38 
+04. The Trickle-Down Effect  Sonic Area Rmx   4:09 
+05. Capital Engines  Iszoloscope Rmx   6:02 
+06. Price Less  Dan Courtman Rmx   6:41 
+07. The Great Equalizer  Imminent Rmx   5:34 
+08. The Prophet Margin  Detritus Rmx   4:42 
+09. Capital Engines  Druc Drac Rmx   4:57 
+10. The Great Golden Goal  Mzo! Rmx   5:33     Читать дальше...    Жанр: dubstep, electro, idm, industrialПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AC39B21CD9179BD81585A37D4AA67E035F97FE14
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_846559.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 552
+
+Seasonable Project - Per Aspera Ad Astra  2014  [MP3|320 кб с]<Chillout, Ambient, Electronic>
+Electronic
+Easy listening
+
+###  Подробнее
+
+01. Greenland 05:02
+02. In The Dreams Of The Sea 05:56
+03. Vintage Clock 05:28
+04. Constellation Gemini 06:24
+05. Per Aspera Ad Astra 06:43
+06. World Transformer 05:13
+07. Porcelain Bird 05:38
+08. Nega 05:18
+09. Old Piece In A Modern Style 06:08
+10. Desert Star 05:03Жанр: Chillout, Ambient, ElectronicПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:179FDB4B3AEAEE3698BA00D2A4F1100D444DD356
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_846552.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 550
+
+Chris Wonderful - Music For Lovers  2013  [MP3|320 кб с] <Chill Out>
+Electronic
+Easy listening
+
+###  Подробнее
+
+01. I Love You  Original Mix   07:58 
+  02. Siren  Original Mix   07:48 
+  03. Rain  Original Mix   02:58 
+  04. Crying Skies  Original Mix   02:59 
+  05. Loneliness  Original Mix   02:36 
+  06. Magic Duduk  Original Mix   03:56 
+  07. Love Story  Original Mix   04:24 
+  08. You & Me  Original Mix   04:20 
+  09. With You Forever  Original Mix   06:54 
+  10. Spring  Original Mix   03:18     Читать дальше...    Жанр: Chill OutПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7579E2848F8BF60B802B6063A3A4F7323869E090
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_846550.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 499
+
+Deadmau5 - 5 Years of Mau5  2014  [FLAC|Lossless]<Progressive House , Electro House>
+Electronic
+House, Techno, Electro, Minimal  Lossless 
+
+###  Подробнее
+
+01. Some Chords  Dillon Francis Remix   4:53 
+02. Ghosts  n  Stuff  Chuckie Remix   6:03 
+03. The Veldt  deadmau5 vs Eric Prydz Edit   6:27 
+04. Maths  Botnek Remix   4:23 
+05. Raise Your Weapon  Madeon Remix   4:17 
+06. Strobe  Michael Woods 2014 Remix   7:11 
+07. I Remember  Shiba San Remix   5:35 
+08. Raise Your Weapon  Wax Motif Remix   4:33 
+09. Sofi Needs A Ladder  Pig&Dan Remix   7:40 
+10. Ghosts  n  Stuff  NERO Remix   6:55 Жанр: Progressive House , Electro HouseПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E389659B69DB6D5591E750F656FC43B6768CEB92
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 477
+
+Tineidae - Discography 17 Releases  2012-2020  CRL Studios, Tympanik Audo [FLAC|Lossless|tracks+
+Electronic
+IDM  Lossless 
+
+###  Подробнее
+
+01. BLIND FAITH  05:23 
+ 02. DIE IN VAIN  04:33 Тип издания: WEBЖанр: IDM, Downtempo, Ambient, Industrial, Glitch, Techno •Продолжительность: 06:18:34 •
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B4AF0A1418F755C2CC0650461790A14C5EFA0825
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_846477.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 391
+
+Under This - 1 Compilation, 18 Singles  2008 - 2016  [MP3|320 кб с]<Breaks>
+Electronic
+Drum n Bass, Jungle, Breaks, Breakbeat  Lossless 
+
+###  Подробнее
+
+01. Time To Rock  Original Mix   5:15 
+02. Funqualize  Original Mix   6:46 
+03. Stay Away  Original Mix   5:55 
+04. Yesterday  Original Mix   5:18     Читать дальше...    Жанр: BreaksПродолжительность: 00:13:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:851B91327BDE2204443FDC4845E373B2F1423A8C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 846 255
+
+Groove - My Story In Progress  2014  [MP3|320 кб с]<Drum n Bass>
+Electronic
+Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+###  Подробнее
+
+01. Intro  3:21 
+02. My Story In Progress  4:57 
+03. It s The Drums  4:49 
+04. MXXXIII  ft. Le Truk   4:36 
+05. That s A Monster  4:29 
+06. Flip The Switch  5:54 
+07. GJah Is Da Maker  4:58 
+08. Worm Of Love  5:23 
+09. Nail  4:37 
+10. Spirits  6:17     Читать дальше...    Жанр: Drum and BassПродолжительность: 01:10:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B1A7C59C7A1A0B67E71A486CBD7E9586DFC8BCAC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 969
+
+DJ Quicksilver - Ameno  2001  [FLAC|Lossless]<Trance>
+Electronic
+Trance  Lossless 
+
+###  Подробнее
+
+01. Ameno  Radio Edit   3:28 
+02. Ameno  Video Edit   3:01 
+03. Ameno  Club Mix   7:30 
+04. Ameno  De Donatis Mix   8:14 
+05. Ameno  C.J. Stone Remix   7:40 
+06. Ameno  Analog Masters Remix   6:01 Жанр: TranceПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5C14504149A7751DF7F5D7723619ADB90174AB93
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 824
+
+4 Corners Crew - Planet Dubwise  2014  [MP3|320 кб с]<Drum & Bass, Ragga Jungle>
+Electronic
+Drum n Bass, Jungle, Breaks, Breakbeat  Lossless 
+
+###  Подробнее
+
+1. Drum Pan Dead  feat Terry Ganzie - original mix   05:42 
+2. Drum Pan Dead  feat Terry Ganzie - Frisk remix   06:53 
+3. 4 Corners Fi Life  feat General Levy - original mix   05:08 
+4. 4 Corners Fi Life  feat General Levy - U Stone & Viniselecta remix   04:51 
+5. Mad Dem  feat General Levy - original mix   05:03 
+6. Mad Dem  feat General Levy - Kursiva remix   04:48 
+7. Tell You Dis  feat Ziggy - original mix   05:56 
+8. Tell You Dis  feat Ziggy - Isaac Maya remix   05:30 Жанр: Drum & Bass, Ragga JungleПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A6963025E81EF36558458C07FFEF60C688A691EC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 573
+
+Manmara - Insleep  2014  [FLAC|Lossless|WEB-DL] <Psy Trance, Psybient, Dubstep, Ambient, Chill O
+Electronic
+Psybient, Psychill, Psydub  Lossless 
+
+###  Подробнее
+
+01. Normalise  05:15 
+  02. Cosmic  06:10 
+  03. Chilkaka  06:29 
+  04. Insleep  04:48 
+  05. Meditation  05:11 
+  06. Tanks  04:57 
+  07. Technodrom  05:41 
+  08. Living Underground  04:34 
+  09. Inout  03:43 
+  10. Musika  04:23     Читать дальше...    Жанр: Psy Trance, Psybient, Dubstep, Ambient, Chill OutПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C9D59569A4777D90D0CD70CF3106B5F48908ED6B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_845573.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 436
+
+VA - Dreams Chillout  2013  [MP3|320 кб с] <Chill Out>
+Electronic
+Easy listening
+
+###  Подробнее
+
+01. Seven24 & Soty - Perfect Day  feat. R.I.B.   04:46 
+  02. Owen Ear - Gleam  05:43 
+  03. Bryan Milton - Sunny Day  05:43 
+  04. Eugene Kush - My Memories Always With Me  Ambient Mix   06:23 
+  05. Deeporange - Blessed For Nature  05:50 
+  06. Funky Sidechain feat. Liana Grant - Deep Sea  ChillOut Mix   04:20 
+  07. CJ RcM - Serenity Wav  05:47 
+  08. Victima - Awaking  04:44 
+  09. R. I. B. - Sea Chasm  05:15 
+  10. Philip Aniskin - Rainy Fairy Tale  05:15     Читать дальше...    Жанр: Chill OutПродолжительность: 01:57:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0009622D149B05BB88E6761CDD98694612A5726F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_845436.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 420
+
+J.Axel - Like A Shadow  2014  [FLAC|Lossless] <Tech House, Deep House>
+Electronic
+House, Techno, Electro, Minimal  Lossless 
+
+###  Подробнее
+
+01. Sacrifice  04:42 
+  02. Blindet  05:48 
+  03. Like A Shadow  06:22 
+  04. The Journey  05:38 
+  05. My Soul Belongs To The Sea  02:40 
+  06. Recreation  06:10 
+  07. Proper Meditation  07:42 
+  08. Full Moon  05:10 
+  09. Feelings Catching Up  04:27 
+  10. Noel  04:00 Жанр: Tech House, Deep HouseПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:02EFC3615A82F87EAEE8D37A26D3640ED5B5E67D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_845420.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 263
+
+Maya Jane Coles - From The Dark  2014  [FLAC|Lossless]<Deep House>
+Electronic
+House, Techno, Electro, Minimal  Lossless 
+
+###  Подробнее
+
+01. From the Dark feat. Moggli  6:42 
+02. I Would Fly  5:28 
+03. Will I Make It Home Tonight  6:32 Жанр: Deep HouseПродолжительность: 00:18:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8DE880A4602128AAB319971915850BEC0879A48D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 844 946
+
+VA - Top 40 Ambient Tracks Vol.2  2014  [MP3|320 кб с]<Psybient, Downtempo, Ambient, Psychill>
+Electronic
+Easy listening
+
+###  Подробнее
+
+Жанр: Psybient, Downtempo, Ambient, Psychill |Продолжительность: 05:33:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9B29D6495CF0B7891C1876E95BEA9C0DC634215
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 844 825
+
+Lucas Rossi - Return of the Sun  2014  [MP3|320 кб с]<Electronic, House, Progressive>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+1. Return of the Sun  Original Mix   9:08 
+2. Return of the Sun  Lateral Cut Groove Remix   8:26 
+3. Return of the Sun  Nico Ferrero Remix   7:52 
+4. Return of the Sun  Yuriy From Russia Remix   7:17 
+5. Return of the Sun  Sunset Mix   8:58 Жанр: Electronic, House, ProgressiveПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2AB6183E6F5713B3E25B7EA0063E21D6E174387D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 844 821
+
+VA - Human Resources Label Showcase Kazantip  2014  [MP3|320 кб с]<House, Deep House>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+001. Leu - Avant de Parlel  feat. Omma 
+002. Dzen - Shiva Shambo
+003. Ilya Demin - Stop Me Now
+004. Arshanitsa - Danger of Love  feat. Vika Grand 
+005. Andriesh - Comfortable Emptiness
+006. Nichtzusammen - You Know
+007. BarBQ - Yellow Suitcase
+008. Paul Yudin - Slicer
+009. Push N Pull - More
+010. Until 33 - When I Feel It  feat. Raha Жанр: House, Deep HouseПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BF7D9324E2AE4023057FE00F458F2588547BCC9E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 844 744
+
+VA - Defected Presents: Most Rated 2015  2014  [MP3|320 кб с]<Funky, Club House>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Andy Daniell - Defected Presents Most Rated 2015 Mix 1
+02. Andy Daniell - Defected Presents Most Rated 2015 Mix 2
+03. Andy Daniell - Defected Presents Most Rated 2015 Mix 3
+04. Lana Del Rey - Brooklyn Baby  Konstantin Sibold remix 
+05. Oliver Dollar & Jimi Jules - Pushing On  Jesse Rose  Live From The Villa remix 
+06. Groove Armada - Highway 101
+07. Patrick Topping - Forget
+08. Hot Since 82 - Pound Your Soul  Sidney Charles remix 
+09. Hercules & Love Affair - Do You Feel The Same
+10. Claude VonStroke     Читать дальше...    Жанр: Electronic, Deep, House, Progressive, TechnoПродолжительность: 08:51:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90E34483810E0DD93AEBADF414697FE5EFAA60C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 844 571
+
+Mutiny UK - Hot Sake  2014  [FLAC|Lossless|WEB-DL]<Deep House, Nu Disco, Indie Dance>
+Electronic
+House, Techno, Electro, Minimal  Lossless 
+
+###  Подробнее
+
+1.  - Slow Motion
+2.  - Everywhere I Look  feat Earth 
+3.  - You Need More  feat Lorraine Cato 
+4.  - Outa Luck
+5.  - Falling Like Dominoes  feat Andrea Wilde 
+6.  - Nothing To Say  feat Neil Arthur 
+7.  - Go  feat Andrea Wilde 
+8.  - Never Let You Down  feat Tom Gray 
+9.  - Ah Ah Ah  feat Amrit 
+10.  - Politics Of Love  feat Steve Smith     Читать дальше...    Жанр: Deep House, Nu Disco, Indie DanceПродолжительность: 01:46:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29F028F1F7C732D818B5877255BA9DD12531E1FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 844 570
 
 Flembaz - 2 Albums & 3 EP  2012 - 2014  [FLAC|Lossless|WEB-DL] <Progressive House, Techno, Elect
@@ -1568,843 +2384,6 @@ Easy listening
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 838 430
-
-VA - Deep Space Night The Chillout and Lounge Collection Vol 1  2014  [MP3|320 кб с]<Downtempo
-Electronic
-Easy listening
-
-###  Подробнее
-
-01. Schwarz & Funk - Keep On
-02. Tim Besamusca - Evening Breeze - Chillout Mix
-03. John Soultek - Whisper
-04. Maurice Scoville - Perfect Day - Remix Version
-05. The Best Of Chill Out Lounge - Sylt - Sensibar Mix
-06. Relaxraum - Spirit of Love
-07. Cafй Sunset - Oriental Girl
-08. Slow Swing - Amble On the Beach
-09. Tom & J. - Shooting Star
-10. Blooma Root - Tiny Turtles    Читать дальше...    Жанр: Downtempo, ChilloutПродолжительность: 03:21:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3F46595AFB46F0662660D069E95BE1714BEDE0C0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 838 120
-
-Machinecode  Machine Code  - 2 Albums  Samurai, Velocity  2014 [FLAC|Lossless] <Drum & Bass,
-Electronic
-Drum n Bass, Jungle, Breaks, Breakbeat  Lossless 
-
-###  Подробнее
-
-Albums:
-2014 - Samurai
-2014 - VelocityЖанр: Drum & Bass, Dubstep, GrimesПродолжительность: 02:21:42 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38539954FA105E8286343569595434A9BCF0849C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_838120.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 838 089
-
-Radio Record - Chillout  2014  [MP3|320 кб с]<Chillout, Lounge>
-Electronic
-Radioshow, Live Mixes
-
-###  Подробнее
-
-Эфир от: #324 2014-01-06
-01. Tritonal - Bring Me Home  Original Mix 
-02. Maluns - Electronic Basil  Original Mix 
-03. Ana Criado - Afterglow  Firdavs Isoev Chillout Mix 
-04. Above & Beyond feat. Zoe Johnston - Love Is Not Enough  Acoustic Version 
-05. Late Night Alumni - Epilogue  Chill Out Mix 
-06. Suspect 44 - Lights  Suspect 44 Chilled Remix 
-07. Tiesto feat. Kyler England - Take Me  Emil Sorous Chillout Remix 
-08. Jakwob feat. Rocky Nti - Blinding  Dub-eden remix 
-09. Michael E - La Nuit    Читать дальше...    Жанр: Chillout, LoungeПродолжительность: 16:58:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:073903D5E6360233C37CFC0FB9C0C74829206F7F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_838089.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 838 081
-
-Easily Embarrassed - 2 Albums  Idyllic Life &  Planet Discovery   2008 - 2009  [FLAC|Lossles
-Electronic
-Psybient, Psychill, Psydub  Lossless 
-
-###  Подробнее
-
-Albums:
-2008 - Idyllic Life
-2009 - Planet DiscoveryЖанр: Psybient, Psychill, Downtempo, Progressive TranceПродолжительность: 01:58:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A94C7721D65D2BFA92AFE5133548B47E107010D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_838081.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 837 911
-
-Koven - Hereinafter  2014  EP [MP3|320 кб с]<Drumstep, Dubstep, ElectroHouse, Breaks, DrumandB
-Electronic
-Drum n Bass, Jungle, Breaks, Breakbeat  Lossless 
-
-###  Подробнее
-
-01. Number One 4:03
-02. Your Word 4:16
-03. Eternal and You 4:19
-04. Miracle 3:48
-05. Let Go 4:52
-06. Final Call 3:10
-07. Miracle  Drum & Bass Mix 
-08. Miracle  Club Mix  3:49Жанр: Drumstep, Dubstep, ElectroHouse, Breaks, DrumandBassПродолжительность: 00:32:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:98720DD543004B2E02783021EC305F2AD36FD6A0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_837911.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 837 758
-
-VA - Ibiza to Brasil  2014  [MP3|320 кб с]<House, Minimal, Tech, Deep House, Electronic, Dance
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. Lasdiva Soulice-Closer- Original Mix
-02. Nicolas Bassi-Everything Flows- Original Mix
-03. Camouflage-I Can t Stop- Original Mix
-04. Ruyman Mas-Lift Me Up- Original Mix
-05. Michael Scott-It Was All In Your Mind- Original Mix
-06. Ivaylo-Raspy- Original Mix
-07. Nick Lumb-Believe In Us- Original Mix
-08. Daniel Ray-Dead End- Original Mix
-09. DJ Tezzo-Straggler -DJ Tezzo Remix
-10. Daniel Curpen-Can You Dig It- Original Mix    Читать дальше...    Жанр: House, Minimal, Tech, Deep House, Electronic, DanceПродолжительность: 06:30:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2DE07C49E7EB09666C1098C3C7753C6AD13257A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 837 526
-
-Brasil 690 - Cafe Bossa Brazil Vol 8  2014  [MP3|320 кб с]<Bossa Nova, Lounge>
-Electronic
-Easy listening
-
-###  Подробнее
-
-001. A Sky Full of Stars  Bossa Version 
-002. Rude  Bossa Version 
-003. Calling All Hearts  Bossa Version 
-004. Messed up World  Bossa Version 
-005. Love Runs Out  Bossa Version 
-006. Maps  Bossa Version 
-007. Am I Wrong  Bossa Version 
-008. Break Free  Bossa Version 
-009. I Will Never Let You Down  Bossa Version 
-010. Classic  Bossa Version     Читать дальше...    Жанр: Bossa Nova, LoungeПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B8B24C095E9D5BEAB0DD49F4F16369F1896276E3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 837 469
-
-VA - Ayurveda Chill Vol 1  2014  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
-Electronic
-Easy listening
-
-###  Подробнее
-
-01. Ingo Herrmann - Soulsurfer
-02. Michael E - Shadow & Light
-03. Peter Pearson - I Can Hear the Summer
-04. Ingo Herrmann - Nature View
-05. TLX 20 - Morder
-06. Key Of Dreams - Shake Your Booty One
-07. Samadi Tunes - Mindfulness - Light Mix
-08. Michael E - Island Life
-09. Marga Sol - Over the Mountains
-10. Florito - Saigon Morning    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:79864E8F7F57E5CFADAB16E0BA7ACD7BB0C50292
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 837 398
-
-VA - Hed Kandi: The Mix 2015  2014  [MP3|CBR|320 кб с] <House, Deep House>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. London Grammar - If You Wait  Jax Jones Remix   04:59 
-  02. Kings Of Tomorrow - Finally  Sonny Fodera Remix   06:42 
-  03. DJ Anna - Secret  Full Intention Remix   05:00 
-  04. DJ Chus - Movin  & Groovin   Tommy Vercetti Remix   06:48 
-  05. Purple Disco Machine - Need Someone  Full Intention Remix   05:03 
-  06. FCL - It s You  Secondcity Back to 1990 Mix   07:05 
-  07. Dirty Secretz - Everything  06:36 
-  08. MK - Always  The Golden Boy Remix   06:17 
-  09. Patrick Topping - Forget  06:07 
-  10. Nicky Night Time -     Читать дальше...    Жанр: House, Deep HouseПродолжительность: 08:05:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B7EC7C1AD91A2F5C4B4958F2DFEEDEA3EA8B983
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_837398.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 837 365
-
-Joris Voorn - Nobody Knows  2014  [MP3|320 кб с] <Ambient, Chillout, Deep House>
-Electronic
-Easy listening
-
-###  Подробнее
-
-01. The Monk  03:56 
-  02. A House  feat. Kid A   05:15 
-  03. Homeland  feat. Matthew Dear   06:24 
-  04. The Wild  05:26 
-  05. Sweets For Piano  04:07 
-  06. So Long  feat Kid A   04:15 
-  07. Ringo  05:22 
-  08. Mugged  05:23 
-  09. MoMo  03:37 
-  10. Fall  05:30     Читать дальше...    Жанр: Ambient, Chillout, Deep HouseПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:10D390F179D4B73894C088A0B7574F2547093318
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_837365.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 837 283
-
-Mentallo And The Fixer - Zothera  2014  Alfa Matrix [|FLAC|tracks+.cue|Lossless]<EBM, Industrial
-Electronic
-Industrial, EBM, Dark Electro  Lossless 
-
-###  Подробнее
-
-01. When Worlds Collide {Wicked Radio Edit}  06:07 
- 02. Telepath  04:11 
- 03. Doomsday Accelerator {Los Alamos Mix}  03:04 
- 04. Continuum  04:51     Читать дальше...    Жанр: EBM, Industrial •Продолжительность: 01:13:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:26070A2EEC619FE7505B5C6B091F9C80C8A53E81
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_837283.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 837 224
-
-Ray Conniff - The Real... Ray Conniff  2014  3CD [MP3|320 кб с]<Instrumental, Easy Listening>
-Electronic
-Easy listening
-
-###  Подробнее
-
-Disc: 1
-1. Up, Up And Away
-2. Begin The Beguine
-3.  S Wonderful
-4. Brazil
-5. Greensleeves  What Child Is This 
-6. You Do Something To Me
-7. Blue Moon
-8. Tiny Bubbles
-9. Gentle On My Mind    Читать дальше...    Жанр: Instrumental, Easy ListeningПродолжительность: 02:46:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:175773BB4C8E42A533F9F039899E416EE1CB502E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 837 140
-
-VA - Erotic Lounge Session Vol 1  Finest Bare & Secret Lounge Tunes   2014  [MP3|320 кб с]
-Electronic
-Easy listening
-
-###  Подробнее
-
-001. Roberto Sol - Coracao
-002. Aza s Lounge - This Is Not a Love Song
-003. Gerrit van der Meer - Eden
-004. Joker - Erotic Dream
-005. Peter Pearson - Let s Take It Slowly
-006. Luis Hermandez - La Luna
-007. Michael E - Fall in Love with Me
-008. Frank Demegni - Global Sex
-009. The B Lounge - Sexy Soft
-010. Trillian Miles - Colour Me Sexy    Читать дальше...    Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:47:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:556837877C55C0988AE172E1EFD5A8550938EA41
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 836 647
-
-VA - Solarstone presents - Pure Trance 3  Mixed By Solarstone & Bryan Kearney   2014  [FLAC|
-Electronic
-Trance  Lossless 
-
-###  Подробнее
-
-01. Liam Wilson - Set In Stone  Solarstone Retouch Edit   05:22 
-  02. Winkee vs Solarstone - Dark Assassins Heart  Edit   04:57 
-  03. Simon Templar - To The Stars  Pt. I   07:57 
-  04. Jam & Spoon - Odyssey To Anyoona  10:01 
-  05. Silvermine - Flying  Solarstone Pure Edit   05:27 
-  06. Solarstone - Shield  Pt. I   04:42 
-  07. The Thrillseekers - Find You  Radio Edit   03:27 
-  08. Artur - Rays  Solarstone Retouch Edit   05:17 
-  09. Gai Barone - Mr. Slade  Solarstone Pure Edit   05:45 
-  10. Dan Stone - Kito  Original     Читать дальше...    Жанр: TranceПродолжительность: 05:52:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:199EF95E716F802DDD1418A875FA03A6BDD0EDB7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_836647.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 836 636
-
-VA - Apres Ski Chill Loungers  2014  [MP3|320 кб с]<Downtempo, Lounge, Chill Out>
-Electronic
-Easy listening
-
-###  Подробнее
-
-001. Kendra Jones - Luxury Living
-002. Flower Power - Riders on the Storm  Purple Rain Edit 
-003. Michel Gaultier - Oxygene, Pt. 8  Chilled Mix 
-004. Orion - I Want to Know What Love Is  Chillectro Dub 
-005. The Wayfarer - Classical Gas
-006. Fairlight - Moments in Love
-007. Mystery of Soul - It s a Shame  Kitzbuhel Lounge Dub 
-008. Mark Armstrong - Extreme Ways
-009. Starlight - Ready or Not  Instrumental Mix 
-010. Phillip Ashmore - Song for Guy  St. Moritz Lounge Edit     Читать дальше...    Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:47:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5D7191734F597A45898DBACC9EA2F2E2D5A27F39
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 836 623
-
-Exploit - Event Horizon  2014  [FLAC|Lossless|WEB-DL] <Techno>
-Electronic
-House, Techno, Electro, Minimal  Lossless 
-
-###  Подробнее
-
-01. Farewell  01:14 
-  02. Utopia  06:27 
-  03. Departure  05:38 
-  04. Plectron 2  04:49 
-  05. Zero Gravity  05:40 
-  06. Time Slowdown  02:58 
-  07. UFO  07:41 
-  08. Diving Into Wormhole  06:31 
-  09. Shifted Reality  02:35 
-  10. Accretion  06:14     Читать дальше...    Жанр: TechnoПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ACF6063AFA6B008933AAF9AF59E5C8F600D87820
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_836623.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 836 569
-
-Einmusik - 5 A.M.  2014  [FLAC|Lossless|WEB-DL] <Deep House, Tech House>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. Azur  05:56 
-  02. 5 A.M.  07:28 
-  03. Screaming Hand  08:23 
-  04. 16 Notes  08:30 
-  05. Alpine  08:11 
-  06. Bisloa  08:10 
-  07. PPG  05:12 
-  08. Necromancy  08:02 
-  09. Minute Forty Four  06:26 
-  10. Sacro Bosco  07:49     Читать дальше...    Жанр: Deep House, Tech HouseПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A50AA280F3986ECD0A3DF5E09119E464AC7356AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_836569.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 836 527
-
-Displacer - Regenerate  2014  [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Ambient, Illbient>
-Electronic
-IDM  Lossless 
-
-###  Подробнее
-
-01. The Witching Hour   Pattern Behavior Mix   06:12
-02. Ghosts pt.2    Ghost  Rmx   04:43
-03. Imaginary Friends   Paracosmic Mix by REKT   04:42
-04. Phantom Limb   Impurfekt Remix   02:54
-05. Warbound   Crystal Touch Mix by Rentip   05:44
-06. Distress Call   Pulse Plant remix   05:03
-07. Fueled   Comedown Mix by urusai   04:33
-08. Junkie Blvd.   Lucidstatic Remix   04:09
-09. Broken Sword  Prospero s Vox Edit  03:55
-10. Awakening   Woken By a Kiss Rmx by Talvekoidik   04:37    Читать дальше...    Жанр: IDM, Downtempo, Ambient, IllbientПродолжительность: 01:38:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A88783FE057AD9F53D04F3B871EEE7B5C9C5BC16
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 836 177
-
-VA - Private Room: The Deep House Session Vol 2  2014  [MP3|320 кб с]<Club House, Deep House>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-001. Al-Faris & Freakquencer Meets Alexander Metzger - Let It All Out - Javier Misa mix
-002. Jamez - Surface Tension - Loophole s Tension Remix
-003. Barclay & Cream - Surrender - Alex Butcher Mix
-004. Casualtees - Sirens
-005. Wooden N Farley - House Works 24   7
-006. Danny eM - Shades of Summer
-007. Different Things - Everybody Wanna Move
-008. Costa Martinez - Garden of Lounge
-009. P.A.M.O - The Lost Thing
-010. Lemongrass - Get Up    Читать дальше...    Жанр: Club House, Deep HouseПродолжительность: 02:44:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8CC248E292FCA4A9B9CBB2627F33C0E5FB21A090
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 836 163
-
-VA - 50 Hits Lounge  2014  [MP3|320 кб с]<Lounge, Deep House, Downtempo>
-Electronic
-Easy listening
-
-###  Подробнее
-
-01. Lilly Wood And The Prick - Prayer In C [02:37]
-02. Jamie Xx - Far Nearer [02:54]
-03. Jungle - Drops [04:19]
-04. Kelis - Rumble [03:14]
-05. Mercury - Old Man s House  Original House  [02:39]
-06. Fatboy Slim - Right Here, Right Now [03:55]
-07. Mr Scruff - Get A Move On [03:26]
-08. Fakear - Neptune [03:04]
-09. Ltj X-Perience - What I Feel [04:39]
-10. Bebel Gilberto - August Day Song [04:28]    Читать дальше...    Жанр: Lounge, Deep House, DowntempoПродолжительность: 03:15:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:818F3E4CDDD78812BE7B82BE122F23AFED4DAA5A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 835 591
-
-Shinichi Atobe - Butterfly Effect  2014  [FLAC|Lossless]<Dub Techno, House, Techno>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. Free Access Zone 1  3:28 
-02. Butterfly Effect  11:53 
-03. Free Access Zone 3  2:14 
-04. Bonus Break  4:35 
-05. Waste Land 1  6:08 
-06. Waste Land 2  3:21 
-07. Free Access Zone 7  9:19 
-08. Free Access Zone 4  1:27 
-09. Free Access Zone 5  5:07 
-10. Free Access Zone 6  2:57     Читать дальше...    Жанр: Dub Techno, House, TechnoПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D4DC9EB3885371740F3D52ECD8A3BBB7AF259658
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 835 519
-
-Calvin Harris - Motion  2014  [MP3|320 кб с]<Electropop, Electro House, Nu Disco, Dance>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. Faith
-02. Under Control  w  Alesso Feat. Hurts 
-03. Blame  feat. John Newman 
-04. Love Now  feat. All About She 
-05. Slow Acid
-06. Outside  feat. Ellie Goulding 
-07. It Was You  w  Firebeatz 
-08. Summer
-09. Overdrive  w  Ummet Ozcan 
-10. Ecstacy  feat. Hurts     Читать дальше...    Жанр: Electropop, Electro House, Nu Disco, DanceПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3AED60388F0E08C3EC343E7B5A497A555C7D54EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 835 392
-
-VA - Coffee Chill Time  Most Relaxing Chill Tunes   2014  [MP3|320 кб с]<Downtempo, Lounge
-Electronic
-Easy listening
-
-###  Подробнее
-
-01. White Air - Marie Therese
-02. Buddha Paradise - DJ MNX & Sifat
-03. Shadows & Light - Michael E
-04. Montmartre - Euphonic Traveller
-05. Como Mi Cuerpo a Tu Piel - Leo de la Rosa
-06. Cafe Del Amor - Marga Sol
-07. Calling  feat. Mia Lemar  - STJ
-08. Staring at the Stars - Florzinho & Euphonic Traveller
-09. Butterfly - Loretta Heywood
-10. Esta Noche  Leo de la Rosa Sensual Mix  - Marga Sol    Читать дальше...    Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:52:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FB5B2A8A106D7DB7D8FE8BD38545A5B7BB5C496A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 834 871
-
-Schiller - Symphonia  2014  [MP3|320 кб с]<Ambient , Downtempo , Trance>
-Electronic
-Easy listening
-
-###  Подробнее
-
-01. Sommernacht  4:59 
-02. Berlin Moskau  5:41 
-03. Tired  mit Jael   5:15 
-04. Leben... I Feel You  Instrumental   1:53 
-05. Tiefblau  5:17 
-06. Solveig s Song  mit Eva Mali   4:43 
-07. Let It Rise  mit Midge Ure   4:56 
-08. White  1:49 
-09. Das Glockenspiel  5:09 
-10. Sonne  mit Unheilig   6:29     Читать дальше...    Жанр: Ambient , Downtempo , TranceПродолжительность: 01:03:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D4E441806763B23B1BE2CC6A7ECE9F14274DC4DE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 834 715
-
-Onuka - ONUKA  2014  [MP3|320 кб с]<Electronic, Pop, Deep, House, Indie Pop>
-Electronic
-Easy listening
-
-###  Подробнее
-
-01. Intro  2:26 
-02. Around Me  3:47 
-03. When I Met U  4:08 
-04. Look  3:37 
-05. Zavtra  4:48 
-06. Noone  4:16 
-07. Untitled  4:50 
-08. Misto  5:24 
-09. Time  5:43 
-10. UA  4:36 Жанр: Electronic, Pop, Deep, House, Indie PopПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B1569AF7C540E08329AF29089922518717BC4330
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 834 711
-
-VA - Kontor House Of House Winter Edition 2015  2014  [MP3|320 кб с]<House>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-1. Drew Hill - Talk to You  Groove Armada Radio Edit 
-2. MAGIC! - Rude  Zedd Remix 
-3. Marlon Roudette - When the Beat Drops Out  Florian Paetzold Remix 
-4. Dimitri Vegas & Like Mike vs. Tujamo & Felguk - Nova  Original Edit 
-5. BUNT. feat. Sarah Miles - Pictures  Radio Edit 
-6. Jess Glynne - Right Here
-7. DJ Antoine vs. Mad Mark - Vampires  Album Version 
-8. Paris Lover feat. A*M*E* - Feel Me  Original Mix 
-9. KLARDUST - The Key  Radio Edit 
-10. Lana Del Rey - West Coast  Alle Farben Remix     Читать дальше...    Жанр: HouseПродолжительность: 03:44:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B05DEE6C82854AE0625D6643D1A7F5F27AB97D7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 834 606
-
-John Digweed & Nick Muir feat. John Twelve Hawks - The Traveler  2014  [FLAC|Lossless]<Techno, T
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-Unmixed:
-01. First Line  Original Mix   04:57 
-02. Live Off The Grid  Original Mix   07:12 
-03. Am I Awake  Original Mix   04:36 
-04. Capoiera  Original Mix   06:56 
-05. Stay In The Present  Original Mix   02:31 
-06. The Traveler  Original Mix   04:57 
-07. The Truth  Original Mix   04:52 
-08. Battle  Original Mix   04:48 
-09. Find The Way  Original Mix   04:04     Читать дальше...    Жанр: Techno, Tech House, Progressive HouseПродолжительность: 02:04:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:926497782753492C103F57AF0ACBD056A2D4A28D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 834 473
-
-Flight Facilities - Down To Earth  2014  [FLAC|Lossless|WEB-DL]<Tech House, Deep House, Nu Disco
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-1.Жанр: Tech House, Deep House, Nu DiscoПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2A5675FBF6002539C56519236585EF8DCA991755
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_834473.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

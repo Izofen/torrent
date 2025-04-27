@@ -1,4 +1,274 @@
 ﻿
+###  Публикация: 1 627 245
+
+VA - ZYX Italo Disco New Generation Vol. 2  2013  2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Vanello & Steven Kimber - S.O.S. for Love  Maxi Version 
+02. Lenroy - Do You  Extended Version 
+03. TQ - Let s Go To Tokyo  Axel Remix 
+04. Siberian Heat - Magic Blue Eyes  Long Version     Читать дальше...    Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:37:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:37B5DE2AAC0BEC207AE15EE300A3EF2DCC1EB6A5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627245.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 627 185
+
+VA - 100 Radio Hits - The Sound Of My Life [5CD Box Set]  (2020) [FLAC|Lossless|tracks + .cue] <Rock
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Жанр: Rock, PopПродолжительность: 06:18:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E6A4C4E4CA68B346FADECA7E129C1F7B0C3E00F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627185.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 627 161
+
+Modern Talking - Atlantis Is Calling (1986) Japan 12" Single, Promo [MP3|320 Kbps] <Synth-Pop, Euro-
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Atlantis Is Calling (S.O.S. for Love) (Extended Version) (05:26)
+02. Atlantis Is Calling (S.O.S. for Love) (03:50)
+03. Brother Louie (Special Long Version) (05:23)
+04. Brother Louie (03:45)Жанр: Synth-pop, Euro-DiscoПродолжительность: 00:18:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:30C2B008C21F48EEF5B30F39B740C2DB25002D43
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627161.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 627 144
+
+VA - Retro Hits (2023) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Jason Derulo - Want to Want Me
+02. Cher - Strong Enough
+03. Blur - Parklife (2012 Remaster)
+04. Ava Max - Kings & Queens(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 05:11:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:75C4D1ABDAB2DE10A9E2AC7A8D7B1DE9C5553DE7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627144.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 626 920
+
+VA - 90s Classics (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Rod Stewart - Rhythm of My Heart
+02. Diddy, Faith Evans, 112 - I'll Be Missing You (feat. Faith Evans & 112)
+03. Tina Turner - Goldeneye (Single Edit)Жанр: Pop, Rock, RnBПродолжительность: 04:29:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:30366A852F3A3DEB08FBC65CBB42F9B5FC199274
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1626920.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 626 851
+
+Ann-Margret - Born To Be Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Female Vocal>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Rock Around The Clock (feat. Joe Perry & Jim McCarty) (2:14)
+02. Bye Bye Love (feat. T.G. Sheppard) (2:36)
+03. Son Of A Preacher Man (feat. Steve Cropper & Brian Auger) (2:12)
+04. Earth Angel (feat. The Oak Ridge Boys & Harvey Mandel) (2:54)(   Читать дальше...   )Жанр: Pop Rock, Female VocalПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A400C5A8620ADF532F66B2B2C7E569BEFE7A7B78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1626851.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 626 788
+
+Irene Cara - Fame  1983  Netherlands 12  Single [MP3|320 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Fame  Special Mix   07:34 
+02. Fame  Extended Version   05:14 
+03. Hot Lunch Jam  04:11 Жанр: DiscoПродолжительность: 00:16:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B26CD2DF00F3E686DCB2E7F26359F118F0FE645F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1626788.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 626 649
+
+VA - Союз 17. 2 Альбома  1996  3 CD [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. А. Айвазов - Я прошу тебя, те плачь
+02. А. Укупник - Грустный дождь
+03. Лайма - Жаворонок и сова
+04. Д. Маликов - Прощай, моя блондинка    Читать дальше...    Жанр: PopПродолжительность: 01:42:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:216C7F6127371E667F751EF7C627AC3B486C4520
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1626649.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 626 621
+
+VA - ZYX Italo Disco New Generation Vol. 1  2012  [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Ryan Paris - Parisienne Girl  Eddy Remix 
+02. Tiziana Rivale - Ash  Vocal Version 
+03. Squash Gang - Hey You  What s Coming On Along The Way 
+04. Ken Laszlo - Dancing Together  Vocal Version     Читать дальше...    Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:33:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C86FD34029BCF6965E5F861ACD3C94EFD1227DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1626621.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 626 599
+
+VA - Electric Dreams  1993  [OGG Vorbis|480 Kbps] <Electronic, Rock, Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Yazoo - Don t Go
+02. Heaven 17 - Temptation   93 Remix  
+03. Erasure - Sometimes
+04. Nik Kershaw - Wouldn t It Be Good    Читать дальше...    Жанр: Electronic, Rock, Synth-popПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:494FCC4E60063386D9AF2896952ECAF9E6E757EA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1626599.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 626 538
+
+VA - 90s Lost & Found  2023  [MP3|320 Kbps] <Pop, Rock, R&B>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Alanis Morissette - You Learn
+02. Simply Red - For Your Babies
+03. THE GOO GOO DOLLS - Slide
+04. Cher - Walking In Memphis    Читать дальше...    Жанр: Pop, Rock, R&BПродолжительность: 05:50:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E787761B83DDE9930EA60C1BE52C0600706578E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1626538.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 626 531
 
 VA - It s Hits  2023  [OGG Vorbis|480 Kbps] <Pop>
@@ -1714,281 +1984,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621837.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 621 437
-
-Lana Del Rey - Did you know that there's a tunnel under Ocean Blvd (2023) [FLAC|Lossless|WEB-DL|trac
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01 - The Grants (00:04:55)
-02 - Did you know that there's a tunnel under Ocean Blvd (00:04:45)
-03 - Sweet (00:03:35)
-04 - A&W (00:07:13)(   Читать дальше...   )Жанр: Pop, AlternativeПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C51D7ABC6F12FC365993FF695D0EFBB96C108F5F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621437.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 621 404
-
-VA - Mystera 2000 (1999) [OGG Vorbis|480 Kbps] <Pop, Folk, World, & Country>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Clannad feat. Bono - In A Lifetime
-02. Meav - Ailein Duinn (Theme From Rob Roy)
-03. Enigma - Mea Culpa
-04. In-Mood feat. Juliette - The Last Unicorn(   Читать дальше...   )Жанр: Pop, Folk, World, RockПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9181C888A0C8F9428F392A13842D543AB69A02CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621404.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 621 373
-
-Lian Ross - 4You (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-Треклист CD1:
-01. Can You Love Me
-02. Take My Hand
-03. My Love(   Читать дальше...   )Жанр: Euro-Disco |Продолжительность: 01:51:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4D911FC959A1106593C67683BCDA61651F5A2039
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621373.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 621 338
-
-Meg Myers - TZIA (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female Vocal>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. CHILDREN OF LIGHT II (3:45)
-02. A NEW SOCIETY (3:42)
-03. HTIS (feat. Luna Shadows & Carmen Vandenberg) (3:15)
-04. ME (2:41)(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59F0381B76B9A8E3D3CE4DCE40B8D4ABC5D27816
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621338.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 621 168
-
-VA - The Best Valentines Album In The World...Ever! (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Da
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-001. Lewis Capaldi - Someone You Loved
-002. Sting - Shape Of My Heart
-003. Sam Smith - Stay With Me
-004. Diana Krall - Let's Fall In Love(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 06:35:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4803FA9AF9429EB373D13A84F00C5FDF02246DB2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621168.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 620 821
-
-VA - Italo Dance Classics Volume 4  1990  [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Righeira - Vamos A La Playa
-02. P. Lion - Happy Children
-03. Valerie Dore - The Night
-04. Tullio De Piscopo - Stop Bajon    Читать дальше...    Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02BC84AC414282C5E93C233F94DA0356AC5D60F6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1620821.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 620 812
-
-VA - Italo Dance Classics Volume 3  1990  [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Italo-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Silver Pozzoli - Step By Step
-02 - Fun Fun - Happy Station
-03 - Ken Laszlo - Hey Hey Guy
-04 - Sabrina - Sexy Girl    Читать дальше...    Жанр: Electronic, Pop, 	Italo-DiscoПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A5848C01A7F427322F78596B82BB159295F9B690
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1620812.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 620 766
-
-VA - Italo Dance Classics Volume 2  1990  [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Italo-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Ken Laszlo - Tonight
-02 - Spagna - Easy Lady
-03 - Koto - Jabdah
-04 - Fancy - Bolero  Hold Me In Your Arms     Читать дальше...    Жанр: Electronic, Pop, 	Italo-DiscoПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F2BAF5A3657BD8D7F41A67E954D1163671F2BCBD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1620766.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 620 702
-
-VA - Italo Dance Classics Volume 1  1990  [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Italo-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Silver Pozzoli - Around My Dreams
-02 - Ivan - Fotonovela
-03 - Steve Allen - Letter From My Heart
-04 - Moses - We Just    Читать дальше...    Жанр: Electronic, Pop, 	Italo-DiscoПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:589D8F9B8F1AA3C8FB550A6F2A92B0CA095D79CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1620702.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 620 667
-
-VA - Hits All Over - 99 Classics  2022  [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Tina Turner - The Best  Edit 
-02. Ed Sheeran - Bad Habits
-03. Starship - We Built This City
-04. The Goo Goo Dolls - Iris    Читать дальше...    Жанр: Pop, Rock, RnBПродолжительность: 06:17:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5672243143F88288350999A475126478532006BA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1620667.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 620 561
-
-VA - NOW That s What I Call Music! 113  2022  2 CD [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Danc
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Lewis Capaldi - Forget Me
-02. Sam Smith & Kim Petras - Unholy
-03. OneRepublic - I Ain t Worried
-04. Stormzy - Hide & Seek    Читать дальше...    Жанр: Pop, Rock, RnB, DanceПродолжительность: 02:33:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CEF87B54C040F1B443F4DE27CAC8A48DAB202277
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1620561.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

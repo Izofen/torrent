@@ -1,4 +1,282 @@
 ﻿
+###  Публикация: 976 157
+
+Everything But The Girl - Temperamental  1999  Remastered, 2015, Edsel Records, Deluxe Edition:
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Five Fathoms  6:24 
+02. Low Tide Of The Night  4:45 
+03. Blame  6:18 
+04. Hatfield 1980  5:13     Читать дальше...    Жанр: Downtempo, Deep House, Pop, Drum n BassПродолжительность: 02:27:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BD677A788A3CD997BAEF0E588DD935531D1B4FBF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976157.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 975 992
+
+VA - Disco Fever  2001  [FLAC|Lossless|tracks + .cue] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. KC & The Sunshine Band - That s The Way I Like It  3:05 
+02. Donna Summer - I Feel Love  Full Length Version   5:52 
+03. Fatback Band, The -  Are You Ready  Do The Bus Stop  3:16 
+04. Detroit Emeralds - Feel The Need In Me  3:41     Читать дальше...    Жанр: DiscoПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:07D5BE0C29198F391EE54D2C1007019BE863E55C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_975992.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 975 970
+
+Alessandra Amoroso - Vivere a colori  2016  [FLAC|Lossless|tracks] <Pop, Vocal
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. - Stupendo fino a qui  03:49 
+ 02. - La vita in un anno  03:28 
+ 03. - Avro cura di tutto  03:40 
+ 04. - Vivere a colori  04:20     Читать дальше...    Жанр: Pop, VocalПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B016579EED58892A5A8A26C982C6693085B367E8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_975970.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 975 967
+
+VA - Top Latino 2000  2000  [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro-Cuban>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Gloria Estefan - No me dejes de querer  3:27 
+02. Chayanne - Boom boom  4:25 
+03. Ricky Martin - La diosa del carnaval  Spanish Eyes   4:04 
+04. Azucar Moreno - Mamma mía  4:16     Читать дальше...    Жанр: Latin, Merengue, Afro-Cuban, Europop, Salsa, BalladПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_975967.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 975 667
+
+VA - Great Spanish Hits  1996  [FLAC|Lossless|tracks + .cue] <Pop, Folk>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Juanito - Amor de mis amores  3:11 
+02. Juanito - Bamboleo  2:43 
+03. Olivia Valere - Cantinero de Cuba  4:15 
+04. Chico Fuente - La Paloma  3:00     Читать дальше...    Жанр: Pop, FolkПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_975667.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 975 661
+
+VA - All the Hits Now 2001 Italia  2001  [FLAC|Lossless|tracks + .cue] <Italian Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Tiziano Ferro - Xdono  4:02 
+02. Tiromancino - Due destini  4:37 
+03. Lunapop - Resta con me  2001 version   4:14 
+04. Velvet - Boyband  3:37     Читать дальше...    Жанр: Italian PopПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7CAC25B9A6F561D5EAC0D2E96D7F8B6362ED0E10
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_975661.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 975 622
+
+Vanessa Paradis - Variations sur le meme t aime  1990  Remastered, 1998, Polydor [FLAC|Lossless|
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. L Amour A Deux [04:55]
+ 02. Dis Lui Toi Que Je T Aime [03:58]
+ 03. L Amour En Soi [05:07]
+ 04. La Vague A Lames [03:21]    Читать дальше...    Жанр: Pop, Rock, ChansonПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_975622.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 975 605
+
+Dimitri From Paris - Night Dubbin   2009  3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. The Winans - Let My People Go  dub version   6:38 
+02. Third World - One More Time  dub   6:24 
+03. Wuf Ticket - The Key  dub   8:34 
+04. Lenny White - My Turn to Love You  dub   6:38     Читать дальше...    Жанр: Dub, DiscoПродолжительность: 03:48:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD5FA72CE6ECC28F08CD5D5B629FC7CAEE8BB548
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_975605.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 975 495
+
+Mariah Carey - Forever Gold  1999  2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Продолжительность:01:12:34
+1.When You Believe  4:36 
+2.Sweetheart  4:22 
+3.I Still Believe  3:56     Читать дальше...    Жанр: Pop, BluesПродолжительность: 01:09:28
+1.Fantasy  4:04 
+2.My all  3:52 
+3.Open arms  3:32     Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_975495.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 975 364
+
+Julio Iglesias - A Mis 33 Anos  1978  [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Soy un truhan, soy un senor  3:05 
+02. Sono io  4:21 
+03. Si me dejas no vale  2:19 
+04. Por un poco de tu amor  2:58     Читать дальше...    Жанр: Ballad, Chanson, VocalПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A193680EB1F8F5D85482DAED1E01EBFD105E8461
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_975364.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 975 355
+
+Julio Iglesias - Crazy  1994  [FLAC|Lossless|tracks + .cue] <Soft Rock, Chanson, Ballad, Schlage
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Crazy  3:17 
+02. Let It Be Me  3:06 
+03. Mammy Blue  4:16 
+04. Fragile  4:24     Читать дальше...    Жанр: Soft Rock, Chanson, Ballad, SchlagerПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A035800CB88232DDBAA1B603AF6462CC6DB2F22D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_975355.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 975 349
 
 Julio Iglesias - Tango  1996  [FLAC|Lossless|tracks + .cue] <Ballad, Vocal, Tango>
@@ -1718,281 +1996,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965368.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 965 177
-
-Mylene Farmer - Cendres De Lune  1987  [FLAC|Lossless|tracks + .cue] <Chanson, Synth-pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Libertine  3:48 
-02. Au bout de la nuit  4:22 
-03. Vieux bouc  5:37 
-04. Tristana  4:35     Читать дальше...    Жанр: Chanson, Synth-popПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C091FB7318D3AF867070704B9CAE968B96867463
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965177.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 965 152
-
-Prince - HITnRUN Phase Two  2015  [MP3|320 кб с] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Baltimore
-02. RocknRoll Love Affair
-03. 2 Y. 2 D.
-04. Look at Me, Look at U    Читать дальше...    Жанр: PopПродолжительность: 00:58:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B30C80C45D5862ACBE80E942FD1DF3391022D5E5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965152.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 965 134
-
-Sabrina - Erase Rewind - Official Remix  2008  2CD [FLAC|Lossless|image + .cue] <Pop, Disco>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. All Of Me  2008 Version  [03:25]
-02. Sexy Girl  2008 Version  [03:30]
-03. Funky Girl  2008 Version  [03:50]
-04. My Chico  2008 Version  [04:09]    Читать дальше...    Жанр: Pop, DiscoПродолжительность: 01:36:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:735C9C2C44E98CA2E5AEC85342EBC2A2F6B947E2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965134.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 964 877
-
-Grant Miller - Greatest Hits & Remixes  2015  2CD [FLAC|Lossless|image + .cue]<Euro-Disco, Italo
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Colder Than Ice  7  Version  [04:11]
-02. Wings Of Love  7  Version  [03:24]
-03. Doctor For My Heart  7  Version  [03:22]
-04. Lost In Paradise  7  Version  [03:56]    Читать дальше...    Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:54:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81ECEBC0D12E3827EC0AE68B3C98D57DFFA2A6EE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964877.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 964 465
-
-Blue - Colours  2015  [OGG|455-528 кб с]<Pop, Soul>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. King of the World
-02. You’re the Only One
-03. Home
-04. If You Don’t Know Me By Now    Читать дальше...    Жанр: Pop, SoulПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:949729EEDC87AF174943252DD6C89645FC055FE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964465.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 964 443
-
-Britney Spears - Greatest Hits: My Prerogative  2004  [FLAC|tracks+.cue]<RnB, Swing, House, Voca
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. My Prerogative  3:33 
-02. Toxic  3:19 
-03. I m a Slave 4 U  3:25 
-04. Oops!...I Did It Again  3:33     Читать дальше...    Жанр: RnB, Swing, House, Vocal, Ballad, Synth-popПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3BC7838FF11D2FD306ED40BC21A866458454B9B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964443.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 964 369
-
-Train - Christmas In Tahoe  2015  [OGG|448-506 кб с]<Pop, Traditional Christmas Songs>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. This Christmas
-02. Christmas Must Be Tonight
-03. The River
-04. Christmas Island    Читать дальше...    Жанр: Pop, Traditional Christmas SongsПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2C254E4D4021EF1AC631C64FF742A7FCD01192CF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964369.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 964 265
-
-Bebe Rexha - I Don t Wanna Grow Up  2015  EP [OGG|489-533 кб с]<Power Pop, Electropop, EDM>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. I Don t Wanna Grow Up
-02. Sweet Beginnings
-03. I m Gonna Show You Crazy
-04. Pray    Читать дальше...    Жанр: Power Pop, Electropop, EDMПродолжительность: 00:18:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73D234CB842383F9A68FEC0F72E6A4D3099125B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964265.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 964 261
-
-VA - Whatever Happened To Christmas  2015  [FLAC|image + .cue] <Pop, Rock, Jazz>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Whatever Happened To Christmas  Aimee Mann  [02:51]
-02. I Want To Come Home For Christmas  Marvin Gaye  [03:23]
-03. The First Noel  Ella Fitzgerald  [01:48]
-04. Sweet Secret Place  Neil Finn  [03:50]    Читать дальше...    Жанр: Pop, Rock, JazzПродолжительность: 02:15:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:88D5FEDAFD1C45E410AF476D69316BE0A87275BA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964261.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 964 240
-
-Ayala - This Year  2015  [OGG|469-523 кб с]<Alternative Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Russian Roulette
-02. Maybe
-03. 5157 Miles
-04. Don t Fix It    Читать дальше...    Жанр: Alternative Indie PopПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:627E605B35086F77DEA34A475A4FF1EC4B3FE028
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964240.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 964 169
-
-Patricia Kaas - Scene De Vie  1990  [FLAC|tracks+.cue]<Jazz, Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Générique  0:52 
-02. Les Mannequins D Osier  3:52 
-03. L Heure Du Jazz  3:56 
-04. Coeurs Brisés  3:21     Читать дальше...    Жанр: Jazz, PopПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:28E35AAF52270AA484C5291E554AE71694B5DFF8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964169.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
