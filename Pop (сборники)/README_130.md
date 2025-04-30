@@ -1,4 +1,85 @@
 ﻿
+###  Публикация: 573 771
+
+Муслим Магомаев - Любовь - моя песня  2001  [FLAC|Lossless]<Pop, Retro>
+Pop (сборники)
+Советская эстрада, Ретро (Lossless)
+
+###  Подробнее
+
+01. Верни мне музыку  3:54 
+02. Свадьба  3:18 
+03. Благодарю тебя  3:29 
+04. Королева красоты  2:34     Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:12:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD346ACAC9506C3E89BE8B13FA7EC1C479085F39
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_573771.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 573 705
+
+Анна Герман - Наши любимые песни  2005  [FLAC|Lossless]<Pop, Retro>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+[04:49] 01. Когда цвели сады
+[02:35] 02. Белая черемуха
+[03:05] 03. А он мне нравиться
+[02:45] 04. Быть может  на польском     Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B8B1E0EF13998B8E690C79624567D56DCE88D57A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_573705.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 573 350
+
+Anastacia - It’s a Man’s World  2012  [MP3|320 кб с]<Pop,Pop-Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Ramble On  Led Zeppelin 
+ 2. Best of You  Foo Fighters 
+ 3. Sweet Child O Mine  Guns N  Roses 
+ 4. You Can t Always get What You Want  Rolling Stones 
+ 5. One  U2 
+ 6. Back In Black  ACDC 
+ 7. Dream On  Aerosmith 
+ 8. Use Somebody  Kings Of Leon 
+ 9. You Give Love A Bad Name  Bon Jovi 
+ 10. Wonderwall  Oasis Жанр: Pop,Pop-RockПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:924E6F354E09CCAF257B3E487638C29E1E3D6996
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_573350.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 573 147
 
 Алексей Глызин - Крылья любви...  2012  [MP3|320 кб с]<Pop>
@@ -2267,98 +2348,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_542313.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 542 305
-
-VA - Disco Discharge - Classic Disco  2009  2CD [FLAC|Lossless]<Disco, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. The Glitter Band - Makes You Blind  Re-edit  [06:00]
-02. The Players Association - Turn The Music Up! [06:54]
-03. Bombers -  Everybody  Get Dancin  [09:29]
-04. Grey & Hanks - Dancin  [07:07]
-05. Change - It Burns Me Up [05:07]
-06. Glen Adams Affair - Just A Groove [06:20]
-07. Cerrone - Look For Love [10:17]
-08. Companion - Livin  Up To Love [09:11]
-09. Don Ray - Got To Have Loving [08:20]
-10. Manhattan Transfer - Twilight Zone|Twilight Tone [06:06]Жанр: Disco, PopПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_542305.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 542 075
-
-VA - Pop & Rock Klub80  2007  2CD[FLAC|Lossless]<Pop, Rock, Disco, Oldes>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Status Quo - In The Army Now [06:17]
-02. Fine Young Cannibals - She Drives Me Crazy [07:06]
-03. Nik Kershaw - The Riddle [05:11]
-04. Sandra - Little Girl [05:11]
-05. Maxi Priest - Wild World [06:10]
-06. Roxette - Dangerous [06:26]
-07. Cock Robin - The Promise You Made [06:39]
-08. The Stranglers - Midnight Summer Dream [10:37]
-09. Duran Duran - Rio [06:42]
-10. Tears For Fears - Shout [08:02]    Читать дальше...    Жанр: Pop, Rock, Disco, OldesПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_542075.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 542 020
-
-Silvetti - Spring Rain   2006  [FLAC|Lossless]<Disco,Funk,Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Spring Rain  5:55 
-02. Primitive Man  5:25 
-03. A Smile At Dawn  4:38 
-04. Two Cups Of Coffee  3:56 
-05. Voyage Of No Return  5:51 
-06. Coconut Rain  4:30 
-07. Fortune Teller  5:30 
-08. Contigo  4:29 
-09. Spring Rain  Radio Edit   3:01 Жанр: Disco,Funk,SoulПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_542020.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

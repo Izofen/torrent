@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 954 692
+
+VA - Dance Hits Romanian Style 2016  Extended Versions   2015  [MP3|320 кб с]<Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Sianna - Without Your Love  Extended Mix 
+02. DJ Layla - Searching 4 Love  Hudson Leite & Thaellysson Pablo Remix 
+03. Enea Marchesini - Mueve Suave  Extended Mix 
+04. Lorina - Away From Home  Stephan F Remix     Читать дальше...    Жанр: DanceПродолжительность: 02:42:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A93E757530DA0B39B822987C7F1C23425AFB24B8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_954692.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 954 662
+
+VA - Beatport Top 100 Deep House October  2015  [MP3|320 кб с]<Deep House, House, Electronica>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Butch - Dope  Original Mix  08:30
+002. Purple Disco Machine, Boris Dlugosch - L.O.V.E.  Original Mix  05:31
+003. Justin Jay - Rain Dance 06:23
+004. EDX - Belong  Extended Mix  06:19    Читать дальше...    Жанр: Deep House, House, ElectronicaПродолжительность: 11:40:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F9B49B1E3058AE7F03F7872E9671BC4CE29D14C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_954662.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 954 657
+
+VA - Top Club 40 - October  2015  [MP3|224-320 кб с]<Dance, Club, Electro, Remixes>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Nicky Jam x Enrique Iglesias - El Perdon  Intro Club Mix By Martin B.  04:01
+02. Eva Simons - Policeman  Club Mix  03:33
+03. Willy William - Te Quiero  Extended Mix  04:22
+04. Amine - Senorita  Extended Mix  03:09    Читать дальше...    Жанр: Dance, Club, Electro, RemixesПродолжительность: 04:31:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5FE2F72CEBD5BB1E8224AE008C0B4D25552D3224
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_954657.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 954 637
+
+VA - Beatport Indie Dance   Nu Disco Top 100 October  2015  [MP3|320 кб с]<Indie Dance   N
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Platinum Doug - Play with Me  Original Mix  05:14
+002. Giacca & Flores - Last Night A DJ Saved My Life  Original Mix  05:12
+003. Giacca & Flores - New Monday  Original Mix  05:52
+004. Base On & Jean Bacarreza - Back 2 Basicz  Original Mix  06:51    Читать дальше...    Жанр: Indie Dance   Nu Disco, G-House, ElectronicaПродолжительность: 09:54:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8EFE662F58A6CBEC367C2AE74719D10C0D8F878B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_954637.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 954 628
 
 VA - Maximum Best Music. Осенние новинки суперхитов  2015  [MP3|256-320 кб с]<Pop, Dance>
@@ -1887,106 +1987,6 @@ The Beat Goes On! Vol.01
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950783.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 950 698
-
-VA - Breathing Earth  2015  [MP3|320 кб с]<Chillout, Lounge, Ambient>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-001. DJ Quincy Ortiz - Shady Nights
-002. Bencenzi - Vista
-003. Indian Merchant - Freedom Sufis
-004. Jive Ass Sleepers - Fashionista    Читать дальше...    Жанр: Chillout, Lounge, AmbientПродолжительность: 07:26:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2D5DD66AE97A21930DC44ECB649D74C2FF4E7E6D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950698.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 950 693
-
-VA - Relaxed Waves Party  2015  [MP3|320 кб с]<Chillout, Longe, Ambient>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. So Phistry - My Little Love
-002. Rosemary Olson - Far Away
-003. Eva McFly - Rhythm - Sunset and Downbeat Mix
-004. Roy Bennett - Our Time    Читать дальше...    Жанр: Chillout, Longe, AmbientПродолжительность: 08:06:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6EFBD6FAB6E52ED4EE4A7D95A4A0E16DBC0187DA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950693.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 950 669
-
-September - Dancing In Orbit  2008  [MP3|~225 кб с  V1 ]<Pop, Dance, Eurodance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Cry For You
-02. Looking For Love
-03. Can t Get Over
-04. Midnight Heartache    Читать дальше...    Жанр: Pop, Dance, EurodanceПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E1E6DCCDCBB87BEE0047AA8E746B93AAA64C527B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950669.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 950 642
-
-VA - 50 Tracks Piano Background Music  2015  [MP3|320 кб с]<Instrumental,Easy Listening,New Ag
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Brunch Piano Music Zone - Ambient Sounds  03:56 
-02. Brunch Piano Music Zone - Lounge Music  02:48 
-03. Good Mood Music Academy - Cafe Paris  03:52 
-04. Erotic Jazz Music Ensemble - Romantic Night  02:55     Читать дальше...    Жанр: Instrumental,Easy Listening,New Age,PianoПродолжительность: 02:51:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6184B07F69F9A35B9A9D74B8F2872F9B4348F25C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950642.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

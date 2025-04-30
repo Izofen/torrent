@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 087 475
+
+VA - Club Dance Ambience Vol.97  2016  [MP3|267-320 Kbps] <Dance, Club, Club House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001.4LV & Taylor Boss & Dano & Ryan Ray - Feel the night  feat. Taylor Boss, Dano & Ryan Ray   Original Mix  3:43
+002.666 - Supa Dupa Fly 2016  V&P Project vs. Cometa Bootleg  3:45
+003.Adam Foster - Go  Original Mix  4:46
+004.Alan Walker & David Whistle - Routine  Original Mix  2:49    Читать дальше...    Жанр: Dance, Club, Club HouseПродолжительность: 09:52:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A5A3F313AF9A76D083DBD0933F80E95D2C0959D6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087475.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 087 472
+
+VA - Deep House Collection Vol.102  2016  [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001.Alex Spite, Olga Shilova - My Heart Is For You   Original Mix  5:42
+002.Alex Spite - Crazy   Original Mix  6:04
+003.Alex Spite - I Want You   Original Mix  5:28
+004.Alex Spite - One Life, One Love   Original Mix  6:02    Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 12:33:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:00818BF92B33018222C4D652F335C0C020F7C31E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087472.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 087 468
+
+VA - German Top 100 Single Charts 23.12.  2016  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001.Rag n Bone Man - Human 3:19
+002.Clean Bandit - Rockabye  feat. Sean Paul & Anne-Marie  4:11
+003.Mark Forster - Chore 3:28
+004.Disturbed - The Sound Of Silence 4:09    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:44:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B0BADDA6C87E98F7D4D36481169DF91E3CAD6A30
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087468.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 087 453
+
+VA - German Top 50 Official Dance Charts 23.12.  2016  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001.Oliver Heldens Ft. Ida Corr - Good Life 3:09
+002.Martin Solveig Ft. Ina Wroldsen - Places 3:23
+003.EDX - High On You 3:00
+004.Robin Schulz & David Guetta Ft. Cheat Codes - Shed A Light 3:11    Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:00:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD05F51F8C9148541720F38AAE113DA3C95AEC2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087453.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 087 452
 
 VA - Blues Collection 5  2016  [MP3|320 Kbps] <Blues, Folk, Rock>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084191.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 084 161
-
-VA - Alternative Classic Rock  2016  [MP3|320 Kbps] <Alternative, Progressive, Hard Classic Rock
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001.Anathema - Restless Oblivion 8:02
-002.Iced Earth - Last December 3:24
-003.Black Sabbath - The Illusion Of Power  Feat. Ice-T  4:54
-004.Down - Lifer 4:36    Читать дальше...    Жанр: Alternative, Progressive, Hard Classic RockПродолжительность: 09:05:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7D695CA3D53C0B0DE8F4ADBCA5AF1B83A6E170C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084161.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 084 152
-
-VA - Зимний шансон года Часть 2  2016  [MP3|256 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001.Виктор Тартанов - Юность 3:45
-002.Сборная Союза - Виноваты Закаты 4:18
-003.Алексей Босота - Одна Лишь Ночь 3:31
-004.Сергей Сорос - Знаешь Я Твой 4:13    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D89DF90252A94CCA3429EDC2AC114196B26C191
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084152.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 084 148
-
-VA - Новогодняя дискотека Русского радио  2016  [MP3|256-320 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Швец - Новый Год  Marta Ray Remix 
-002. Дана Соколова - Разведи Небо
-003. Дядя Жора & Бигуди Шоу - С Новым Годом!
-004. Мулат - Включила Заднюю    Читать дальше...    Жанр: PopПродолжительность: 05:54:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14935189309C85B226C58A945EFA739D2B92C40D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084148.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 084 014
-
-VA - Новая сотка от Европы Плюс. Версия 50 50  2016  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001.Naaz - Escape 2:45
-002.Filatov & Karas Feat. Masha - Лирика 2:56
-003.Согдиана - Подснежник 4:29
-004.Лизабэт - Забери Меня 3:14    Читать дальше...    Жанр: PopПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A009B8DF29BB7FD4A9430DF1D4FC5341E32E195C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084014.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

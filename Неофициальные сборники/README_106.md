@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 206 335
+
+VA - De Top 100 Aller Tijden 1980  Radio Veronica   2017  [MP3|320 Kbps] <Pop, Rock, Disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+ De Top 100 Aller Tijden   Топ 100 на Все Времена  от голландской радиостанции  Radio-Veronica  .001. ABBA - The Winner Takes It All  4:55 
+002. Electronica s - De Vogeltjesdans  2:33 
+003. Olivia Newton John & Electric Light Orchestra  ELO  - Xanadu  3:29 
+004. Barbra Streisand - Woman In Love  3:52     Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 06:26:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3779B36DB4F6CCDFE53C6F77E479B3EDAF9C639C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1206335.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 206 325
+
+VA - Progressive Psychodelic Trance  Exlusive Tracks  Vol.5  2018  [MP3|320 Kbps] <Psy-Tranc
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01 Khardiac - Get Into The Mood
+02 Alignments And Liquid Viking - Starchild
+03 Berg And Capital Monkey - Future  wilder remix 
+04 Psymon And Sixsense - Relative Path    Читать дальше...    Жанр: Psy-TranceПродолжительность: 03:45:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D3C93E537EE1EFE60857A3E7FD87C113C6B55D2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1206325.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 206 322
+
+VA - Deep House Collection vol.157  2018  [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Agatino Romero feat. Duncan Townsend - All I Wanna Do  Original Mix  3:07
+02. Airbas - After Hours  Petros Odin Nightwalking Remix  7:36
+03. Alberto Jossue - Iquitos  Extended Dub  8:53
+04. Al Bradley - Malandro  Original Mix  7:43    Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:32:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D508674DE3819708C08CA7D6D024B7E9AD750D86
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1206322.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 206 238
+
+VA - Dead And Dead-Doom 90s  2018  [MP3|320 Kbps] <Doom, Death Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001.  Death  -  Scavenger Of Human Sorrow  6:55
+002.  Atheist  -  Mother Man  4:33
+003.  Benediction  -  Artefacted Irreligion  3:20
+004.  Tiamat  -  Clouds  3:40    Читать дальше...    Жанр: Doom, Death MetalПродолжительность: 07:34:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:629DAF7E328175AAEF09042D990866579C02AB6A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1206238.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 206 208
 
 VA - Happy Birthday Fish  2018  [MP3|320 Kbps] <Club, Dance, House>
@@ -1887,106 +1987,6 @@ VA - Retro Mania  2018  [MP3|320 Kbps] <Deep House, Nu Disco, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203586.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 203 519
-
-VA - Progressive Psychodelic Trance Vol.2  Exlusive Tracks   2018  [MP3|320 Kbps] <Psy Tranc
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  Cosmic Tone  -  Spirit Technology  Original Mix   7:28
-02.  Static Movement & Mindwave  -  Sources  Original Mix   8:14
-03.  Arunarush  -  Reactivate  Original Mix   7:28
-04.  Juiced  -  Under The Rain  Original Mix   5:20    Читать дальше...    Жанр: Psy Trance, PsychodelicПродолжительность: 03:43:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:95AE25AEC2000311EFFD72F7D465726EEBAF3A98
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203519.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 203 419
-
-VA - Top 100 Январь. Зайцев.Нет  2018  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. DJ SLON & KATYA ft. Роман Василенко - LIFE IS GOOD
-02. J. Balvin & Willy William - Mi Gente
-03. Время и Стекло - Тролль
-04. T-Fest - Улети    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 06:52:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A9AD1EB6DC4A5F70AD63E96CB1CABB333E8CB8EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203419.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 203 349
-
-VA - 120 Progressive Trance Selections  2018  [MP3|320 Kbps] <Trance, Progressive, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Cosmic Gate & Sarah Lynn - Folded Wings
-002. Kaimo K, Cold Rush & Sarah Russell - Angel Fly
-003. Steve Bengaln - Broken Heart Phase 2  Radio Cut 
-004. Aadagio feat. Anya - Elements  John Aidan Remix     Читать дальше...    Жанр: Trance, Progressive, ElectroПродолжительность: 10:14:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:921EA9C7214C9E1BBFED4E73967C32091705E3F2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203349.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 203 268
-
-VA - Italo & Space Vol.50 Ultimate Party  2018  [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobea
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  DJ KramniK  -  Disco Magic 3  4:11
-02.  Alex Rasov  -  I Have A Dream  4:46
-03.  Michael Rimini  -  Stranger In My Heart  5:28
-04.  Hypnotix  -  Star Gates  4:20    Читать дальше...    Жанр: Italo Disco, Spacesynth, EurobeatПродолжительность: 03:35:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:737C1553A42D8E231481F52F94BC619EDD35D60A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203268.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

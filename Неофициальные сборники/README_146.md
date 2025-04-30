@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 065 701
+
+Yello - 100 Best Hits  6CD   1980-2016  [MP3|320 Kbps] <Electronic, Synth-Pop, Downtempo>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Blue Green  1980  05:23
+002. Eternal Legs  1980  04:16
+003. She`s Got A Gun  1981  03:43
+004. Tub Dub  1981  01:45    Читать дальше...    Жанр: Electronic, Synth-Pop, DowntempoПродолжительность: 06:47:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F49CF7C50D2FCC329EE462E8F141FA4185FC42C2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065701.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 697
+
+VA - No Other Way: Hard Rock Digest  2016  [MP3|320 Kbps] <Alternative, Hard Rock, Metall>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. EverEve - The House Of The Rising Sun  The Animals 
+002. At Vance - Eye of The Tiger  Survivor 
+003. Volbeat - Black Rose
+004. Pellek - I Know You Don t Know    Читать дальше...    Жанр: Alternative, Hard Rock, MetallПродолжительность: 10:55:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4032CCD96A14294D4B2FF74BE53F7E025E3C9DD4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065697.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 696
+
+VA - Club Dance Ambience Vol.91  2016  [MP3|320 Kbps] <House, Electro House, Mash Up, Club, Danc
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Bo Ca Da - This Is Love  Original Mix   6:38
+002. Dante - Под Кожу  D&S Project Radio Remix   2:49
+003. Michael Jackson - Bad  Necola & Duxe Remix   4:11
+004. Sia - Move Your Body  Alan Walker Remix   3:38    Читать дальше...    Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 07:41:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0733E4B5339E7C199297620A78A180C56B58E3A0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065696.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 562
+
+VA - Горячий хитовый драйв. Сборник 3  2016  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Пицца - Назад
+002. Jason Derulo - Get Ugly
+003. Сара Окс - Для Тебя
+004. Маша Ru - Ноль-Ноль    Читать дальше...    Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E241EC4C0EEC670F3B0C54672D45ABA714923077
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065562.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 065 492
 
 VA - Dance Music 155 Prefect  2016  [MP3|245~320 Kbps] <House, Future House, Electro, Hands Up,
@@ -1898,103 +1998,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1062410.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 062 402
-
-VA - Lucid Moments Vol 7  2016  [MP3|320 Kbps] <Chillout, Downtempo, Trip-Hop>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Klartraum & Thalstroem - Flight To BerlinЖанр: Chillout, Downtempo, Trip-HopПродолжительность: 05:00:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:62B2C818B2F552C7A1402F401B844D6E3822D2C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1062402.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 062 322
-
-VA - Its Ibiza Dance Hits Earth  2016  [MP3|160~320 Kbps] <House, Tech House,  Electronica, Trop
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Smash - Electrobeach  3:49
-02. Tiesto & Matthew Koma - Wasted  TsT Remix   4:36
-03. Dimitri Vegas & Like Mike VS GTA Ft Wolfpack - Turn It Up  Pelari TRAP Remix   3:17
-04. Pulsedriver - Cambodia  Short Mix   3:44    Читать дальше...    Жанр: House, Tech House,  Electronica, Tropical, UK Garage, Club, DanceПродолжительность: 07:48:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5858C554254492B632F24E1A6B52DE831FB4C3DE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1062322.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 062 317
-
-VA - Ultimate More Urban Dance Hits  2016  [MP3|222~320 Kbps] <House, Eurodance, Hands Up, Comme
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Bingo Players - Knock You Out  Mr. FijiWiji Remix Radio Edit   3:11
-002. tyDi Feat. Dia Frampton - Stay  Radio Edit   3:18
-003. Area feat. Sam Darris - Like a Devil  Radio Edit   3:40
-004. Mr.Black - Rise  4:28    Читать дальше...    Жанр: House, Eurodance, Hands Up, Commercial, Disco, Club, DanceПродолжительность: 06:55:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DE4E6202B26905CC04D72B920FB999400C6739E0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1062317.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 062 259
-
-VA - Billboard Hot 100 Singles Chart 22.10.  2016  [MP3|128-320 Kbps] <Pop, Dance, Euro>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. The Chainsmokers Feat Halsey - Closer
-002. Twenty One Pilots - Heathens
-003. The Weeknd Feat Daft Punk - Starboy
-004. Major Lazer Feat Justin Bieber And Mo - Cold Water    Читать дальше...    Жанр: Pop, Dance, EuroПродолжительность: 06:22:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF9CA255BE875A936DE174BEEFFE035E1530C8BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1062259.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

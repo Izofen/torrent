@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 705 549
+
+VA - City Dubstep Bring  2013  [MP3|256-320 кб c] <Dubstep, Beat, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Virtual Riot - So Baked 05:02
+ 02. 1.8.7. Deathstep - Mechanized  Original Mix  04:13
+ 03. Dubrocca - Garage Satisfaction 04:10
+ 04. Virtual Riot Ft. Lisa Rowe - Mindreade 04:45
+ 05. Kursa - Sdbn  Original Mix  04:34
+ 06. Dead Battery, Lea Santee - Cut The Line  Naked Fish Remix  04:55
+ 07. Filth Collins - Overload 05:05
+ 08. Dead Battery, Dabin - Lost Ii  Original Mix  05:32
+ 09. Dank  Usa  - Wonder Child 04:13
+ 10. Fractal  Usa  - Urchin  Original Mix  05:25    Читать дальше...    Жанр: Dubstep, Beat, ElectroПродолжительность: 03:34:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:233EDC76BFE726FD04A110D8832747120350D2E1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 705 436
+
+Мумий Тролль - Лучшее [5CD]  1997-2013  [MP3|320 кб с]<Альтернативный рок, бритпоп, рок-н-ролл
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+Мумий Тролль — советская и российская рок-группа из Владивостока. Образовалась в 1983 году. Группа была создана во Владивостоке её бессменным лидером и идеологом Ильей Лагутенко. Группа представляла Россию на конкурсе песни Евровидение 2001 и заняла 12 место.Жанр: Альтернативный рок, бритпоп, рок-н-ролл, поп-рокПродолжительность: 01:11:42
+ 77. Золото и ладан  2008 
+ 78. В этом свете  2008 
+ 79. Ядерные станции  2008 
+ 80. О, рай!  2008 
+ 81. Весна  2008 
+ 82. Фантастика  2008 
+ 83. Круг замкнулся  2008 
+ 84. California Dreaming  2009 
+ 85. SOS Матросу!  2013     Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FA8597C0654F6EEC5D36C78C9DAC09C4EC44082D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 705 404
+
+РадиоЦех - Не дала  club   2013  [MP3|128 кб с]<Club>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+1. РадиоЦех&Bueno Clinic-Сексопiл  club 
+2. РадиоЦех&PSY-Опа сало жру  club 
+3. РадиоЦех-Вiдпусти  club 
+4. РадиоЦех-Качаем любовь  club 
+5. РадиоЦех-Лiто-Весна  club 
+6. РадиоЦех-Лето-любовь  club 
+7. РадиоЦех-Не дала  club 
+8. РадиоЦех-Не плач Олiса  club-disco 
+9. РадиоЦех-Полiглот  club-disco 
+10. РадиоЦех-Пружино dens  club     Читать дальше...    Жанр: ClubПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:60CA6DA1034AFBE63E04875A9EC88FE6EDD784F8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 705 069
+
+VA - The Best World Ballads-18  2013  [MP3|111-320 кб с]<Pop, Rock, Blues, Rap, R n B>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001 Colbie Caillat-I Never Told You 3:55
+002 David Bowie-Thursday s Child 5:22
+003 Johnny Hates Jazz-Man With No Name 4:00
+004 Lene Marlin-Faces 3:34
+005 Saybia-The Second You Sleep 4:17
+006 Marc Terenzi-Forever Will Always Be 4:05
+007 Faith Hill-Cry 3:47
+008 Mat Kearney-Never Be Ready 3:36
+009 U2-With Or Without You 4:54
+010 Sinead O Connor-Jealous 4:17    Читать дальше...    Жанр: Pop, Rock, Blues, Rap, R n BПродолжительность: 17:48:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:72B879204198B8451BFBEF24AE470E213E53C535
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_705069.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 705 004
 
 VA - Мега Сборник Клубный Club Mix And Remix  2013  [MP3|320 кб с]<Club, Dance>
@@ -2339,130 +2463,6 @@ Pop  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:7E7656EF1349B00EF71DB2E5F0081DBCF1C2FBDD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 695 519
-
-VA - Дискотека О, Боже, Какая Тёлка!  2013  [MP3|128-256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001 MC Zali - О, Боже, какая телка
-002 Пьер Нарцисс feat. A-Sen - Samba
-003 Оля Полякова - Шлепки  DJ Kerim Muravey Remix 
-004 DJ Smash feat. Dani Lemann - Кабриолет
-005 Reflex - Лето На Окна  Remix 
-006 Татьяна Котова - ФиоЛЕТО  Ost1n Remix 
-007 A-Dessa - Папа рядом  DJ Fisun Remix 
-008 Серебро - Мало Тебя  V.Reznikov & Denis First feat. Portnov Club Remix 
-009 Винтаж - Знак Водолея  Kirill Clash Radio Remix 
-010 Dan Balan feat. Tany Vander & Brasco - Lendo Calendo  DJ Fisun Remix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 12:29:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:45EA8D43E3BAD936C39D9136DE44A9073070676B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 695 509
-
-VA - С Шансоном За Рулем  2013  [MP3|112-128 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001 Паша Юдин - Дорожная ностальгическая
-002 Гриша Заречный - Шоферское сердце
-003 Катерина Голицына - Бомбила
-004 Владимир Семашков - Машина
-005 Андрей Морган - Таксист
-006 Константин Крымский - Черный Хаммер
-007 Владимир Черняков - Колея судьбы
-008 Жека - Такси большого города
-009 Павел Павлецов - Интернет
-010 Влад Ясень - В дороге    Читать дальше...    Жанр: ШансонПродолжительность: 12:19:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F9AB1FED9C2CF4A6DB13FA33BF672120CC56954
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 695 451
-
-VA - Acid Jazz Lounge  2011  [MP3|320 кб с]<Funky, Club House, Lounge>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Mr Humphrey  feat. Angela Fraser  - Having Some Fun  Club Lounge Mix 
-02. Funk Masterz - Give It To Me  Jazzy Mix 
-03. Tony Tia - Haarlem Unite  Haarlem Mix 
-04. Gordon Scott  feat. Tamara Wilkins  - Fools Gold  Original 
-05. Sonique - Cali Trippin  Pasedena Mix 
-06. King Flutes - Zeal  Club Mix 
-07. Albert T - Acid Jazz  Acid Jazz Mix 
-08. Kashius - 2 Basics  Lounge Mix 
-09. Daniel Favio - Bring It Home  Jazz Step Mix 
-10. DJ Lee - Heartbreaks  Sexy Sexy Mix     Читать дальше...    Жанр: Funky, Club House, LoungeПродолжительность: 02:17:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:93EBD64B7C6C830DF6A176F678EEB8945ADD794E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 695 424
-
-VA - Super Dance Party 27-28  2013  [MP3|320 кб с]<Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-CD1
-01. Lasgo - Feeling Alive  Radio Edit 
-02. Nuria Swan - I Want You  Extended Mix 
-03. Vio - One Girl  Stephan F Extended 
-04. Krewella - Alive  Radio Mix 
-05. Inna - Spre Mare  Radio Edit 
-06. Jason Creator & Staz feat. Renny McLean - Samba  NANO! 2013 Summer Remix 
-07. Marc Kiss - Love Is Taking Over  CC.K Remix 
-08. Imprezive Meets Pink Planet - Ordinary People  Hardcharger Vs. Aurora And Toxic Remix 
-09. Dj Project feat. Adela - Fara Tine    Читать дальше...    Жанр: DanceПродолжительность: 09:29:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CBEBF7BD8B82F4ED96C3CBF335BE5C9B654E8AE7
 ```
 
 <div id="header" align="center">

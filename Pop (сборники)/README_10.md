@@ -1,4 +1,75 @@
 ﻿
+###  Публикация: 1 700 019
+
+VA - Greatest Ever Decade 90s  2021  4 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Jazz, Rock
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01.  Deee-Lite - Groove Is In The Heart
+02.  Simply Red - Stars
+03.  Duran Duran - Ordinary World
+04.  Roxette - Listen To Your Heart    Читать дальше...    Жанр: Electronic, Hip Hop, Jazz, RockПродолжительность: 05:16:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B90CBE4A4B2172EF2707C84F2DAEB0A15A4744B8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700019.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 006
+
+Моя Мишель - Медленная Звезда (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1.Медленная ЗвездаЖанр: PopПродолжительность: 00:02:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A7105ED8D63F61CC60C39B0019B8C167A89D2EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700006.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 700 004
+
+Моя Мишель - Наивность,Ч.1  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+1.Стюардесс
+2.Не обещала
+3.СозвездияЖанр: PopПродолжительность: 00:10:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:84B29F1DD089DC70139609429CF8EC8B2FBBD51F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700004.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 699 986
 
 VA - 100 Hits 80s Pop (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
@@ -1898,81 +1969,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1689186.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 689 183
-
-VA - 100 Hits Great British Songs  2017  5 CD [OGG Vorbis|480 Kbps] <Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Mott The Hoople - All The Young Dudes
-02.  Lulu - Watch That Man
-03.  Fleetwood Mac - Black Magic Woman
-04.  Status Quo - Don t Stop    Читать дальше...    Жанр: Pop, RockПродолжительность: 06:13:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0BBA6AC88AACAA856E95EDC788F24713C3901241
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1689183.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 688 753
-
-Confetti s - Greatest Hits  2001  [OGG Vorbis|480 Kbps] <Electronic, New Beat, Acid House>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.   C Day  Europe Version 
-02.   The Sound Of C
-03.   C In China
-04.   Circling Stars    Читать дальше...    Жанр: Electronic, New Beat, Acid HouseПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38103ED13A4C30F2E90E335C7C8F43CCFD181E34
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1688753.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 688 410
-
-VA - 101 Electronic 80s  2017  5 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Jazz, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Soft Cell - Tainted Love
-02.  The Human League - Love Action
-03.  Various Artists - Enola Gay  Remastered 2003 
-04.  Visage - Fade To Grey    Читать дальше...    Жанр: Electronic, Hip Hop, Jazz, RockПродолжительность: 06:35:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F18452F569ED1D8704FAD33B97B88A5596BFF5AE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1688410.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

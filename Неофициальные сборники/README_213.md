@@ -1,4 +1,119 @@
 ﻿
+###  Публикация: 777 620
+
+VA - Romantic collections of everything  1999  [MP3|128-256 кб с]<New Age, Pop, Enigmatic, Eas
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Жанр: New Age, Pop, Enigmatic, Easy ListeningПродолжительность: 06:45:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43FFC65F6486E3912D857CFEB59CD7812EB7A755
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_777620.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 777 616
+
+VA - Очень Горячая Штучка Зарубежный Выпуск  2014  [MP3|256 кб с]<Pop, Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Chris Lake ft. Jareth - Helium  Radio Mix 
+02. Showtek - We Like To Party  Radio Edit 
+03. Lea Michele - To Find Yo
+04. Allexinno & Starchild - Samira
+05. Greg Gelis feat. Fabrizio Levita - Gravity
+06. Yellow Claw ft. Rochelle - Shotgun
+07. Hailing Jordan - Wolfhound
+08. Zedd ft. Matthew Koma & Miriam Bryant - Find You  Dave Aude Radio Mix 
+09. Deepside Deejays - In My Heart
+10. Thomas Newson ft. Angelika Vee - Dont Hold Us  Radio Edit     Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 06:07:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8DF6F46BD1223C3DDAC7FD4FD98460EBC36C0347
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 777 593
+
+Слава Шанс - Подборка треков Слава Шанс  2014  [MP3|192 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+ 1:58  01. Паровозики
+ 3:15  02. Гуляли ЛяЛи
+ 3:52  03. Летите журавли
+ 2:57  04. Водочка
+ 3:44  05. Гуляй братва
+ 3:22  06. Как тебя забыть  с Ксюша 
+ 2:46  07. Ай Лав Ю
+ 4:40  08. Белым снегом
+ 3:02  09. Танька Хулиганка
+ 3:02  10. Город детства    Читать дальше...    Жанр: ШансонПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69701B30660DEAFED084FD9C5D598D428D89F532
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_777593.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 777 331
+
+VA - The best music without slow  2014  [MP3|128-320 кб с VBR CBR]<New Age, Instrumental, En
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Chinmaya Dunster -  Right Samadhi
+02. Sarangi -  Sindhuli gadhi
+03. Terra Incognita -  Cala Violina  Ravi - Joshua 
+04. Chris James & Wendy Grace -  Crow
+05. Merlin s Magic - Rueckkehr In Den Fruehling
+06. David Wahler -  A Rose Distilled
+07. Medwyn Goodall -  The Crystal Shard
+08. Anugama - Arabic Journey
+09. VA-Osho -  Sandhya
+10. Jonn Serrie -  The Auran VectorЖанр: New Age, Instrumental, Enigmatic, Electronic, Chillout, Ambient, MeditationПродолжительность: 11:16:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:85A745903037E30C3966BAE3146386B3FD1CE59F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_777331.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 777 222
 
 VA - Авто-дискотека Радио Record  2014  [MP3|320 кб с]<Pop, Dance, Club>
@@ -2245,130 +2360,6 @@ VA - Kiss FM - Top-40 + Kiss FM - Top-10  02.04.2014  [MP3|~256 кб с  V0 ]<Da
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_773320.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 773 251
-
-VA - Super Bomb Electro 41  2014  [MP3|320 кб с]<Electro>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Anderblast - Euphoria  Original Mix  [04:58]
-02. Apster - Photobomb  Original Mix  [05:01]
-03. Bad Boom Boys - Boom Boom  Original Mix  [05:17]
-04. Bart Claessen - Chimaera  ACTI Remix  [06:27]
-05. Benny Bubblez - Jump  Original Mix  [04:34]
-06. Benny Bubblez - Wayakii  Peachey Remix  [05:17]
-07. Candy Sandy - Living In A Box  Stereoliner Mix  [06:09]
-08. Cedric Gervais - The Look  Original Mix  [04:46]
-09. Christian F - Let s Go  Original Mix  [05:11]
-10. Cliffhanger & Lightnix - My Last Chance  Original Mix  [06:32]Жанр: ElectroПродолжительность: 04:18:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9EACE77D82102CCD827598EC7A608E64822496A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 773 030
-
-VA - Still Got the Blues vol.4  2014  [MP3|160-320 кб с]<Blues, Blues Rock>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Oscar Benton - Somebody s Love Will Do
-02. Pat Boyack & The Prowlers  - Cleanin  Out My Closet
-03. Meena  Austria  - I d Rather Go Blind  With Donna Grantis 
-04. Neal Black - I m Gonna Cry
-05. Mick Martin & The Blues Rockers - Your Lies
-06. Paul Personne - Loco Loco
-07. Paul Mark & The Van Dorens - Walking Home Alone In The Dark
-08. Midnight Blues - Crazy World
-09. Mark Medlock - Why Can t We Live Together
-10. Magic Slim & The Teardrops  -  Crazy Woman    Читать дальше...    Жанр: Blues, Blues RockПродолжительность: 13:03:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1562BD7CEE6D99909E6C2FA81F6F98B3D529B77C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_773030.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 772 990
-
-Tarja  Tarja Turunen  - Коллекция  2004 - 2011  [MP3l 155-320 kbps] <Symphonic Metal>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Anssi Tikanmaen Yhtye feat. Tarja Turunen - Tuulikello
-02. Beto Vazquez Infinity feat. Tarja Turunen - Promises under the Rain  Instrumental 
-03. Beto Vazquez Infinity feat. Tarja Turunen - Until Dawn  Angels of Light 
-04. Beto Vazquez Infinity feat. Tarja Turunen - Wizard
-05. Beto Vazquez Infinity feat. Tarja Turunen - Sadness in the Night
-06. Beto Vazquez Infinity feat. Tarja Turunen - The Laws of the Future
-07. Beto Vazquez Infinity feat. Tarja Turunen - Promises under the Rain
-08. Schiller feat. Tarja Turunen - Tired of Being Alone
-09. Martin Kesici feat. Tarja Turunen - Leaving You for Me
-10. Nuclear Blast All-Stars feat. Tarja Turunen - In the Picture    Читать дальше...    Жанр: Symphonic Metal, Classical, Opera, GothicФормат: MP3Продолжительность: 00:19:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CEAB804614E34BE4DFB4008E97E7E41017D4343C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_772990.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 772 979
-
-New Age Style - Enigmatic 14  2014  [MP3|320 кб с]<New Age, Enigmatic, Chillout>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-1. Carma - Victoria  3:16 
-2. Venja - Sensing The Spheres  6:11 
-3. Ascension - On the Wings of an Angel  4:36 
-4. Oryx - Stars of the Orient  3:28 
-5. Flaer Smin - Endeery  5:24 
-6. Luc Baiwir - Opus Hiram  6:26 
-7. Kheops - Liberty in the wind  4:35 
-8. Ginkgo Garden - Journey Of The Clouds  3:40 
-9. Mandala Hindu - Free Tibet  Himalaya Meditation Enigma Mix   5:05 
-10. Twins In Mind - Eternal Fantasy  5:01     Читать дальше...    Жанр: New Age, Enigmatic, ChilloutПродолжительность: 02:27:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8620E63A40AA662659AEA5AE5BF8AC2F2B0721D3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

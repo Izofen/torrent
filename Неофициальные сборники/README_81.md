@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 298 343
+
+VA - The Official UK Top 40 Singles Chart 26.04.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Lil Nas X - Old Town Road
+02. Meduza, GOODBOYS - Piece Of Your Heart
+03. Lewis Capaldi - Someone You Loved
+04. Billie Eilish - bad guy    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:06:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:26CCF2FEBEDC8CE9F95E429199E22574120478FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1298343.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 298 307
+
+VA - Drum and Bass Pro V.03  2019  Compiled by GvertO [MP3|320 Kbps] <Drum and bass, Neurofunk>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Dilemma - Limbo Original Mix  [6:39]
+02. oneBYone - Sorry  Original Mix  [4:14]
+03. Bensley - Kilauea [5:24]
+04. AKOV - Blind  Moon Mix  [4:47]    Читать дальше...    Жанр: Drum and bass, NeurofunkПродолжительность: 02:46:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:664B0268E501E7650FBA0B0471F6588327ADD843
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1298307.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 298 259
+
+VA - Shazam Хит-парад Russia Top 100 Апрель  2019  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Billie Eilish - bad guy  3:14 
+002. Aaron Smith feat. Luvli - Dancin  Eugene Star Remix   5:30 
+003. Ilkay Sencan - Do It  3:51 
+004. Artik & Asti feat. Артем Качер - Грустный дэнс  3:20     Читать дальше...    Жанр: PopПродолжительность: 05:21:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57D94C3F5D1E72A7068445174E8C9C7172680492
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1298259.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 298 231
+
+VA - ЕвроХит Топ 40 Europa Plus 26.04.2019 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Ava Max - Sweet But Psycho  3:07 
+02. Ariana Grande - 7 Rings  2:58 
+03. Aaron Smith feat. Luvli - Dancin  Krono Remix   3:17 
+04. Lil Peep & XXXTentacion - Falling Down  3:16     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4062B2F593AA8619D722A3AECEC63FE588DE7762
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1298231.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 298 113
 
 VA - Drum and Bass Pro V.02 [Compiled by GvertO]  2019  [MP3|320 Kbps] <Drum and bass, Neurofunk
@@ -1897,106 +1997,6 @@ VA - The Official UK Top 40 Singles Chart 05.04.2019 [MP3|320 Kbps] <Pop, Dance,
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1294097.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 294 061
-
-VA - Good To Be Alive  2019  [MP3|320 Kbps] <Blues, Rock Blues, Country>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Jimm Ross - Like This
-002. Jean Paul Rena - A Thief Known
-003. Mezcaleros Blues Band - Blues Adolorido
-004. Trace Adkins - Ain t Just The Whiskey Talkin     Читать дальше...    Жанр: Blues, Rock Blues, CountryПродолжительность: 09:53:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C449DBE0A652F2420DE51F9009725C80A4CEFC07
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1294061.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 294 060
-
-VA - 80s Soul Classics  2019  [MP3|320 Kbps] <Soul, RnB, Funk>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Chaka Khan - Ain t Nobody
-02. George Benson - Give Me the Night
-03. Stacy Lattisaw - Jump to the Beat
-04. Grover Washington, Jr. - Just the Two of Us    Читать дальше...    Жанр: Soul, RnB, FunkПродолжительность: 01:51:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:55719F058996647C77C0ED5793F3DB8DEAD02B74
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1294060.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 294 059
-
-VA - Beach House Spring Party  2019  [MP3|320 Kbps] <Deep House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Following Light - Intention
-002. Hilton Caswell - Remember  Original Mix 
-003. Lessnoise - Long Journey
-004. AudioStorm - Harmony Of Ocean Deepness    Читать дальше...    Жанр: Deep HouseПродолжительность: 09:48:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A23CC334C3067E283D08BB6D50E28370916DC981
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1294059.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 293 959
-
-VA - ЕвроХит Топ 40 Europa Plus 05.04.2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Aaron Smith feat. Luvli - Dancin  Krono Remix  3:17
-02. Lil Peep & XXXTentacion - Falling Down 3:16
-03. Triplo Max - Shadow 2:57
-04. Denis First & Reznikov feat. Bright Sparks - Shameless 2:46    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:10:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:426E7DCC7B0B0F7008FB97531003DA6F4947BA8D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1293959.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

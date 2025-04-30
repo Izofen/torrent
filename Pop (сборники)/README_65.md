@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 265 811
+
+VA - 100 Hits – The Best Dance Album  2018  5CD [MP3|320 Kbps] <Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD01:
+01. Eric Prydz - Call On Me
+02. Armand Van Helden Feat. Duane - You Don t Know Me
+03. Roger Sanchez - Another Chance    Читать дальше...    Жанр: DanceПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C446A27DFE00C5DAC2EBEC68ED3E746A6780B324
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265811.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 265 753
+
+Blow - Vertigo  2018  Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Synthwave
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Vertiges  3:11 
+ 02. New Moon Walker  3:18 
+ 03. Green Unicorn  3:07 
+ 04. Fall in Deep  3:40     Читать дальше...    Жанр: Electronic, Pop, Synthwave, DowntempoПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C4DD4860FDD69EDC1504B8BFB0F7E91A2BD06C54
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265753.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 265 672
+
+Mary Wilson - Mary Wilson  1979  LP [MP3|320 Kbps] <Funk Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Red Hot  6:06 
+02. I ve Got What You Need  5:05 
+03. You Make Me Feel So Good  5:47 
+04.  I Love A  Warm Summer Night  4:07     Читать дальше...    Жанр: Funk Soul, DiscoПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:275EC3EE6AA3A37AE4ED860989B5E62398AF5F12
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265672.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 265 487
 
 VA - Future Trance - Return to the Millennium 2000er  2018  3CD [MP3|320 Kbps] <Italo Dance, Har
@@ -1918,82 +1993,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260539.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 260 299
-
-Rasmus Seebach - Ingen Kan Love Dig I Morgen  2013  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Sandstorm
-02. Øde Ø
-03. I Min T-Shirt
-04. Olivia    Читать дальше...    Жанр: PopПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F252AEB212B8D73022D1BB00171280D60AF497D9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260299.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 260 252
-
-VA - Top Of The Pops  1978  2018  Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-После довольно продолжительного перерыва продолжаю серию путешествий по победителям топов прошлого века  ссылки на предыдущие релизы смотрите внизу .
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители     Читать дальше...    CD1
-01. John Travolta & Olivia Newton-John - You re The One That I Want   2:51 
-02. ABBA - Take A Chance On Me   4:04 
-03. Boney M - Rivers Of Babylon   4:16     Читать дальше...    Релиз состоялся: 16.03.2018Жанр: 1970s, pop, rockПродолжительность: 02:50:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:362B0C2798C78EA930A6E4AF85C16C4DED8A7913
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260252.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 260 157
-
-VA - 90s 00s and 10s Love Songs  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Meg Birch - One Last Time
-02. The Shaken Bakers - Love Will Keep Us Alive
-03. Shannon & Keast - Yours
-04. Karizma Duo - A Thousand Miles    Читать дальше...    Жанр: PopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:00AAB8A708D1AE7DAA2982034F8BA620C4CEC1A0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260157.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

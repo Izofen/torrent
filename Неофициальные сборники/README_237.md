@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 544 905
+
+VA - Вояж Зарубежной Музыки Осени  2012  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Flo Rida ft. Sia - Wild Ones
+002. Cascada - Night Nurse  Ryan Thistlebeck Vs. Dan Winter Radio Edit 
+003. Mario Lopez - I Can Stand It  Move Town Radio Edit 
+004. Shaka Ponk - My Name Is Stain
+005. Mike Candys feat. Evelyn & Patrick Miller - 2012  If The World Would End 
+006. Jay Sean - Im All Yours
+007. Mandinga - Te Quiero
+008. Simon From Deep Divas feat. Goody - Disco dancer
+009. Britney Spears - Look Who s Talking Now
+010. Chris Parker - Space    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:51:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:120F61F69D01DB32AC15126A24AEFDD3D5941660
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_544905.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 544 707
+
+VA - Cafe Music. Collection  9CD   1999-2005  [MP3|192-320 кб с]<Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+ 4:49  01. Love s Theme
+ 4:20  02. You Will Remember Whom You Lonely
+ 4:18  03. Lilac
+ 3:37  04. Gather Around With Deep Feeling
+ 4:48  05. Loving You Very Much
+ 4:43  06. The Naval Port Night
+ 3:10  07. Waving The Girl Of Wings
+ 4:28  08. That Stretch Of Sea
+ 3:56  09. Snow
+ 4:35  10. Depend On    Читать дальше...    Жанр: InstrumentalПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87DF02817E81C80E0545E07CEBEB7F588A2DD9E6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_544707.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 544 665
+
+VA - Горячая Сотка Новинок 50 50  2012  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Hi-Fi - Земляничный Дождь  Новая Версия 
+02. Maroon 5 - One More Night
+03. Galla - NY Лето  Нью-Йоркское Лето 
+04. Mc Lion - Breathing  Dance Mix 
+05. Ksenona - Далеко-Далеко
+06. Nas feat. Mary J. Blige - Reach Out
+07. Pulse - Ты Убиваешь Меня
+08. Rita Ora - Roc The Life
+09. Vetra-N - Долго Нельзя
+10. The Cataracs - Roll The Dice    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:11:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7FD5A64E91D3C879347FA2F4156B0A7587C040C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_544665.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 544 658
+
+VA - Europa Plus 100 50 50  2012  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01 Катя Лель - Одна под прицелом
+ 02 David Guetta feat. Ne-Yo & Akon - Play Hard
+ 03 Нервы - Май Bay
+ 04 Wisin & Yandel feat. Jennifer Lopez - Follow the leader
+ 05 Serebro - Мальчик
+ 06 Loreen - Euphoria
+ 07 Отпетые мошенники - Руссо туристо
+ 08 Nickelback - When we stand together  DJ Noiz Bootleg 
+ 09 Чи-Ли - Океан
+ 10 Roman Bellezzo & Slam DJs feat. Irene - Frozen    Читать дальше...    Жанр: PopПродолжительность: 05:53:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:00F0C20AF675175659C8E8EAC0CA5E8513FEEC43
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_544658.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 544 510
 
 VA - New Age Style. Erotic Lounge 4  2012  [MP3|320 кб с]<New Age, Chillout, Downtempo, Erotic
@@ -2295,130 +2419,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_533212.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 532 921
-
-VA - Mega Dance Party Summer Vol.8  2012  [MP3|320 кб с]<Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. 02 Without Ass  Club Mix   5:09 
-2. Adele vs. Mike Candys & Jack Holiday - Set Fire To The Rain  Sir Art & Vivi Dj Mashup   5:04 
-3. Anton Neumark - Benghazi  Original Mix   9:22 
-4. Anton Neumark - Underground  Inspired Souls Remix Russian Version   6:48 
-5. Anton Neumark, Johnny Beast - We Rock The Party  Techno Logic Remix   5:17 
-6. Bodybangers feat. Gerald G - Set The Night On Fire  Club Mix   5:06 
-7. Bodybangers feat. Gerald G - Set The Night On Fire  Original Mix   5:06 
-8. Boogie Pimps - Knocking feat Darryl Pandy  Album Mix  Housesession Records  5:07 
-9. brighi feat snoop dogg-play me like a violin  radio killer extended remix   5:05 
-10. Bryan Bax with Inusa Dawuda - What s Wrong  Stereoshock & Nas Luke WMC 2012 Vocal Remix   5:08 Жанр: Dance, ClubПродолжительность: 04:14:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3549D513FC31535D6CEAF1231AF7ED718E47EBB8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_532921.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 532 909
-
-VA - Mega Dance Party Summer Vol.5  2012  [MP3|320 кб с]<Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Adele - Rolling In the Deep  Salahoff Mash Up   4:55 
-2. Adriano Celentano - Amore No  Dj Rox Remix   4:52 
-3. Anton Neumark - Benghazi  Original Mix   9:22 
-4. ANTON NEUMARK - IPMBF  Original Mix   9:12 
-5. Anton Neumark - Sochi Olympics  Sly Dewars Vocal Mix   7:37 
-6. Anton Neumark - Underground  Inspired Souls Remix Russian Version   6:48 
-7. Anton Neumark - Underground  Timer & Inkwell Remix   Russian Version   5:35 
-8. ANTON NEUMARK ft YANA FORTEP - Pride  INCOGNET Rmx   5:53 
-9. Anton Neumark, Johnny Beast - We Rock The Party  Techno Logic Remix   5:17 
-10. Babaeff Dark & DJ China feat. Leyla Kafari - Eurovision 2012  Dj Kubinec rmx   4:50 Жанр: Dance, ClubПродолжительность: 04:12:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CBBA50EEA0CE48D2039B95AA30924F53F5854A31
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_532909.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 532 760
-
-VA-Sky.Fm - Dreamscapes  2010  [MP3|256 кб с]<Chillout, Lounge, Downtempo>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Above & Beyond - Good For Me  05:39 
-02. Above & Beyond Pres. Oceanlab - Miracle  06:37 
-03. Above & Beyond Pres. Oceanlab - On The Beach  04:38 
-04. Accadia - Into the Dawn  Accadia Ambient mix   09:15 
-05. Acoustic Alchemy - Only In My Dreams  05:48 
-06. Activa - This World  07:18 
-07. Adam Novy - Soothing Sunrise  Chill   02:48 
-08. Adyjay - The only chance  05:37 
-09. Adyjay - Time  05:59 
-10. Aerosoul - Isla Blanca  Aftersun Chill Version   04:48     Читать дальше...    Жанр: Chillout, Lounge, DowntempoПродолжительность: 36:04:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A3BF4EBBD04A3CABA77655E50807DCB30FFDC29
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_532760.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 532 481
-
-VA - Горячие хиты пляжного сезона 4 Русский  2012  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01 Митя Фомин И Кристина Орса - Не Манекен
-02 Ассорти - Ангелы
-03 Кристина Орбакайте Feat. Павел Есенин - А Знаешь, Все Еще Будет
-04 Катя Лель - Не Могу Забыть
-05 A-Via - По Парам
-06 Никита - Прости
-07 Вероника Агапова - Горько
-08 Горячие Головы - Мы Встретимся Вновь
-09 София Ротару - Два Солнца
-10 Валерия - Подруга    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:08:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5F8433BC1265814E21A5CCD1B40AB930BFDAD743
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_532481.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 845 860
+
+VA - Progressive House V.36  2014  [MP3|320 кб с]<Progressive House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Airwave, Phi Phi - Finesse  Another Audio Noir Trip 
+02. Guy Mantzur & Sahar Z - Sliding Doors  Original Mix 
+03. Ezequiel Arias - If Me  Original Mix 
+04. Marten Sundberg - Deep Forest  Original Mix 
+05. DARKND & Leane - Ragdoll  Twin Silhouette Remix 
+06. Gus Gus - Airwaves  UV Remix 
+07. Ezequiel Arias - Fill  Original Mix 
+08. Doomwork - Elytra  Original Mix 
+09. Mauro Rodriguez - Stupid Bells  Tomek Remix 
+10. Stan Kolev - Rhodope  Original Mix     Читать дальше...    Жанр: Progressive HouseПродолжительность: 06:35:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F40AB1FEF4215AFB46D7987F75425CE877CD5D76
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 858
+
+VA - Electro House Pro V.77  2014  [MP3|320 кб с]<Electro House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. 3ilaub - K.A.S.T  Original Mix 
+02. Deep Sound Effect, Arma8 feat. Camilla Voice - Friends Of My Soul  RezQ Sound Remix 
+03. Speed Limits & Jaco feat. Joni Fatora - Palm Of Your Hand  Original Mix 
+04. Maartin Rubik, Xavi Navarro - Finger  Original Mix 
+05. Chocolate Puma feat. Kris Kiss - Step Back  LOOPERS Remix 
+06. Michael Jackson - Thriller  Reepr 2014 Remix 
+07. Nova - #Hashtag  Original Mix 
+08. Maxon & Aachtone - Valve  Original Mix 
+09. Flatdisk - Vertex  Original Mix 
+10. Monte Cristo -     Читать дальше...    Жанр: Electro HouseПродолжительность: 04:53:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:088C6C3DAFD07DC81B40C9C94C2411909C18911F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 854
+
+VA - Dutch House, House #21  2014  [MP3|320 кб с]<Dutch House, House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Funkstar De Luxe - Sun Is Shining  LA Rush Club Mix 
+02. Sonikross - Shes In The House Feat. Sara K  Nick Hook & Martin Sharp Vocal Remix 
+03. Maximus Bellini - The Music Fits My Soul  Original Mix 
+04. Tumalon - 1982  Original Mix 
+05. Deadmau5 - Raise Your Weapon  Maywald Remix 
+06. Alexz & Remko B - Heaven In Your Eyes  Original Mix 
+07. The Cube Guys - Burning  Original Mix 
+08. Southlight, Michael Duchesne - Night 2 Day  Original Mix  Hed Kandi Records
+09. Chew Fu, Steve Clisby - Purple Rain     Читать дальше...    Жанр: Dutch House, HouseПродолжительность: 05:47:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:26D67C45D04CF9F6228428989DDB724EDD03A301
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 845 848
+
+VA - Dutch House, House #20  2014  [MP3|320 кб с]<Dutch House, House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Zaki, Andre Espeut - Something Real  Original Mix 
+02. Bruno Kauffmann, Ann Shine, Ludo Kaiser - The World Is Losing Faith  Oscar Velasquez Remix 
+03. Pezzner - Warp Me Not  Original Mix 
+04. EMan, Doc Link - Message To The Househeads  Christo Remix Clean 
+05. Circuit21 - Calling All Angels  Sick Joke Remix  Division Music
+06. The Veterans - Unspoken  Original Mix 
+07. DJ Borra feat. Britt- Until I Fall Asleep  Gvozdini Remix 
+08. Coldplay - A Sky Full of Stars  Javier penna Deep Remix 
+09. Camille, Jayh     Читать дальше...    Жанр: Dutch House, HouseПродолжительность: 05:49:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D435EFAC7A2DCAE8F81B8167B8C8471C993DDEE4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 845 838
 
 VA - Deep House V.40  2014  [MP3|320 кб с]<Deep House>
@@ -2256,128 +2378,6 @@ Pop  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:8761A7EF8D45AFD3EE123518A0C72765B4AA5738
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 931
-
-VA - Resident Advisor Top 50 For October  2014  [MP3|229-320 кб с]<Tech House, Deep House, Tec
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Culoe De Song - Y.O.U.D.  Original Mix  08:32
-02. Adriatique - Rollox  Original Mix  06:17
-03. Corrado Bucci - Open Your Eyes  Andres Remix  06:29
-04. Stephan Bodzin - Sungam  Original Mix  08:50
-05. Recondite - Caldera  Original Mix  08:53
-06. Josh Wink - Talking To You  Original Mix  08:49
-07. Patrice Baumel - Mile High Gang  Original Mix  07:12
-08. Rodhad - Haumea  AЖанр: Tech House, Deep House, Techno, Minimal, Indie Dance, Nu DiscoПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4E3C49058BE1BDBF06DD09B2B6CBC08087DC6EC4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 722
-
-VA - DFM - TOP 300  2014  [MP3| 128 - 320кб с]<Dance, Club, Trance, House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001 - Feder-Lyse - Goodbye  Dj Antonio rmx   2:47 
-002 - SAK NOEL Vs. DJ KUBA & NEITAN ft. Mayra Veronica - No Boyfriend  3:12 
-003 - DJ Noiz feat. Asti - Зацелую  3:46 
-004 - ZHU - Faded  Original Mix   3:52 
-005 - Потап и Настя - Манго   2:24 
-006 - Kiesza - Hideaway  DFM rmx   4:11 
-007 - Arash Feat. Helena - One Day  Golden Star Radio Mix 
-008 - Dr. Alban - Its My Life 2014  Bodybangers Radio Edit 
-009 - Fytch - In These Shadows  feat. Carmen Forbes 
-010 - David Guetta - Dangerous  feat. Sam Martin      Читать дальше...    Жанр: Dance, Club, Trance, HouseПродолжительность: 18:07:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7773E61C118371108BDD31348ED7CA142648D415
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 717
-
-VA - Chillstep World Vol.12  2014  [MP3|320 кб с]<Chillstep, Chillout, Dubstep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. CMA - Youre Not Alone  Original Mix 
-02. Dabin & Koda - The Take Down  Original Mix 
-03. Dee Flack Feat. Eternall & Elo Method - Serenity  Fracture Design Remix 
-04. Electus - Dukkha
-05. Electus - Stay With Me
-06. ENiGMA Dubz - Before We Started
-07. frequentative. - Go Away
-08. Jacoo - Memories  Original 
-09. KOSIKK - Persia
-10. Motorcycle - As The Rush Comes  High Rankin Remix     Читать дальше...    Жанр: Chillstep, Chillout, Dubstep
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:08AA13FCC8DEAF0EB609D9A3814DF14FB65386D3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 682
-
-VA - Клубная Автодискотека. Хит За Хитом  2014  [MP3|320 кб с]<Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Armin van Buuren - Hystereo  Original Mix  05:05
-02. Alesso feat. Tove Lo - Heroes  Chris Davies Remix  05:01
-03. Aeon - Back Scratcher  Original Mix  04:55
-04. ElectroRythm - Turn Up The Bass  Original Mix  04:52
-05. Skyfreak - Fire  Original Mix  04:51
-06. DJ Gollum feat. DJ Cap - Give Me Five  Easter Hymn 2K14  04:53
-07. Kai Wachi - Vivacity  Original Mix  04:47
-08. Driftmoon - Phantoms  Original Mix  04:51
-09. Far Too Loud - Boom!  Original Mix  04:47
-10. D.O.D - Pop Pop  Original Mix  04:46    Читать дальше...    Жанр: Dance, ClubПродолжительность: 06:56:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9326A87B86DBD649F7DEE158A37E2425F9AC5CA7
 ```
 
 <div id="header" align="center">

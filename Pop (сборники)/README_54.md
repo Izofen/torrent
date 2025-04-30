@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 325 625
+
+VA - I Love Success, Vol. 1  2017  [FLAC|Lossless|WEB-DL|tracks] <Hi-NRG, Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Riccardo Campa feat. Tuesday - The Future Is You  05:09 
+02. Male Room - You Are Not My Lover  Video Edit   03:43 
+03. Multiple Maniacs feat. Tuesday - The Fauxriental Jam  7   Mix   06:22 
+04. Multiple Maniacs feat. Tuesday - Bazooms  05:23     Читать дальше...    Жанр: Hi-NRG, Italo-DiscoПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BB40230C6CB8EE2FF95D7231F2C164A5DCDCF075
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325625.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 325 597
+
+Ирина Аллегрова - Неизданное…2019  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Жизнь-игра
+2. Ария Сильвы
+3. Книга жизни
+4. Нас друг для друга создал Бог    Читать дальше...    Жанр: PopПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A80AC9F163C784899FF9119E4B686B0F0A99A09A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325597.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 325 357
+
+Space Pilots - Space Music  1978  [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Magic Fly  3:11 
+02. Onyx  3:49 
+03. Space Computer  4:05 
+04. Future Woman  2:41     Читать дальше...    Жанр: Electronic, Disco, Synth-popПродолжительность: 00:32:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:338CDF37278F9DDE622B7C5F98D537A6B8009E5B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325357.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 325 263
 
 Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M  2005  CD [MP3|320 Kbps] <Elec
@@ -1920,81 +1995,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316671.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 316 577
-
-Ada Lea ‎ - What We Say In Private  2019  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. mercury  04:41 
-02. wild heart  03:58 
-03. the party  02:55 
-04. for real now  not pretend   04:34     Читать дальше...    Жанр: PopПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0AB9676AA52F735C63B70FB934ADF1BAD3596BA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316577.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 316 499
-
-Lena Katina  Лена Катина  - Моно  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Моно
-2. Ближе
-3. Косы
-4. Куришь    Читать дальше...    Жанр: PopПродолжительность: 00:27:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D554DA363C95C09348F1E41DD37D91C6910BAD24
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316499.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 316 444
-
-Chris Cohen - Chris Cohen  2019  [FLAC|Lossless|tracks + .cue] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Song They Play  03:38 
-02. Edit Out  03:26 
-03. Green Eyes  03:18 
-04. Sweet William  02:44     Читать дальше...    Жанр: Indie PopПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F5A26EA6F11259600E9F6C792F6A6F9F4FB13B6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316444.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

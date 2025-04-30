@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 473 992
+
+VA - Synergetic Nightclub  Vol.02   2021  [MP3|320 Kbps] <Club, Dance, House, EDM>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Folklore & Vacce - Krater
+002. Caox & Chris Fielding - Enemy
+003. Andrew Fields - Secret Place
+004. Maph - Ridin Dirty    Читать дальше...    Жанр: Club, Dance, House, EDMПродолжительность: 08:31:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A17BAB545B00EF38364140831CF9BD00CA9571B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1473992.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 473 990
+
+VA - The Clubbing Tech House  2021  [MP3|320 Kbps] <Tech House, Electro, EDM>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Dubmask - Tale Of
+002. Altamirano - Much Money
+003. Ohmme - Rewind
+004. Drag & Drop - Hypno Slap    Читать дальше...    Жанр: Tech House, Electro, EDMПродолжительность: 12:31:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E773B513CD643ADA911BE624A14674973348F121
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1473990.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 473 989
+
+VA - 80s Hits Essentials  2021  [MP3|320 Kbps] <Disco, Pop, Rock, RnB>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Toto - Africa
+02. Def Leppard - Pour Some Sugar On Me  Remastered 2017 
+03. Matthew Wilder - Break My Stride
+04. Bobby Brown - My Prerogative    Читать дальше...    Жанр: Disco, Pop, Rock, RnBПродолжительность: 07:51:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1A53B3BE235328526B3099C712EE15F37C7B9548
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1473989.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 473 988
+
+VA - The Favorite Fitness Music  2021  [MP3|320 Kbps] <EDM, Club, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Scar And Eazyvibe - Life Without You
+002. Jonathan Touch - Brotherhood
+003. Dsigual - Natjwa
+004. Adam Cooper - Eyes Shut    Читать дальше...    Жанр: EDM, Club, Dance, HouseПродолжительность: 09:32:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2538BAFC4CA0C8349BF588F5D184245E76CB56F2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1473988.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 473 986
 
 VA - The New Rap Heroes  2021  [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -1891,106 +1991,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1470908.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 470 906
-
-VA - Hardcore Dance: Music For Heavy Fitness  2021  [MP3|320 Kbps] <Hardcore, Hardstyle, Hard Da
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Занятия спортом и музыка — для многих вещи, друг от друга неотделимые. Особенно это касается бега, где ритм играет едва ли не решающую роль. В настоящей раздаче предлагается скачать хорошую и качественную подборку плейлиста для занятий беговыми тренировками или фитнесом.001. Marius Tiberian - See Yourself
-002. Sasha F - Dead Generation
-003. Jay Reeve - The Nearest Star
-004. Sinister Seven - Ballers    Читать дальше...    Жанр: Hardcore, Hardstyle, Hard DanceПродолжительность: 07:44:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:331572CE0C87379718CA66CA56E425AD27E1B1EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1470906.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 470 902
-
-VA - Hot Disco Remixes  2021  [MP3|320 Kbps] <Disco, Dance, Remixes>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Не секрет, что многие популярные музыкальные композиторы и аранжировщики приобретают своё творческое вдохновение из мелодий 80х годов. И это беспроигрышный вариант признания. Доказательством тому будет новый ретро мастер микс в стиле диско музыки!001. Tim Klein - Mellow On The Right
-002. Discodumper - Dirty Games
-003. Julius Papp - Feel The Rhythm
-004. Marco Bardi - My Romance    Читать дальше...    Жанр: Disco, Dance, RemixesПродолжительность: 10:06:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A49C6CF98C57D02D083546F5B9AE9D31FC0578C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1470902.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 470 900
-
-VA - Idealizing: Tech House Edm Live Set  2021  [MP3|320 Kbps] <House, Tech House, Electro, Club
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Шикарное балансирование между хрупкой невесомостью и суровой реальностью дало роскошный контраст в звучании и незабываемую атмосферу музыки. Тут есть место, как дипу, так и классическим техно хаусу и мелодик-техно в новой обёртке с новым мастерингом.01. Bizen Lopez - Keep Working
-02. Deetron - Love Song
-03. Jt Donaldson - Shelter
-04. Techno House - Take On  Original Mix     Читать дальше...    Жанр: House, Tech House, Electro, ClubПродолжительность: 07:55:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6614570C0CE88854EE67C903B78918E25D8A5D1F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1470900.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 470 897
-
-VA - Watercolor Sound: Relax Chillout Music  2021  [MP3|320 Kbps] <Ambient, Downtempo, Chillout,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Мелодичная музыка, которая способна проникнуть и запасть в душу, слушая которую, мы невольно начинаем задумываемся о вечности, гармонии, любви. Релакс музыка способна передавать эмоции и даже мысли между людьми без каких-либо диалогов, она раскрепощает и человек может совершить такие поступки, на которые раньше не решался. Такая музыка отлично подходит для проведения     Читать дальше...    001. Quantic - Hotline Bling
-002. Jaded Satire - Funk The Police
-003. A Winged Victory - Despair Dialogue
-004. Fatima Yamaha - Daio Alternate History    Читать дальше...    Жанр: Ambient, Downtempo, Chillout, RelaxПродолжительность: 08:36:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E0584370CF25D3E736A7EC5D72E9133988BAB8DA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1470897.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

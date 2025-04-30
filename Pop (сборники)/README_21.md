@@ -1,4 +1,78 @@
 ﻿
+###  Публикация: 1 591 386
+
+Michael Jackson - Thriller 40  1982  2022, Epic Legacy [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Wanna Be Startin  Somethin   6:03 
+02. Baby Be Mine  4:20 
+03. The Girl Is Mine  3:42 
+04. Thriller  5:58     Читать дальше...    Жанр: PopПродолжительность: 02:38:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:997957B30EEBC900F244824D0D3704C1009B3EE4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591386.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 591 338
+
+Dead Blonde - 3 альбома, 6 синглов  2020-2022  [MP3|320 Kbps] <Pop  Поп>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+2020 - Пропаганда
+2021 - Княжна из хрущёвки
+2022 - Сплетница    Читать дальше...    Жанр: Pop  ПопПродолжительность: 01:48:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:14E9D34ECD698F5B6B90839CB8A841DFCC4A853F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591338.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 591 069
+
+Tempo Rubato - Music  85  1985  LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Music  85  19:02 
+02. Don t Stop The Classics  10:45 
+03. Let s Stay Together  7:28 Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C692B64CC6D4268CFAA9A47005C144CD5DBB58E0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591069.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 591 022
 
 Лицей - Паровозик-облачко  1997  [FLAC|Lossless|tracks + .cue] <Pop>
@@ -1913,81 +1987,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584849.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 584 817
-
-Sarah Connor - Bounce  2004  [OGG Vorbis|480 Kbps] <Europop, Hip Hop, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Bounce
-02. French Kissing
-03. Let s Get Back To Bed-Boy! featuring TQ 
-04. On Nite Stand Of Wolves And Sheep  featuring Wyclef Jean     Читать дальше...    Жанр: Europop, Hip Hop, PopПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73077E07E83D5BF571CA2FC4973B09DFBAE38D4F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584817.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 584 788
-
-Belinda Carlisle - A Place On Earth · The Greatest Hits  1999  2 CD [OGG Vorbis|480 Kbps] <Elect
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Heaven Is A Place On Earth
-02. I Get Weak
-03. Circle In The Sand
-04. Leave A Light On    Читать дальше...    Жанр: Electronic, Rock, PopПродолжительность: 02:13:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:714980479131A990B04E7126E96E6AB8E4C8CD07
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584788.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 584 577
-
-VA - New Pop Classics  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Ed Sheeran - 2step  feat. Lil Baby   02:43 
-02. Madeline The Person - Why I Broke Up with You  02:43 
-03. David Guetta - I m Good  Blue   02:55 
-04. Charlie Puth - Smells Like Me  03:24     Читать дальше...    Жанр: PopПродолжительность: 02:40:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1272C8CA4DF15637658D1509D31891A391691F79
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584577.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

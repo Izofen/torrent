@@ -1,4 +1,137 @@
 ﻿
+###  Публикация: 523 345
+
+VA - Лучшая русская попса  2012  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. СтаЯ - Сердце
+002. Леонид Агутин и Анжелика Варум - Как не думать о тебе
+003. Юрий Шатунов - Это лето
+004. Апрель - Город-Любовь
+005. Алексей Хлестов - Снежинки на твоих ресницах
+006. Полина Гагарина - Спектакль окончен
+007. Leyla - Ночной DJ
+008. Нола - Тебе
+009. Юлия Волкова  t.A.T.u.  - Сдвину мир
+010. Reggaer - ВлюбленЖанр: PopПродолжительность: 05:53:44
+
+001. Чай Вдвоем feat. Лиана - Виниловое сердце
+002. Любэ, Корни и In2nation - Просто любовь
+003. Emin - Сердце бьется
+004. Градусы - Заметает
+005. Татьяна Котова - Мир для сильных мужчин
+006. Алисия & Влад Корса - Здесь и сейчас
+007. Елена Терлеева - Просто
+008. Вероника Агапова - Baby бай бай    Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:282F95FEE0C3D7750643D6498403C3D0434DEABF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_523345.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 523 338
+
+VA - Знойный летний хит  2012  [MP3|256-320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+1. Pandora feat. Stacy - Why magistral  3:28 
+2. Вирус - За Тобой  3:11 
+3. Женя Вилль - Странная Любовь  4:06 
+4. Светлана Лобода - Облака  DJ Ozeroff & DJ Sky feat. Lebedev Radio Mix   3:41 
+5. Alexey Romeo & Euegene Noiz Feat. Alateya - Лето  Bimbo Song   3:27 
+6. Vilana - Море  3:34 
+7. Dj Cosmo - The Lovesong  3:07 
+8. НеАнгелы - Твоя  DJ Jedy Club Remix   4:33 
+9. DJ Mikis feat. Нина Богданова - С Обратной Стороны Луны  Radio Edit   3:11 
+10. Alexandra Stan - Lemonade  3:30 Жанр: PopПродолжительность: 06:01:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DC64C79F849B0E749D82D48DFC1B2DFD5468C3D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_523338.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 523 087
+
+VA - MAXI. EuroHit от MTV  2012  [MP3|320 кб с]<Pop,Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Reфorma - Пусть  Remix 
+02. Паша Люмин & Даша Шувалова - Делай меня
+03. The Wanted - Chasing The Sun
+04. Градусы - Заметает
+05. Chris Brown feat. Pitbull - International Love
+06. Example - Changed The Way You Kiss Me
+07. Pulsedriver - Take It Home  Topmodelz Mix 
+08. MC Zali Fidel Wicked - Носом по кокосам  Alex Life S Mash Up 
+09. Carly Rae Jepsen - Call Me Maybe
+10. Steve Aoki feat. Wynter Gordon - Ladi DadiЖанр: Pop,DanceПродолжительность: 04:53:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:27AE553FC5970EDA579762F67890AC5D91F5D9DC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_523087.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 522 932
+
+VA - Музыка летнего настроения  2012  [MP3|256-320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+1. Елена Терлеева - Я За Тобой  Radio Rip   3:28 
+2. Dan Balan - Freedom  Slow Version   3:19 
+3. Bobina feat. Винтаж - На-На-На  3:37 
+4. Глюкоза и Макс Барских - Адреналин  3:41 
+5. Юлия Михальчик - Матушка-Река  3:33 
+6. Nickelback - When We Stand Together  3:10 
+7. Far East Movement - Jello  Feat. Rye Rye   2:52 
+8. Robert Miles - Children  Mian Timore Remix   8:15 
+9. Барби - Когда Ты Рядом  3:39 
+10. MainstreaM One - Под Тёмными Очками  3:22 Жанр: PopПродолжительность: 06:19:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FDC98A39913B4543B44D3B410890809DB974CEB1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_522932.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 522 887
 
 VA - Mega Dance Party Summer Vol.1  2012  [MP3|320 кб с]<Dance, Club>
@@ -2345,121 +2478,6 @@ VA-Русский рок. Фреш  2012  [MP3|192 kbps]<Rock>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_516460.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 516 283
-
-VA - Радио Чарт Energy - Жгучий Танцевальный Сборник 50 50  2012  [MP3|256 kbps]<Pop|Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001 Bad Boys Blue - I ll Be Good
-002 Группа Red Energy - Capital Nigt
-003 Mayari Project - Hayati
-004 Ольга Lucky - Последний Поцелуй  Руки Вверх 
-005 Itaka - La Danza De Ibiza  Zumpa Remix Radio Edit 
-006 Дискотека Авария и Нюша - Moscow Never Sleeps
-007 Demi Lovato - All Night Long  Feat. Missy Elliott & Timbaland 
-008 Тимур Темиров - Лето Жаркое
-009 Radio Killer - Is It Love Out There  Radio Edit 
-010 Vilana - Море    Читать дальше...    Жанр: Pop|DanceПродолжительность: 05:39:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5446CC9046D3254DD93AD633D2281AF0271A7B9F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 516 125
-
-VA - Новинки русского Рэпа. Музыкальный Каприз  2012  [MP3|192 кб с]<Rap, Hip-hop>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-Жанр: Rap, Hip-hopПродолжительность: 08:18:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4934CF6D8D181BB6AE1BF7937B5722EED27DF103
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_516125.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 516 122
-
-VA - Союз Клубный. Выпуск 8  2012  [MP3|256 kbps]<Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001 Горячий шоколад - Стены  Andry Makarov Club remix 
-002 Каролина - Летний дискобар  Версия 2012 
-003 Бурановские Бабушки - Party for Everybody  DJ Slon remix  
-004 Алина Гросу - Взрослая
-005 KSELA feat. DJ ALIX - Наше Лето  Summer Hit 
-006 Dj Tarantino & Katrin Moro - Я Буду Помнить  original mix 
-007 Artik & Asti - Облака  DFM mix 
-008 Dan Balan - Не любя
-009 AD Men s - Жара  extended mix 
-010 DJ Andrey Keyton feat. JWELL - Лететь  DJ Vitalik Vitamin remix     Читать дальше...    Жанр: ClubПродолжительность: 07:24:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:69B837E6F86D5FDF25ED5A178A242B53F55765D7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 516 114
-
-VA - Sexy Trance #40  2012  [MP3|320 кб с]<Uplifting Trance, Trance, Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Christian Drost & DK Project - Always Connected  Original Mix  [08:03]
- 02. Faruk Sabanci - As Faces Fade  Alexander Popov Remix  [06:50]
- 03. Heatbeat feat. Josie - Because Of You  Original Mix  [07:08]
- 04. Danilo Ercole feat. Marcie - Broken Wings  Original Mix  [08:06]
- 05. Fadios & Raneem - Chromium  Max Graham Remix  [06:47]
- 06. Dayzanst - Double Bind  Light On Remix  [07:09]
- 07. Claessen & Martens - El Dorado [07:54]
- 08. Cymatics - Empire Of The Sun  Original Mix  [06:23]
- 09. Ikerya Project - End Of Begining  Original Mix  [08:51]
- 10. John Askew - Fade To Black  Sean Tyas Remix  [07:33]    Читать дальше...    Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:39:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D5C2A9A751C7885DD8D5471D32D8A5F6CC40591D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_516114.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

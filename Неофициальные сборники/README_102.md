@@ -1,4 +1,103 @@
 ﻿
+###  Публикация: 1 218 824
+
+VA - Русский Рок. Лучшее 2018  2018  [MP3|320 Kbps] <Рок>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Ночные Снайперы - инстаграм
+02. Сергей «Чиж» Чиграков, Олег Асса - Не спится
+03. Александр Иванов - Боже, какой пустяк
+04. Vespercellos - Я остаюсь    Читать дальше...    Жанр: РокПродолжительность: 06:29:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:35875247D6017389F6A19946BC340BD588906CB6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218824.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 721
+
+VA - Ocean Of Love: New Generation Italo Disco  2018  [MP3|320 Kbps] <Italo Disco, Dance, Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. MindXpander - Synchronicity
+002. Estimado - Hidden Love  Album Version 
+003. Sakis Gouzonis - Everyday Protection
+004. Synthgo - Bella Bella  Extended Version     Читать дальше...    Жанр: Italo Disco, Dance, PopПродолжительность: 09:03:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A9213C902239E69F74B332372F003E6B2B2A162
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218721.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 717
+
+VA - Lounge Interior: Private Mood Set  2018  [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Rainer Schnelle - Beyond The Blue
+002. Tolubai - Close Your Eyes
+003. K37 - New Born  feat. Yellowbelly 
+004. Surfer - South Beach    Читать дальше...    Жанр: Lounge, Downtempo, ChilloutПродолжительность: 09:09:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E2B1CB4A67C88CE53E7986533D61FAC8F967F78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218717.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 627
+
+Terror Squad - Lean Back  2017  Remix [MP3|320 Kbps] <G-House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. Lean Back
+2. DJ SAVIN
+3. Up MusicЖанр: G-HouseПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06B237A7170F4D3EE03271AD1387BF2BBAD85A44
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218627.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 218 613
 
 VA - Vocal Jazz Collection  2018  [MP3|320 Kbps] <Jazz, Vocal Jazz>
@@ -1895,106 +1994,6 @@ VA - ЕвроХит Топ 40 Europa Plus 30.03.2018 [MP3|320 Kbps] <Pop, Dance>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216476.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 314
-
-VA - Baleric Soaring Inspiration  2018  [MP3|320 Kbps] <Progressive House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Shingo Nakamura - Memory Of The Sea  2011 Mix  7:35
-02. Talamanca - When The Sun Goes Down  Extended Mix  7:15
-03. Bleedin Neutron - Steel Pillars Of Dawn  Eyal Cohen Remix  8:12
-04. Vintage & Morelli - Aurora  Extended Mix  7:23    Читать дальше...    Жанр: Progressive HouseПродолжительность: 05:41:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:37D2816CC037DDF5B614C262013218E6E85ADE27
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216314.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 273
-
-VA - Deep House Collection Vol.162  2018  [MP3|320 Kbps] <Deep House, Club House, Tech House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. 7even  GR  - Have It All   RAFO Remix 
-002. Aeron Aether - Release the Kraken  Erdi Irmak Remix 
-003. Akio Imai & Claudio Giordano - Enigma  Original Mix 
-004. al l bo - Walls Of Tears  De Graal  Remix     Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:23:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:04FF7F93016197FB9A4EF00247927899D5632323
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216273.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 269
-
-VA - Deep House Collection Vol.163  2018  [MP3|320 Kbps] <Deep House, Club House, Tech House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. 7even  GR  - Mystery   Original Mix 
-002. Ada  -  Rostock   Original Mix 
-003. Adelina  - Bye Bye   Robert Cristian Remix 
-004. Ahmet Kilic - We Still Alive   Extended Mix     Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:55:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D379026971AEC06D38225FEBE4CC3F7F2369FE4C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216269.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 242
-
-VA - Deep House Collection Vol.161  2018  [MP3|287-320 Kbps] <Deep House, Club House, Tech House
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. 2fox feat. Nandi - Motion  Original Mix 
-002. 2fox feat. Nandi - Zulu Suite  Original Mix 
-003. A-Mase feat. Rave CHannel - Just Be   Original Mix 
-004. A. Rassevich - Hate Me Tonight  QRVZH Remix     Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:37:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3BCBA2E810E5F83E6CEA44CAE9E16B50E0D188D8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216242.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

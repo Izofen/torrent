@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 375 605
+
+Leigha Moore - Ain t Your Girl No More  2020  EP [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. See You Around [3:20]
+ 2. Ain t Your Girl No More [2:22]
+ 3. I Won t Stop You [2:53]
+ 4. Lightning Bolt [3:40]Жанр: PopПродолжительность: 00:12:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9BC601881E7B8BA9C9DBA2F5A4B5D2723EDA636B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375605.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 375 578
+
+SHLAKOBLOCHINA - FATALITY  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Новая сила киски  feat. FEARMUCH 
+2. Самолетная
+3. Х**вый карпарат
+4. Не тревожь папайю    Читать дальше...    Жанр: PopПродолжительность: 00:15:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DCE80673EB1C8367E2DE0C731FF5A20740D12199
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375578.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 375 577
+
+Винтаж - Навсегда  2020  Special Version [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Об альбоме  Intro 
+2. Удивительный мир  Intro 
+3. Удивительный мир
+4. Спичка  Intro     Читать дальше...    Жанр: PopПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F93B01F205E60B4148BDCBF0D64F595D8DF9EED2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375577.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 375 360
 
 Herb Alpert - Rise  1979  LP [MP3|320 Kbps] <Funk Soul, Jazz, Disco>
@@ -1911,81 +1986,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369155.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 144
-
-Турбомода - Затурбись!  2001  [MP3|320 Kbps] <Pop, Europop, Euro House>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Позови  4;15 
-02. Турболюбовь  ла-ла-ла   4:32 
-03. Ты забудешь меня  4:16 
-04. Чонкин  3:37     Читать дальше...    Жанр: Pop, Europop, Euro HouseПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F58AE2352B3D0D2F245258B10657ABCF0BCCC363
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369144.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 048
-
-Илья Снегов - Судьба  1996  [FLAC|Lossless|tracks + .cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Вспомни
-02. Поговорим о любви
-03. Судьба
-04. Устало сердце    Читать дальше...    Жанр: PopПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C3A93A1B9850D7584A0A9F7DEBC11009979ED04
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369048.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 046
-
-Наталья Ветлицкая - The Best  2003   [FLAC|Lossless|tracks + .cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Посмотри в глаза
-02. Плей-бой
-03. Магадан
-04. Но только не говори мне    Читать дальше...    Жанр: PopПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:120BC9C2FC4CDEDFC35C3AEAAF2580F1B161BCA3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369046.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

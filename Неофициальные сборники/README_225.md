@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 695 519
+
+VA - Дискотека О, Боже, Какая Тёлка!  2013  [MP3|128-256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001 MC Zali - О, Боже, какая телка
+002 Пьер Нарцисс feat. A-Sen - Samba
+003 Оля Полякова - Шлепки  DJ Kerim Muravey Remix 
+004 DJ Smash feat. Dani Lemann - Кабриолет
+005 Reflex - Лето На Окна  Remix 
+006 Татьяна Котова - ФиоЛЕТО  Ost1n Remix 
+007 A-Dessa - Папа рядом  DJ Fisun Remix 
+008 Серебро - Мало Тебя  V.Reznikov & Denis First feat. Portnov Club Remix 
+009 Винтаж - Знак Водолея  Kirill Clash Radio Remix 
+010 Dan Balan feat. Tany Vander & Brasco - Lendo Calendo  DJ Fisun Remix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 12:29:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45EA8D43E3BAD936C39D9136DE44A9073070676B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 695 509
+
+VA - С Шансоном За Рулем  2013  [MP3|112-128 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001 Паша Юдин - Дорожная ностальгическая
+002 Гриша Заречный - Шоферское сердце
+003 Катерина Голицына - Бомбила
+004 Владимир Семашков - Машина
+005 Андрей Морган - Таксист
+006 Константин Крымский - Черный Хаммер
+007 Владимир Черняков - Колея судьбы
+008 Жека - Такси большого города
+009 Павел Павлецов - Интернет
+010 Влад Ясень - В дороге    Читать дальше...    Жанр: ШансонПродолжительность: 12:19:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F9AB1FED9C2CF4A6DB13FA33BF672120CC56954
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 695 451
+
+VA - Acid Jazz Lounge  2011  [MP3|320 кб с]<Funky, Club House, Lounge>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Mr Humphrey  feat. Angela Fraser  - Having Some Fun  Club Lounge Mix 
+02. Funk Masterz - Give It To Me  Jazzy Mix 
+03. Tony Tia - Haarlem Unite  Haarlem Mix 
+04. Gordon Scott  feat. Tamara Wilkins  - Fools Gold  Original 
+05. Sonique - Cali Trippin  Pasedena Mix 
+06. King Flutes - Zeal  Club Mix 
+07. Albert T - Acid Jazz  Acid Jazz Mix 
+08. Kashius - 2 Basics  Lounge Mix 
+09. Daniel Favio - Bring It Home  Jazz Step Mix 
+10. DJ Lee - Heartbreaks  Sexy Sexy Mix     Читать дальше...    Жанр: Funky, Club House, LoungeПродолжительность: 02:17:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:93EBD64B7C6C830DF6A176F678EEB8945ADD794E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 695 424
+
+VA - Super Dance Party 27-28  2013  [MP3|320 кб с]<Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+CD1
+01. Lasgo - Feeling Alive  Radio Edit 
+02. Nuria Swan - I Want You  Extended Mix 
+03. Vio - One Girl  Stephan F Extended 
+04. Krewella - Alive  Radio Mix 
+05. Inna - Spre Mare  Radio Edit 
+06. Jason Creator & Staz feat. Renny McLean - Samba  NANO! 2013 Summer Remix 
+07. Marc Kiss - Love Is Taking Over  CC.K Remix 
+08. Imprezive Meets Pink Planet - Ordinary People  Hardcharger Vs. Aurora And Toxic Remix 
+09. Dj Project feat. Adela - Fara Tine    Читать дальше...    Жанр: DanceПродолжительность: 09:29:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBEBF7BD8B82F4ED96C3CBF335BE5C9B654E8AE7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 695 415
 
 VA - Осенний Need For Speed  2013  [MP3|256 кб с]<Dance, Club>
@@ -2315,130 +2439,6 @@ VA - Summer Dance Party Vol.2  2013  [MP3|320 кб с]<Dance, Pop>
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:D8E274F55FD1ABB91E1418CF4116F2EAF21B5B24
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 689 434
-
-VA - Максимальный размер удовольствий от Авторадио  2013  [MP3|128 кб с]<Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001 Григорий Лепс и Ани Лорак - Зеркала
-002 Точка G feat. Леся - Улетаем
-003 Монако Project - Снова Одна
-004 Tisha - Адреналин
-005 Дима Билан - Улыбка Ангела
-006 Катя Нова - Волк-Одиночка
-007 Lola - Лучший Из Мужчин
-008 Рома Жуков - Цветы На Асфальте
-009 Ани Лорак - Забирай
-010 Nebesno - Небо На Двоих    Читать дальше...    Жанр: PopПродолжительность: 11:46:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:43911BFA3A879D3A1425517B6132326DA88EDE7F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 689 396
-
-VA - Созвездие хитов Европы Плюс Часть 2 200 хитов  2013  [MP3|128 кб с]<Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001 Дио.Фильмы - Наоборот
-002 Loveable Rogues - What A Night
-003 Сергей Ашихмин и Юлийа Погожева - Армагедон
-004 Miley Cyrus - We Cant Stop
-005 Джулийа - Вселенная
-006 Baby & Me - Here Comes a Hotstepper
-007 АнгелиЯ - Неразлучные
-008 Fergie feat. Q-Tip & GoonRock - A Little Party Never Kil
-009 Саша Ветер феат. Флаш-Моб & Татьяна Сандуленко - Не З
-010 Lana Del Rey - Summertime Sadness  Cedric Gervais Radio    Читать дальше...    Жанр: PopПродолжительность: 11:41:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:527E49060C3EF8560C9BF84CEC22CC5D51C8698B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 689 388
-
-VA - Летний Рашн Дэнс  2013  [MP3|256-320 кб с]<Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Винтаж Feat. Dj Грув - Kill My Business
-02. DJ Sandro Escobar & MC Романов - Голое Лето  Radio Edit 
-03. Monroe - Оркестр
-04. 30.02 - Звезды В Лужах
-05. Dj Sandro Escobar & Mc Romanov - Голое Лето  Radio Edit 
-06. Dj Kerim Muravey & Арсен Петросов - Кайфуем!  Official Radio Mix 
-07. 23-45 - Тайна
-08. Belka - Ключицы  Lounge Version 
-09. Zabava Life - Город Танцует  Ural Djs Remix 
-10. Ева Польна - Весь Мир На Ладони Моей  Latte & Hitretz Remix     Читать дальше...    Жанр: DanceПродолжительность: 05:01:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6D78317AB2C72FAF29ECDA43DD4CB751FFA0026
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 689 382
-
-VA - German TOP100 Single Charts  19.08.2013   2013  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Avicii - Wake Me Up
-002. Naughty Boy feat. Sam Smith - La La La
-003. Robin Thicke - Blurred Lines
-004. Casper - Im Ascheregen
-005. Onerepublic - Counting Stars
-006. Cro - Whatever
-007. John Newman - Love Me Again
-008. Bastille - Pompeii
-009. Daft Punk Feat. Pharrell Williams - Get Lucky
-010. Ellie Goulding - Burn    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:10:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D9C1364C2DDED6BBB8AF54738596A609C932808
 ```
 
 <div id="header" align="center">

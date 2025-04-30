@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 229 300
+
+VA - German Top 50 Party Schlager Charts 04.06.2018  2018  [MP3|320 Kbps] <Pop, Schlager>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Anna-Maria Zimmermann - Scheiß egal
+02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
+03. Andreas Gabalier - Verdammt lang her
+04. Helene Fischer - Nur mit Dir    Читать дальше...    Жанр: Pop, SchlagerПродолжительность: 03:01:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04BD6F9F7198E4A8D3D688232F72167BA75A3C28
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229300.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 229 299
+
+VA - Relax & Massage  2018  [MP3|256-320 Kbps] <Relax, Massage, New Age>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. The Wise Man, Traditional Song, The World Of Yoga - Om Asa Toma  Original Mix 
+02. Gomer Edwin Evans - Inner Beauty With ZEN
+03. Thors - Peaceful Island
+04. Marcus Viana - O Hoje e a Eternidade    Читать дальше...    Жанр: Relax, Massage, New AgeПродолжительность: 08:54:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:77437FC715D550B0ADDB83DAC20C1C814130BDDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229299.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 229 284
+
+VA - Top 50 Production  2018  [MP3|320 Kbps] <Tech House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Andrew Meller - Born Slippy  Reincarnation Mix 
+02. Dennis Cruz, Martina Camargo - El Sueño
+03. Pax - Electric Feel  Extended Mix 
+04. Flashmob - The Lone Brazilian  Original Mix     Читать дальше...    Жанр: Tech HouseПродолжительность: 05:28:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:24896EAF80B7FC6341EBC3F6EE91A1D73C6F533F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229284.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 229 282
+
+VA - The World Of Trance  2018  [MP3|320 Kbps] <Trance, Electro, Club>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Timmy D & DJ Bullskull - Digital Presence  Original Mix 
+002. Tribal Temptation - The Lines Of Infinity  Original Mix 
+003. Above & Beyond feat. Justine Suissa - Cold Feet
+004. DJ Schillings - I Remember The 90s  Original Mix     Читать дальше...    Жанр: Trance, Electro, ClubПродолжительность: 11:17:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F77E513E96681341E51BBF03516BCD8490E80425
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229282.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 229 281
 
 VA - Lounge Flow: Modern Chillout Selection  2018  [MP3|320 Kbps] <Chillout, Lounge, Downtempo,
@@ -1899,106 +1999,6 @@ Hits of My Soul - сборник электронной и инструмент�
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226500.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 499
-
-VA - Blue Note Jazz Martini Bar  2018  [MP3|320 Kbps] <Jazz, Blues, Soul>
-Неофициальные сборники
-Jazz, Blues, Soul (сборники)
-
-###  Подробнее
-
-001. Derek Ryan Edwards - Night Sky
-002. Rosa Passos & Ron Carter - Insensatez
-003. The Rippingtons - Wild Tales
-004. Renata Ghiso - I m a Stranger Here Myself    Читать дальше...    Жанр: Jazz, Blues, SoulПродолжительность: 07:17:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B447B0FA1B138D1357BC71B2F8A2051C6941947
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226499.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 486
-
-VA - 100 Хитов Русского Рока  2018  [MP3|256-320 Kbps] <Рок>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Сплин - Волк
-02. Ночные Снайперы - Инстаграм
-03. ЧайФ - Аргентина-Ямайка - 5:0
-04. Сплин - Выхода нет    Читать дальше...    Жанр: РокПродолжительность: 06:26:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D19B1694FD315D6F07A103BB5AA4C9946517AEA4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226486.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 475
-
-VA - Club Dance Ambience Vol.147  2018  [MP3|320 Kbps] <Dance, Club House, Electro House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. Adriana Johnson - Deep In The Night  Club Mix 
-002. AL-B & Kam Delight - Free  feat. Kam Delight   Original Mix 
-003. Aldi Be Cool - All I Want   Extended Mix 
-004. Aldi Be Cool - All I Want   Radio Mix     Читать дальше...    Жанр: Dance, Club House, Electro HouseПродолжительность: 07:27:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C7D866C2ACE02E587E7CAB4E733B853799E39B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226475.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 469
-
-VA - Club Dance Ambience Vol.148  2018  [MP3|320 Kbps] <Dance, Club House, Electro House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. #2Маши - Красное Белое  Rakurs & Ramirez Radio Edit 
-002. Addal vs. Mida feat. KiFi - 405  Ramirez & Mike Prado Radio Edit 
-003. Afterman - Runnin   Sunshine Mix 
-004. Alok, Bhaskar, Jetlag Music - Bella Ciao  Extended Mix     Читать дальше...    Жанр: Dance, Club House, Electro HouseПродолжительность: 07:12:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:736FC9A96C6C318908550D5916D0198D4CAC5FCE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226469.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

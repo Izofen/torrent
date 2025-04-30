@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 212 697
+
+VA - #Dance 2018: Club & Dance News Vol.4  2018  [MP3|320 Kbps] <Dance, Pop, House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Jason Derulo – Tip Toe  feat. French Montana   03:07 
+02. Martin Garrix & David Guetta – So Far Away  Bad Decisions Remix   04:06 
+03. Lea – Leiser  03:26 
+04. Nico Santos – Rooftop  03:14     Читать дальше...    Жанр: Dance, Pop, HouseПродолжительность: 02:30:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99DBF8D4170D190D939BC1B275B9EB4799AAA0F0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212697.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 212 682
+
+VA - 90s Dance Hits Vol.1  2018  [MP3|320 Kbps] <Eurodance, Euro House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01.  Haddaway  -  What Is Love  7  Mix   4:30
+02.  Technotronic  -  Pump Up The Jam  Radio Edit   3:37
+03.  Gigi D Agostino  -  La Passion  New Radio Cut   3:02
+04.  Eiffel 65  -  Blue  Da Ba Dee   DJ Ponte Ice Pop Radio   4:44    Читать дальше...    Жанр: Eurodance, Euro HouseПродолжительность: 02:33:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7691CC16A6F504F67C13EB79F3C5B6DBA6DB0635
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212682.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 212 633
+
+New Paradise - 6 Albums  1977-1983  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Французский студийный диско-проект, созданный Leo Carrier. Изначальное название было просто  Paradise , со вторым альбомом появились как  Paradise Birds  и лишь с третьим альбомом стали неизменно выходить как  New Paradise . В составе присутствовали три вокалистки. Проект незаслуженно прошел мимо многих стран.Список альбомов:
+1977 - Back To America  Paradise 
+1978 - I Am A Song  Paradise  Paradise Birds 
+1979 - New Paradise  1     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 03:23:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06A1244F6336326CD95B5BFAB962633C80226BF6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212633.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 212 629
 
 Judit Neddermann - Nua  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1919,80 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207802.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 207 695
-
-На-На - По накатанной  2018  EP [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Тук-тук
-2. По накатанной
-3. 10 днейЖанр: PopПродолжительность: 00:10:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F3A6E9AA3A7AA892F875F0410E14E61C8674850
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207695.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 207 602
-
-Eros Ramazzotti - Duets  2017  Compilation [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Eros Ramazzotti feat. Tina Turner - Cose Della Vita  Can t Stop Thinking Of You  4:50
-02. Eros Ramazzotti feat. Nicole Scherzinger - Fino All estasi 3:46
-03. Eros Ramazzotti feat. Giorgia - Inevitabile 3:56
-04. Eros Ramazzotti feat. Anastacia - I Belong To You  Il Ritmo Della Passione  4:26    Читать дальше...    Жанр: PopПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B3237C933BC43E6328A7E7ECFE07673E60CC813
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207602.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 207 545
-
-Руслана - Дикі Танці  2003  [FLAC|Lossless|image + .cue]<Pop, Folk>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Ой заграй ми, музиченьку
-02. Знаю я
-03. Плєс
-04. Аркан    Читать дальше...    Жанр: Pop, FolkПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:78C588391433016AE89F9EBDBF787F9B9D26C156
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207545.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

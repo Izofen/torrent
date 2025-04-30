@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 678 961
+
+VA - Hit Lights  79  1978  LP [MP3|320 Kbps] <Pop Rock, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Exile - Kiss You All Over  3:19 
+02. Smokie - Mexican Girl  3:32 
+03. Boney M. - Painter Man  3:07 
+04. Barry Manilow - Copacabana  At The Copa   4:05     Читать дальше...    Жанр: Pop Rock, DiscoПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:783D57E52F22271097228E96695F0A1C8FF7B93C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678961.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 678 905
+
+Romantic Avenue - Through the Years  2023  [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Slaves of Love  feat. Quino 
+02. Don t Gamble with My Heart
+03. Only Love  feat. Bee Lee & AlimkhanOV A 
+04. Drama  feat. Quino     Читать дальше...    Жанр: Euro-DiscoПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7FAB66B6DD1CBB63B390AB3C571BC3953520C898
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678905.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 678 647
+
+VA - Disco Fantasy  79  1979  2LP [MP3|320 Kbps] <Funk   Soul, Pop, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Gala Gypsy Orchestra - The Stranger  3:44 
+02. Fantastic Sounds Orchestra - Macho  A Real, Real, One   4:00 
+03. Fantastic Sounds Orchestra - Fantasy  4:06 
+04. Hollywood - Don t Treat Me Like Your Sister  3:38     Читать дальше...    Жанр: Funk   Soul, Pop, DiscoПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:51E90CEB345060B46EB406F29894629B4C77BE27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678647.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 678 442
 
 VA - Hustle Hits  1975  LP [MP3|320 Kbps] <Funk Soul, Disco>
@@ -1911,79 +1986,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1671610.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 671 004
-
-David A. Stewart Featuring Candy Dulfer - Lily Was Here  1989  [OGG Vorbis|480 Kbps] <Electronic
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. David A. Stewart feat. Candy Dulfer - Lily Was Here
-02. David A. Stewart feat. Candy Dulfer - Lily Was Here  Space Centre Medical Unit Hum 
-03. David A. Stewart feat. Candy Dulfer - Lily Robs The BankЖанр: Electronic, JazzПродолжительность: 00:15:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:66C0E19543B78F471427F70F663B70438E92D6E5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1671004.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 670 975
-
-VA - Bravo Hits 8  1994  2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Mo-Do - Eins, Zwei, Polizei
-02. The B.C. 52 s - The Flintstones
-03. Masterboy - Feel The Heat Of The Night
-04. Fun Factory - Take Your Chance    Читать дальше...    Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:32:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0545688C1C68C455B929E8A93E02416A7AFDBB64
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670975.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 670 627
-
-Gina T. - Tokyo By Night  1990  [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Gina T. - Tokyo By Night  The Geisha Groove Mix 
-02. Gina T. - Tokyo By Night  Instrumental Version 
-03. Gina T. - Tokyo By Night  Single Edit Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 00:13:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:56D79AE694152165B0765349271EDEEC70C29561
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670627.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 938 172
+
+VA - Good Chilling Good Feeling  2015  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Elements - Down Tune
+02. I Get Misty - Coolcomotion & Newton
+03. All Forever One  Feat. Barbara Rebecca Boahene  - Mathieu & Florzinho
+04. Sunny Kiss - Artur Bayramgalin    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3CC305E0B4F95C68DA586552DE970E6A8428B2FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_938172.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 938 161
+
+VA - People Disco: Wet n Wild  2015  [MP3|320 кб с]<Nu Disco, Dance, Club>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Andrea Arcangeli - Funkelectric  Funk Mix 
+002. Branzei - The Beat  Original Mix 
+003. Croatia Squad - Milking  Original Mix 
+004. Whitney Houston - How Will I Know  Oliver Nelson Remix     Читать дальше...    Жанр: Nu Disco, Dance, ClubПродолжительность: 09:57:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:899D26AD452CC8FA113B7799ADB01F07C0951A31
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_938161.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 938 011
+
+VA - Топовая 100-ка Mix Осенний  2015  [MP3|256-320 кб с]<Pоp, Dance>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. MONATIK и Анна Седокова - Тише
+02. Mband - Она Вернется
+03. Ost Up  Остап  - Ты Мое Все  MriD & Tony Kart Remix 
+04. Embody Feat. Ame - Give Me Your Love    Читать дальше...    Жанр: Pоp, DanceПродолжительность: 06:08:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0AA8367CE8356C63D601A4EE49EF6083996908D1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_938011.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 937 983
+
+VA - Cocktail Jazz  Relaxing After a Hard Day Sipping a Drink and Chilling with Some Night Time Ja
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Strip Tease Organ - da Sam Paglia
+02. Not the Same - da Italian Secret Service
+03. Streighten Up and Fly Right - da Fred Buccini
+04. Sofisticata  Nicola Conte s Soft Samba Mix  - da Montefiori Cocktail    Читать дальше...    Жанр: Jazz, Bossa, Lounge PopПродолжительность: 02:12:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A76395FA2D69913CC3EA9549B37D2DDA13545FF1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_937983.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 937 892
 
 VA - Pacific Sound  2015  [MP3|320 кб с]<Psy Trance>
@@ -1895,103 +1995,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932837.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 932 679
-
-Red Dog: Superior Firepower  2000-2015  [MP3|320 кб с]<Score>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Рип музыки сделан на основе оригинального диска DreamcastЖанр: ScoreПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B558EA28BFE2F9FB99C1E2EE324025B23338983F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932679.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 932 638
-
-VA - Pop Dance Maniac  2015  [MP3|320 кб с]<Vocal, Dance, Club, Euro>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Hot Asians - Hangover 03:27
-02. Old Beans - Scream & Shout 04:44
-03. White Standstill - Whistle 03:44
-04. Angie Benitez - Call Me Maybe 03:07    Читать дальше...    Жанр: Vocal, Dance, Club, EuroПродолжительность: 01:48:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:782E4631DE0276920FEA311DB334DAD4127DE6C3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932638.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 932 597
-
-VA - White Double Vocal Bass  2015  [MP3|320 кб с]<Drumm and Bass, Dubstep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Danny Byrd - Golden Ticket  Feat. Tanya Lacey 
-002. Sanz - Ghatam
-003. Calm Groove - Future Time
-004. Madd Inc - EverydayЖанр: Drumm and Bass, DubstepПродолжительность: 08:43:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2C12C50E00402560A6558AF0E16E9C6D6B09E97A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932597.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 932 583
-
-VA - LSD: Love, Sex & Diamonds  2015  [MP3|320 кб с]<House, Tech House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Las Vegas Boys - Living in a Fantasy  3:42 
-02. Plus 11 - Island Women - Ibiza Beach Mix  3:24 
-03. Teknologic - Totem Moment  3:40 
-04. Rhythm O  Tronik - Beautiful Brown - Vanguard Remix  3:21     Читать дальше...    Жанр: House, Tech HouseПродолжительность: 01:35:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B1E94E7CC65CA54E21BCA31269A90312B5DC39E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932583.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

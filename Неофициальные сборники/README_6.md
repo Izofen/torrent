@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 738 229
+
+VA - part 100 velvet saxophone compilation (2024) [MP3|320 Kbps] <Easy Listening, Saxophone>
+Неофициальные сборники
+Instrumental/New Age/Meditative/Relax (сборники)
+
+###  Подробнее
+
+001. Fausto Danieli (F.Papetti) Et Son Orchestre - Adieu, Jolie Candy
+002. Sil Austin - Danny Boy
+003. Le Valedon - Don't Let Me Be Lonely
+004. George Saxon - A Woman in Love(   Читать дальше...   )Жанр: Easy Listening, SaxophoneПродолжительность: 05:03:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBD9CAC9A53E9B09752F33E7870DF9341AE6F7E3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738229.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 737 787
+
+VA - Compilation part 99 Electronic (2024) [MP3|320 Kbps] <Electronic>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Azimov - Believe
+02. Davit Barqaia - Broken Heart
+03. Hamidshax - My Heart Hurts
+04. Davit Barqaia - My Hope(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:27:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:46286BCF249A7BE55DCF9CF196C63F044EDD8B91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737787.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 737 759
+
+VA - Music News For Forum vol.002 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Sofi Tukker - Hey Homie (03:10)
+ 002. AASTRO - Теперь Внутри (02:09)
+ 003. Adelina - Непонятно (02:54)
+ 004. ADUSHKINA - Воскресенье (02:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:25:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CC4045F6033AB5437CDB29F2964BE379CA1DE0D1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737759.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 737 751
+
+VA - Compilation part 98 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Euromartina - Ocarina Song
+02. Mode-One - Lady of the Night
+03. Euromartina - Midnight Riders
+04. Talking Blue - Back to Life(   Читать дальше...   )Жанр: Dance, EurodiscoПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0F1B9CDFAC5997F62C7BA01A36DD00B4D891FD79
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737751.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 737 750
 
 VA - Hare Krishna Каждый день - Твой день! (2024) [MP3|320 Kbps] <New Age, Mantra, Meditative>
@@ -1891,106 +1991,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1725663.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 725 586
-
-VA - РАДИО БАТЯ - 010 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Александр Барыкин - Ты так мила (03:30)
-02. Damaji & OBMANI - Чистосердечное (02:06)
-03. LOBODA - Случайная (03:54)
-04. Иванушки International - Колечко (03:52)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:26:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:32EC1920368DD1CD9AF4B5A911891A7EE5A09407
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1725586.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 725 566
-
-VA - РАДИО БАТЯ - 009 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Вадим Казаченко - Сезон любви (04:03)
- 02. Премьер-Министр - Искорки (03:24)
- 03. Rasster - Come Back Home (02:26)
- 04. Bad Boys Blue - The Woman I Love (03:38)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:35:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AD34CD56A45087C87DDBAA4F4A90B24B07DB85C4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1725566.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 725 524
-
-VA - Instrumental 79 Compilation (2024) [MP3|320 Kbps] <Instrumental, Sax>
-Неофициальные сборники
-Instrumental/New Age/Meditative/Relax (сборники)
-
-###  Подробнее
-
-01. Felicitysaxophonist - All I Want for Christmas is You
-02. Ladynsax - Chi Mai
-03. Felicitysaxophonist - Lose Control
-04. Ladynsax - Careless Whisper(   Читать дальше...   )Жанр: Instrumental, SaxПродолжительность: 01:41:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A79E4AB280B6351085E2172E2F47315275064035
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1725524.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 725 518
-
-VA - РАДИО БАТЯ - 008 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская Эстрада>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Blue System - Gangster Love (04:29)
- 02. Future Beat feat. Ian Carma - Faith The Night (03:52)
- 03. Coma feat. LTG - Reqiuem (Of a Junkies Dream) (03:46)
- 04. Григорий Лепс - Моя цыганская (05:55)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:36:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06690CC28884E0DB7C1FF077AEB1C62F79CFF777
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1725518.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

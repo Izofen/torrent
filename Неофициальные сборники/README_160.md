@@ -1,4 +1,101 @@
 ﻿
+###  Публикация: 1 029 722
+
+VA - Nude Mix #4  2016  [MP3|320 Kbps] <Drum & Bass, Dubstep>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Insomna - Memories  4:28 
+02. Sonicblast - Perfect Match  4:47 
+03. Voicians - Survival League  4:42 
+04. Echos - Tomorrow  3:21     Читать дальше...    Жанр: Drum & Bass, DubstepПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0934B339F826E98CA2FC1C9204CCAC551573D38B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1029722.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 029 707
+
+Enigma - The Collection  2016  2 CD [MP3|320 Kbps] <New age, Enigmatic>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Angles Weep
+02. Just For the Day
+03. Dream On
+04. Snowin  Under My Skin    Читать дальше...    Жанр: New age, EnigmaticПродолжительность: 02:56:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:12605FD8317E11182B3E2654C12CD01527F5B524
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1029707.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 029 689
+
+VA - Club Dance Ambience vol.75  2016  [MP3|320 Kbps] <House, Electro House, Club>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Daniel Moss & Gandalf Bosch Feat. Francy -  Mi Alma  Instrumental Edit  3:17
+002. KSHMR & Felix Snow feat. Madi -  Touch  Runway Remix  4:56
+003. Hardwell feat. W&W -  Jumper  Madd Dave Bootleg  4:53
+004. Robin Schulz feat. Akon -  Heatwave  Muzzaik Remix  4:17    Читать дальше...    Жанр: House, Electro House, ClubПродолжительность: 07:43:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:511301DAC97601D4003016B1BE0F9AA95330C9A5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1029689.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 029 687
+
+DJ Nurlanus - Summer Dance Mix 5  2016  [MP3|320 Kbps] <House, Dance Pop>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+СборникЖанр: House, Dance PopПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B058F1D4B5B34E4829C0C5548AF403127C650D71
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1029687.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 029 686
 
 VA - 150 Underground Hits Check Story  2016  [MP3|237-320 Kbps] <Funky, Club, Soulful>
@@ -1890,106 +1987,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1027428.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 027 416
-
-VA - Chill House Diamonds Vol 4  2016  [MP3|320 кб с] <House, Future Jazz, Downtempo>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Cool Vibe Orchestra - In the Choose  Night Voice Mix  [04:02]
- 02. Diego Dee - Sweet on My Suite  Dee Dee Mix  [03:46]
- 03. Fresh Fusion - Gentre Free  Original Mix  [03:40]
- 04. Electric Fantasy - Farfiza  Onda Nueva Chill Mix  [03:56]    Читать дальше...    Жанр: House, Future Jazz, DowntempoПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6BD60DBF136A9E6ED1D0DE9B86311F92A90249F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1027416.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 027 407
-
-VA - Guitar Collection 5  2016  [MP3|320 кб с] <Instrumental, Acoustic, Blues-Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Mick Abrahams - Dragonfly    03:18
-002. Morcheeba - Public Displays Of Affection    03:08
-003. Neal Schon - El Matador    03:51
-004. Mark Knopfler & Evelyn Glennie - Altamira    02:59    Читать дальше...    Жанр: Instrumental, Acoustic, Blues-RockПродолжительность: 07:58:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0F40BFA95CC9D194F46037F519E54B5B7FC2B794
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1027407.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 027 243
-
-VA - I Love Ballads - Part VIII  2016  [MP3|256 кб с] <Rock, Pop, Chanson>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Enrique Iglesias - Mmacita
-02. Christina Milan - When You Look At Me
-03. Chris De Burgh - Snow Is Falling
-04. Celine Dion - I m Alive    Читать дальше...    Жанр: Rock, Pop, ChansonПродолжительность: 01:52:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:01118101F2A1C37CF4E497CC37F1281FC34B2FE5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1027243.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 027 234
-
-VA - New Age: Deep Sleep Lullabies  2016  [MP3|320 кб с] <Downtempo, Chillout, Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Lucinda Luvaas - Drifting Off to Sleep
-02. Ryan Rapsys - Inland Serenity
-03. Suzanne Schnite - Adrift
-04. Piotr Janeczek - Lost Souls    Читать дальше...    Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:03:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B60B4EEAF442FAA05C6FBC0D05BAD55663ED2AB6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1027234.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

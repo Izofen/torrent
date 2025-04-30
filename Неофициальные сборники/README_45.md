@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 456 339
+
+VA - Beatport Clubbing Techno: Electro Sound Pack #260  2021  [MP3|320 Kbps] <Club Techno, Tech
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Хотите иметь в своём распоряжении сборник самых популярных хитов электронной сцены и не тратить время на поиски нужных композиций в сети Интернет? Предлагаем Вам скачать мега-сборник, состоящий из 120 хитов со всего мира, некоторые из которых уже не новые, но до сих пор звучат на различных радиостанциях и не перестают обсуждаться слушателями.001. Meither - Losy
+002. Subclass 801 - Eclectus
+003. Guillaume Leerdam - Conjunction
+004. Sev Dah - Daimonic    Читать дальше...    Жанр: Club Techno, Tech HouseПродолжительность: 12:48:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A2E00D5F6BA17B3FF2F5B059673589697FE09C6A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1456339.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 456 318
+
+VA - Let s Dance  2021  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. GotSome, Alex Mills - Shout It Back  3:23 
+02. Habbo Foxx - For You  3:44 
+03. Purple Disco Machine, Moss Kena, The Knocks - Fireworks  3:19 
+04. Elliot Fitch - The One  3:37     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 05:37:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C60CF1935882754BB2C96D1DF7B39D020DBBD1D2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1456318.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 456 131
+
+VA - Big Room Dance  2021  [MP3|320 Kbps] <House, Dance, Big Room>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Bassjackers, Wolfpack, Richie Loop - Old Money  2:26 
+02. Maddix, SaberZ - Follow Me  3:06 
+03. Showtek, sonofsteve - Show Some Love  Showtek Festival Edit   3:42 
+04. David Guetta, MORTEN - Kill Me Slow  3:28     Читать дальше...    Жанр: House, Dance, Big RoomПродолжительность: 02:29:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E53951014B7D6AFD0CAA68817D8A09FC26CA2D1A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1456131.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 456 079
+
+VA - Baker Street - 100 Classics from the 70 s  2021  [MP3|320 Kbps] <Rock, Pop>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Gerry Rafferty - Baker Street [00:06:10]
+002. Chicago - If You Leave Me Now [00:03:55]
+003. Frankie Valli & The Four Seasons - December, 1963  Oh What a Night!  [00:03:21]
+004. Kate Bush - Wuthering Heights [00:03:25]    Читать дальше...    Жанр: Rock, PopПродолжительность: 06:19:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CA13F4CF92B09BB7FBF5E1052E7241C856431178
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1456079.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 456 061
 
 VA - German Top 100 Single Charts 19.03.2021 [MP3|320 Kbps] <Pop>
@@ -1891,106 +1991,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1451526.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 451 525
-
-VA - Melodic Synthpop Release  2021  [MP3|320 Kbps] <Synthpop, Electropop, Pop Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Это музыкальное направление, ежегодно дарящее миру новых звезд, без которых невозможно представить себе современную эстраду. Особенность этой музыки это эксперимент и отсутствие строгих рамок и шаблонов. Порой это чувственные и трепетные композиции, порой ритмичные и танцевальные.001. Golin - Play Odds
-002. Elektrotechnika - Olivia
-003. Mondtraeume - Free
-004. Stephen Paul Taylor - Gdmf    Читать дальше...    Жанр: Synthpop, Electropop, Pop DanceПродолжительность: 11:16:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0A6CD5BE6D5C182A23BF96BAB04FE4E9D0C675B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1451525.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 451 524
-
-VA - House Garden Music: Deep Session  2021  [MP3|320 Kbps] <Deep House, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Лучшее средство от депрессии и подавленного настроения - музыка сборника от House Garden Music! Композиции могут похвастаться великолепной атмосферой позитива и тонким чувством стиля. Альбом буквально полностью пропитан легкими нотками романтики и танцевального духа. Хорошая работа во всех смыслах. Приятного прослушивания!01. Jt Donaldson - Untied
-02. Sharam - Do Ya
-03. Gerah - Iris  Original Mix 
-04. Wolf Story - Peak    Читать дальше...    Жанр: Deep House, ElectroПродолжительность: 08:08:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F228C322313BDE296D87988BDE16AF951A07754B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1451524.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 451 523
-
-VA - EDM Neon Hypnotic  2021  [MP3|320 Kbps] <EDM, House, Techno, Electro, Club>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Неоновые люди, неоновые предметы, неоновые танцы. Флуоресцирующие лица, летающие неоны всех цветов радуги, полумрак и манящий клубный саунд! А главное, стойкое ощущение чего-то совершенно инопланетного, загадочного и фантастического.001. Alex Dolby - White River
-002. Al Mar - Eleven Seconds
-003. Space Afrika - Untitled
-004. Ed Bronx - Dark Matter    Читать дальше...    Жанр: EDM, House, Techno, Electro, ClubПродолжительность: 11:41:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:356B5799DC88079996B71484EBCD56E9847D5C6E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1451523.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 451 522
-
-VA - Beatport Electro House: Sound Pack #250  2021  [MP3|320 Kbps] <Electro House, Club>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-250-й релиз от Beatport является ярким образцом современной электронно-танцевальной музыки. Зарубежные треки в стилях Electro House порадуют всех любителей танцевать или просто слушать музыку в данном формате. Треки сборника не только подарят Вам хорошее настроение, но и позволят быть в курсе последних горячих музыкальных новинок. Раз Вы заинтересовались лонгплеем     Читать дальше...    001. Shadow Child - Mars
-002. Einmusik - Geyser
-003. Worakls Ft Eivor - Red Dressed
-004. Joe Stone - Feeling Dynamite    Читать дальше...    Жанр: Electro House, ClubПродолжительность: 10:37:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E0CECAE3E2427327B0ECD277BA68FEF310590B46
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1451522.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

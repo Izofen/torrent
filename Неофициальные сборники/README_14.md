@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 641 232
+
+VA - Energetic Workout  2023  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Martin Solveig - Hello  4:42 
+02. Avicii - Wake Me Up  4:32 
+03. Rihanna - Don t Stop The Music  4:27 
+04. The Weeknd - Blinding Lights  4:21     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:46:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2309CB56C04FE8A976E8FF63E2C9DEFF18F5146E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1641232.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 641 167
+
+VA - Nothing But... Ibiza Summer Trance (Extended Versions) (2023) [MP3|320 Kbps] <Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Hide & Seek vs Jan Johnston - Because Of You (Extended Mix) [7:04]
+02. Fredd Moz & Hidden Tigress - Let The Rain Fall Down (Extended Mix) [6:16]
+03. Alexander Turok & Sharon Valerona - Play It All Night Long (Extended Mix) [5:06]
+04. Frainbreeze - Thunder (Extended Mix) [4:02](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A1BCB133B7164FB4D16151D033E25BDF9C97F6AA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1641167.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 641 020
+
+MyTones - Ultimate Queen Tones (2023) [MP3|320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Under Pressure (Tribute in the Style of Queen) [00:29]
+02. Crazy Little Thing Called Love (Tribute in the Style of Queen) [00:29]
+03. We Will Rock You (Tribute in the Style of Queen) [00:29]
+04. Somebody to Love (Tribute in the Style of Queen) [00:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:05:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29C0E05E5C197550E5FB5E74708921E8DBD6D787
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1641020.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 640 998
+
+VA - Music News vol.271 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Aitana - Las Babys (02:34)
+ 002. Aden Foyer - Sunshine Prescription (02:41)
+ 003. Airat - Ты Же Знала (02:26)
+ 004. 52Ghz - Девочки Забыли (02:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:39:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:75D224965898B10941E9AE8A5E7689A7833D2111
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1640998.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 640 806
 
 VA - Music News vol.270 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -1892,106 +1992,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1632971.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 632 938
-
-VA - 90s Eurodance: XXL Super Sounds 90s  2020  Unofficial [MP3|320 Kbps] <Eurodance, Techno, Ho
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Mach 7 - Real Love  Extended   5:42 
-02. Sound Of R.E.L.S. - !Love Is The Powa!  The Powa Mix   5:22 
-03. O-Zone - Engel 07  Extended Version   5:59 
-04. God s Groove - Back To Nature  Element Mix   6:10     Читать дальше...    Жанр: Eurodance, Techno, HouseПродолжительность: 76:21:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DD9D2389DDB0A3839944CB2596D04C0200EB0D60
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1632938.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 632 924
-
-VA - Music News vol.263 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Ciara feat. Lay Bankz - Da Girls (Dance Mix) (02:26)
- 002. A R I Z O N A - Dancing With The Dead (03:03)
- 003. A R I Z O N A - Out Of My Hands (04:02)
- 004. A R I Z O N A - Wanderer (03:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:55:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D617C5C0EAA3EBB7A029E87D23ADE2333FFA2601
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1632924.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 632 541
-
-VA - 90's Indie (2023) [MP3|320 Kbps] <Alternative, Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-01. Blur - Coffee and TV (Radio Edit)
-02. Red Hot Chili Peppers - Under the Bridge
-03. Coldplay - High Speed
-04. New Order - Regret(   Читать дальше...   )Жанр: Alternative, Indie, RockПродолжительность: 02:44:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:47EC0431DC1ED2B9A3EADB07338258E16786AE30
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1632541.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 632 425
-
-VA - For Those About to Rock (2023) [MP3|320 Kbps] <Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-01. Led Zeppelin - Black Dog (Remaster) [04:55]
-02. Megadeth - Symphony Of Destruction [04:07]
-03. Slayer - South Of Heaven [04:59]
-04. Black Sabbath - Paranoid (2012 - Remaster) [02:48](   Читать дальше...   )Жанр: RockПродолжительность: 06:20:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9141A16FEEB275A075334C97608E1733070A79DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1632425.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

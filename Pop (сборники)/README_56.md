@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 311 491
+
+Budka Suflera - Mokre Oczy  2002?  [FLAC|Lossless|image + .cue] <Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Kiedy rozum spi  5:13 
+02. Mokre oczy  4:42 
+03. Szaro - Szary film  4:29 
+04. No i gra  3:49     Читать дальше...    Жанр: Pop RockПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AEA0EDE21E672782CB387CDB1842BD23DAF2C0DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311491.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 311 446
+
+Q - Dancin  Man  1977  LP [MP3|320 Kbps] <Pop, Disco, Funk Soul>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Dancin  Man  2:41 
+02. Do I Love You?  3:08 
+03. Knee Deep In Love  3:08 
+04. Feel It In Your Backbone, Got It In Your Feet  4:03     Читать дальше...    Жанр: Pop, Disco, Funk SoulПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:533BD5C77202A4245E1EA1936722DD3DB1081FEC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311446.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 311 407
+
+Kim Petras - Clarity  2019  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Clarity  02:02 
+2. Icy  03:09 
+03. Got My Number  02:54 
+04. Sweet Spot  03:14     Читать дальше...    Жанр: PopПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FC4C24C599BE3CDAEDBE7E99168505EC6723428D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311407.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 311 381
 
 Carrara - 2 Albums  1985  LP [MP3|320 Kbps] <Electronic, Italo-Disco>
@@ -1917,81 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306864.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 306 821
-
-Extensive Care - Sexy Thrills  1980  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Sexy Thrills  6:38 
-02. Do It Like This  5:30 
-03. Disco Squeeze  6:55 
-04. Strict Blonde Chick  6:43 Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:25:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:67884872F0CBE53C211C596237351FDA86C629C5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306821.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 306 617
-
-Mac And Katie Kissoon - Chirpy  Chirpy Cheep Cheep  1995  [FLAC|Lossless|image + .cue] <Funk, So
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Chirpy Chirpy Cheep Cheep  2:47 
-02. Do You Really Love Me  4:16 
-03. I ve Found My Freedom  2:34 
-04. Show Me  2:26     Читать дальше...    Жанр: Funk, Soul, PopПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D773FDEC2729D7246CC5DAE5642A9A625B264E93
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306617.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 306 570
-
-VA - So Fresh: The Hits Of Autumn 2019 [FLAC|Lossless|tracks + .cue] <Pop, Dance, R n B>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Ariana Grande - 7 rings
-02. Mark Ronson - Nothing Breaks Like a Heart  feat. Miley Cyrus 
-03. Post Malone - Wow.
-04. Dean Lewis - 7 Minutes    Читать дальше...    Жанр: Pop, Dance, R n BПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2732D4120EE9FE089F6E1B75D0337696B766A121
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306570.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

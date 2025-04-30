@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 331 413
+
+VA - Groove Techno Tools  2019  [MP3|320 Kbps] <Techno, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Volunteer - Levitating Stones
+002. Greyhead - Llantos Del Desierto
+003. B-Front - Undiscovered
+004. Devin Wild - Mind Bending    Читать дальше...    Жанр: Techno, ElectroПродолжительность: 09:38:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:122522658401E7A71598A110C0B8F9B167692CF1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1331413.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 331 412
+
+VA - Rap Mix Off: Gold Collection  2019  [MP3|320 Kbps] <Rap>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+001. Sencere Tucker - Stars
+002. Suigeneris - Rise
+003. Moma Gabbana - Black Queen
+004. Freaky Flash - Lowkey    Читать дальше...    Жанр: RapПродолжительность: 10:36:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E5242CDF73CB17F826C1C09F458CA6EC677F668
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1331412.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 331 390
+
+VA - Жизнь и немного любви из русского рока-2  2019  [MP3|320 Kbps] <Русский рок>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. ДВУРЕЧЬЕ - Ветер в облаках.
+002. Квартет им. Достоевского - Наши глаза.
+003. Fort Royal - Не впускай зверя в дверь.
+004. Мегаполис и Ёлка - Посвящение Деннису Силку.    Читать дальше...    Жанр: Русский рокПродолжительность: 09:13:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:15E8E8A329CB8DF961B0B231092D684E719C9A3C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1331390.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 331 362
+
+VA - 100 Rock Ballads Vol.2  2019  [MP3|320 Kbps] <Rock, Ballads>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Gary Moore - Nothing s The Same 5:07
+002. Whitesnake - Is This Love 4:41
+003. Lita Ford with Ozzy Osbourne - Close My Eyes Forever 4:46
+004. Skid Row - In A Darkened Room 3:55    Читать дальше...    Жанр: Rock, BalladsПродолжительность: 08:10:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:47A165BB419FB1383769CE3C0333A8096CC27F55
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1331362.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 331 352
 
 VA - Понемногу отовсюду by Yuridar #E-F  1956-2022  Compilation Album [MP3|128-320 Kbps] <Rock,
@@ -1900,106 +2000,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326891.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 326 889
-
-VA - Epic Landscapes: Relax Line Music  2019  [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Sonata Kay - Desperate To Forget
-002. 52 - Go For A Swim
-003. The Sura Quintet - Shared Moments
-004. Francesco Digilio - Aphrodite    Читать дальше...    Жанр: Chillout, Lounge, DowntempoПродолжительность: 11:10:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FB3574D5AD328FE18A92A06A34F54CD60C998072
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326889.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 326 829
-
-VA - Autumn Festival Popular Dance Music  2019  [MP3|320 Kbps] <Dance, Pop, House, Club>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Kapoor - Zen
-002. Stedwart - Sunset Loving
-003. Trigger Finger - Guest List
-004. Steve Murrell - 2 Am    Читать дальше...    Жанр: Dance, Pop, House, ClubПродолжительность: 12:34:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B4DC80F213928FAEDDED426BA57F860F1C81E622
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326829.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 326 808
-
-VA - Hot Line Miami: Mixed Emotions  2019  [MP3|320 Kbps] <Club, Dance House, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Motot4 - Good Day
-002. Ava  It  - Focus
-003. Myrt - Reboot
-004. Thereby - The Arsonist    Читать дальше...    Жанр: Club, Dance House, ElectroПродолжительность: 09:33:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC4687049ADFB0217D838722FBACAAA7E40C5855
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326808.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 326 767
-
-VA - Radio DFM Top D-Chart Сентябрь 2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. C-BooL - Catch You 3:13
-02. SAINt JHN - Roses  Imanbek Remix  3:58
-03. Gamper & Dadoni feat. Emily Roberts - Bittersweet Symphony 3:15
-04. Shawn Mendes & Camila Cabello - Senorita 3:11    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:37:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4D874DD7AFC22AE9C8E1995DB7EF86A20905993F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326767.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

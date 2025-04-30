@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 021 976
+
+Omer Ozgur - We Are All the Same  2016  [MP3|320 кб с] <Pop, Rock, Blues>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. We Are All the Same
+02. In Maldives
+03. The Girl Who Knows Everything
+04. No Sign    Читать дальше...    Жанр: Pop, Rock, BluesПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F92FCAC3B93184DBECBD45D75A5E18215B6E53F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021976.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 021 812
+
+Mads Langer - Reckless Twin  2016  [MP3|320 кб с] <Europop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Daylight  04:02 
+02. Amy  04:37 
+03. Blondie  05:19 
+04. 3AM  03:22     Читать дальше...    Жанр: EuropopПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:93265CD1D8228F741968725A91569B4F4966B93F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021812.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 021 799
+
+Yumi Zouma - Yoncalla  2016  [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Synth Po
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Barricade  Matter of Fact 
+02. Text from Sweden
+03. Keep It Close to Me
+04. Haji Awali    Читать дальше...    Жанр: Alternative Pop, Indie Pop, Synth PopПродолжительность: 00:34:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4FBA12096BEF83F3EA2C6E7D3FB3C05D33F2984D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021799.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 021 753
 
 CLAVVS - Feel It All  2015  [MP3|320 кб с] <Indie Pop, Soul, Trip Hop>
@@ -1919,81 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010709.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 010 585
-
-Ladies Of Soul - Live At The Ziggo Dome  2016   [FLAC|Lossless|image + .cue] <Pop, RnB, Soul, Di
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Ouverture 2016 1:30
-02. Feel Good 3:39
-03. Night To Remember 2:23
-04. Soul & Supremes Medley 8:46    Читать дальше...    Жанр: Pop, RnB, Soul, Disco, FunkПродолжительность: 02:38:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0ADF310D0C9D1889C609CAD2100DE12C28A7B027
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010585.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 010 113
-
-Dami Im - Classic Carpenters  2016  [FLAC|Lossless|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.  They Long to Be  Close to You    03:43
-02. There s a Kind of Hush  All Over the World     03:04
-03. Yesterday Once More    04:02
-04. Superstar    03:14    Читать дальше...    Жанр: PopПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D3A5937221E02BAD0F6830F6C130ED4511EDE68
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010113.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 010 074
-
-Katy B - Honey  2016  [MP3|320 кб с] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Honey
-02. Who Am I  feat. Craig David & Major Lazer 
-03. So Far Away
-04. Chase Me    Читать дальше...    Жанр: PopПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:52BE712D09ED253C4C8369981BF819945B6BDE56
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010074.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

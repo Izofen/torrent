@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 307 682
+
+VA - Поехали кататься  2019  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1.Баста - Музыка, будь со мной  6:19 
+2.Madonna, Maluma - Medellín  4:58 
+3.Lil Dicky - Earth  4:41 
+4.Nicky Jam feat. J Balvin, Anuel AA y Arcangel - Ven y Hazlo Tu  4:22     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 01:58:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C45B1D195C8EB74AD9DC221BCB5CD71A1900443C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1307682.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 307 631
+
+VA - Empire Records - Red Star 7  2019  [MP3|320 Kbps] <Spacesynth>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+1.Sung - Auto Ran  Remaster   3:56 
+2.Night Runner - The Driver  4:05 
+3.Miami Beach Force - Neon Ninja  4:05 
+4.Jan-Friedrich Conrad - Spigelia  4:06     Читать дальше...    Жанр: SpacesynthПродолжительность: 02:32:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A75522C4089A8195EC1D3B72F84FB9157CAB9ABA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1307631.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 307 568
+
+VA - This Merry Planet - Space Voyage #1  2019  [MP3|320 Kbps] <Electronic, Synth-pop, Ambient>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.Schaltkreis Wassermann - Space Shuttle  12   Maxi Version   04:41 
+02.Oliver s Planet - Planetarium  10:22 
+03.Angella Dean - World X  05:03 
+04.Michael Stearns - Craft  Dimensional Release   06:29     Читать дальше...    Жанр: Electronic, Synth-pop, AmbientПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87A3573D333E53B3F027750FA91BE8B51CE76262
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1307568.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 307 259
+
+VA - Record Super Chart 590  2019  [MP3|320 Kbps] <Pop, House, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.Billie Eilish - Bad Guy  3:14 
+02.Aaron Smith - Dancin  Krono Remix   4:15 
+03.Mabel - Don t Call Me Up  R3hab Remix   2:33 
+04.Meduza feat. GOODBOYS - Piece Of Your Heart  2:32     Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D63552FD0DCCA0964541613ACB29864F736A65E6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1307259.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 307 174
 
 VA - German Top 100 Single Charts 14.06.2019 [MP3|320 Kbps] <Pop>
@@ -1889,106 +1989,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302919.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 917
-
-VA - German Top 40 DBC Deutsche Black Charts 17.05.2019  2019  [MP3|320 Kbps] <Rap, Hip-Hop, R&B
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-01. Blueface - Thotiana  feat. Cardi B, YG   Remix 
-02. MERO - Wolke 10
-03. Chris Brown - Wobble Up
-04. dj spanish fly - Bailemos    Читать дальше...    Жанр: Rap, Hip-Hop, R&BПродолжительность: 02:09:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C04427484660FAAC6EF9CFF035D109B499261858
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302917.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 834
-
-VA - ЕвроХит Топ 40 Europa Plus 17.05.2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.Ariana Grande - 7 Rings  2:58 
-02.Aaron Smith feat. Luvli - Dancin  Krono Remix   3:17 
-03.Keanu Silva - King Of My Castle  Don Diablo Edit   2:53 
-04.Mabel - Don t Call Me Up  2:58     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:06:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9EF5E72DD6D182F267EF25268BE1FCC54F9B5BE5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302834.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 757
-
-Joy Harjo - Sweet Dreams  Collection   2019  [MP3|~245 Kbps  V0 , CBR ] <Native american
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Barrett Martin, Joy Harjo - An American Sunrise
-02. Joy Harjo - Eagle Song
-03. Joy Harjo - For Anna Mae Pictou Aquash
-04. Joy Harjo - Morning Song    Читать дальше...    Жанр: Native american, Folk, WorldПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5DF8667D0C0AD45A930E8D2172DB816D753D0263
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302757.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 720
-
-Sophie Zelmani - The best  1995-2019  Compilation Album [MP3|320 Kbps] <Pop, Rock, Singer songwr
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Нас окружает море музыки, и не видно краёв ему, и особую ценность имеют редко попадающиеся жемчужины,- об ещё одном таком открытии расскажу Вам:01. Before The Day s Gone
-02. Bitter Kind  New Song 
-03. Breeze
-04. Churchbell    Читать дальше...    Жанр: Pop, Rock, Singer songwriterПродолжительность: 02:15:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6416BFF38C20AD3DA42A21EF1FD4EBB5DC0B7B2B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302720.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 679 637
+
+VA - Western Mood  2023  2CD  [MP3|320 Kbps] <Country>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. Brandy Clark - Buried [03:06]
+02. Madeline Edwards - Mama, Dolly, Jesus [02:45]
+03. The Highwomen - The Chain [04:52]
+04. Monroe Crossing - There s No Place Like Home For The Holidays [03:00]    Читать дальше...    Жанр: CountryПродолжительность: 07:45:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2463E934379525D6E1430039D0AFCBB3ACE2062F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679637.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 679 503
+
+VA - Музыка для машины Vol.44  2023  [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. 3-ий Январь - Спой Со Мной  02:37 
+02. Юлия Беретта - Диско  03:27 
+03. Сергей Одинцов - Мы Вдвоем  04:06 
+04. D.I.P Project - Сочинять Сны  Dance Mix   03:43     Читать дальше...    Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F50E9010CCD2FD7C98FDF1FF6637F5E0A31BEFE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679503.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 679 228
+
+VA - Music News vol.318  2023  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Emmett Zetto feat. Talentless - Sexy  01:47 
+ 002. 7 Skies - Tokyo777  03:01 
+ 003. Adil - Сердце Мое  02:48 
+ 004. ADRIAN HIS - London  02:26     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 11:43:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EBBF3C67EB2B1182C6D944D2648B7AC29088F431
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679228.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 679 163
+
+VA - Музыка для машины Vol.43  2023  [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Anthony Keyrouz Feat. & Offrami & Jeannette - Tell Me How  Techno   01:52 
+02. Сослан Джиоев - Снова  03:18 
+03. Нана Тибилова - Брат И Сестра  03:55 
+04. Shallou - Losing Focus  03:34     Читать дальше...    Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:41:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:32C327A307DAF99162C01A5A862DBF9A49AA94C0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679163.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 679 052
 
 VA - Украинские песенки Vol.5  2023  [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -1894,106 +1994,6 @@ VA - Music News vol.308  2023  [MP3|320 Kbps] <Pop, Dance, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670406.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 670 380
-
-VA - Music News vol.307  2023  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Despina Vandi - S  Agapao Kai Den Pao Kala  03:10 
- 002. 5sta Family - Искры  02:45 
- 003. 22 Region - На Таран  01:52 
- 004. Ahmed Helmy - R4VE 201  02:49     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 09:03:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C3CD60943276164EABF12CEAF6D18604190A9809
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670380.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 670 327
-
-VA - Musica Gregoriana Catolica  2023  [MP3|320 Kbps] <New Age, Symphonic, Gregorian Chant>
-Неофициальные сборники
-Instrumental/New Age/Meditative/Relax (сборники)
-
-###  Подробнее
-
-001. Dan Gibson s Solitudes - Kyrie Eleison [06:31]
-002. Capella Gregoriana Easo - Salve, Festa Dies [01:56]
-003. The Cathedral Singers - Adoro Te, O Panis [02:47]
-004. Coro de la Abadia Benedictina de Santo Domingo de Silos - Requiem aeternam : Introitus, Modus VI [02:11]    Читать дальше...    Жанр: New Age, Symphonic, Gregorian ChantПродолжительность: 08:52:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B62E93DE6B1A1147EE05C6F2AA38114DD316B2B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670327.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 670 150
-
-Limora - Compilation  2023  [MP3|320 Kbps] <Electronic>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. My Time
-02. Zehra
-03. Paris
-04. False Feeling    Читать дальше...    Жанр: ElectronicПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF2FACE4B48A74DBBDE0E1BDB980A7FBBA5D5A4B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670150.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 670 026
-
-VA - Workout, Beast Mode, Aggressive (2023) [MP3|320 Kbps] <Rock, Hard Rock, Other>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Tundra - Pull Up (2:02)
-002. LaLion - RUN BOY (2:08)
-003. Tundra - Major (2:09)
-004. Egypt Central - Over And Under (2:12)(   Читать дальше...   )Жанр: Rock, Hard Rock, OtherПродолжительность: 05:59:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:66A6B431827747D37A69A368E4BAAB5DC4B005C0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670026.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

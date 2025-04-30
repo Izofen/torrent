@@ -1,4 +1,91 @@
 ﻿
+###  Публикация: 848 369
+
+ВИА «Песняры» - Вологда  1996  [FLAC|Lossless]<Retro Folk-Rock>
+Pop (сборники)
+Советская эстрада, Ретро (Lossless)
+
+###  Подробнее
+
+01.  Вологда  Б. Мокроусов - М. Матусовский  
+02.  Зачарованная  И. Лученок - Г. Буравкин  
+03.  За полчаса до весны  О. Фельцман - Н. Олев   
+04.  Наши любимые  Д. Тухманов - И. Шаферан       Читать дальше...    Жанр: Retro Folk-RockПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2AA33546B715E11D2E4F69FFC2F91EE885179B7C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 076
+
+Диана - The Best  1998  [FLAC|Lossless]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Уеду с тобой
+02. Расскажи
+03. Скатертью дорога
+04. Я больше не твоя
+05. Гори, гори ясно
+06. Грешная любовь
+07. Незваный гость
+08. Не говори
+09. Я скучаю
+10. Там, где ты    Читать дальше...    Жанр: PopПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B8EB9AF8E8EB02043A14DC4337EE636AF703EE1C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 073
+
+Вахтанг Кикабидзе - Лучшие песни  2001  [APE|Lossless]<Pop>
+Pop (сборники)
+Советская эстрада, Ретро (Lossless)
+
+###  Подробнее
+
+1. Мои года, мое богатство
+2. Проводы любви
+3. Пожелание
+4. Останься, молодость
+5. Вот и весь разговор
+6. Последний фаэтонщик
+7. Песня из к ф `Мимино`
+8. Ов, сирун, сирун  памяти друга Фрунзика Мкртчяна 
+9. Попурри на закавказские мелодии
+10. Цыганочка    Читать дальше...    Жанр: PopПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4780E9590368308022043862628C949CCE12CBDD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 848 066
 
 Наташа Королёва - Grand Collection  2009  [FLAC|Lossless]<Pop>
@@ -2330,99 +2417,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:A2676EC133E06BE3CDCDA37761A1FFD77B46B3F3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 696
-
-Gloria Gaynor - I Will Survive.  The Anthology  1998  2CD [FLAC|Lossless]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Casanova Brown  6:25 
-02.  If you want it  do it yourself  5:57 
-03. How high the moon  6:32 
-04. Real good people  3:02 
-05. Walk on by  5:43 
-06. What ll I do  4:34 
-07. I love you cause  5:03 
-08. When you get around to it  3:57 
-09. Let me know  I have a right   8:21 
-10. Tell me how  3:10     Читать дальше...    Жанр: DiscoПродолжительность: 02:18:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A1527EEB306BC8AFEF96B5CA76C84673F8387DE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_840696.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 695
-
-Matia Bazar - Studio Collection  2002  2CD [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Stasera Che Sera  3:23 
-02. Besame  4:43 
-03. Fantasia  4:13 
-04. Il Video Sono Io  3:56 
-05. Se Tu  5:11 
-06. Fuori Orario  4:49 
-07. Nell era Delle Automobili  4:28 
-08. Noi  5:07 
-09. La Prima Stella Della Sera  4:31 
-10. Mi Manchi Ancora  5:28     Читать дальше...    Жанр: PopПродолжительность: 02:16:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:54AF79160D87238E9166B9681FA51BB7D91E4164
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_840695.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 609
-
-Nick Jonas - Nick Jonas  2014  Deluxe Version [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Chains
-02. Jealous
-03. Teacher
-04. Warning
-05. Wilderness
-06. Numb  Feat. Angel Haze 
-07. Take Over
-08. Push
-09. I Want You
-10. Avalanche  Feat. Demi Lovato     Читать дальше...    Жанр: Pop, Teen Pop, RockПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6BBCE42D6D7C9F4F6EAF83267358EA34E51F09F3
 ```
 
 <div id="header" align="center">

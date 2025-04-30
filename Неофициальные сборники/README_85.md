@@ -1,4 +1,107 @@
 ﻿
+###  Публикация: 1 283 137
+
+VA - ЕвроХит Топ 40 Europa Plus 15.02.2019 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Lil Peep, XXXTentacion - Falling Down
+02. Vanotek - Love Is Gone
+03. Don Diablo feat. Emeli Sande, Gucci Mane - Survive
+04. Denis First, Reznikov, Bright Sparks - Shameless    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:10:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:582E6186FA276E94EB44902038A175D6CFA741E0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1283137.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 282 981
+
+VA - Зайцев.нет Лучшие новинки Февраля 2019 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Григорий Лепс - Life Is Good 4:38
+02. Макс Барских - Неземная 3:44
+03. Morgenshtern feat. Palc - Turn It On! 3:27
+04. Тима Белорусских - Витаминка 2:56    Читать дальше...    Жанр: Pop, DanceПродолжительность: 04:06:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A17C8B823B833BBB95CBB4C1DC0B439517FFAD8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1282981.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 282 974
+
+VA - Вспоминая Rock 80-х  зарубежный выпуск   1980-1989  [MP3|320 Kbps] <Rock, Hard Rock, Me
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Black Sabbath - Neon Knights  03:45 
+002. Judas Priest - The Hellion + Electric Eye  04:22 
+003. Kiss - Danger  03:57 
+004. W.A.S.P. - Mean Man  04:48     Читать дальше...    Жанр: Rock, Hard Rock, MetalПродолжительность: 07:14:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:76EDCA53BEC5B8E4BF1EA9BA015E624B5BCFB0A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1282974.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 282 973
+
+VA - Hits of My Soul Vol. 44  2019  [MP3|320 кб с]<Trance, Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Arman Bahrami & Ailsa Villegas - Beat Of My Heart  Original Mix   08:51 
+02. Morvan - Kiss Of A Muse  Original Mix   07:41 
+03. Dannie Denito feat.Wenturo - Rain On The Venus  Original Mix   06:12 
+04. Neo & Farina - Alba Rossa  Remastered Original Vocal Mix   09:32     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 06:01:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F997E9213291ABC133658308C458EA31D232D74E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1282973.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 282 963
 
 Joy - Touch By Touch  2019  Remix [MP3|320 Kbps] <Club, Dance>
@@ -1876,106 +1979,6 @@ Rap, Hip-hop, RnB, Reggae  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1280002.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 280 001
-
-VA - Elements Trance: Extended Mix  2019  [MP3|320 Kbps] <Trance, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Alex Kunnari - This Fire
-002. Fuenka - Lanesra  Original Mix 
-003. Adnane Touzani - Raikiri  Extended Mix 
-004. Mr. Greidor - Trancestation    Читать дальше...    Жанр: Trance, ElectroПродолжительность: 09:45:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:35D3D70995219E34250871D2F5F7D77E759D9C54
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1280001.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 279 996
-
-VA - The Disco Mind: Funky Edition  2019  [MP3|320 Kbps] <Funky, Disco House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Canosa - Fireworks
-002. Discotron - Mo Swagger Than Jagger
-003. Charlie - Switch The Sound
-004. Enyon - All Night Long    Читать дальше...    Жанр: Funky, Disco HouseПродолжительность: 11:02:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7CB370FE56BDE0B3CCFD5C83D201A499F68A3A47
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1279996.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 279 994
-
-VA - Time Machine: Hard Dance Techno  2019  [MP3|320 Kbps] <Techno, Hard Dance, Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Borzoo - Seagulls Tripping
-002. Anderex - Gucci Bag  Original Mix 
-003. Crystal Lake - Invaders  Extended Mix 
-004. Devin Wild - For All Of Us    Читать дальше...    Жанр: Techno, Hard Dance, ElectronicПродолжительность: 10:56:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CCAC847B01E9E19BB11ABEA9FC10C46B5E997BED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1279994.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 279 992
-
-VA - Billboard Hot 100 Singles Chart 02.02.2019  2019  [MP3|320 Kbps] <Pop, Dance, Euro>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Travis Scott - SICKO MODE
-002. Halsey - Without Me
-003. Post Malone - Sunflower  Spider-Man_ Into the Spider-Verse 
-004. Ariana Grande - thank u, next    Читать дальше...    Жанр: Pop, Dance, EuroПродолжительность: 05:32:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C3B17CCBA872E1CEE3A93AD3F8849D1D70D2310E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1279992.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

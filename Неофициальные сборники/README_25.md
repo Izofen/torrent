@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 553 394
+
+Bloodhound Gang - The Bad Touch  1999  [MP3|320 Kbps] <Alternative, Punk>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. The Bad Touch  Single Version   4:27 
+02. Along Comes Mary  The Bloodhound Gang Mix   3:25 
+03. I Wish I Was Queer So I Could Get Chicks  Punk Version   3:35 
+04. Fire Water Burn  Single Version   4:56     Читать дальше...    Жанр: Alternative, PunkПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0C3FB0A7FAA3DEF1782002155B84009063C7884E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553394.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 553 373
+
+VA - Trance Colors  2022  [MP3|320 Kbps] <Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Skyvol - 9th Life  Extended Mix   6:58 
+002. Nicola Maddaloni - Brainwashing  Extended Mix   6:19 
+003. U-Mount & SpaceLine - Libra Terra  Extended Mix   7:33 
+004. Ahmed Romel - You Never Know  8:16     Читать дальше...    Жанр: TranceПродолжительность: 11:45:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:01C965624BB6857AA56F1CC3BCEA8A565D403156
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553373.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 553 366
+
+VA - Русские Хиты 4 2022 [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Ivan Valeev - Выпускной  2:34 
+002. Честный - Да гори оно огнем  3:01 
+003. Beatrise feat. HUGGA - Эскорт  2:11 
+004. SVETLYI - Отпусти  3:17     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 13:41:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70A647BA793E2D7B6F82D87FBF70ED4C556FA3DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553366.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 553 313
+
+VA - Warrior s Words  горловое пение   2022  2CD [MP3|320 Kbps] <World Music, Ethno Fushio
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Altai Kai - Maral Deer  04:45 
+02. Annwn - Douce Dame Jolie  04:03 
+03. Bai-Terek - Archyndu jol  03:32 
+04. X-Eternity - My Mother Told Me  feat. Perly i Lotry   05:44     Читать дальше...    Жанр: World Music, Ethno Fushion, Throat SingingПродолжительность: 07:42:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:646B439CFA4D0C7D6B407AA204A365B98EC03534
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553313.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 553 143
 
 VA - Новички в попсе Vol 12  2022  [MP3|320 Kbps] <Pop>
@@ -1894,106 +1994,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548627.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 332
-
-VA - MEGA HITS 2022 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Glass Animals - Heat Waves 3:59
-02. Felix Jaehn, The Stickmen Project, Calum Scott - Rain In Ibiza 2:22
-03. Justin Bieber - Ghost 2:33
-04. Olivia Rodrigo - Good 4 U 2:58    Читать дальше...    Жанр: PopПродолжительность: 06:09:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D4593662B03C155459A4B18F90278690132E8CC4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548332.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 311
-
-VA - Velour Mood  2CD   2022  [MP3|320 Kbps] <Soul, Funk, Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-Мягкость, меланхоличность и лиричность композиций сборника  Velour Mood , а так же аранжировка в духе классических  барных  инструментальных джаз компиляций раскрывается в совершенно неожиданном ключе и за счет вокала, который является центральным образом музыкальной картины.CD 01:
-
-001. Sault - London Gangs
-002. Damos Room - Soft Bodied    Читать дальше...    Жанр: Soul, Funk, JazzПродолжительность: 13:39:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:21D857444D2BB3FBE5AAD00CA171985E246F9335
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548311.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 307
-
-VA - The Atmosphere Harmony: Ambient Antistress Collection  2022  [MP3|320 Kbps] <Ambient, Relax
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Такая музыка придется как нельзя лучше поздним вечером, когда хочешь уснуть но груз мыслей и вопросов прошедшего дня не дают тебе этого сделать и ты включаешь негромко эту музыку и просто понимаешь что всё суета и есть другие, более важные, ориентиры жизни.001. Síntese - The Beyond
-002. Anthene & Simon Mccorry - Distant Glitter
-003. Sotvorishi & Heavenchord - Uletaem
-004. Raum - Revolving Door    Читать дальше...    Жанр: Ambient, Relax, MeditationПродолжительность: 11:56:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C3851377AFC571DB1C1EC40EEC83E4E72E781BB1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548307.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 548 306
-
-VA - La Perla De Musica: New Latin  2022  [MP3|320 Kbps] <Latin, Dance, Reggaeton>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Сюжетная линия музыки этого сборника буквально нашпигована этническими мотивами латино, но наложено это на вполне себе европейский бит и бас. Авторам очень удачно удалось использовать схожесть народных инструментов с различными современными электронными  фишками  и они очень удачно это обыграли.001. Anuel Aa - Nunca
-002. J. Balvin - Blanco
-003. Sech - Relacion
-004. Manuel Turizo - Una Vez Mбs    Читать дальше...    Жанр: Latin, Dance, ReggaetonПродолжительность: 08:24:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C97F2F7E5ED9A053C63EDC845532196C9404E2A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548306.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

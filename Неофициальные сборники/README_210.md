@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 792 384
+
+VA - Клубный Рай Лучшее 50 50  2014  [MP3|256 кб с]<Club, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Alexandrov Project - Разбудила Любовь  Dj Half Remix 
+02. Gareth Emery - Long Way Home
+03. Zlata  Злата  - Раскована  Dj Fisun Extended Remix 
+04. 50 Cent Feat. Joe - Big Rich Town
+05. Julia Shee Feat. Dj Max Myers & Rifatello -  Radio Edit 
+06. Dj Stylezz & Dj A.G - Miracle  Moscow Club Bangaz Remix 
+07. Ulka Vs. Dj Max Myers & Rifatello -  Dj Nejtrino & Kirill Clash Radio Mix 
+08. The Vamps - Move My Way
+09. Электрокэт И Супермакс - Лисапед Мой, Лисапед  Remix 
+10. Satellites & Sirens - Jump Start My Heart    Читать дальше...    Жанр: Club, DanceПродолжительность: 06:57:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:268B1AE64FC21BD4670B22559360F43EEEFF9F1C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 792 378
+
+VA - Убойный Хит eXclusive №1  2014  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Raя - Горизонт
+02. Вика Дайнеко - Клякса
+03. Планеты - Первый Поцелуй
+04. Наталья Подольская И Владимир Пресняков - Kissлород
+05. Григорий Лепс И Ани Лорак - Зеркала
+06. Пропаганда - Подруга Моя Ты Будешь Счастлива С Ним
+07. Катя Бужинская - Не Забывается Любовь
+08. Андрей Артемьев - Мир Закружим
+09. Любовные Истории - Возвращайся
+10. Reflex & Elvira T - Ангел    Читать дальше...    Жанр: PopПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9BA9890703F3F7D0449CC9489B7B669E5531B3B2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 792 375
+
+VA - Новинки Шансона 11  2014  [MP3|320 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Александр Дюмин - Кареглазая
+02. Катерина Голицына - На двоих
+03. Герман Грач - Я люблю
+04. Крестовый туз - Пусть будет так
+05. Дмитрий Сулей - Хасан
+06. Владимир Лисицын - Свобода
+07. Александр Марцинкевич - Аня-Бомба
+08. Сборная Союза - А над водой
+09. Сергей ПалычЪ - Ой, не скалься Европа!
+10. Александр Курган - За пределами    Читать дальше...    Жанр: ШансонПродолжительность: 04:32:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:02B8AAE4F2AFBFE675FE2C463C90D0CCE6C61E99
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 792 371
+
+VA - XXXL СуперМолодёжный 50 50  2014  [MP3|320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Потап и Настя - Уди Уди
+02. Cher Lloyd - Alone With Me
+03. Мариетта - Вкус тебя
+04. Mariah Carey feat. Wale - You Don t Know What To Do
+05. Горячий Шоколад - Люби меня, люби
+06. Meek Mill feat. Paloma Ford - I Don t Know
+07. Стас Пьеха - Я с тобой
+08. Phillip Phillips - Open Your Eyes
+09. Нюша - Бред
+10. Jason Mraz - Love Someone    Читать дальше...    Жанр: PopПродолжительность: 04:53:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C6F365A5659F3DF2C4298F9986BE0DBC44D66EF9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 792 363
 
 VA - The Official UK Top 40 Singles Chart  01-06-2014  [MP3|320 кб с]<Pop, Dance, Rock, R&B, O
@@ -2300,125 +2424,6 @@ Electronic  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:0ECD10CDDF55B54172C7240550022E53AA98DC3E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 787 738
-
-VA - Колбасный Цех  2014  [MP3|320 кб с]<Pop, Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Stromae - Papaoutai  DJ HaLF & Tony Kart Remix 
-02. Rasmus Faber feat. Polina Griffith - The Sound Of You  Original Mix 
-03. Modana feat. Tay Edwards - Dance The Night Away  Extended Mix 
-04. Mr. Black feat. Esthera Sarita - Loud  Original Mix 
-05. Medina feat. Svenstrup & Vendelboe - Junkie  Rothmann Remix 
-06. НеАнгелы - Роман  DJ Jedy Remix 
-07. Nikola feat. Livingstone - You Won t Be Leaving Me  Original Mix 
-08. Pulsedriver - Beat Bangs 2.0  TAITO Remix 
-09. Nurettin Colak - Neama  Radio Edit 
-10. Paul Van Hyden & Michael Fall - Blessed  Radio Mix     Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 07:50:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06E65B49DEFDABF8D3B5A43D5C8230E84892C594
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 787 737
-
-VA - Музыка в машину  2014  [MP3|320 кб с]<Dance, Club, House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Indila - Run Run  Iulian Florea Remix 
-02. FloE - Another Day In Paradise  Original Mix 
-03. Matush - Keep Pushing On Feat. Nick Sinckler  Club Mix 
-04. Manufactured Superstars feat. Fingazz - Voyager
-05. DJ Deka feat Eniko - Szabaditsd Fel  Discovery & PLSCB Remix 
-06. GLN - Take Me Now  Original Mix 
-07. Danny Darko - Time Will Tell  Pete Bellis Remix 
-08. Bogdan - Love Is In The Air  Extended Club Version 
-09. Easy L. - New Day  Anthem   Andrey Exx & Fomichev Remix 
-10. Green Velvet - La La Land  Max Nikitin & Cosmos Remix     Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 08:58:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9F4122759D3B57EA16DC9B43C1049C05FF2A069
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 787 727
-
-VA - Bailando! The Compilation  2014   50 Latin Dance Hits  [MP3|320 кб с]<Dance, Salsa, L
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Mr. Jordan - La, La, La, La, la  04:11 
-02. Osmani Garcia - El Taxi  feat. Pitbull, Sensato   05:24 
-03. LKM - Dia de Fiesta  03:03 
-04. Mr. Jordan - Papi Esta Loco  feat. Thaira   04:38 
-05. Crossfire - Lady  feat. El Medico Жанр: Dance, Salsa, Lounge, Pop LatinoПродолжительность: 03:20:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:74F15CC6B4F52297029CEFFC03F8F675C370A64C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 787 716
-
-VA - 100 Лучших Романтических Композиций  2014  [MP3|256 кб с]<Pop, P&B, Rock, Dance, Lounge>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Alex Band - Only One
-02. ATB feat. Tiff Lacey - Missing
-03. Sixpence None the Richer - Kiss Me
-04. Lifehouse - It Is What It Is
-05. Brainstorm - Maybe
-06. Mandy Moore - Only Hope
-07. Nelly - Just A Dream
-08. Michael George - Miss Sarajevo
-09. Indila - Derniere Danse
-10. Hulio Iglesias - Mammy Blue    Читать дальше...    Жанр: Pop, P&B, Rock, Dance, LoungeПродолжительность: 06:45:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:530A0EC05BDF5B8737D2D3D6B319EE549FEE9DA0
 ```
 
 <div id="header" align="center">

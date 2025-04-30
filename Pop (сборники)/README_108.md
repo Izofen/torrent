@@ -1,4 +1,82 @@
 ﻿
+###  Публикация: 877 530
+
+Скрябін  Скрябин  - Діапазон  2015  [MP3|320 кб с]<Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Любити платити
+02. Бультер р
+03. Люди, як кораблі
+04. На даху
+05. Про любов    Читать дальше...    Жанр: Pop RockПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE47724482DA37243C265AAB1531FDE5A9F55EE0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 877 527
+
+Oonagh - Aeria  2015  [MP3|320 кб с]<Pop, Ethno-Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ananau - Wo Die Höhen Zum Himmel Reichen
+ 02. Silmaril - Schöner Als Die Sterne
+ 03. Eccaia - Von Der Flut
+ 04. Tinúviël - Bis Die Stille Zerbricht
+ 05. So Still Mein Herz  feat. Santiano, Oomph!     Читать дальше...    Жанр: Pop, Ethno-PopПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F2887CEC1DF8FED96F7980D9CDC96A85994654F4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 877 515
+
+Giovanni Caccamo - Qui Per Te  2015  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Qui per te
+02. Oltre l estasi
+03. Il mondo non mi basta
+04. Ritornerò da te
+05. Nel fango    Читать дальше...    Жанр: PopПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4D405F6068D141622002C0FD3FC6A2C23921D2F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 877 513
 
 Morten Harket - Wild Seed  1996  Japan [APE|image+.cue]<Pop, Pop Rock>
@@ -1981,84 +2059,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 868 824
-
-Celine Dion - The Colour Of My Love  1994  [FLAC|Lossless]<Pop, Ballad>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. The Power Of Love 5:43 
-02. Misled 3:32 
-03. Think Twice 4:48 
-04. Only One Road 4:49 
-05. Everybody s Talkin  My Baby Down 4:02     Читать дальше...    Жанр: Pop, BalladПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:100FB7A68A6AC5DDF700B683FD5597368B57964A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 868 737
-
-Demis Roussos - Morning Has Broken  2008  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Morning Has Broken
-2. Tous les  Je Vous Aime 
-3. Oxygen
-4. Too Many Dreams
-5. Les Mots Qui Font Peur    Читать дальше...    Жанр: PopПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E1A7F6D516B50E7AACCBFB67E73FA3A4F2FA8EC3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 868 438
-
-Iowa - Export  2014  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Я сошла с ума
-02. Мама
-03. Радость
-04. Улыбайся
-05. Одно и то же    Читать дальше...    Жанр: PopПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BB55F9F8A2E470C8B5B0D2585C43C9EE568CEEFA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_868438.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

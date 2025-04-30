@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 598 792
+
+Vargo - Compilation  2022  [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Awakening  Original Chorus Mix 
+02. Relax  Blank & Jones, Vargo Vocal Rmx 
+03. Those Were the Days
+04. Slowdive    Читать дальше...    Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:36:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EAFC067257AEF0AFB5AF313858F8F8B63B575B32
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598792.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 598 693
+
+VA - Vocal Melodic Techno for U  2022  [MP3|320 Kbps] <Melodic Techno>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Anyma Feat. Meg Myers - Running  6:25 
+002. Rafael Cerato - Overdrive - Thodoris Triantafillou Remix  8:19 
+003. Stereo Underground - Behind the Moon - Sasha Carassi Remix  6:48 
+004. Mark Tarmonea - Run & Hide - Aether Remix  7:02     Читать дальше...    Жанр: Melodic TechnoПродолжительность: 15:55:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E052445458FBD855AD56E6134916F3024D17BD8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598693.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 598 354
+
+VA - Music News vol.232  2022  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Liza Diez - Счастливым Быть В Моде  02:45 
+ 002. 24kGoldn & Bandmanrill - Checkers  02:41 
+ 003. A Boogie Wit Da Hoodie feat. Pnb Rock - Needed That  03:26 
+ 004. AEN DE BLO - Акция  02:14     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 07:35:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8310CECA74E3A55AA495653F5E2DFB32107C2DA0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598354.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 598 110
+
+VA - German Top 100 Single Charts 16.12.2022 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Mariah Carey - All I Want for Christmas Is You
+02. Wham! - Last Christmas
+03. Shakin  Stevens - Merry Christmas Everyone
+04. Brenda Lee - Rockin  Around The Christmas Tree    Читать дальше...    Жанр: PopПродолжительность: 05:15:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F32C01285D0AC85899E0403F3CDF99D4DA115916
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1598110.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 598 077
 
 Bliss  Denmark  - Compilation  2022  [MP3|320 Kbps] <Downtempo, Ambient>
@@ -1893,106 +1993,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588300.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 058
-
-VA - Music News vol.225  2022  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Alicia Keys - December Back 2 June  02:44 
- 002. Abroy - Лилии  02:44 
- 003. Adan Zaavel feat. D4NIM - My World  02:44 
- 004. ADI feat. Erika Isac - Rai  03:05     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 07:31:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:77D8F8EB6A4D44313DA9BB0092078C4F0EF4F54C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588058.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 042
-
-VA - Music News vol.224  2022  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. NKI - Яд  02:40 
- 002. 10AGE - Журавли  03:34 
- 003. 10AGE - Роли  02:49 
- 004. Alessiah - Breeze Of Love  Nezzy Remix   02:38     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 07:32:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E51DD2DA2A1ECAD574718F03925C732C62F5017
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588042.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 036
-
-VA - In Mood Styles Dance  2022  [MP3|320 Kbps] <Electropop, Synthpop, Hands Up, Dancecore>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Anektшde Meets Morten Lind - I Lost  Radio Edit  2:24
-02. Dj Gollum X Empyre One X Darius & Finlay - Paranormal 2:35
-03. Armin Van Buuren Feat. Simon Ward - Hey  I Miss You  3:20
-04. David Yarrow - Light Of Love  Original Mix  6:06    Читать дальше...    Жанр: Electropop, Synthpop, Hands Up, DancecoreПродолжительность: 03:22:14 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:606CE648109DB5B496AC3358226FD479F50DC2C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588036.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 588 017
-
-VA - Halloween Party 2022  Powered By Xtreme Sound   2022  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Die Zipfelbuben DJ Cashi - Olivia
-02. Tobee - Bierpong
-03. Peter Wackel - Ich bin morgens immer muede
-04. Volker Rosin Rick Arena DJ Cashi - Kika Tanzalarm  A-E-I-O-U     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:05:54 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7FB537634CB2A9A0BD24DBEF593CF5989B00C13D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588017.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 514 047
+
+VA - Frozen Deep House  2021  [MP3|320 Kbps] <Deep House, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Supernova - Electronic Love
+002. Darksidevinyl & Ian Ludvig - Elle
+003. The Downtown Brothers - Flashdancer
+004. Nae-Tek - Leading Edge    Читать дальше...    Жанр: Deep House, ElectroПродолжительность: 12:59:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9AA605B820CBE29C89EF254D861FC5434FAEF536
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1514047.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 514 046
+
+VA - Deep Impact Positively: Clubbing Electro House  2021  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Lexx Groove - Voices
+002. Dbls - Let Me Take You For A Ride
+003. Paul Sawyer - The Wave
+004. Johnnydangerous - Clear My Mind    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 09:33:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89AFA7F3F65002FB8CB7D5927F624BE6B94DA196
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1514046.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 514 045
+
+VA - E-Dance: Clubbing Electro House  Vol.07   2021  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Harrison J & Nico Luss - Time Waster
+002. Thefatrat - Love It When You Hurt Me
+003. Robin Aristo - This Sound
+004. Dtonik - Oh Louise    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 09:53:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0AE0AC51B02AB4978A3EB921EEEF61D0407284E6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1514045.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 514 026
+
+VA - Beatport Synth Electronic: Sound Pack #378  2021  [MP3|320 Kbps] <Syntwave, Electronic, New
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Kevin Di Serna - Plexuria
+002. Jim Schwindel - Colibri
+003. Derek J. Turner - Navigation Beacon Delta
+004. Rheinzand - You Don t Know Me    Читать дальше...    Жанр: Syntwave, Electronic, New WaveПродолжительность: 10:10:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E921524BC5BDCFBAE72B27100CC84E942C02865
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1514026.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 514 024
 
 VA - Beatport Ambient: Sound Pack #377  2021  [MP3|320 Kbps] <Ambient, Meditation, Lounge>
@@ -1894,106 +1994,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507507.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 486
-
-VA - A Synthwave Panorama Vol. 5  2018  by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outru
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Heavy Malyari - Spaceman  5:52 
-02. StrayLight - Chasing The Light  4:28 
-03. IDEON - The World Might End Tomorrow  Gertrudda Edit   8:10 
-04. TrialCore - Living In Cybercity  3:56     Читать дальше...    Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:26:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D8788A90C392D7ABCEAF3CB409D10BC345E4B1E4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507486.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 481
-
-VA - A Synthwave Panorama Vol. 4  2018  by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outru
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Pilotpriest - Archive Seven  5:45 
-02. STARLANDER - Station 5  5:10 
-03. Alseph - SuperNova  3:24 
-04. GUNSHIP - When You Grow Up, Your Heart Dies  5:50     Читать дальше...    Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C67649E4ADC86960B41C10D11DD1918DDDF38FA0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507481.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 477
-
-VA - A Synthwave Panorama Vol. 3  2018  by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outru
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. A Z U R E - The Future Is Now  4:06 
-02. Blaze of Gunfire - We Were So Young  Gertrudda Edit   4:26 
-03. STARLANDER - One Last Thing  6:18 
-04. Diamond Ace - Vulnerable Now  5:21     Читать дальше...    Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:28:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C010FB89EA8017F0D27E2959EAEC5413A9FC9820
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507477.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 443
-
-VA - A Synthwave Panorama Vol. 2  2018  by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outru
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Pilotpriest - Miracle Mile  Gertrudda Edit   7:45 
-02. Mr. McNoggin - Desire  4:11 
-03. AM 1984 - Red Sunset  4:55 
-04. N-THONY-N - Bells  6:35     Читать дальше...    Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:11:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4E9F8B6E929A77162D5D0A43554D1B3A781A765B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507443.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

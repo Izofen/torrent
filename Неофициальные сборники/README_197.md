@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 851 020
+
+VA - Marys Jazzlounge Vol 2  2014  [MP3|320 кб с]<Jazz, Downtempo, Chillout, Lounge>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Alessandro Garofani- Mary s Jazzlounge, Vol. 2 - DJ Mix - Continuous DJ Mix
+02. Maximillion-Bolero rosso
+03. Axel Kuhn-The Swing Samba
+04. Naoki Kenji-Don t Know the Words
+05. Pier-O-Red Sunset
+06. Slackwax- Horny
+07. Tape Five-A Bossa Love
+08. Alex Cortiz- Mindwalk
+09. Kokoz- Ohm - Kenichiro Nishihara Remix
+10. Kruse-More & More - Nick Arara s Bonus Edit    Читать дальше...    Жанр: Jazz, Downtempo, Chillout, LoungeПродолжительность: 02:30:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E6EC46E1B6440B0F86B504B2A232FC3CC098153F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 851 014
+
+VA - Future Garage Vol.22  2014  [MP3|192-320 кб с]<Future Garage>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Hijaq - Be With Me This Winter [05:21]
+02. E.Lemental - Frozen [04:23]
+03. Synthetic Epiphany - Ancients [04:09]
+04. Tropics - Blame  Pensees Remix  [04:16]
+05. Feverkin - Sinking  Feat. Nori  [03:51]
+06. Herbert - It s Only  Kubrick s Cube Remix  [04:52]
+07. Vacant - Let Go [04:02]
+08. Asterisms - Stay Together [03:37]
+09. Lorn - Batty s Theme [04:08]
+10. Pensees - Chronicle [07:13]    Читать дальше...    Жанр: Future GarageПродолжительность: 02:17:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FDBDA033450091B4042F50001536599D8939FF4D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_851014.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 851 002
+
+VA - Музыкальные новинки. Сборник 50 50  2014  [MP3|320 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Лолита - Ожидание 03:29
+002. Hoodie Allen - Get It On The Low 03:42
+003. Артём Артемидов - Живи 03:27
+004. A-Sides Feat. Spikey Tee - Reminisce 05:35
+005. Пицца - Море-Море 03:30
+006. Paloma Faith - Beauty Remains 03:36
+007. Иван Дорн - Весна 03:26
+008. Nickelback - What Are You Waiting For 03:40
+009. Sakis Rouvas - Pio Psila 03:42
+010. Степан Вовкун - Я Кохаю Тебе А Ти 03:29    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:17:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A5FE9B800777FFBCB160D56595F50D4BDD01D3E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 850 995
+
+VA - TOP 100 Зайцев Нет. Декабрь  2014  [MP3|256-320 кб с]<Pop, Dance, House, Chanson, Rock, R
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. DJ Noiz feat. Asti - Зацелую  Radio Mix  03:15
+02. Hudson Mohawke - Chimes 02:03
+03. Papa Roach - Face Everything & Rise 02:03
+04. Потап и Настя - Манго 02:24
+05. 30.02 - Примером 02:26
+06. Inna - Faded  So Good to Me  02:39
+07. 30.02 - Когда я увижу море 02:49
+08. Елена Князева и Лок Дог - Вино 02:49
+09. Kavabanga feat. Depo & Kolibri - Солнечный Зайчик 02:53
+10. Avallo, Cvpellv, White Gangster - Touch It 03:02    Читать дальше...    Жанр: Pop, Dance, House, Chanson, Rock, Rap, Hip-HopПродолжительность: 06:20:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0B9E332FB0635F475ADCF06DFACFFDE8E11A1A7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 850 994
 
 VA - Media Blackout Nights, Vol. 1  2014  [MP3|320 кб с]<Deep House, Disco, Nu-Disco>
@@ -2278,128 +2402,6 @@ Rock, Alternative, Punk, Metal  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:261CB74686C515C5DCF061941820BBD47136F2F1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 845 860
-
-VA - Progressive House V.36  2014  [MP3|320 кб с]<Progressive House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Airwave, Phi Phi - Finesse  Another Audio Noir Trip 
-02. Guy Mantzur & Sahar Z - Sliding Doors  Original Mix 
-03. Ezequiel Arias - If Me  Original Mix 
-04. Marten Sundberg - Deep Forest  Original Mix 
-05. DARKND & Leane - Ragdoll  Twin Silhouette Remix 
-06. Gus Gus - Airwaves  UV Remix 
-07. Ezequiel Arias - Fill  Original Mix 
-08. Doomwork - Elytra  Original Mix 
-09. Mauro Rodriguez - Stupid Bells  Tomek Remix 
-10. Stan Kolev - Rhodope  Original Mix     Читать дальше...    Жанр: Progressive HouseПродолжительность: 06:35:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F40AB1FEF4215AFB46D7987F75425CE877CD5D76
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 845 858
-
-VA - Electro House Pro V.77  2014  [MP3|320 кб с]<Electro House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. 3ilaub - K.A.S.T  Original Mix 
-02. Deep Sound Effect, Arma8 feat. Camilla Voice - Friends Of My Soul  RezQ Sound Remix 
-03. Speed Limits & Jaco feat. Joni Fatora - Palm Of Your Hand  Original Mix 
-04. Maartin Rubik, Xavi Navarro - Finger  Original Mix 
-05. Chocolate Puma feat. Kris Kiss - Step Back  LOOPERS Remix 
-06. Michael Jackson - Thriller  Reepr 2014 Remix 
-07. Nova - #Hashtag  Original Mix 
-08. Maxon & Aachtone - Valve  Original Mix 
-09. Flatdisk - Vertex  Original Mix 
-10. Monte Cristo -     Читать дальше...    Жанр: Electro HouseПродолжительность: 04:53:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:088C6C3DAFD07DC81B40C9C94C2411909C18911F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 845 854
-
-VA - Dutch House, House #21  2014  [MP3|320 кб с]<Dutch House, House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Funkstar De Luxe - Sun Is Shining  LA Rush Club Mix 
-02. Sonikross - Shes In The House Feat. Sara K  Nick Hook & Martin Sharp Vocal Remix 
-03. Maximus Bellini - The Music Fits My Soul  Original Mix 
-04. Tumalon - 1982  Original Mix 
-05. Deadmau5 - Raise Your Weapon  Maywald Remix 
-06. Alexz & Remko B - Heaven In Your Eyes  Original Mix 
-07. The Cube Guys - Burning  Original Mix 
-08. Southlight, Michael Duchesne - Night 2 Day  Original Mix  Hed Kandi Records
-09. Chew Fu, Steve Clisby - Purple Rain     Читать дальше...    Жанр: Dutch House, HouseПродолжительность: 05:47:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:26D67C45D04CF9F6228428989DDB724EDD03A301
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 845 848
-
-VA - Dutch House, House #20  2014  [MP3|320 кб с]<Dutch House, House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Zaki, Andre Espeut - Something Real  Original Mix 
-02. Bruno Kauffmann, Ann Shine, Ludo Kaiser - The World Is Losing Faith  Oscar Velasquez Remix 
-03. Pezzner - Warp Me Not  Original Mix 
-04. EMan, Doc Link - Message To The Househeads  Christo Remix Clean 
-05. Circuit21 - Calling All Angels  Sick Joke Remix  Division Music
-06. The Veterans - Unspoken  Original Mix 
-07. DJ Borra feat. Britt- Until I Fall Asleep  Gvozdini Remix 
-08. Coldplay - A Sky Full of Stars  Javier penna Deep Remix 
-09. Camille, Jayh     Читать дальше...    Жанр: Dutch House, HouseПродолжительность: 05:49:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D435EFAC7A2DCAE8F81B8167B8C8471C993DDEE4
 ```
 
 <div id="header" align="center">

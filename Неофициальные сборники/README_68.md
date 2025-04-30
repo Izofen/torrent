@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 355 760
+
+VA - Полтинник самых - самых  2020  [MP3|320 Kbps] <Pop, Dance, RnB>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Артур Пирожков - Она решила сдаться
+02. Arizona Zervas - Roxanne
+03. HRVY - Million Ways
+04. DaBro - Мой путь    Читать дальше...    Жанр: Pop, Dance, RnBПродолжительность: 02:43:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:638C175D38D0B93F07D0C3B27C5554A4F1510BED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1355760.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 355 725
+
+VA - Where the Blues live  2020  2CD [MP3|320 Kbps] <Blues>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Dalannah Gail Bowen - Looking back
+02. Aretha Franklin - Honest I Do
+03. Danny Bryant s RedeyeBand - Girl from the North Country
+04. Blues Ball - Her Memory    Читать дальше...    Жанр: BluesПродолжительность: 08:13:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE2DEC03AE98E559622784767DD92D2611A220F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1355725.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 355 510
+
+Gary Moore - As The Years Go Passing By...  2020   2CD Compilation  [MP3|320 Kbps] <Blues, B
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Hiroshima
+02. Picture Of The Moon
+03. Cold Day In Hell
+04. Enough Of The Blues    Читать дальше...    Жанр: Blues, Blues RockПродолжительность: 01:50:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:574C398A7889D5BDE68CFF14F7FF942FD985A3A5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1355510.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 355 387
+
+VA - Radio DFM Top D-Chart Январь 2020 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey  DJ Noiz Remix  4:00
+02. The Black Eyed Peas & J Balvin - RITMO  Vadim Adamov & Hardphol Remix  2:38
+03. Dua Lipa - Don t Start Now  Sergey Raf & ARROY Remix  3:00
+04. SAINt JHN - Roses  Imanbek Remix  3:58    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:33:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9D1B15E552DD7BAD5B8C349D4D2EB817AEEFD8AF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1355387.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 355 314
 
 VA - German Top 100 Single Charts 24.01.2020 [MP3|320 Kbps] <Pop>
@@ -1894,106 +1994,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350464.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 350 258
-
-VA - Лучшие из лучших: Top 100 хитов радиостанций за 2019  2020  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Tones and I - Dance Monkey 3:30
-002. Platon & Joolay - Over 4:20
-003. МЭВЛ - Патамушка 2:19
-004. The Black Eyed Peas & J Balvin - RITMO  Bad Boys For Life  3:42    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:29:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9B3F979281D2F53404B8A712D1DE338518001D3D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350258.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 350 217
-
-VA - The Official UK Top 40 Singles Chart 03.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Stormzy - Own It  Feat. Ed Sheeran & Burna Boy  3:37
-02. Lewis Capaldi - Before You Go 3:36
-03. Dua Lipa - Don t Start Now 3:03
-04. Arizona Zervas - Roxanne 2:44    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:09:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B1B2C450548C34449B32C22A56ABDC0C23D3FA52
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350217.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 350 207
-
-Zarina Tilidze - Hit Collection  2019  [MP3|320 Kbps] <Pop, Lyric>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01 Leto Nad Dvoih
-02 Ya I Ti
-03 Amore
-04 Angel Moi    Читать дальше...    Жанр: Pop, LyricПродолжительность: 02:44:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F679D45489599D327216E461F08F7934D1C139EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350207.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 350 154
-
-VA - Record Super Chart 619  2020  [MP3|320 Kbps] <Pop, House, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-1.Tones and I - Dance Monkey  DJ Noiz Remix   4:00 
-2.SAINt JHN - Roses  Imanbek Remix   3:58 
-3.Audiosoulz - Dancefloor  3:13 
-4.Meduza feat. Becky Hill & GOODBOYS - Lose Control  2:48     Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7BAD55D0F9C9A7CC4DBCFCFFD2C94C1FBCE5753F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350154.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

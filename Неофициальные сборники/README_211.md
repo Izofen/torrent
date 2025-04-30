@@ -1,4 +1,123 @@
 ﻿
+###  Публикация: 787 738
+
+VA - Колбасный Цех  2014  [MP3|320 кб с]<Pop, Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Stromae - Papaoutai  DJ HaLF & Tony Kart Remix 
+02. Rasmus Faber feat. Polina Griffith - The Sound Of You  Original Mix 
+03. Modana feat. Tay Edwards - Dance The Night Away  Extended Mix 
+04. Mr. Black feat. Esthera Sarita - Loud  Original Mix 
+05. Medina feat. Svenstrup & Vendelboe - Junkie  Rothmann Remix 
+06. НеАнгелы - Роман  DJ Jedy Remix 
+07. Nikola feat. Livingstone - You Won t Be Leaving Me  Original Mix 
+08. Pulsedriver - Beat Bangs 2.0  TAITO Remix 
+09. Nurettin Colak - Neama  Radio Edit 
+10. Paul Van Hyden & Michael Fall - Blessed  Radio Mix     Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 07:50:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06E65B49DEFDABF8D3B5A43D5C8230E84892C594
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 787 737
+
+VA - Музыка в машину  2014  [MP3|320 кб с]<Dance, Club, House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Indila - Run Run  Iulian Florea Remix 
+02. FloE - Another Day In Paradise  Original Mix 
+03. Matush - Keep Pushing On Feat. Nick Sinckler  Club Mix 
+04. Manufactured Superstars feat. Fingazz - Voyager
+05. DJ Deka feat Eniko - Szabaditsd Fel  Discovery & PLSCB Remix 
+06. GLN - Take Me Now  Original Mix 
+07. Danny Darko - Time Will Tell  Pete Bellis Remix 
+08. Bogdan - Love Is In The Air  Extended Club Version 
+09. Easy L. - New Day  Anthem   Andrey Exx & Fomichev Remix 
+10. Green Velvet - La La Land  Max Nikitin & Cosmos Remix     Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 08:58:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9F4122759D3B57EA16DC9B43C1049C05FF2A069
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 787 727
+
+VA - Bailando! The Compilation  2014   50 Latin Dance Hits  [MP3|320 кб с]<Dance, Salsa, L
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Mr. Jordan - La, La, La, La, la  04:11 
+02. Osmani Garcia - El Taxi  feat. Pitbull, Sensato   05:24 
+03. LKM - Dia de Fiesta  03:03 
+04. Mr. Jordan - Papi Esta Loco  feat. Thaira   04:38 
+05. Crossfire - Lady  feat. El Medico Жанр: Dance, Salsa, Lounge, Pop LatinoПродолжительность: 03:20:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:74F15CC6B4F52297029CEFFC03F8F675C370A64C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 787 716
+
+VA - 100 Лучших Романтических Композиций  2014  [MP3|256 кб с]<Pop, P&B, Rock, Dance, Lounge>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Alex Band - Only One
+02. ATB feat. Tiff Lacey - Missing
+03. Sixpence None the Richer - Kiss Me
+04. Lifehouse - It Is What It Is
+05. Brainstorm - Maybe
+06. Mandy Moore - Only Hope
+07. Nelly - Just A Dream
+08. Michael George - Miss Sarajevo
+09. Indila - Derniere Danse
+10. Hulio Iglesias - Mammy Blue    Читать дальше...    Жанр: Pop, P&B, Rock, Dance, LoungeПродолжительность: 06:45:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:530A0EC05BDF5B8737D2D3D6B319EE549FEE9DA0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 787 677
 
 Света - MP3 Play  2014  [MP3|320 кб с]<Pop>
@@ -2289,129 +2408,6 @@ VA - Самые Забойные Хиты в Тачку  2014  [MP3|256 кб с]
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 782 691
-
-Юта - MP3 Play  2014  [MP3|320 кб с]<Поп, Рок>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Мел
-02. От большущего ума
-03. Авария
-04. Похмельная
-05. Чёрные стаи
-06. Мальчишка, ты чей
-07. Колыбельная
-08. Одна
-09. Мороз и лед
-10. Солнце мое    Читать дальше...    Жанр: Поп, РокПродолжительность: 04:32:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0FF9A141BB1FADE3785DC6EFF11BB51D4B1547CA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 782 684
-
-VA - Unforgettable Melodies. Listen And Feel  2012  [MP3|320 кб с]<Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
- 3:40  01. Vanessa Mae -  I  Can, Can  You 
- 3:19  02. Richard Clayderman - A Comme Amour
- 4:25  03. Yukie Nishimura - A Letter
- 3:22  04. Paul Mauriat - Alla Figaro
- 3:53  05. Bond - Allegretto
- 2:38  06. Richard Clayderman - Ballade pour Adeline
- 3:48  07. S.F.A - Beyond Hope
- 4:18  08. Lindsey Stirling - Crystallize
- 6:46  09. Vanessa Mae - DestinyЖанр: InstrumentalПродолжительность: 02:41:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:42673C65EC8DB8DBF65CF349A8A0B60DD8FAA612
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_782684.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 782 654
-
-VA - Большая Дискотека. Кумиры прошлых лет Vol.3  2014  [MP3|256 кб с]<Pop, Dance, Disco>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Fancy - Angel Eyes  03:43 
-002. Kylie Minogue - Turn It Into Love  03:36 
-003. Backstreet Boys - We ve Got It Goin On  03:38 
-004. Lian Ross - Say You ll Never  06:36 
-005. C.C.Catch - Don t Be A Hero  03:32 
-006. Bryan Adams - Victim Of Love  04:07 
-007. Silent Circle - Sib Dab Dua  03:02 
-008. Gloria Estefan - Cuts Both Ways  03:12 
-009. Expose - Point Of No Return  03:28 
-010. Al B. Sure! - Nite And Day  03:51     Читать дальше...    Жанр: Pop, Dance, DiscoПродолжительность: 06:40:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7FF8A12FB5327DB6E04A3837FDBCCC71F979248D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 782 600
-
-VA - Pioneer Discoteque  Пионерский лагерь. Дискотека   2013  [MP3|320 кб с]<80s Style, It
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Scotch -  Delirio Mind 1985
-02. Boney M -  Happy Song 1984
-03. Modern Talking -  Hey You 1986
-04. Bad Boys Blue -  Dance The Night Away 1986
-05. Blue System -  Gangster Love 1987
-06. Fancy -  Lady Of Ice 1986
-07. Joy -  Hello 1986
-08. Silent Circle -  Stop The Rain In The Night 1986
-09. Eddy Huntington -  USSR 1986
-10. Opus -  Life Is Live 1985    Читать дальше...    Жанр: 80s Style, ItaloDisco, DanceПродолжительность: 05:06:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:74403795639BCEE9DE5BD74E38313BEE47EA6BBE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_782600.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

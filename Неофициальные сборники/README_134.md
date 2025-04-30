@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 101 567
+
+VA - LUXEmusic proжект - The Russian Project  2016  [MP3|320 Kbps] <Club House, Deep House, Elec
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Eya - Море  Ivan Spell Remix  04:27
+002. Мот feat. Миша Марвин - А может  Eldar Stuff & Biki Remix  05:06
+003. Кристина Си - Космос  Reznikov & Denis First Remix  05:12
+004. Moт - Капкан  Anton Ishutin Remix  05:58    Читать дальше...    Жанр: Club House, Deep House, Electro House, Future House, House MusicПродолжительность: 26:30:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2CBF1AB9029CE16461CCA90CBAFCBFD87E2800B1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1101567.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 101 528
+
+VA - Танцевальная зима. Снежная сотка версия №8  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Виктор Гурченко - Я Уезжаю 3:20
+002. Dave Till Feat. Big Dawg - Real Love 3:41
+003. София Куценко - Луна 3:34
+004. Dnce - Zoom 3:42    Читать дальше...    Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EDB9A1BCE3833926C3E6D0CBB020E624F3AB4B50
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1101528.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 101 525
+
+VA - Автозвук. Отборный зимний хит выпуск №4  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Craig David - Warm It Up 3:11
+002. Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
+003. Evidelle - Ну Почему 3:40
+004. Juliette Claire - Somebody Else s Lover 3:14    Читать дальше...    Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C184175003DD3181EE9AFD73DA55D58FB8C02FB7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1101525.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 101 519
+
+VA - Душевная музыка на радио Шансон. Сборник №10  2017  [MP3|256 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Андрей Широков - Голубые Города 3:34
+002. Александр Блик - Телогрейка 3:18
+003. Milen - Вишенка На Торте 3:34
+004. Владимир Курский - Колода 3:08    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:55E6FD1648512EB81B02401063C361A8447F9122
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1101519.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 101 513
 
 VA - Вечеринка в стиле радио Шансон  2017  [MP3|256 Kbps] <Шансон>
@@ -1897,106 +1997,6 @@ VA - Chilltrap Vol.8 [Compiled by Zebyte]  2017  [MP3|320 Kbps] <Chilltrap>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1098055.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 097 973
-
-VA - 100 пудовые зимние хиты на Europa Plus. Версия 6  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Алсу - Я Пойду Чуть-Чуть Поплачу 3:37
-002. Santey Feat. Emelie Cyreus - Naked Souls 3:29
-003. Чаян Фамали - Моделька 3:31
-004. Mona - Счастье 3:21    Читать дальше...    Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C79BA18218AFCE6A4ECA972296A970771ECDC9AB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1097973.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 097 912
-
-ZZ Top - Greatest Hits  2017  2CD [MP3|320 Kbps] <Hard Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Sharp Dressed Man
-02. Leila
-03. Poke Chop Sandwich
-04. I Need You Tonight    Читать дальше...    Жанр: Hard RockПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FDC6A39B54C8A3F69BF17CD8B4055885149796A6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1097912.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 097 755
-
-VA - Songbird Voices Of Romance  2017  [MP3|320 Kbps] <Jazz, Vocal, Easy Listening>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-1. Nina Landis - Songbird 3:22
-2. Christopher Cross - Arthur s Theme  Best That You Can Do  4:25
-3. Kathy Troccoli - Dance With Me 4:25
-4. Matt Belsante - Nothing Can Change This Love 3:48    Читать дальше...    Жанр: Jazz, Vocal, Easy ListeningПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B802BCEF0795BA021F8A85A7A010022A287DD84
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1097755.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 097 735
-
-VA - Шансон года. Лучшие блатные хиты выпуск №4  2017  [MP3|256 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Максим Олейников - Я Тебя Нашел 2:42
-002. Климм - Не Было  И Нет 5:03
-003. Игорь Тузов - Никогда Бродяга Не Сдавайся 6:12
-004. Игорь Латышко - Ты Неповторимая 3:42    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7D381D17C0290FF3306BA7568AFF0EAC3313CD4E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1097735.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

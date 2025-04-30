@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 075 076
+
+VA - Study Music and Deep Focus  2016  [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Hjordis Olsson - Yellow
+02. Dylan Cooper - The Dreamer s Island
+03. Niles Harvey Relaxing Music Ensemble - Good Night
+04. Jeevesh - Focus    Читать дальше...    Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:28:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4179A270C8D28B7F732795B2ADEFEE31CE5AF3F7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1075076.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 075 038
+
+Наталия Гулькина - Музыкальная Коллекция  часть 2   2016  [MP3|320 Kbps] <Поп, Диско>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Дискотека
+02. Часы
+03. Первое письмо
+04. Море, море    Читать дальше...    Жанр: Поп, ДискоПродолжительность: 03:53:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBE1A7ED035B8E0FB4991323DD4381988CA6B04C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1075038.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 075 030
+
+Наталия Гулькина - Музыкальная Коллекция  часть 1   2016  [MP3|320 Kbps] <Поп, Диско>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Я не могу без тебя  03:21 
+02. Ветер Скажи  remix   04:01 
+03. Ночь  05:45 
+04. Прощай  03:26     Читать дальше...    Жанр: Поп, ДискоПродолжительность: 04:55:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:418C42FE1FB9AD172D79FBF2D3A62FB7963894CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1075030.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 075 013
+
+VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.22  2016  [MP3|192-320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Shakira feat. Dizzee Rascal - Loca  03:01 
+002. Alexandra Stan - Mr Saxobeat  Original Mix   03:15 
+003. FaRa Madcon Feat. Ameerah - Freaky Like Me  03:10 
+004. Fly Project - O Male Mandala  04:16     Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9FB23E9C5AE6EB1B4636C4CABBE162EA2653C324
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1075013.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 074 851
 
 VA - Extra Trance  episode 12   2016  [MP3|320 Kbps] <Trance>
@@ -1897,106 +1997,6 @@ VA - Best 100 RnB And Rap Touch Hits  2016  [MP3|320 Kbps] <East Coast, Hip Hop,
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071279.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 071 246
-
-VA - State Of Trance Civilization  2016  [MP3|320 Kbps] <Trance, Melodic, Uplifting Trance, Emot
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Cold Rush - Temptation  Original Mix  7:59
-02. O.B.M Notion & Cosmic Heaven - Melancholy  Original Mix  7:42
-03. Fabio XB & Mike Saint-Jules - Throne  Original Mix  6:22
-04. Aurosonic & Neev Kennedy - Now I See  Club Mix  7:31    Читать дальше...    Жанр: Trance, Melodic, Uplifting Trance, Emotional, HarmonicПродолжительность: 08:12:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:512E38B4F8AA74FC9E98B844C6F4BD32825164AD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071246.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 071 211
-
-VA - Disco Fever Reality  2016  [MP3|320 Kbps] <Pop, Disco, Synthpop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Digital Emotion - Time 6:00
-02. Secret Service - If I Try 4:08
-03. Den Harrow - Charleston 4:47
-04. Silent Circle - Take A Chance 3:53    Читать дальше...    Жанр: Pop, Disco, SynthpopПродолжительность: 04:01:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D6A38D9C02B8330D51A0358DB8F5E948789E78B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071211.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 071 196
-
-VA - Best Day 50 Hits Ways  2016  [MP3|320 Kbps] <Future Bass, Nu Disco, Latin, Mambo, Reggaeton
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Far East Movement Ft Yoon Mi Rae & Autolaser - Fighter  Clean   Extended  04:32
-02. Astrid S - Hurts So Good  Kream Remix   Clean   Extended  04:26
-03. Wisin - Vacaciones  Lmpool Long Edit Transition 115-96 Bpm Dj Leo Edit  03:44
-04. Simon Fava - El Encanto  Original Mix  05:50    Читать дальше...    Жанр: Future Bass, Nu Disco, Latin, Mambo, Reggaeton, Future HouseПродолжительность: 04:28:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2592B99F5BC80C300098C93578A67C9CB7A138EC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071196.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 071 096
-
-VA - Mix On Styles Dance Floor  2016  [MP3|320 Kbps] <Hip-Hop, Reggae, Trap>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-CD 1 Styles Dance Floor
-
-001. Flume Ft Tove Lo - Say It  Instrumental  04:20
-002. D.R.A.M. Ft. Lil Yachty - Broccoli  Joe Maz Remix   Dirty  03:51    Читать дальше...    Жанр: Hip-Hop, Reggae, TrapПродолжительность: 05:40:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4ECBF376D1D9384F4A874008BA892B410DC823F4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071096.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

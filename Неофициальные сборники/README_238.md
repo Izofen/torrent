@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 532 921
+
+VA - Mega Dance Party Summer Vol.8  2012  [MP3|320 кб с]<Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. 02 Without Ass  Club Mix   5:09 
+2. Adele vs. Mike Candys & Jack Holiday - Set Fire To The Rain  Sir Art & Vivi Dj Mashup   5:04 
+3. Anton Neumark - Benghazi  Original Mix   9:22 
+4. Anton Neumark - Underground  Inspired Souls Remix Russian Version   6:48 
+5. Anton Neumark, Johnny Beast - We Rock The Party  Techno Logic Remix   5:17 
+6. Bodybangers feat. Gerald G - Set The Night On Fire  Club Mix   5:06 
+7. Bodybangers feat. Gerald G - Set The Night On Fire  Original Mix   5:06 
+8. Boogie Pimps - Knocking feat Darryl Pandy  Album Mix  Housesession Records  5:07 
+9. brighi feat snoop dogg-play me like a violin  radio killer extended remix   5:05 
+10. Bryan Bax with Inusa Dawuda - What s Wrong  Stereoshock & Nas Luke WMC 2012 Vocal Remix   5:08 Жанр: Dance, ClubПродолжительность: 04:14:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3549D513FC31535D6CEAF1231AF7ED718E47EBB8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_532921.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 532 909
+
+VA - Mega Dance Party Summer Vol.5  2012  [MP3|320 кб с]<Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. Adele - Rolling In the Deep  Salahoff Mash Up   4:55 
+2. Adriano Celentano - Amore No  Dj Rox Remix   4:52 
+3. Anton Neumark - Benghazi  Original Mix   9:22 
+4. ANTON NEUMARK - IPMBF  Original Mix   9:12 
+5. Anton Neumark - Sochi Olympics  Sly Dewars Vocal Mix   7:37 
+6. Anton Neumark - Underground  Inspired Souls Remix Russian Version   6:48 
+7. Anton Neumark - Underground  Timer & Inkwell Remix   Russian Version   5:35 
+8. ANTON NEUMARK ft YANA FORTEP - Pride  INCOGNET Rmx   5:53 
+9. Anton Neumark, Johnny Beast - We Rock The Party  Techno Logic Remix   5:17 
+10. Babaeff Dark & DJ China feat. Leyla Kafari - Eurovision 2012  Dj Kubinec rmx   4:50 Жанр: Dance, ClubПродолжительность: 04:12:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBBA50EEA0CE48D2039B95AA30924F53F5854A31
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_532909.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 532 760
+
+VA-Sky.Fm - Dreamscapes  2010  [MP3|256 кб с]<Chillout, Lounge, Downtempo>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Above & Beyond - Good For Me  05:39 
+02. Above & Beyond Pres. Oceanlab - Miracle  06:37 
+03. Above & Beyond Pres. Oceanlab - On The Beach  04:38 
+04. Accadia - Into the Dawn  Accadia Ambient mix   09:15 
+05. Acoustic Alchemy - Only In My Dreams  05:48 
+06. Activa - This World  07:18 
+07. Adam Novy - Soothing Sunrise  Chill   02:48 
+08. Adyjay - The only chance  05:37 
+09. Adyjay - Time  05:59 
+10. Aerosoul - Isla Blanca  Aftersun Chill Version   04:48     Читать дальше...    Жанр: Chillout, Lounge, DowntempoПродолжительность: 36:04:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A3BF4EBBD04A3CABA77655E50807DCB30FFDC29
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_532760.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 532 481
+
+VA - Горячие хиты пляжного сезона 4 Русский  2012  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01 Митя Фомин И Кристина Орса - Не Манекен
+02 Ассорти - Ангелы
+03 Кристина Орбакайте Feat. Павел Есенин - А Знаешь, Все Еще Будет
+04 Катя Лель - Не Могу Забыть
+05 A-Via - По Парам
+06 Никита - Прости
+07 Вероника Агапова - Горько
+08 Горячие Головы - Мы Встретимся Вновь
+09 София Ротару - Два Солнца
+10 Валерия - Подруга    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:08:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5F8433BC1265814E21A5CCD1B40AB930BFDAD743
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_532481.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 532 461
 
 VA - Новое и Лучшее. Русский Сборник  2012  [MP3|256 кб с]<Pop, Dance>
@@ -2368,139 +2492,6 @@ VA - Esthetics Lounge Vol. 5  2012  [MP3|320 кб с]<Downtempo, Lounge, Chillou
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_523352.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 523 345
-
-VA - Лучшая русская попса  2012  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. СтаЯ - Сердце
-002. Леонид Агутин и Анжелика Варум - Как не думать о тебе
-003. Юрий Шатунов - Это лето
-004. Апрель - Город-Любовь
-005. Алексей Хлестов - Снежинки на твоих ресницах
-006. Полина Гагарина - Спектакль окончен
-007. Leyla - Ночной DJ
-008. Нола - Тебе
-009. Юлия Волкова  t.A.T.u.  - Сдвину мир
-010. Reggaer - ВлюбленЖанр: PopПродолжительность: 05:53:44
-
-001. Чай Вдвоем feat. Лиана - Виниловое сердце
-002. Любэ, Корни и In2nation - Просто любовь
-003. Emin - Сердце бьется
-004. Градусы - Заметает
-005. Татьяна Котова - Мир для сильных мужчин
-006. Алисия & Влад Корса - Здесь и сейчас
-007. Елена Терлеева - Просто
-008. Вероника Агапова - Baby бай бай    Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:282F95FEE0C3D7750643D6498403C3D0434DEABF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_523345.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 523 338
-
-VA - Знойный летний хит  2012  [MP3|256-320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-1. Pandora feat. Stacy - Why magistral  3:28 
-2. Вирус - За Тобой  3:11 
-3. Женя Вилль - Странная Любовь  4:06 
-4. Светлана Лобода - Облака  DJ Ozeroff & DJ Sky feat. Lebedev Radio Mix   3:41 
-5. Alexey Romeo & Euegene Noiz Feat. Alateya - Лето  Bimbo Song   3:27 
-6. Vilana - Море  3:34 
-7. Dj Cosmo - The Lovesong  3:07 
-8. НеАнгелы - Твоя  DJ Jedy Club Remix   4:33 
-9. DJ Mikis feat. Нина Богданова - С Обратной Стороны Луны  Radio Edit   3:11 
-10. Alexandra Stan - Lemonade  3:30 Жанр: PopПродолжительность: 06:01:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DC64C79F849B0E749D82D48DFC1B2DFD5468C3D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_523338.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 523 087
-
-VA - MAXI. EuroHit от MTV  2012  [MP3|320 кб с]<Pop,Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Reфorma - Пусть  Remix 
-02. Паша Люмин & Даша Шувалова - Делай меня
-03. The Wanted - Chasing The Sun
-04. Градусы - Заметает
-05. Chris Brown feat. Pitbull - International Love
-06. Example - Changed The Way You Kiss Me
-07. Pulsedriver - Take It Home  Topmodelz Mix 
-08. MC Zali Fidel Wicked - Носом по кокосам  Alex Life S Mash Up 
-09. Carly Rae Jepsen - Call Me Maybe
-10. Steve Aoki feat. Wynter Gordon - Ladi DadiЖанр: Pop,DanceПродолжительность: 04:53:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:27AE553FC5970EDA579762F67890AC5D91F5D9DC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_523087.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 522 932
-
-VA - Музыка летнего настроения  2012  [MP3|256-320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-1. Елена Терлеева - Я За Тобой  Radio Rip   3:28 
-2. Dan Balan - Freedom  Slow Version   3:19 
-3. Bobina feat. Винтаж - На-На-На  3:37 
-4. Глюкоза и Макс Барских - Адреналин  3:41 
-5. Юлия Михальчик - Матушка-Река  3:33 
-6. Nickelback - When We Stand Together  3:10 
-7. Far East Movement - Jello  Feat. Rye Rye   2:52 
-8. Robert Miles - Children  Mian Timore Remix   8:15 
-9. Барби - Когда Ты Рядом  3:39 
-10. MainstreaM One - Под Тёмными Очками  3:22 Жанр: PopПродолжительность: 06:19:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FDC98A39913B4543B44D3B410890809DB974CEB1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_522932.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

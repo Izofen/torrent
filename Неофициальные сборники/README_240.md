@@ -1,4 +1,119 @@
 ﻿
+###  Публикация: 516 283
+
+VA - Радио Чарт Energy - Жгучий Танцевальный Сборник 50 50  2012  [MP3|256 kbps]<Pop|Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001 Bad Boys Blue - I ll Be Good
+002 Группа Red Energy - Capital Nigt
+003 Mayari Project - Hayati
+004 Ольга Lucky - Последний Поцелуй  Руки Вверх 
+005 Itaka - La Danza De Ibiza  Zumpa Remix Radio Edit 
+006 Дискотека Авария и Нюша - Moscow Never Sleeps
+007 Demi Lovato - All Night Long  Feat. Missy Elliott & Timbaland 
+008 Тимур Темиров - Лето Жаркое
+009 Radio Killer - Is It Love Out There  Radio Edit 
+010 Vilana - Море    Читать дальше...    Жанр: Pop|DanceПродолжительность: 05:39:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5446CC9046D3254DD93AD633D2281AF0271A7B9F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 516 125
+
+VA - Новинки русского Рэпа. Музыкальный Каприз  2012  [MP3|192 кб с]<Rap, Hip-hop>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+Жанр: Rap, Hip-hopПродолжительность: 08:18:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4934CF6D8D181BB6AE1BF7937B5722EED27DF103
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_516125.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 516 122
+
+VA - Союз Клубный. Выпуск 8  2012  [MP3|256 kbps]<Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001 Горячий шоколад - Стены  Andry Makarov Club remix 
+002 Каролина - Летний дискобар  Версия 2012 
+003 Бурановские Бабушки - Party for Everybody  DJ Slon remix  
+004 Алина Гросу - Взрослая
+005 KSELA feat. DJ ALIX - Наше Лето  Summer Hit 
+006 Dj Tarantino & Katrin Moro - Я Буду Помнить  original mix 
+007 Artik & Asti - Облака  DFM mix 
+008 Dan Balan - Не любя
+009 AD Men s - Жара  extended mix 
+010 DJ Andrey Keyton feat. JWELL - Лететь  DJ Vitalik Vitamin remix     Читать дальше...    Жанр: ClubПродолжительность: 07:24:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69B837E6F86D5FDF25ED5A178A242B53F55765D7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 516 114
+
+VA - Sexy Trance #40  2012  [MP3|320 кб с]<Uplifting Trance, Trance, Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Christian Drost & DK Project - Always Connected  Original Mix  [08:03]
+ 02. Faruk Sabanci - As Faces Fade  Alexander Popov Remix  [06:50]
+ 03. Heatbeat feat. Josie - Because Of You  Original Mix  [07:08]
+ 04. Danilo Ercole feat. Marcie - Broken Wings  Original Mix  [08:06]
+ 05. Fadios & Raneem - Chromium  Max Graham Remix  [06:47]
+ 06. Dayzanst - Double Bind  Light On Remix  [07:09]
+ 07. Claessen & Martens - El Dorado [07:54]
+ 08. Cymatics - Empire Of The Sun  Original Mix  [06:23]
+ 09. Ikerya Project - End Of Begining  Original Mix  [08:51]
+ 10. John Askew - Fade To Black  Sean Tyas Remix  [07:33]    Читать дальше...    Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:39:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5C2A9A751C7885DD8D5471D32D8A5F6CC40591D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_516114.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 516 111
 
 VA - XXXL Music Box. Выпуск 8  2012  [MP3|256 kbps]<Pop|Dance>
@@ -2231,121 +2346,6 @@ Instrumental New Age Meditative Relax  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_502979.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 502 710
-
-VA - Наше Радио 200 Хитов  2012  [MP3|128 кб с]<Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Сплин - Страшная секрет
-002. Земфира - Деньги
-003. Танцы минус - Нна
-004. Би-2 - Девушки
-005. Святослав Вакарчук - Адреналін
-006. Гарик Сукачев и Неприкасаемые - Долго-долго!
-007. Noize MC - Вселенная Бесконечна
-008. Мара - Головокружения  Я Голосую За Мэра-Гея! 
-009. Ночные Снайперы - Гугл  Google 
-010. Браво - Нет Предела    Читать дальше...    2012Жанр: RockПродолжительность: 12:35:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B694D41CC36BBEE9D17B363A319A08F922911D91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_502710.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 502 675
-
-VA - Классный Muzon Best Hits  2012  [MP3|192-320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Armin Van Buuren Pres. Gaia - Status Excessu D  Radio Edit 
-02. Ian Carey, Snoop Dogg, Bobby Anthony - Last Night  Rhab Remix 
-03. Dj Niki & Mc Kako$ - Make Love  Special Radio Version 
-04. Taio Cruz feat. Flo Rida - Hangover
-05. ATB feat. Jansoon - Move on
-06. Gilles Luka Feat Niusha - Plus Pres
-07. Flo Rida feat. Christina Aguilera - Good Feeling  Official Remix 
-08. Pulsedriver vs. Djs Form Mars - Youth Of The Nation  DJ Gollum Edit 
-09. Dj Erohin & Marq Markuz - Dj, Kill Me By Yo Music
-10. David Guetta feat. Flo Rida & Nicki Minaj - Where Them Girls At    Читать дальше...    2012Жанр: PopПродолжительность: 05:59:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:39A346E88933CC98F99066CCC47A46E6037FCB2C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_502675.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 502 648
-
-VA - Авто хит. Динамит 101.2 FM  2012  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Клипsа - Это я.
-002. Вельвеt - Прости.
-003. Ж. Фриске - А на море белый песок.
-004. П. Гагарина - Любовь под солнцем.
-005. Лера Лера - Леди.
-006. Ю. Морозова - Скучаю  DJ Vitalik Vitamin mix .
-007. Точка G - Полетели за мной.
-008. Е. Отрадная - Оревуар.
-009. Данко - Ломаная линия.
-010. Валерия - Кривое зеркало.    Читать дальше...    2012Жанр: Pop, DanceПродолжительность: 05:53:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A8157A7C0217A88F583A0D3559EEC6660FAD1EE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_502648.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 502 584
-
-VA - Инструментальная музыка  2012  vol. № 52 [MP3|320 кб с]<Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:00:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7A6D3053025617FAF24BAC7CD616E25A09354D27
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_502584.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

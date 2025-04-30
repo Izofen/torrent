@@ -1,4 +1,101 @@
 ﻿
+###  Публикация: 360 339
+
+VA - Зажигательное лето  2011  [MP3|256 kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:00:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:129B91F68DE02600FB5DC8A8B6B124D8336F4921
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 360 318
+
+VA - Жаркие Хиты Лета  2011  [MP3|256 kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:55:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8CBC2240CAEAE2D3244612F62D8C132184227E63
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_360318.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 360 125
+
+1260 композиций в стиле Лайт [MP3|96-256 kbps]<Light>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Сборник записей с канала1. !Deladap - Le Shin  10:07 
+        2. 10cc - I m Not In Love  3:01 
+        3. 3rd Force - Til We Meet Again  7:47 
+        4. 4Fun - Love or Leave  3:01 
+        5. A-Ha - Crying In The Rain  8:30 
+        6. A-Ha - Summer Moved On  2:19 
+        7. A-Ha - Velvet  4:19 
+        8. AB - 00000001  5:46 
+        9. Abakus - A Whole New Way Of Looking At The Day  12:37 
+        10. Above & Beyond - Good For Me  Album version   5:45 Жанр: LightПродолжительность: общее время звучания 98:22:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3C255E2A9AC2F11403A605C42B0248400DDF5F7D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_360125.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 359 875
+
+VA - The LoungLegends play Barry Manilow  2011  [MP3|320 kbps]<Easy Listening, Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+Жанр: Easy Listening, InstrumentalПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F3AFD9DA21E1FF38960D40EEB65FD927FBC2D29C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_359875.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 359 811
 
 VA - 1000% Ballads   2011  [MP3|256 kbps]<Pop>
@@ -1965,130 +2062,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 334 576
-
-VA - Radio Record Представляет Electro House  2011  [MP3|256 kbps]<Club-House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Atb Feat. Kate Louise Smith - Where You Are  Club Version 
-02. Captain Jack - Freak You  Radio Mix 
-03. Madcon Feat. Maad Moiselle - Outrun The Sun  Cosmic Dawn Club Mix 
-04. The Lonely Island Feat. Santigold - After Party
-05. Selena Gomez & The Scene - Who Says  Dave Aude Club Mix 
-06. R.I.O. - Miss Sunshine
-07. Marcus Maison & Will Dragen - Machu Picchu  Short Mix 
-08. Tritonal Feat. Bethany - Sometimes I Wish
-09. Clare Maguire - The Shield And The Sword  Almighty Club Mix 
-10. Britney Spears - Trip To Your Heart  Alekos Retrovirus Club Mix     Читать дальше...    Жанр: Club-HouseПродолжительность: 08:30:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:17D9D874CB3E25BA1C4788EBA9492EDF1864C148
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 334 177
-
-VA - Дискотека Студии Мираж Часть 4  2011  [MP3|256 kbps]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Мираж - Музыка Вновь Зовет
-02. Рома Жуков & Lady D - Переливы
-03. Татьяна Буланова И Николай Каблуков - Обещай  Dj Савраска Remix 
-04. Partyfon Project - Дискотека
-05. Наталия Гулькина - Я Назову  Твое Имя 
-06. Марина Журавлева - Только Не Ты
-07. Гоголь Моголь - Диско-Ночь
-08. Верка Сердючка - Dolce & Gabbana
-09. Натали - Недоступен
-10. Мираж  Светлана Разина  - Учитель    Читать дальше...    Жанр: PopПродолжительность: 12:30:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70F3DA5F102D440FF27A3198247651CC728B7F76
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 334 104
-
-VA -  Besame mucho  Концерт одной песни  2011  [MP3|128 kbps]<Bolero,Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul (сборники)
-
-###  Подробнее
-
-1.  Banda machos 	2:54
-2.  The Beatles 	2:35
-3.  Betty Johnson 	3:22
-4.  Cal Tjader  	5:22
-5.  Cesaria Evora 	4:55
-6.  Charo 	        4:30
-7.  Connie Francis 	2:45
-8.  Dalida 	        4:35
-9.  Dave Brubeck 	5:54
-10. Flamingos   	3:11    Читать дальше... Жанр: Bolero,JazzПродолжительность: 01:53:08
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 333 755
-
-VA - BEST of TRANCE HITS  2011  [MP3|192-320 kbps]<Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Above & Beyond pres. OceanLab - I Am What I Am  Lange Remix 
-02. Armin van Buuren feat. Jaren - Unforgivable
-03. B.E.D - Lay Me Down  6Am Club Mix 
-04. Dash Berlin ft. Emma Hewitt - Waiting  Vocal Mix 
-05. First State Feat Tiff Lacey - Where Do We Go  Original Mix 
-06. Guru Josh feat. Lauren Rose - Frozen Teardrops  Da Brozz Melody Remix 
-07. Jamie Jo - U Turn Me On  Lenny B Remix 
-08. Josh Gabriel pres. Winter Kills - My Friend  Josh Gabriel Remix 
-09. KeeMo & Tim Royko - Beautiful Lie feat. Cosmo Klein  Inpetto Remix 
-10. Lange feat Sarah Howells - Out of the Sky  Kyau and Albert Mix     Читать дальше...    Жанр: TranceПродолжительность: 02:00:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E8062A8D5109857BF41A5CDCDAF87C8A017854B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_333755.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

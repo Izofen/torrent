@@ -1,4 +1,96 @@
 ﻿
+###  Публикация: 542 305
+
+VA - Disco Discharge - Classic Disco  2009  2CD [FLAC|Lossless]<Disco, Pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. The Glitter Band - Makes You Blind  Re-edit  [06:00]
+02. The Players Association - Turn The Music Up! [06:54]
+03. Bombers -  Everybody  Get Dancin  [09:29]
+04. Grey & Hanks - Dancin  [07:07]
+05. Change - It Burns Me Up [05:07]
+06. Glen Adams Affair - Just A Groove [06:20]
+07. Cerrone - Look For Love [10:17]
+08. Companion - Livin  Up To Love [09:11]
+09. Don Ray - Got To Have Loving [08:20]
+10. Manhattan Transfer - Twilight Zone|Twilight Tone [06:06]Жанр: Disco, PopПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_542305.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 542 075
+
+VA - Pop & Rock Klub80  2007  2CD[FLAC|Lossless]<Pop, Rock, Disco, Oldes>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Status Quo - In The Army Now [06:17]
+02. Fine Young Cannibals - She Drives Me Crazy [07:06]
+03. Nik Kershaw - The Riddle [05:11]
+04. Sandra - Little Girl [05:11]
+05. Maxi Priest - Wild World [06:10]
+06. Roxette - Dangerous [06:26]
+07. Cock Robin - The Promise You Made [06:39]
+08. The Stranglers - Midnight Summer Dream [10:37]
+09. Duran Duran - Rio [06:42]
+10. Tears For Fears - Shout [08:02]    Читать дальше...    Жанр: Pop, Rock, Disco, OldesПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_542075.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 542 020
+
+Silvetti - Spring Rain   2006  [FLAC|Lossless]<Disco,Funk,Soul>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Spring Rain  5:55 
+02. Primitive Man  5:25 
+03. A Smile At Dawn  4:38 
+04. Two Cups Of Coffee  3:56 
+05. Voyage Of No Return  5:51 
+06. Coconut Rain  4:30 
+07. Fortune Teller  5:30 
+08. Contigo  4:29 
+09. Spring Rain  Radio Edit   3:01 Жанр: Disco,Funk,SoulПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_542020.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 541 980
 
 VA - Pop Icons [The Mail On Sunday]  2003  [FLAC|Lossless]<Pop, Europop>
@@ -2343,93 +2435,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_518310.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 518 187
-
-Крис Кельми - Greatest Hits  1993  [MP3|320 кб с]<Pop, Rock>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Ночное рандеву
-02. Усталое такси
-03. Козырная дама
-04. Леди Блюз    Читать дальше...    Жанр: Pop, RockПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4BA2ACDD4194F817B210CA9453B8B76E6BBF92C1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_518187.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 518 042
-
-T.Ark - H.A.P.P.Y. Radio  2010  [APE|Lossless]<Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Under Cover Lover  Extended Version 
-02. Count On Me  Extended Version 
-03. How Old Are You  Mixed By Luis Rodriguez 
-04. Move It
-05. Carry Me  Maxi Version 
-06. H.A.P.P.Y. Radio  Extended Version 
-07. Count On Me  Instrumental Dub Version 
-08. Under Cover Lover  Instrumental 
-09. Count On Me  Single Version 
-10. Under Cover Lover  Radio Version     Читать дальше...    Жанр: Italo-Disco
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_518042.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 517 758
-
-Adele - 21  Limited Edition   2011  [MP3 |320 кб с]<POP>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Rolling In The Deep  03:49 
-2. Rumor Has It  03:43 
-3. Turning Tabels  04:10 
-4. Don t You Remember  04:03 
-5. Set Fire To The Rain  04:01 
-6. He Won t Go  04:37 
-7. Take It All  03:48 
-8. I ll Be Waiting  04:01 
-9. One And Only  05:48 
-10. Lovesong  05:16     Читать дальше...    Жанр: POPПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D5747AB9904622C1D75CD4DA147EB41695AE1379
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_517758.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

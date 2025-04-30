@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 080 968
+
+VA - Resident Advisor Top 50 Charted Tracks November  2016  [MP3|320 Kbps] <Microhouse, Chicago,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Vaal - Wander To Hell  Locked Groove Remix  06:27
+02. Charles Fenckler - Stellar Acid  Original Mix  07:11
+03. Monoloc - Muted 07:14
+04. Rampa - Necessity  Original Mix  07:49    Читать дальше...    Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:21:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C515F3A98FA5A855B333677341E56804970CD5CC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1080968.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 080 963
+
+VA - Зайцев.Нет - Лучшие Новинки Декабря  2016  [MP3|160-320 Kbps] <Поп, Dance, Rock>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01.Альбина - Я люблю тебя 3:58
+02.Imagine Dragons - Levitate 3:18
+03.DNCE - Good Day 3:39
+04.Jukebox trio feat. Burito - Спешите любить 3:42    Читать дальше...    Жанр: Поп, Dance, RockПродолжительность: 03:24:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C096F97400B99D447929C7D0DB81280514C4DC0C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1080963.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 080 945
+
+VA - Specialist Galactic Trance  2016  [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Alex Larichev - Smile Me  Original Mix  7:27
+002. Beat Service & Susana - Reach The Sun  Original Mix  7:42
+003. Lee Osborne - Omission  Original Mix  7:17
+004. Chris Cockerill & Red Sky - Closing In  Original Mix  7:31    Читать дальше...    Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 11:59:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:782DA475382EB7B87266D10F4B6FA6BB9938BFB3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1080945.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 080 942
+
+VA - Blues Forever vol.65 - vol.68  2016  [MP3|320 Kbps] <Blues>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. The Joey Gilmore Band - Night Time Is The Right Time
+02. Rossington - Shame On Me
+03. Karise Eden - Back To Black
+04. Patric Williams - Little Wing    Читать дальше...    Жанр: BluesПродолжительность: 05:14:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F1A834E8A0793D5A8C683D6E74D2DE501B5A91C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1080942.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 080 934
 
 VA - Fabulous: Best Of  2016  [MP3|320 Kbps] <Trance>
@@ -1891,106 +1991,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1078675.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 078 646
-
-VA - The Chemical Brothers - Best275z  1995 - 2015  [MP3|320 Kbps] <Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01 Leave Home 05:33
-02 Song To The Siren 03:17
-03 Chemical Beats 04:51
-04 One Too Many Mornings 04:14    Читать дальше...    Жанр: ElectronicПродолжительность: 05:36:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:47F48B4A291B1A53C6EB60CC89764924F2A0E531
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1078646.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 078 622
-
-VA - Новинки С  Разных Популярных MP3 сайтов Выпуск #55  2016  [MP3|256~320 Kbps] <House, Pop, R
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Metallica - Nothing Else Matters  Yastreb Remix   Radio Version  3:50
-002. Gigi D Agostino - Bla Bla Bla  Pink Fluid x Pink Is Punk Bootleg  3:04
-003. Blasterjaxx & Marnik - Heart Starts To Beat 3:10
-004. Denis Rublev feat Alex Kafer & Lera - Я У Твоих Ног  Dj Prezzplay Remix  4:16    Читать дальше...    Жанр: House, Pop, Rap, RnB, Club, DanceПродолжительность: 09:01:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D5940DC6A58D972881F9A2FA19DE0A11C312286D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1078622.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 078 570
-
-VA - My Favourite Hits of 1967  8CD   2016  [MP3|320 Kbps] <Psychedelic Rock, Blues Rock, Po
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. The Beatles - Your Mother Should Know  02:27 
-002. Bee Gees - Massachusetts  02:23 
-003. Small Faces - Runaway  02:38 
-004. Tom Jones - Detroit City  03:26     Читать дальше...    Жанр: Psychedelic Rock, Blues Rock, Pop Rock, Folk, Pop, Easy ListeningПродолжительность: 09:43:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2BD15973BF971FEDFDB203A40B9C1468B6D5EA85
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1078570.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 078 505
-
-VA - Real Hip Rhythm And Blues  2016  [MP3|320 Kbps] <RnB, Hip Hop, Rap, Soul>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. Mindless Behavior - #Overnightbag 3:55
-002. Marv Won - 96 Draft Feat. Nolan The Ninja 3:36
-003. Tony Toxik - A La Limite 3:35
-004. M.I.A - A.M.P  All My People  3:21    Читать дальше...    Жанр: RnB, Hip Hop, Rap, SoulПродолжительность: 08:20:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E9B3F8133422D37062EBF9D041F00577DD91EB5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1078505.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

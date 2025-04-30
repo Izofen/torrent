@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 037 544
+
+VA - 45 Suntracks Sunday Music  2016  [MP3|320 Kbps] <House, Progressive, Club>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Topmodelz -  Your Love  CJ Stone Edit  3:36
+02. Jasper Forks -  Paradise  Video Edit  3:02
+03. Armin Van Buuren Feat. Mr Probz -  Another You  CID Remix  4:36
+04. Cosmo & Skoro feat. Nathan Brumley -  Feel So Deep  Alexey Lexx Remix  4:15    Читать дальше...    Жанр: House, Progressive, ClubПродолжительность: 02:41:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD0F33E8FA5218C7644BE39B5EAB87FF4F1A9A02
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1037544.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 037 527
+
+VA - Club Dance Ambience Vol.79  2016  [MP3|320 Kbps] <House, Electro House, Progressive House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Nicky Romero -  Ready 2 Rumble  Original Mix  2:59
+002. Tiesto & Jauz -  Infected  Original Mix  3:45
+003. Benny Benassi -  Danceaholic  Original Mix  3:35
+004. Calvin Harris & Disciples -  How Deep Is Your Love   Sound Delicious Remix  3:52    Читать дальше...    Жанр: House, Electro House, Progressive HouseПродолжительность: 07:44:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E50C7DEA8039071BCF6E2A9F764151A69C6EE5DB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1037527.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 037 504
+
+VA - Guitar Collection 6  2016  [MP3|320 Kbps] <Instrumental, Acoustic, Rock>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Tomoyasu Hotei - Dark Wind    02:48
+002. Nick Johnston - Ghost of the Robot Graveyard    05:14
+003. Chequerboard - Like A Bell To A Southerly Wind    04:26
+004. Mike Howe - Summer Road    03:12    Читать дальше...    Жанр: Instrumental, Acoustic, RockПродолжительность: 07:22:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BD56B0A79B2BB39974C2FB64288F7588C448741B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1037504.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 037 436
+
+VA - Ballads for Lovers Vol.1  2016  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Frankie Goes To Hollywood - The Power Of Love
+02. Stevie B. - Because I Love You  The Postman Song 
+03. Chris Rea - Ace Of Hearts
+04. Commodores - Nightshift    Читать дальше...    Жанр: PopПродолжительность: 02:18:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1037436.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 037 405
 
 VA - Бомба Года Выпуск 50+50  2016  [MP3|256 Kbps] <Pop>
@@ -1896,106 +1996,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035306.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 035 204
-
-VA - Чартова дюжина: Итоги 2015   Наше радио  - результаты хит-парада   2015  [MP3|320 K
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Brainstorm - Эпоха
-02. ДДТ - Жизнь красивая
-03. Сплин - Танцуй !
-04. Ночные Снайперы - Этонемне    Читать дальше...    Жанр: Руский рок, поп-рокПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:536C0B5A5968687281A423367CA941759B135A63
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035204.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 035 188
-
-VA - Endless Motion - Only Trance  episode3   2016  [MP3|320 Kbps] <Trance, Uplifting Trance
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Armin Van Buuren & Rising Star Ft. Betsie Larkin -  Again  Armin Van Buuren Remix  3:11
-002. Gareth Emery feat. Janet Devlin -  Lost  Super8 & Tab Remix  3:21
-003. NoMosk & Roman Messer feat. Christina Novelli -  Lost Soul  Aleksey Sladkov Remix  5:06
-004. Talla 2XLC & Jilliana Danise -  What Could Be Better  Original Mix  6:23    Читать дальше...    Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:53:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:973686ADB2A89E58646AA8C6A0EE27F378F0E205
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035188.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 035 141
-
-VA - Наше радио: Летняя 100-ка - 2016  2016  [MP3|320 Kbps] <Русский рок, поп-рок>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Ночные Снайперы - История
-002. BrainStorm - Пропуск
-003. Борис Гребенщиков - Бурлак
-004. Мураками - 364    Читать дальше...    Жанр: Русский рок, поп-рок.Продолжительность: 06:30:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7BBA79B0895DE8E8AAB598445647830305671FC3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035141.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 035 136
-
-VA - RnB Really: Soul Mix  2016  [MP3|320 Kbps] <RnB, Soul, Funky>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Ja Rule - Livin  It Up  Feat. Case 
-002. Beyonce - Sorry  Funkymix 
-003. Jackie Moore - Precious Precious
-004. Montell Jordan - This Is How We Do It    Читать дальше...    Жанр: RnB, Soul, FunkyПродолжительность: 07:21:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:78E622998CFD88A0F487D6B87A7D568CADA9ACB5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035136.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

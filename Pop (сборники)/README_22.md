@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 584 817
+
+Sarah Connor - Bounce  2004  [OGG Vorbis|480 Kbps] <Europop, Hip Hop, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Bounce
+02. French Kissing
+03. Let s Get Back To Bed-Boy! featuring TQ 
+04. On Nite Stand Of Wolves And Sheep  featuring Wyclef Jean     Читать дальше...    Жанр: Europop, Hip Hop, PopПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:73077E07E83D5BF571CA2FC4973B09DFBAE38D4F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584817.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 584 788
+
+Belinda Carlisle - A Place On Earth · The Greatest Hits  1999  2 CD [OGG Vorbis|480 Kbps] <Elect
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Heaven Is A Place On Earth
+02. I Get Weak
+03. Circle In The Sand
+04. Leave A Light On    Читать дальше...    Жанр: Electronic, Rock, PopПродолжительность: 02:13:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:714980479131A990B04E7126E96E6AB8E4C8CD07
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584788.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 584 577
+
+VA - New Pop Classics  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Ed Sheeran - 2step  feat. Lil Baby   02:43 
+02. Madeline The Person - Why I Broke Up with You  02:43 
+03. David Guetta - I m Good  Blue   02:55 
+04. Charlie Puth - Smells Like Me  03:24     Читать дальше...    Жанр: PopПродолжительность: 02:40:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1272C8CA4DF15637658D1509D31891A391691F79
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1584577.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 584 433
 
 Paula Abdul - The Greatest  1998  [OGG Vorbis|480 Kbps] <Pop>
@@ -1918,81 +1993,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576250.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 576 246
-
-Chris Norman - Rediscovered Love Songs  2022  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Need You Now [00:04:11]
-02. To Love Somebody [00:03:35]
-03. Wonderful Tonight [00:03:42]
-04. I Drove All Night [00:04:11]    Читать дальше...    Жанр: PopПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:29145F65E2BE9ED9B20A49B10B23200E199B8ED2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576246.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 576 241
-
-Julio Iglesias - Love Songs  2007  [MP3|320 Kbps] <Pop Latino>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - To All the Girls I ve Loved Before [00:03:32]
-02 - Crazy [00:03:16]
-03 - When I Need You [00:04:15]
-04 - Vincent  Starry Starry Night  [00:04:15]    Читать дальше...    Жанр: Pop LatinoПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:88485BCE3BD17922A12C48D259820361CFDF957A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576241.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 576 159
-
-VA - ZYX Italo Disco New Generation Vol. 21  2022  2CD, Compilation [MP3|320 Kbps] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Italoconnection - All Over  Flemming Dalum Remix   5:48 
-02. Mono Band - Come Back  Mix Extended Version   6:14 
-03. Frontemare feat. Fabio Babini, Venus In Disgrace, Kimerica - Riviera Balera  Extended Version   5:30 
-04. Steele Up - Waiting For You  Flemming Dalum Special ZYX Remix   7:03     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 02:36:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:95A4D9D4DE9139E5852CD74D169A2F1963711E7C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576159.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

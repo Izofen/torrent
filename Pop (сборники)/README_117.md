@@ -1,4 +1,97 @@
 ﻿
+###  Публикация: 771 686
+
+Tina Turner - Love Songs  2014  [FLAC|Lossless]<Pop, Soul>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Best
+02. I Dont Wanna Lose You
+03. Lets Stay Together
+04. Whats Love Got To Do With It
+05. Missing You
+06. Private Dancer
+07. Two People
+08. Look Me In The Heart
+09. Way Of The World
+10. Why Must We Wait Until Tonight    Читать дальше...    Жанр: Pop, SoulПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:37EF0821F89FEE0A87B8721CBC68EC3A676D48D4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 771 650
+
+Karmin - Pulses  2014  [FLAC|Lossless]<Pop, Dance, Electronic, Synthpop, Pop Rap, Disco>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Geronimo Intro  0:36 
+02. Pulses  3:24 
+03. Acapella  3:18 
+04. I Want it All  3:47 
+05. Night Like This  3:01 
+06. Neon Love  4:26 
+07. Drifter  3:14 
+08. Tidal Wave  3:48 
+09. Gasoline  3:38 
+10. Puppet  3:13     Читать дальше...    Жанр: Pop, Dance, Electronic, Synthpop, Pop Rap, DiscoПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B2323D03C11E18F431ED16DFDA05271EC9F9FE4E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 770 263
+
+One Direction - Up All Night  2011  [MP3|128 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. What Makes You Beautiful  3:18 
+2. Gotta Be You  4:04 
+3. One Thing  3:17 
+4. More Than This  3:48 
+5. Up All Night  3:12 
+6. I Wish  3:35 
+7. Tell Me A Lie  3:15 
+8. Taken  3:55 
+9. I Want  2:51 
+10. Everything About You  3:35     Читать дальше...    Жанр: PopПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80F6C2CE4B5CBB2A27D16FA6E22DF11D3D6BD300
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 769 944
 
 Sophie Zelmani - Going Home  2014  [MP3|320 кб с]<Indie Pop, Acoustic>
@@ -2300,99 +2393,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 754 684
-
-VA - Radio 538: Hitzone 68  2014  2CD[MP3|320 кб с]<Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Avicii - Hey Brother  04:16 
- 02. Miss Montreal - Say Heaven Say Hell  03:47 
- 03. Katy Perry - Roar  03:45 
- 04. Maitre Gims - J me Tire  04:11 
- 05. Marco Borsato ft. Jada Borsato, Day Ewbank & John Ewbank - Samen Voor Altijd  04:10 
- 06. Drake ft. Majid Jordan - Hold On, We re Going Home  03:46 
- 07. Ilse DeLange - Blue Bittersweet  04:29 
- 08. Parra For Cuva ft. Anna Naklab - Wicked Games  03:17 
- 09. Imagine Dragons - It s Time  04:00 
- 10. Tiesto - Red Lights  03:22     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE34A8201B0942F59BA4E4F4FA9EE6025F026B18
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 754 080
-
-Стас Пьеха - 10  2013  [FLAC  image+.cue |Lossless]<Рор>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-Третий по счету альбом Стаса Пьехи носит название «10». Выход альбома приурочен к 10-летию творческой жизни певца.01. Я лист  03:19 
- 02. Я и ты  feat. Слава   03:48 
- 03. Девочка на шаре  03:14 
- 04. Крылья  04:27 
- 05. Старая история  03:27 
- 06. Моя прекрасная Леди  03:44 
- 07. На ладони линия  03:48 
- 08. Зелёный омут  03:19 
- 09. Только с тобой  04:09 
- 10. Зима  feat. А.Кочнев   03:45     Читать дальше...    Жанр: РорПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B4EE38725DD6445351A676806D9BD6131C911CF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 753 936
-
-Suzanne Vega - Tales From The Realm Of The Queen Of Pentacles  2014  [FLAC  tracks |Lossless
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Crack In The Wall
-02. Fool s Complaint
-03. I Never Wear White
-04. Portrait Of The Knight Of Wands
-05. Don t Uncork What You Can t Contain
-06. Jacob And The Angel
-07. Silver Bridge
-08. Song Of The Stoic
-09. Laying On Of Hands   Stoic 2
-10. Horizon  There Is A Road Жанр: Pop, FolkПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:214553E1D9DD20135206FF91A1504961C479C50C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_753936.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

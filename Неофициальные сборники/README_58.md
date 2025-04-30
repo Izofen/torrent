@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 392 332
+
+VA - Music for You vol.8  2020  [MP3|320 Kbps] <Rock, Metal, Other>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Anthem - Pain  04:17 
+ 02. Anika Nilles - Mister  06:00 
+ 03. The Omnific - Erin  03:21 
+ 04. Circles - Blueprints for a Great Escape  04:48     Читать дальше...    Жанр: Rock, Metal, OtherПродолжительность: 04:04:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D401F1092BEBFF41FB948ED0CD4DD8FE2A971417
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1392332.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 392 229
+
+VA - 00s Rock  2020  [MP3|320 Kbps] <Rock, Alternative, Other>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+1. Linkin Park - In the End  3:36 
+2. Red Hot Chili Peppers - Can t Stop  4:29 
+3. The White Stripes - Seven Nation Army  3:51 
+4. System of a Down - Lonely Day  2:47     Читать дальше...    Жанр: Rock, Alternative, OtherПродолжительность: 03:45:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3EBD3776173CA234232225900C9525CD9E831B64
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1392229.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 392 187
+
+VA - Old Alabama Blues  2020  [MP3|320 Kbps] <Blues, Soul, Country>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Richie Milton - Temporarily Blue Bt
+002. Rosie Flores - That s What You Gotta Do
+003. Betty Lavette - Here I Am
+004. Buddy & Julie Miller - Unused Heart    Читать дальше...    Жанр: Blues, Soul, CountryПродолжительность: 06:25:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9EC815F4C84265B734CA792B972A4BAA40DBB162
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1392187.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 392 186
+
+VA - EDM Foam Party  2020  [MP3|320 Kbps] <EDM, Dance, Club, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. The Freestyle Academy - Inside Your Heart
+002. Bing Lee - Por Que No
+003. That Melon Guy - Starry
+004. Agebeat & Kovary - Come Together    Читать дальше...    Жанр: EDM, Dance, Club, HouseПродолжительность: 09:50:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:36465087A427A17A66E90DFC0826ABE18E08BBA0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1392186.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 392 185
 
 VA - Beatport Bassline: Electro Sound Pack #112  2020  [MP3|320 Kbps] <D&B, Bassline>
@@ -1894,106 +1994,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388565.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 388 547
-
-VA - Авторадио: Золото дискотек Vol. 1  2020  [MP3|320 Kbps] <Euro Disco, Italo Disco, Euro Danc
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Bad Boys Blue - From Heaven To Heartache 3:33
-02. C.C. Catch - Stay  Maxi-Version  5:47
-03. Grant Miller - Colder Than Ice 5:35
-04. DJ s Project - Vision Of Love 6:40    Читать дальше...    Жанр: Euro Disco, Italo Disco, Euro DanceПродолжительность: 06:29:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E26576B916745F1D4E46FD946ACFB63CDA539F2C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388547.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 388 530
-
-VA - The Official UK Top 40 Singles Chart 05.06.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. DaBaby - ROCKSTAR
-02. Lady Gaga - Rain On Me
-03. S1mba - Rover  feat. DTG 
-04. Drake - Toosie Slide    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F119DA8A75FE1C499A4F3BEC28957EAF94AFE5B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388530.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 388 516
-
-VA - Music News vol.16  2020  [MP3|320 Kbps] <Pop, Soul, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Abee - Way Back  03:13 
- 002. Aexcit feat. Hilla - High  Aexcit vs. Mande Remix   02:28 
- 003. Armin Van Buuren & Brennan Heart feat. Andreas Moe - All On Me  MOTi Remix   03:06 
- 004. Arno Cost & Norman Doray - One Night  02:59     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 07:14:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F991A6C18B347130D6038C8EDD6FA9C94FECE21
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388516.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 388 488
-
-VA - German Top 100 Single Charts 05.06.2020 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. AK Ausserkontrolle x Bonez MC - In meinem Benz
-02. Pashanim - Airwaves
-03. Apache 207 - Fame
-04. KC Rebell & Summer Cem - FLY    Читать дальше...    Жанр: PopПродолжительность: 04:56:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF22E7EC3798B16083E0A415767127332FB81549
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388488.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

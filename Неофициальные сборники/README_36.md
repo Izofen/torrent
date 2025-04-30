@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 495 640
+
+VA - Get a Rock!  2021  [MP3|320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Мураками - Говори  4:12 
+02. Гарик Сукачев - О, Море В Гаграх  4:17 
+03. Земфира - Мелодрама  4:03 
+04. ФЛИП - Не Умрём  3:02     Читать дальше...    Жанр: RockПродолжительность: 04:58:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:78F5C0129143C381AB1D106F134375980E17F1F3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1495640.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 495 561
+
+VA - Cardio Music 2021 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. DJ Dobrel, Robbie Rosen - So Far Away - Remix  3:19 
+02. Topic, A7S, Lil Baby - Why Do You Lie To Me  2:51 
+03. Rasster, Matvey Emerson - Another Lonely Night  2:56 
+04. SI US PLAU, Veronica Bravo - Toxic  2:57     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:36:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D106B0A22CC4C89113B0C5F0920C9CEB5F15B676
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1495561.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 495 505
+
+VA - Best Of 2021 - Herbst Winter  2021  2CD [MP3|320 Kbps] <Hip Hop, Latin, Dancehall, Post-D
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. The Weeknd - Take My Breath
+02. Felix Jaehn & Robin Schulz - I Got A Feeling  feat. Georgia Ku 
+03. Tinlicker & Helsloot - Because You Move Me
+04. Pascal Letoublon - Friendships  Lost My Love   feat. Leony     Читать дальше...    Жанр: Hip Hop, Latin, Dancehall, Post-Disco, SynthpopПродолжительность: 01:01:05 + 01:04:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6C65071171754BAADD2965CC2ACAE608384FD04D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1495505.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 495 470
+
+VA - Music News vol.131  2021  [MP3|320 Kbps] <Pop, Soul, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Xana - XXL  03:21 
+ 002. Akon feat. Tariku Gankisi - Dishtagina  03:32 
+ 003. Akris & Teddy - Жениться Не Хочу  02:04 
+ 004. Alsina - Стерва  02:10     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 05:47:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB0AF13235A3AD34CD3521E59643F362E4EDE70F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1495470.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 495 414
 
 VA - Record Super Chart 11.09.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -1894,106 +1994,6 @@ VA - Music News vol.126  2021  [MP3|320 Kbps] <Pop, Soul, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1491697.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 491 270
-
-VA - New Rock 4 Русский  2021  [MP3|320 Kbps] <Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. tweego, Lauhtina - Рок против  2:43 
-02. Leadlace - Дом  4:18 
-03. джинсы тарковского - битые пиксели  3:24 
-04. Nervy - Твоим морем  3:21     Читать дальше...    Жанр: RockПродолжительность: 02:52:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D236CBFF93ED4B0FDBE9D5670070136A0A60AD31
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1491270.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 491 120
-
-VA - Ностальгия 6 NNM-Remix  2021  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Руки Вверх - 18 мне уже  Dj Karas Remix   6:38 
-02. ТаТу - Я Твоя Не Первая  Fly Dream Remix   6:19 
-03. Отпетые Мошенники - Люби меня люби  SNEBASTAR Remix   6:22 
-04. Reflex - Non Stop  Dj Scorpio & Dj Duck Reboot   4:23     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 05:51:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C51B07F92DC09FAAEB01B74D9FCE7DA724E841C0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1491120.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 490 996
-
-VA - Progressive Classics  2021  [MP3|320 Kbps] <Progressive House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Alex Vidal & Greenage - Summer Rain  Cj Art Downbeat Mix 
-002. Alexander Saykov - Boulevard  Original Mix 
-003. Axel Terblanche - Diurnal  Original Mix 
-004. Diego Ferran - My Paradise  David Duque Remix     Читать дальше...    Жанр: Progressive HouseПродолжительность: 11:45:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E60AC79265BD17D14FC7F5494BE708AD522886C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1490996.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 490 785
-
-VA - Русские Хиты 2 2021  2021  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. 10AGE - Пушка  3:23 
-002. Miyagi & Andy Panda - Патрон  3:45 
-003. FEDUK - Песня про лето  2:43 
-004. MriD - Нервы  2:02     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 07:50:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8CF987B5A746AD6F4F390D905872E207D1C2A121
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1490785.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

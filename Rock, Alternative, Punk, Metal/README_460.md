@@ -1,4 +1,435 @@
 ﻿
+###  Публикация: 68 036
+
+Billy Joel - River Of Dreams  1993  [APE|Lossless] <Pop Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. No Man s Land [4:48]
+02. The Great Wall Of China [5:47]
+03. Blonde Over Blue [4:55]
+04. A Minor Variation [5:36]    Читать дальше...    Жанр: Pop RockПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4F704686D923032ECEB80255364164F1749BC4B9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_68036.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 67 968
+
+The Doors - The Best Of The Doors  2000  [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+1. Riders On The Storm
+2. Light My Fire
+3. Love Me Two Times
+4. Roadhouse Blues  Live 
+5. Strange Days
+6. Break On Through
+7. Five To One
+8. Moonlight Drive
+9. Alabama Song
+10. Love Her Madly    Читать дальше...    Жанр: RockПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 67 430
+
+Alannah Myles - A Lan Nah  1995  [FLAC|Lossless]<Pop Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Mistress of Erzulie
+02. Blow Wind Blow
+03. Family Secret
+04. Mother Nature    Читать дальше...    Жанр: Pop RockПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_67430.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 63 936
+
+Iggy Pop & The Stooges - Абсолютная дискография  1964-2007 
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+The Iguanas - 1964 - Jumpin  With ~224 kb s VBR 
+The Stooges - 1969 - Funhouse 192 kb s CBR
+The Stooges - 1969 - The Stooges 192 kb s CBR
+The Stooges - 1973 - Open Up And Bleed 192 kb s CBR    Читать дальше...    Жанр: Панк-рокПродолжительность: 25:22:42
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_63936.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 61 530
+
+NRM  N.R.M.  - Дискография  12 альбомов   1995-2007  [FLAC|Lossless|image + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 12:37:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4069D78B60011D65D5DA672C555AA236C72C3AB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_61530.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 61 501
+
+The Beatles - 12 Albums  1963-1970  Dr. Ebbetts Blue Box Remasters  2005-2006, DESS  [APE|Lo
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+«The Beatles Blue Box» — первое переиздание дискографии группы, вышедшее ещё в 1978 году. Оно включило в себя 12 английских студийных пластинок в стерео-формате. Первое издание пластинок из «Blue Box» на CD пиратский лейбл DESS выполнил ещё в 2000 году. В 2005-2006 гг. Dr. Ebbetts осуществил переиздание этой серии     Читать дальше...    1963 - Please Please Me
+1963 - With The Beatles
+1964 - A Hard Day s Night
+1964 - Beatles For Sale
+1965 - Help!
+1965 - Rubber Soul
+1966 - RevolverЖанр: Classic RockПродолжительность: 08:15:02
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_61501.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 61 005
+
+Группа Стаса Намина - Цветы (1972-1979) [FLAC|Lossless] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Звездочка моя ясная (5:16)
+02. Не надо (2:59)
+03. Есть глаза у цветов (4:14)
+04. Честно говоря (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED970A6F3550CDD5751D7B3D4ED0A846E2A2342F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_61005.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 59 533
+
+The Beatles - With The Beatles  Limited Collector s Edition   1963  Unofficial Release  
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. It Won t Be Long [2:13]
+02. All I ve Got To Do [2:03]
+03. All My Loving [2:09]
+04. Don t Bother Me [2:28]
+05. Litlle Child [1:47]
+06. Till There Was you [2:13]
+07. Please Mister Postman [2:34]
+08. Roll Over Beethoven [2:45]
+09. Hold Me Tight [2:32]
+10. You Really Got A Hold On Me [3:02]    Читать дальше...    Жанр: RockПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 59 532
+
+The Beatles - Beatles For Sale  Limited Collector s Edition   1964  Unofficial Release  
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. No Reply [2:17]
+02. I m A Loser [2:30]
+03. Baby s In Black [2:06]
+04. Rock And Roll Music [2:34]
+05. I ll Follow The Sun [1:50]
+06. Mr. Moonlight [2:41]
+07. Kansas City [2:39]
+08. Eight Days A Week [2:45]
+09. Words Of Love [2:05]
+10. Honey Don t [3:04]    Читать дальше...    Жанр: RockПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 53 599
+
+Rainbow – 11 альбомов (1975-1995) Remastered Japanese Edition, Box-Set [FLAC|Lossless]<Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+Альбомы:
+Ritchie Blackmore's Rainbow (Remastered 1999) (1975)
+Rising (Remastered 1999) (1976)
+On Stage (Remastered 1999) (1977)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 12:44:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D76F3654D4D322517C12B38F71D90661233AA2B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_53599.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 53 571
+
+Сплин - 14 Альбомов  1994-2007  [MP3|128-320 kbps]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Года выпуска: 1994-2007Альбомлист:
+1994 - Пыльная быль
+1996 - Коллекционер оружия
+1997 - Фонарь под глазом
+1998 - Гранатовый альбом
+1999 - Альтависта
+2000 - Зн@менатель
+2004 - 25-ый Кадр
+2002 - CD1
+2002 - CD2    Читать дальше...    Жанр: RockПродолжительность: 10:51:43
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_53571.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 52 055
+
+Ботаника - Зацелованный мужик  2003 [MP3|320 kbps]<Русский рок>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1.  	Под Луганском родился, 04:24
+2. 	Алкоголик, 03:49
+3. 	Из дома вышли, 04:10
+4. 	Зацелованый мужик, 02:17    Читать дальше...    Жанр: Русский рокПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D9ADE4996961C32DC701956FCC2027BEF8BF8D87
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_52055.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 51 769
+
+Anathema - A Natural Disaster  2003  [FLAC|Lossless]<Progressive Alternative Rock>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+1. Harmonium [5:29]
+2. Balance [3:58]
+3. Closer [6:21]
+4. Are You There [4:59]    Читать дальше...    Жанр: Progressive, Alternative RockПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:51DB1F6EA3DB25CA2497C2566932815F7083C86C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_51769.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 51 360
+
+Pink Floyd - Wish You Were Here  1975  24-Karat Gold Disc, Collector s Edition  1994, Columb
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Shine On You Crazy Diamond  Part I-V 
+02. Welcome To The Machine
+03. Have A Cigar
+04. Wish You Were Here
+05. Shine On You Crazy Diamond  Part VI-IX Жанр: RockФормат: APE  image + .cue Продолжительность: 00:44:11
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 50 609
+
+Metallica - Reload  1997  [APE|Lossless|image + .cue] <Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Fuel  4:30 
+02. The Memory Remains  4:39 
+03. Devil s Dance  5:19 
+04. The Unforgiven II  6:36     Читать дальше...    Жанр: MetalПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C9FE91CA89B1EBE50F1B652C90CC635CD84F2C65
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_50609.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 49 894
+
+Sting - Best Ballads  1996  Unofficial Compilation [APE|Lossless]<Soft Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Let Your Soul Be Your Pilot
+02. Fields Of Gold
+03. Fragile
+04. It s Probably Me
+05. The Hounds Of Winter
+06. When We Dance
+07. Moon Over Bourbon Street
+08. They Dance Alone
+09. Shape Of My Heart
+10. All For Seasons    Читать дальше...    Жанр: Soft RockПродолжительность: 01:15:23
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 49 554
 
 Judas Priest  1974 — 2005 

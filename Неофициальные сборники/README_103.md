@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 216 314
+
+VA - Baleric Soaring Inspiration  2018  [MP3|320 Kbps] <Progressive House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Shingo Nakamura - Memory Of The Sea  2011 Mix  7:35
+02. Talamanca - When The Sun Goes Down  Extended Mix  7:15
+03. Bleedin Neutron - Steel Pillars Of Dawn  Eyal Cohen Remix  8:12
+04. Vintage & Morelli - Aurora  Extended Mix  7:23    Читать дальше...    Жанр: Progressive HouseПродолжительность: 05:41:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:37D2816CC037DDF5B614C262013218E6E85ADE27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216314.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 273
+
+VA - Deep House Collection Vol.162  2018  [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. 7even  GR  - Have It All   RAFO Remix 
+002. Aeron Aether - Release the Kraken  Erdi Irmak Remix 
+003. Akio Imai & Claudio Giordano - Enigma  Original Mix 
+004. al l bo - Walls Of Tears  De Graal  Remix     Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:23:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04FF7F93016197FB9A4EF00247927899D5632323
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216273.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 269
+
+VA - Deep House Collection Vol.163  2018  [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. 7even  GR  - Mystery   Original Mix 
+002. Ada  -  Rostock   Original Mix 
+003. Adelina  - Bye Bye   Robert Cristian Remix 
+004. Ahmet Kilic - We Still Alive   Extended Mix     Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:55:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D379026971AEC06D38225FEBE4CC3F7F2369FE4C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216269.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 216 242
+
+VA - Deep House Collection Vol.161  2018  [MP3|287-320 Kbps] <Deep House, Club House, Tech House
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. 2fox feat. Nandi - Motion  Original Mix 
+002. 2fox feat. Nandi - Zulu Suite  Original Mix 
+003. A-Mase feat. Rave CHannel - Just Be   Original Mix 
+004. A. Rassevich - Hate Me Tonight  QRVZH Remix     Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:37:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3BCBA2E810E5F83E6CEA44CAE9E16B50E0D188D8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216242.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 216 234
 
 VA - Deep House Collection Vol.160  2018  [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -1893,106 +1993,6 @@ Grivina - Я Хочу  2018  Remix [MP3|320 Kbps] <Deep House>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213494.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 454
-
-VA - ЕвроХит Топ 40 Europa Plus 16.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Imagine Dragons - Whatever It Takes
-02. Luis Fonsi, Demi Lovato - Echame La Culpa
-03. Jax Jones - Breathe  Ina Wroldsen 
-04. MARUV & Boosin - Drunk Groove    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:17:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E883C4B09464CFE128226B9B85E4B50654EE5D3A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213454.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 418
-
-VA - Empire Records - Church  2018  [MP3|320 Kbps] <Pop, Pop-Rock>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Ocean Jet - Breaking The Stones
-02. X Ambassadors - Torches
-03. Lea Michele - Heavenly
-04. Jena Lee - Le Temps    Читать дальше...    Жанр: Pop, Pop-RockПродолжительность: 01:20:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7ACFA481797A6D8165525C8D0FD82960C8A7E8EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213418.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 359
-
-VA - Зайцев.нет: Лучшие Новинки Марта  2018  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  T-Fest  -  Улыбнись Солнцу  3:39
-02.  Ёлка  -  Вот это да!  3:36
-03.  John Newman  -  Fire In Me  4:06
-04.  Jason Derulo  -  Colors  3:07    Читать дальше...    Жанр: PopПродолжительность: 03:44:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:22FE9A9B1CA83E4E70635B876E1805584920C1F1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213359.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 342
-
-VA - Neotrance Selected Works [Compiled by ZeByte]  2018  [MP3|320 Kbps] <Neotrance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Synasthesie - Lotus  Clawz Sg Remix  [07:19]
-02. Nick Devon - Skyline  Mallone s City Lights Remix  [07:25]
-03. Frankye Lova, Stephan Seddel - Unstable [08:15]
-04. Jos & Eli, Sean Doron, Jenia Tarsol - Amore [08:27]    Читать дальше...    Жанр: NeotranceПродолжительность: 04:59:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:876E9994534FC2E3C2CD6B3E5AACE69ED1E228F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213342.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

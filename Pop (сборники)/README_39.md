@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 427 605
+
+Sade - Diamond Life  1984  Epic CD 26044 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Conte
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Smooth Operator  5:00 
+ 02. Your Love Is King  3:59 
+ 03. Hang on to Your Love  6:01 
+ 04. Frankie’s First Affair  4:38     Читать дальше...    Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:59B53123FDFE2394FF0D92FC9E99CF7C5745C07C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1427605.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 427 579
+
+Limelight - Love Me Forever  2020  [MP3|320 Kbps] <Electronic, Italo-Disco, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Love Me Forever  Intro    1:55 
+02. Summer Lovers   6:14 
+03. Say That You Love Me   6:03 
+04. Our Day Will Come   6:36     Читать дальше...    Жанр: Electronic, Italo-Disco, Euro-DiscoПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E2EC479DCA5ADCCA9D8DDFC311A2FE6D48EF9ABA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1427579.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 427 414
+
+VA - Pop 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Chelsea Cutler - Sad Tonight  2:58 
+02. blackbear - hot girl bummer  3:08 
+03. BENEE, Gus Dapperton - Supalonely  3:43 
+04. Conan Gray - Maniac  3:05     Читать дальше...    Жанр: PopПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9E1696D132054A353A22BCCE9D1CB0D342CAC3D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1427414.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 427 386
 
 VA - Айсберг-Каникулы с Андреем Губиным   2001  [FLAC|Lossless|tracks + .cue]<Pop>
@@ -1916,78 +1991,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421180.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 421 104
-
-Bad Boys Blue - Tears Turning To Ice  2020  [MP3|320 Kbps] <Dance, Pop, Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Killers  03:49 
- 02. Tears Turning to Ice  03:19 
- 03. Love Love Love  02:56 
- 04. A Million Times in Heaven  04:07     Читать дальше...    Жанр: Dance, Pop, Euro-DiscoПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C3B6340AB80F7393C35B55FB84713B2D562A1D3E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421104.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 421 076
-
-Laura Branigan - Self Control  2020  2 CD Expanded Edition [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Треклист CD1:
-01. The Lucky One
-02. Self Control
-03. Ti Amo    Читать дальше...    Жанр: Pop |Продолжительность: 01:27:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D909E7AC84F75CACD478DCFE87CD2E0CDC4C81D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421076.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 420 857
-
-Karel Gott - Hinter Der Sonne-Lieder, Die Ich Im Herzen Trage  2011  [FLAC|Lossless|image + .cue
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Im Leben Zahlen Nicht Die JahreЖанр: Pop, SchlagerПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:23ACB17975236D83206542466500D24342896A83
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1420857.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

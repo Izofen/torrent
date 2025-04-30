@@ -1,4 +1,101 @@
 ﻿
+###  Публикация: 932 679
+
+Red Dog: Superior Firepower  2000-2015  [MP3|320 кб с]<Score>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Рип музыки сделан на основе оригинального диска DreamcastЖанр: ScoreПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B558EA28BFE2F9FB99C1E2EE324025B23338983F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932679.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 932 638
+
+VA - Pop Dance Maniac  2015  [MP3|320 кб с]<Vocal, Dance, Club, Euro>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Hot Asians - Hangover 03:27
+02. Old Beans - Scream & Shout 04:44
+03. White Standstill - Whistle 03:44
+04. Angie Benitez - Call Me Maybe 03:07    Читать дальше...    Жанр: Vocal, Dance, Club, EuroПродолжительность: 01:48:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:782E4631DE0276920FEA311DB334DAD4127DE6C3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932638.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 932 597
+
+VA - White Double Vocal Bass  2015  [MP3|320 кб с]<Drumm and Bass, Dubstep>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Danny Byrd - Golden Ticket  Feat. Tanya Lacey 
+002. Sanz - Ghatam
+003. Calm Groove - Future Time
+004. Madd Inc - EverydayЖанр: Drumm and Bass, DubstepПродолжительность: 08:43:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2C12C50E00402560A6558AF0E16E9C6D6B09E97A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932597.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 932 583
+
+VA - LSD: Love, Sex & Diamonds  2015  [MP3|320 кб с]<House, Tech House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Las Vegas Boys - Living in a Fantasy  3:42 
+02. Plus 11 - Island Women - Ibiza Beach Mix  3:24 
+03. Teknologic - Totem Moment  3:40 
+04. Rhythm O  Tronik - Beautiful Brown - Vanguard Remix  3:21     Читать дальше...    Жанр: House, Tech HouseПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B1E94E7CC65CA54E21BCA31269A90312B5DC39E1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932583.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 932 501
 
 VA - Russian Dance Pop & Club House [Compiled by Zebyte]  2015  [MP3|256-320 кб с]<Club, Dance
@@ -1892,103 +1989,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_928444.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 928 437
-
-VA - Популярный музыкайф новинок  2015  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Мохито - Я Не Могу Без Тебя  Sasha Abzal Radio Edit 
-02. Chris Brown - Body Shots
-03. Embody Feat. Obenewa - Bad News
-04. Оксана Почепа - Я Не Знаю Как Птицы    Читать дальше...    Жанр: PopПродолжительность: 06:18:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9A24E75E335C87BDF37DD19AD319F944796AB626
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_928437.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 928 424
-
-VA - Best Of Dance 2000s  2015  [MP3|320 кб с]<Club, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Switch - A Bit PatchyЖанр: Club, DanceПродолжительность: 09:03:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:00AFBD3FAC4756EF940CA7D9BF119640D981EA1D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_928424.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 928 420
-
-VA - The Best Dance Hits Of 90 s-2  2015  [MP3|320 кб с]<Pop, Eurodance, House,Techno, Tranc
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001 La Bouche-Be My Lover 4:01
-002 Masterboy-Feel The Heat Of The Night 6:43
-003 Sash!-Adelante 6:49
-004 Jam & Spoon-Right In The Night Fall In Love With Music  3:47    Читать дальше...    Жанр: Pop, Eurodance, House,Techno, TranceПродолжительность: 16:48:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:60F1D30122D7DEE9608F826206A4452CE3907E62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_928420.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 928 384
-
-Family Of The Year - Collection  2010 - 2015  [MP3|320 кб с]<Alternative, Indie Pop Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. The Barn
-02. The Princess And The Pea  feat. Willy Mason 
-03. St. Croix
-04. In The End    Читать дальше...    Жанр: Alternative, Indie Pop RockПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:65D017F17F20075D4C07BCFE4C9568F7B8823F03
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_928384.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

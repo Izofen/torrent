@@ -1,4 +1,91 @@
 ﻿
+###  Публикация: 518 187
+
+Крис Кельми - Greatest Hits  1993  [MP3|320 кб с]<Pop, Rock>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ночное рандеву
+02. Усталое такси
+03. Козырная дама
+04. Леди Блюз    Читать дальше...    Жанр: Pop, RockПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4BA2ACDD4194F817B210CA9453B8B76E6BBF92C1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_518187.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 518 042
+
+T.Ark - H.A.P.P.Y. Radio  2010  [APE|Lossless]<Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Under Cover Lover  Extended Version 
+02. Count On Me  Extended Version 
+03. How Old Are You  Mixed By Luis Rodriguez 
+04. Move It
+05. Carry Me  Maxi Version 
+06. H.A.P.P.Y. Radio  Extended Version 
+07. Count On Me  Instrumental Dub Version 
+08. Under Cover Lover  Instrumental 
+09. Count On Me  Single Version 
+10. Under Cover Lover  Radio Version     Читать дальше...    Жанр: Italo-Disco
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_518042.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 517 758
+
+Adele - 21  Limited Edition   2011  [MP3 |320 кб с]<POP>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Rolling In The Deep  03:49 
+2. Rumor Has It  03:43 
+3. Turning Tabels  04:10 
+4. Don t You Remember  04:03 
+5. Set Fire To The Rain  04:01 
+6. He Won t Go  04:37 
+7. Take It All  03:48 
+8. I ll Be Waiting  04:01 
+9. One And Only  05:48 
+10. Lovesong  05:16     Читать дальше...    Жанр: POPПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5747AB9904622C1D75CD4DA147EB41695AE1379
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_517758.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 517 552
 
 Flo Rida - Wild Ones  2012  [FLAC|Lossless]<Pop, Dance, R&B>
@@ -2197,99 +2284,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_480849.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 479 621
-
-Верка Сердючка - The Best  2008  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Всё будет хорошо  3:48 
-02. Dancing Lasha Tumbai  2:59 
-03. ГОП-ГОП  3:09 
-04. Тук, Тук, Тук  3:42 
-05. Я попала на любовь  3:59 
-06. А я только с мороза  3:40 
-07. Чита Дрита  2:40 
-08. Ёлки  3:12 
-09. Новогодняя  2:24 
-10. Гулянка  2:52     Читать дальше...    2008Жанр: PopПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_479621.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 478 196
-
-Chris de Burgh - Greatest Hits  2012  2CD [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Here Is Your Paradise [3:29]
-02. Forever More [4:19]
-03. The Lady In Red [4:17]
-04. Missing You [4:07]
-05. Much More Than This [2:59]
-06. Fatal Hesitation [4:14]
-07. In Love Forever [4:03]
-08. So Beautiful [3:49]
-09. Almays On My Mind [3:24]
-10. Seperate Tables [3:39]    Читать дальше...    Жанр: PopПродолжительность: 02:37:40
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_478196.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 477 811
-
-VA - Love Songs Top 100 Box Set 5CD  1995  [FLAC|Lossless]<Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Alicia Keys - Fallin  03:33
-02. R.Kelly - I Believe I Can Fly 04:44
-03. Ten Sharp - You 04:26
-04. Gary Barlow - Forever Love 04:34
-05. Manhattans - Kiss And Say Goodbye 04:28
-06. Maroon 5 - Sunday Morning 03:59
-07. Boston - More Than A Feeling 04:41
-08. Simon Garfunkel - The Sound Of Silence 03:05
-09. Toto - Melanie 03:58
-10. Acda en De Munnik - Als Je Bij Me Weggaat 04:04    Читать дальше...    Жанр: Pop, RockПродолжительность: 06:29:25
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_477811.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

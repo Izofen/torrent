@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 518 895
+
+VA - Best Songs of 2021 [MP3|320 Kbps] <Pop, Rock, Other>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+001. Doja Cat - Kiss Me More  feat. SZA 
+002. Walker Hayes - Fancy Like
+003. Drake - Way 2 Sexy
+004. The Kid Laroi - STAY    Читать дальше...    Жанр: Pop, Rock, OtherПродолжительность: 05:23:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5CDF835F455FB84FB0ED1D3A9404B2B239FD9170
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518895.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 868
+
+Lara Fabian - Lockdown Sessions  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Listen to the Silence
+02. I Remember
+03. Song for a Child
+04. Le Passage    Читать дальше...    Жанр: PopПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:464ECE385D5C3693AEA93F2E5AB8AFAAD30483B3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518868.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 518 394
+
+VA - Saturday Feel Good  2021  Explicit [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Twenty One Pilots - Saturday  2:52 
+02. James Blunt - Love Under Pressure  2:45 
+03. fun. - We Are Young  feat. Janelle Mon+бe   4:10 
+04. Ali Gatie - It s You  3:32     Читать дальше...    Жанр: PopПродолжительность: 02:03:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2DCD5191DEF23EA1E7E49C099BEAAE67F52D82DB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518394.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 518 125
 
 Electronic   Nen Order, The Smiths   - Raise The Pressure  1996  [FLAC|Lossless|tracks + .cu
@@ -1919,81 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507721.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 667
-
-ABBA - Voyage  2021  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. I Still Have Faith In You  05:09 
- 02. When You Danced With Me  02:50 
- 03. Little Things  03:08 
- 04. Don t Shut Me Down  03:56     Читать дальше...    Жанр: PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EF0C460E3FF37E2D1F9E306F5C17893EE7E19BE5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507667.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 650
-
-Fancy - Hit Party  1998  Compilation [FLAC|Lossless|image + .cue] <Euro-disco, Synthpop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Flames of Love  bass up version 
-02. Blue Eyes and a Broken Heart
-03. Fools Cry
-04. Slice Me Nice    Читать дальше...    Жанр: Euro-disco, SynthpopПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507650.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 598
-
-ABBA - Voyage  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. I Still Have Faith In You  5:09 
-02. When You Danced With Me  2:50 
-03. Little Things  3:08 
-04. Don t Shut Me Down  3:56     Читать дальше...    Жанр: PopПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A954D8FCA97188C542DEFEBF21AF8C315A4F4704
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507598.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

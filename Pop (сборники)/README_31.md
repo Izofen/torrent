@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 498 493
+
+Papaya -  Pink  1999  [FLAC|Lossless|tracks + .cue] <Bubblegum>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Operator 3:42
+02. Hero 3:34
+03. Pink Dinosaur 3:10
+04. Supergirl  Original Single Version  3:38    Читать дальше...    Жанр: BubblegumПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0CE72DC4C6A4FE797986DAA34196DDA07E94EEC3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1498493.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 497 932
+
+Adolescent s Orquestra - Millenium Hits  1999  [FLAC|Lossless|image + .cue] <Salsa>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Anhelo
+02. Hoy Aprendi
+03. Persona Ideal
+04. Arrepentida    Читать дальше...    Жанр: SalsaПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA1717408DC43C8DF257310AF68812DDD227BC3B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497932.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 497 812
+
+Promises - Real To Real  1979  LP [MP3|320 Kbps] <Disco, Europop, Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Caught In A Web  3:32 
+02. Ooh Baby I Like It  4:22 
+03. Lucky In Love  3:04 
+04. Leslie s Song  4:15     Читать дальше...    Жанр: Disco, Europop, Pop RockПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:883F904205F2E4503F67F40C0408786E8594B293
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497812.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 497 783
 
 Natalie Imbruglia - Firebird  2021  [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock>
@@ -1903,81 +1978,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1486647.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 486 230
-
-VA - veLvETОвый движ  Vol. 1   2021  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Ёлка - Мальчик-красавчик  2021 
-2. Мари Краймбрери - По волнам  Cover 
-3. Звонкий - Прованс  Cover 
-4. DAASHA - Нарисуй мне небо  Cover     Читать дальше...    Жанр: PopПродолжительность: 00:29:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:614D8FF208873457342239D473B2055D2DC9FA29
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1486230.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 485 922
-
-Богдан Титомир - Высокая энергия  1992  [FLAC|Lossless|image + .cue] <Europop, Downtempo, Ballad
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Делай как я  05:48 
-02. Инструментал  00:42 
-03. Секс-машина  04:02 
-04. Кайф  05:13     Читать дальше...    Жанр: Europop, Downtempo, Ballad, Pop RapПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80DC2FA2514F807740D33AE7A1DDEB5287ED1743
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1485922.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 485 897
-
-Олег Погудин - Русский романс. Часть II  2006  [FLAC|Lossless|tracks + .cue]<Русские песни, Рома
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Не пробуждай воспоминаний
-02. Жигули
-03. Затворница
-04. Пара гнедых    Читать дальше...    Жанр: Русские песни, РомансыПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59D71BA39F78C33D032FC3F4417B7954C4E55693
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1485897.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

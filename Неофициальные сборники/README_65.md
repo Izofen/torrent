@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 370 151
+
+VA - Hear My Soul: Deep House Fashion Mix  2020  [MP3|320 Kbps] <Deep House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Giuliano Rodrigues - Volta
+002. The Godfathers - Same Kind
+003. Shawanna - Turn Around
+004. Seaman - Hymalaya    Читать дальше...    Жанр: Deep HouseПродолжительность: 08:46:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA6DEF14A56884343F471B2F09FF5E13A2A594AA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1370151.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 370 149
+
+VA - Exotic Chill House  2020  [MP3|320 Kbps] <Chill House, Relax, Chillout>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Nazca - Unchained
+002. Lord Of The Flies - Ice Water
+003. Cool Jaques - About Us
+004. Archelix - By Night  Original Mix     Читать дальше...    Жанр: Chill House, Relax, ChilloutПродолжительность: 08:51:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D1A02F13CBA1A4E9920B2087044FC185A7E2B7C7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1370149.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 370 147
+
+VA - Native American & Lounge  2020  2CD [MP3|320 Kbps] <Native American, New age, World music>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Ashley Serena - Lakota Lullaby
+02. Robert Tree Cody - Spring Song
+03. Robert Tree Cody - Kokopelli s Journey
+04. Robert Tree Cody - Brother Eagle    Читать дальше...    Жанр: Native American, New age, World musicПродолжительность: 08:26:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3DC0EA4EBB7FB5A3489F72850C89704537A22E4F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1370147.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 370 107
+
+VA - Beatport Trance: Electro Sound Pack #37  2020  [MP3|320 Kbps] <Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Ugo Anzoino - Baba Yaga
+002. Saandro Delarock - Love Will Live
+003. Shogan - Vintage World
+004. Spencer Edwards - Fabulous    Читать дальше...    Жанр: TranceПродолжительность: 10:30:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:96E221AD417171690B0DC331B38870EB7C2A892F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1370107.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 369 987
 
 ZZ Top - 100% ZZ Top  2020  [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366414.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 366 378
-
-VA - Beatport Chillout: Electro Sound Pack #28  2020  [MP3|320 Kbps] <Chillout, Lounge, Downtemp
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Maximilien - Crazy Vocoding
-002. Chris Le Blanc - Into My Dream  Original Mix 
-003. Ambrozia - Velvet  Peter Martin Remix 
-004. Ticane - Altitude    Читать дальше...    Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:01:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E7A2423F28009551AAEAA213778FF6922D84C910
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366378.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 366 377
-
-VA - Alone With You: Deep House Extended Set  2020  [MP3|320 Kbps] <Deep House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Abel A Beat - The Deep Eyes  Original Mix 
-002. Action Alexi - Beautiful Life
-003. Albin Lee Meldau - I Need Your Love  Just Kiddin Remix 
-004. Bautista Orol - Latinoamerica    Читать дальше...    Жанр: Deep HouseПродолжительность: 11:31:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EDF4F207EE4FEEBC01A06229A10E47CC24043D5B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366377.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 366 374
-
-VA - B машину ремиксы Vol. 1  2020  [MP3|320 Kbps] <House, Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. 2 Маши - Инея  ASSEL Remix 
-02. DJ Antoine & Тимати feat. Григорий Лепс - London  Stereoact Remix 
-03. Hammali & Navai - Фары Туманы  Izzamuzzic Remix 
-04. Александр Пушной & Rammstein  Passkeeper Remix     Читать дальше...    Жанр: House, Pop, DanceПродолжительность: 03:40:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:50CAC48E24F260FEC9FCF2FC64439D4663D6D6EA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366374.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 366 295
-
-VA - Beatport Electro House: Sound Pack #23  2020  [MP3|320 Kbps] <Electro House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Evgenii Grachev - Few  Original Mix 
-002. Jhon Bernal - Patience  Original Mix 
-003. Carda Feat. Sophia - For A Little
-004. Kevin Brand - Falling For You    Читать дальше...    Жанр: Electro HouseПродолжительность: 11:36:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5FFD3AD4D307AB3DBEA08CC83A86E5BA3C627259
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366295.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

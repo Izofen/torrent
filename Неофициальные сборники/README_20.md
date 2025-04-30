@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 588 058
+
+VA - Music News vol.225  2022  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Alicia Keys - December Back 2 June  02:44 
+ 002. Abroy - Лилии  02:44 
+ 003. Adan Zaavel feat. D4NIM - My World  02:44 
+ 004. ADI feat. Erika Isac - Rai  03:05     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 07:31:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:77D8F8EB6A4D44313DA9BB0092078C4F0EF4F54C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588058.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 588 042
+
+VA - Music News vol.224  2022  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. NKI - Яд  02:40 
+ 002. 10AGE - Журавли  03:34 
+ 003. 10AGE - Роли  02:49 
+ 004. Alessiah - Breeze Of Love  Nezzy Remix   02:38     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 07:32:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E51DD2DA2A1ECAD574718F03925C732C62F5017
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588042.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 588 036
+
+VA - In Mood Styles Dance  2022  [MP3|320 Kbps] <Electropop, Synthpop, Hands Up, Dancecore>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Anektшde Meets Morten Lind - I Lost  Radio Edit  2:24
+02. Dj Gollum X Empyre One X Darius & Finlay - Paranormal 2:35
+03. Armin Van Buuren Feat. Simon Ward - Hey  I Miss You  3:20
+04. David Yarrow - Light Of Love  Original Mix  6:06    Читать дальше...    Жанр: Electropop, Synthpop, Hands Up, DancecoreПродолжительность: 03:22:14 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:606CE648109DB5B496AC3358226FD479F50DC2C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588036.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 588 017
+
+VA - Halloween Party 2022  Powered By Xtreme Sound   2022  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Die Zipfelbuben DJ Cashi - Olivia
+02. Tobee - Bierpong
+03. Peter Wackel - Ich bin morgens immer muede
+04. Volker Rosin Rick Arena DJ Cashi - Kika Tanzalarm  A-E-I-O-U     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:05:54 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7FB537634CB2A9A0BD24DBEF593CF5989B00C13D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1588017.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 587 719
 
 VA - Car Music Mix 2  2022  [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
@@ -1891,106 +1991,6 @@ VA - ВКонтакте Top 100 VK-Chart 24.09.2022  2022  [MP3|320 Kbps] <Pop, 
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579472.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 172
-
-VA - Record Super Chart 24.09.2022 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Robin Schulz feat. David Guetta - On Repeat  3:10 
-02. Purple Disco Machine feat. Sophie And The Giants - In The Dark  Denis Bravo Radio Edit   3:10 
-03. Argy - Tataki  5:28 
-04. James Hype & Miggy Dela Rosa - Ferrari  3:05     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:40:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A88C42A17C6FEEBCC24280398B54BF0FC49D4CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579172.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 578 936
-
-VA - Remix NNM 5  2022  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Dj Slon and Катя - Я не дам  Ночное движение Remix   6:20 
-002. Света - Дорога в аэропорт  Ozz and Ali feat Dmitry Rs Remix   5:27 
-003. Оксана Ковалевская  Kraski  - 15 лет  Storm Djs Official Extended Remix   5:13 
-004. Homie - Дай мне силы для кайфа  Vacok Remix   5:04     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 22:05:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0CF53C4225CAFBDB4E29BF7FEF1AFEBF65BD1791
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1578936.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 578 693
-
-VA - ЕвроХит Топ 40 Europa Plus 23.09.2022 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Klangkarussell - Home  3:45 
-02. Cassette - Tell me why  3:07 
-03. Sofia Reyes feat. Jason Derulo & De La Ghetto - 1, 2, 3  3:21 
-04. Maneskin - Supermodel  3:05     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:05:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7EC0BE4EDA9ABF642D80DE1AACF7835CC265FE20
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1578693.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 578 368
-
-VA - TOP Non-Stop 2000-2009 - Lounge & Chillout. Volume 3 (2022) [MP3|192-320 Kbps] <Lounge, Chillou
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Leggo Beast - Quagmire (3:44)
-02. Bent - Duke Thing (2000) (5:02)
-03. Leggo Beast - Big Egg (2001) (4:44)
-04. Aya - Put Your Faith in Us (2004) (3:30)(   Читать дальше...   )Жанр: Lounge, Chillout, Deep HouseПродолжительность: 08:33:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:472FF5556C318EDAF2D21F5854EEFC5961B1093A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1578368.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

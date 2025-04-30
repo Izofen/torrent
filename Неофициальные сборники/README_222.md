@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 718 752
+
+VA - 80s vs 90s Megamix  mixed by DJ scooby   2013  [MP3|320 кб с]<Teckno, Dance, Synthpop
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001 Queen – We Will Rock You
+002 Beastie Boys - Pass the Mic
+003 Genesis – Mama
+004 Duran Duran – Wild Boys Sample 
+005 Laid Back – Sunshine Reggae
+006 Sweetbox – Everything s Gonna Be Alright Sample 
+007 Beck – Loser
+008 John Farnham - youre the voice  Sample 
+009 Shabba Ranks – Mr. Loverman  Sample 
+010 Cindy Lauper – True Colours  Sample     Читать дальше...    Жанр: Teckno, Dance, Synthpop, EuroMixПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EC15292C5A96C51D12BD82357CFE0B86BEB1999B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 718 743
+
+VA - Italo Disco Hits Vol. 89  2013  [MP3|198 - 320 кб с]<Italodisco, Eurodisco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Albert One - Hopes And Dreams  The Love Mix 
+02. Casarano feat Elise Dean- Fairy Tale  In My Heart   Extended 
+03. Decadance - On And On  Flemming Dalum Remix 2013 
+04. Cliff Wedge - By Surprise
+05. Katz- Visions Of You
+06. Animotion - I Engineer  Extended Version 
+07. Bobby Farrell - I See You  MSainz Extended Mix 
+08. FM Attack - Memorex 1989  Remix 
+09. Capital Sound - Desire  Club Mix 
+10. Kano-Its a Way-{Re-Edit     Читать дальше...    Жанр: Italodisco, EurodiscoПродолжительность: 02:29:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D020277A68D2E3336A1EF11E4626223ADE02B5A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 718 279
+
+VA - Dubstep, Breaks and Trap. Vol 12  2013  [MP3|320 кб с]<Dubstep, Breaks, Trap, Glitch Hop>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. As Beat - Bussa Move  Feat Bbk - Beatsmack Remix  [4:23]
+02. Austin, Rachel Wallace, Vinyl Junkie - Can t Go Back  Strange Rollers Remix  [5:32]
+03. Avril Lavigne - Hello Kitty [3:17]
+04. Bring Me the Horizon - Can You Feel My Heart  Jakwob Remix  [4:33]
+05. Carvar & Clock - Racket [3:31]
+06. Casket, Kure - American Nightmare  feat. Messinian, Splitbreed   Original Mix  [3:21]
+07. Celldweller - Unshakeable  BT & Seamless Remix  [4:00]
+08. Centron - Hey Charlie [4:32]
+09. Cory Enemy - The Drop by Bro Safari  Cory Enemy Remix  [5:11]
+10. Dave London, Shade k - White Noise  Grimey Breaks Mix  [4:17]    Читать дальше...    Жанр: DubStep, Breaks, Trap, Glitch HopПродолжительность: 06:02:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EEEB78E9B3EB8AB84433249D54332652C5E44938
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 718 275
+
+VA - Эйфория. Vol7  2013  [MP3|320 кб с]<Chillout, Chillstep, Ambient, Downtempo, Deep House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Joris Voorn - Ringo  Tommy Trash Sunrise MM Edit  [6:50]
+02. A.N.O. vs. Shadowx - Paragon [4:27]
+03. Bastille - Things We Lost In The Fire  SaneBeats Remix  [4:05]
+04. Costta - Space Bluze  Original Mix  [4:41]
+05. Fawn, Digital Sixable - Where Has Your Love Gone  Original Mix  [7:57]
+06. Inchange - Morning [5:09]
+07. Inchange - Not Alone [5:32]
+08. Inchange - Silent Days [4:57]
+09. Inchange - Within [7:12]
+10. Inkarv - Midnight [6:22]    Читать дальше...    Жанр: Chillout, Chillstep, Ambient, Downtempo, Deep HouseПродолжительность: 02:43:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CDB2F835BAAC18FF2B44F81ECC906E2E5A2DD337
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 718 197
 
 VA - Радио DFM - D Чарт - Top-30  02.11.2013  [MP3|~320 кб с]<Pop, Dance>
@@ -2307,112 +2431,6 @@ Sarah Brightman - The Best Songs  2013  [MP3|320 кб с]<Operatic Pop, Classica
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 713 053
-
-Seal - 25 Best Songs  2012  [MP3|218 - 250 кб с]<Soul>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Amazing  Thin White Duke Edit  2007
-02. Crazy 1991
-03. Bring It On 1994
-04. If It s In My Mind, It s On My Face 2007    Читать дальше...    Жанр: SoulПродолжительность: 01:54:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EBF206394AC24BFDCBE75B48F628E5D4545579D5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_713053.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 713 015
-
-A-ha - 25 Best Songs  2012  [MP3|320 кб с]<Synthpop>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Take On Me 1985
-02. The Sun Always Shines On TV 1985
-03. Hunting High And Low  7   Remix  1985
-04. Scoundrel Days 1986    Читать дальше...    Жанр: SynthpopПродолжительность: 01:46:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB9FB3374D1D229CEF5D97DF95248235EDF12FF9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_713015.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 713 007
-
-VA - Хит за хитом. Осенний выпуск  2013  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-1. DJ Сателлит & Marlena vs. Armin Van Buuren - Это Любовь  Tonada Radio Mix   4:35 
-2. Полина Гагарина - Нет  3:55 
-3. Потап и Настя - Все Пучком  3:18 
-4. Наталья Могилевская - Helele  4:30 
-5. Влад Соколовский - Ла-ла-ла  3:49 
-6. Иракли - Все Будет Ок!  3:27 
-7. Жара & Ёлка - Новый Мир  3:46 
-8. Real O - Вова Давай, Hayden Goodbye  3:26 
-9. Алена Высотская - Мы теряем себя  3:52 
-10. Ёлка - Сука Любовь  4:33 Жанр: PopПродолжительность: 06:20:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F1E1D36FC553D0ACC5A29CE9BBB58E3A26C24D44
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 712 966
-
-Chris Rea - 25 Best Songs  2012  [MP3|197 - 270 кб с]<Blues-Rock>
-Неофициальные сборники
-Jazz, Blues, Soul (сборники)
-
-###  Подробнее
-
-01. The Road To Hell  Part 2  1989
-02. King Of The Beach 2000
-03. Auberge 1991
-04. Josephine 1985    Читать дальше...    Жанр: Blues-RockПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4872F3B02622077633653BDBE207E63263E14497
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_712966.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

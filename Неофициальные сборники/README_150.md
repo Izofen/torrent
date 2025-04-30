@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 050 934
+
+VA - Улетная попсовая 100ка  2016  [MP3|192-256 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Полина Гагарина - Танцуй Со Мной
+002. Анна Плетнёва - Сильная Девочка
+003. Тори - Давай Играть
+004. Аркадиас - Сон Где Мы Вдвоем    Читать дальше...    Жанр: PopПродолжительность: 06:08:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C4F21DC1435C1F42B115B92ADAB516773D6DFE70
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1050934.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 050 915
+
+VA - Звездный Хит - Парад. Русский Выпуск  2016  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Мерседес - На Крыльях Любви
+002. Слот - Круги На Воде
+003. Блокбастер - Девушка-Печаль
+004. Потап & Настя - Вадимка Зачем Ты    Читать дальше...    Жанр: PopПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CDA7C8BE776CFA7F517DD39EA08A498D9C0C68B8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1050915.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 050 862
+
+VA - Все Хиты 80х Зарубежный Часть 3  2016  [MP3|320 Kbps] <Pop, Rock>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Bucks Fizz - Making Your Mind Up
+002. Bow Wow Wow - Go Wild in the Country
+003. Daryl Hall & John Oates - Maneater
+004. Men Without Hats - The Safety Dance    Читать дальше...    Жанр: Pop, RockПродолжительность: 06:18:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B56B16586C101334933F78528BE9815F5A775E7C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1050862.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 050 754
+
+VA - Умная Электроника  Музыка Поднимающая Настроение  Часть 3  Compiled by Zebyte   2016<
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Kombinat 100 - Hanne Nute  06:33 
+02. Umami - Anything  06:47 
+03. Dole & Kom - Rose  06:50 
+04. Pupkulies & Rebecca - Ton Chauffeur  Seth Schwarz Remix   05:36     Читать дальше...    Жанр: Electro Swing, Deep House, Techno SwingПродолжительность: 02:45:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F3835D3028688B7A3BAEE7BF30A13CC80EED087
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1050754.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 050 743
 
 VA - Back Where I Belong Popular Dance  2016  [MP3|320 Kbps] <Pop, Dance, Club>
@@ -1890,106 +1990,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047303.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 047 299
-
-VA - Реальные пацаны  2016  [MP3|320 Kbps] <Pop, Hip Hop, Soundtrack>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Евро  -  Колян  2:42
-02. Бака  -  Нига не гони  3:30
-03. Валерий Меладзе и Виа Гра  -  Океан и три реки  3:41
-04. Vavan  -  Мы ваще крутые  4:08    Читать дальше...    Жанр: Pop, Hip Hop, SoundtrackПродолжительность: 01:29:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0A3E0A2FE32CD8C7FC8CC1DD57E1E2B488BB0503
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047299.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 047 266
-
-VA - The Best of 80-90 s  2016  [MP3|320 Kbps] <Pop, Techno, Dance>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Corona  -  The Rhythm Of The Night  4:24
-002. Cher  -  Believe  3:48
-003. ATB  -  9 Pm  Till I Come   2:42
-004. Alexia  -  Me And You  4:05    Читать дальше...    Жанр: Pop, Techno, DanceПродолжительность: 12:35:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E56668DEC413166638DED65F1AF595C691202221
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047266.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 047 250
-
-VA - Русский Хит от Зайцев.Нет  2016  [MP3|320 Kbps] <Поп, Рэп>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Мот - На Дне
-02. Сати Казанова - Радость, привет
-03. Джиган - Любовь-наркоз  feat. Стас Михайлов 
-04. Iowa - 140    Читать дальше...    Жанр: Поп, РэпПродолжительность: 02:58:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E141F13323EC290BB42BFFECF42534A94F5A6F67
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047250.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 047 232
-
-VA - Breathe We Love The 90s  2016  [MP3|320 Kbps] <Dance, Hip-Hop, Rock>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Nine Inch Nails - Hurt 06:16
-02. Michael Hutchence - The Passenger 04:36
-03. Fatboy Slim - Praise You 05:23
-04. Cradle Of Love - Billy Idol 04:39    Читать дальше...    Жанр: Dance, Hip-Hop, RockПродолжительность: 05:21:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0DD8128D6E825F263EB3CC2D2B94BC9522436779
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047232.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

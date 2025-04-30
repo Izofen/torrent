@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 071 246
+
+VA - State Of Trance Civilization  2016  [MP3|320 Kbps] <Trance, Melodic, Uplifting Trance, Emot
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Cold Rush - Temptation  Original Mix  7:59
+02. O.B.M Notion & Cosmic Heaven - Melancholy  Original Mix  7:42
+03. Fabio XB & Mike Saint-Jules - Throne  Original Mix  6:22
+04. Aurosonic & Neev Kennedy - Now I See  Club Mix  7:31    Читать дальше...    Жанр: Trance, Melodic, Uplifting Trance, Emotional, HarmonicПродолжительность: 08:12:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:512E38B4F8AA74FC9E98B844C6F4BD32825164AD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071246.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 071 211
+
+VA - Disco Fever Reality  2016  [MP3|320 Kbps] <Pop, Disco, Synthpop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Digital Emotion - Time 6:00
+02. Secret Service - If I Try 4:08
+03. Den Harrow - Charleston 4:47
+04. Silent Circle - Take A Chance 3:53    Читать дальше...    Жанр: Pop, Disco, SynthpopПродолжительность: 04:01:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D6A38D9C02B8330D51A0358DB8F5E948789E78B9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071211.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 071 196
+
+VA - Best Day 50 Hits Ways  2016  [MP3|320 Kbps] <Future Bass, Nu Disco, Latin, Mambo, Reggaeton
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Far East Movement Ft Yoon Mi Rae & Autolaser - Fighter  Clean   Extended  04:32
+02. Astrid S - Hurts So Good  Kream Remix   Clean   Extended  04:26
+03. Wisin - Vacaciones  Lmpool Long Edit Transition 115-96 Bpm Dj Leo Edit  03:44
+04. Simon Fava - El Encanto  Original Mix  05:50    Читать дальше...    Жанр: Future Bass, Nu Disco, Latin, Mambo, Reggaeton, Future HouseПродолжительность: 04:28:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2592B99F5BC80C300098C93578A67C9CB7A138EC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071196.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 071 096
+
+VA - Mix On Styles Dance Floor  2016  [MP3|320 Kbps] <Hip-Hop, Reggae, Trap>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+CD 1 Styles Dance Floor
+
+001. Flume Ft Tove Lo - Say It  Instrumental  04:20
+002. D.R.A.M. Ft. Lil Yachty - Broccoli  Joe Maz Remix   Dirty  03:51    Читать дальше...    Жанр: Hip-Hop, Reggae, TrapПродолжительность: 05:40:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4ECBF376D1D9384F4A874008BA892B410DC823F4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071096.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 071 090
 
 VA - Latin Hot Party Maria Bonita  2016  [MP3|146-320 Kbps] <Latin Dance, Pop Folk Lyric>
@@ -1896,106 +1996,6 @@ VA - Singles Chart Billboard Hot 100  05 November 2016   2016  [MP3|32-320 Kbps]
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068485.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 068 419
-
-VA - LUXEmusic: Dance Super Chart Vol.92  2016  [MP3|320 Kbps] <House, Electro House, Mash Up, C
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. ACDC - T.N.T  DJ Zarubin Radio Edit   3:46
-02. Madonna - Frozen  A-Mase Nu Disco Remix   5:32
-03. USB и Илья Зудин - Губы Губы  Oleg Perets Club Remix   4:26
-04. Елена Князева - Сильная  DJ Noiz Remix   3:01    Читать дальше...    Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 03:40:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2CD76B4CB6DBA3E5B305069ADC17284027D4E906
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068419.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 068 407
-
-VA - Extra Trance: Bonus [10]  2016  [MP3|320 Kbps] <Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Lostly - Galaxy of Blue  Extended Mix   6:38 
-02. Solarstone - Herald  Transwave Remix   7:26 
-03. Darren Porter - Human  Extended Mix   7:05 
-04. Formal One & Sarah Lynn - In Winter  Progressive Mix   4:36     Читать дальше...    Жанр: TranceПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9343AD853F988F5F006ACB558A166C282ACC8AC4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068407.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 068 390
-
-VA - Trance Traveling 82  Mixed By VNP   2016  [MP3|320 Kbps] <Trance, Melodic, Emotional, V
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Ana Criado - Vulnerable  Denis Kenzo Remix   6:15
-02. Reskide - Drawbridge  Extended Mix   3:45
-03. Moonlight Tunes - You Will Find The Way  Original Mix   4:45
-04. Mardven - Aim  Extended Mix   3:08    Читать дальше...    Жанр: Trance, Melodic, Emotional, Vocal, Energy, ProgressiveПродолжительность: 04:03:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18954690368FF110B788E44119789DB13C74C19E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068390.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 068 382
-
-VA - Ballermann Karnevals Hits 2017  2016  [MP3|~245 Kbps] <Pop, Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Lorenz Buffel - Johnny Dapp
-02. Tim Toupet - Nein, nein, nein, nein - Sind wir nicht gewesen
-03. Peter Wackel - Die Nacht von Freitag auf Montag  DJ Fosco Mix Edit 
-04. Tobee - Aua im Kopf    Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 02:13:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3C0D4CD1C352C52E6393346902682848573CD023
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068382.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

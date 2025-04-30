@@ -1,4 +1,122 @@
 ﻿
+###  Публикация: 795 331
+
+VA - Авто Звук. Музыка для Комфортной езды  2014  [MP3|320 кб с]<House, Dubstep, Drum & Bass>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Vogel - Night City  Makeup and Vanity Set Remix 
+02. Mochipet, Ben Samples - The Battle of Dinotropolis
+03. Jerry Ropero, Eddy Cabrera, Terri B - Soul Heaven  Peter Brown Mix 
+04. Chad Tyson - Don t give A Damn!  Original Mix 
+05. Torha, Earstrip - S.W.A.G  Original Mix 
+06. Klangkarussell - Fallin Sonnentanz  Ronnsn Bootleg 
+07. Sander Van Doorn & Firebeatz - Guitar Track  Kayliox Remix 
+08. Steve Brian - Brooklyn Bazar  Original Mix 
+09. Queen - We Will Rock You  Dean Cohen Remix 
+10. Cielo - Erotica  Deep in vogue mix     Читать дальше...    Жанр: House, Dubstep, Drum & BassПродолжительность: 09:28:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B75622AD4D33FB86209B6A17F37AEB2E097D4022
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 795 327
+
+VA - Музыка Для Тренировок  2014  [MP3|128-320 кб с]<Pop, Dance, RnB, Rap, Rock>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. 30 Seconds To Mars - Attack
+02. Young Jeezy Feat. Kanye West - I Put On
+03. Vnv Nation - Off Screen
+04. The Weeknd - Wicked Games Girls Vocal Dubstep Remix
+05. The Stone Roses - Love Spreads
+06. The Pussycat Dolls - Jai Ho Dj Fisun Extended Remix
+07. Pulp - Common People
+08. Pink - Blow Me
+09. Mario - Let Me Love You
+10. Ghost Loft - So High    Читать дальше...    Жанр: Pop, Dance, RnB, Rap, RockПродолжительность: 06:42:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B78D238AF2ED68FDB53A33784B28055DF0E64982
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 795 319
+
+VA - Top 100 Dance Party  2014  [MP3|320 кб с]<Pop, Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Sasha Lopez Feat. Radio Killer - Perfect Day  Andrew Beat Remix 
+02. Jake Dile & Jon Spoon - Play The Music  E playerz Remix Edit 
+03. Ron Rockwell - Back On My Knees  Whiteburg Edit 
+04. Stereofunk - 4 Da Ladies  Tagteam Terror Remix 
+05. Talkbox - No Consciousness  Fernando Mello Remix 
+06. Davis Redfield Feat. Carl Man - Music Gods  Original Mix 
+07. Jose Spinnin Cortes - Lentamente  Jose Spinnin Cortes Remix 
+08. Lancelot Feat. Ngaiire - Truth  Original Mix 
+09. Antoine Clamaran - Breaking Into My Heart  Original Mix 
+10. Rezarin - Revelation  Digital Affliction Remix     Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 09:11:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F89AC7395729CF8FFE2C6CCC182EECA762184FAE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 795 070
+
+VA - Heavy Gaming Vol.01 - 18  2014-2015  [MP3|128-320 кб с]<Rock Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Frank Klepacki - Hell March  Command & Conquer Red Alert  [00:06:22]
+02. C. PortwinT. StasicaF. Love - Instability  Hunter The Reckoning  [00:02:32]
+03. Yoshihiro Sato - High Powered Drivin  Cyber Org  [00:04:27]
+04. Pentakill - Last Whisper  League Of Legends  [00:03:37]    Читать дальше...    Жанр: Rock MetalПродолжительность: 17:53:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A142F9F0D1E4F3CF6CD02048DC5B7931D2FF8EC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_795070.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 795 038
 
 VA - Энергия музыкальной волны DFM  2014  [MP3|256 кб с]<Pop, Dance, Club>
@@ -2313,130 +2431,6 @@ VA - Ненормативный Хит XXI Века  2014  [MP3|256 кб с]<Pop
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:D58CC01AAE52E5EAAD1423F17A037987E7B411F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 792 384
-
-VA - Клубный Рай Лучшее 50 50  2014  [MP3|256 кб с]<Club, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Alexandrov Project - Разбудила Любовь  Dj Half Remix 
-02. Gareth Emery - Long Way Home
-03. Zlata  Злата  - Раскована  Dj Fisun Extended Remix 
-04. 50 Cent Feat. Joe - Big Rich Town
-05. Julia Shee Feat. Dj Max Myers & Rifatello -  Radio Edit 
-06. Dj Stylezz & Dj A.G - Miracle  Moscow Club Bangaz Remix 
-07. Ulka Vs. Dj Max Myers & Rifatello -  Dj Nejtrino & Kirill Clash Radio Mix 
-08. The Vamps - Move My Way
-09. Электрокэт И Супермакс - Лисапед Мой, Лисапед  Remix 
-10. Satellites & Sirens - Jump Start My Heart    Читать дальше...    Жанр: Club, DanceПродолжительность: 06:57:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:268B1AE64FC21BD4670B22559360F43EEEFF9F1C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 792 378
-
-VA - Убойный Хит eXclusive №1  2014  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Raя - Горизонт
-02. Вика Дайнеко - Клякса
-03. Планеты - Первый Поцелуй
-04. Наталья Подольская И Владимир Пресняков - Kissлород
-05. Григорий Лепс И Ани Лорак - Зеркала
-06. Пропаганда - Подруга Моя Ты Будешь Счастлива С Ним
-07. Катя Бужинская - Не Забывается Любовь
-08. Андрей Артемьев - Мир Закружим
-09. Любовные Истории - Возвращайся
-10. Reflex & Elvira T - Ангел    Читать дальше...    Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9BA9890703F3F7D0449CC9489B7B669E5531B3B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 792 375
-
-VA - Новинки Шансона 11  2014  [MP3|320 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Александр Дюмин - Кареглазая
-02. Катерина Голицына - На двоих
-03. Герман Грач - Я люблю
-04. Крестовый туз - Пусть будет так
-05. Дмитрий Сулей - Хасан
-06. Владимир Лисицын - Свобода
-07. Александр Марцинкевич - Аня-Бомба
-08. Сборная Союза - А над водой
-09. Сергей ПалычЪ - Ой, не скалься Европа!
-10. Александр Курган - За пределами    Читать дальше...    Жанр: ШансонПродолжительность: 04:32:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02B8AAE4F2AFBFE675FE2C463C90D0CCE6C61E99
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 792 371
-
-VA - XXXL СуперМолодёжный 50 50  2014  [MP3|320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Потап и Настя - Уди Уди
-02. Cher Lloyd - Alone With Me
-03. Мариетта - Вкус тебя
-04. Mariah Carey feat. Wale - You Don t Know What To Do
-05. Горячий Шоколад - Люби меня, люби
-06. Meek Mill feat. Paloma Ford - I Don t Know
-07. Стас Пьеха - Я с тобой
-08. Phillip Phillips - Open Your Eyes
-09. Нюша - Бред
-10. Jason Mraz - Love Someone    Читать дальше...    Жанр: PopПродолжительность: 04:53:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6F365A5659F3DF2C4298F9986BE0DBC44D66EF9
 ```
 
 <div id="header" align="center">

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 760 885
+
+Kasimoff - Compilation Cd 1 (2024) [MP3|320 Kbps] <Electronic>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01.  Midnight
+ 02.  Enigma
+ 03.  Like You
+ 04.  Cosmic(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:53:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4F38E8075FB7869119D61E890DCC72AB10B73D55
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760885.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 875
+
+3 Doors Down - Collection (2000-2016) [MP3|320 Kbps] <Hard rock, Alternative rock, Post-grunge>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+01. Away From The Sun (Away From The Sun 2002)
+02. Back To Me (Time Of My Life 2011)
+03. Be Like That (The Better Life 2000)
+04. Be Somebody (Seventeen Days 2005)(   Читать дальше...   )Жанр: Hard rock, Alternative rock, Post-grungeПродолжительность: 02:29:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:268210A3627C787C03F3D3F8C025E2D22CF849B1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760875.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 790
+
+VA - Music News For Forum vol.043 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Nessa Barrett - Aftercare (01:34)
+ 002. Akatsky - Свет и тень (02:02)
+ 003. Akmal' - Где-то там (02:19)
+ 004. Alex Menco - Memories (02:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:46:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF28A299E91FBBA261B4A45CF2324D5AF29DF9CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760790.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 760 698
+
+VA - Melodic Techno 2 2024 [MP3|320 Kbps] <Melodic Techno>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Asher Swissa, Y do I - AMEN (4:30)
+02. Siks - Without You (2:44)
+03. John Summit, HAYLA, Cassian - Shiver (Cassian Remix) (4:05)
+04. Dada Life - 5 Notes From Paradise (3:32)(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 04:34:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4C6EB001FF2872E21ADA9114B6F00C2F92EDD67E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760698.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 760 684
 
 VA - Musical kaleidoscope part 13 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
@@ -1894,106 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754828.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 754
-
-VA - This Is Halloween (2024) 2CD [MP3|320 Kbps] <Rock, Pop>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-01. Michael Jackson - Thriller [05:57]
-02. Ray Parker Jr. - Ghostbusters [04:01]
-03. AC/DC - Highway to Hell [03:28]
-04. Harry Belafonte - Banana Boat (Day-O) [03:03](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 11:40:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:655634DB373FA72E29BE91D1A72405EA34B4AC74
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754754.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 702
-
-Euromartina - Compilation (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01.  Voyage of Love
- 02.  Horse Whispers
- 03.  Beautiful World
- 04.  Sounds of Flowers(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F413E389416A0B4F5D225BB4E0837A00B21A1F56
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754702.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 660
-
-VA - Red System Records presents ... CD 1 (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Ai Talking - Enchanted Mystery
-02. Falco/ Red System - Rock Me Amadeus
-03. Ai Talking - The World of Dreams
-04. Red System - Blind Passion(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 03:13:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:08B1D69ADA4F400F25DE8E09BAD434D1CE30C323
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754660.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 635
-
-VA - Music News For Forum vol.031 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Girls Aloud - Love Machine (Jax Jones Y2J Remix) (02:49)
- 002. Ace - Tunimenen (03:14)
- 003. AGAYAN - Все по классике (01:51)
- 004. Akon - Akon's Beautiful Day (02:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:17:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0F60E6B6A9C388D51D83DFD81D1342DF1DF33FCA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754635.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

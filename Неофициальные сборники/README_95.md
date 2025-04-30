@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 241 613
+
+VA - The Official UK Top 40 Singles Chart 17.08.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. George Ezra - Shotgun  03:22 
+02. Drake - In My Feelings  03:39 
+03. DJ Khaled feat. Justin Bieber, Chance the Rapper & Quavo - No Brainer  04:26 
+04. Benny Blanco Khalid Halsey - Eastside  02:55     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:22:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:900A1DF65D35EFD561F9EED41A8D0063F9BEE2E0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241613.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 241 592
+
+VA - German Top 100 Single Charts 17.08.2018  2018  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Dynoro & Gigi D Agostino - In My Mind
+002. Capital Bra - Melodien  feat. Juju 
+003. Bonez MC & RAF Camora - 500 PS
+004. El Profesor - Bella ciao  HUGEL Remix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:37:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FBC53BD3D60FF6E2E682481659E8B87E33F98FAB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241592.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 241 591
+
+VA - German Top 50 Official Dance Charts 17.08.2018  2018  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Sean Finn;Guru Josh;Sean Finn x Guru Josh - Infinity 2018  Extended Mix 
+02. Dynoro & Gigi D Agostino - In My Mind
+03. Shakedown - At Night  Purple Disco Machine Remix 
+04. Oliver Heldens;Sidney Samson - Riverside 2099    Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:13:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0321688B342F85A18D8FE89EE0C118880A559B39
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241591.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 241 350
+
+VA - Зайцев.нет: Лучшие новинки Августа  2018  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Альбина - Не я 3:21
+02. T-Yamo - Мой яд 3:06
+03. Наргиз и Баста - Прощай, любимый город 4:09
+04. LSD feat. Sia, Diplo, Labrinth - Thunderclouds 3:07    Читать дальше...    Жанр: Pop, DanceПродолжительность: 04:43:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:756E1B184832B9CF4A7F5DE3E9509223BFF2189C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241350.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 241 308
 
 VA - Uplifting Trance Collection Vol.2  2018  [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -1894,106 +1994,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237121.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 237 113
-
-Metallica - Time For One...Or 3...Or 7  EP   2018  [MP3|320 Kbps] <Thrach Metal, Heavy>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. The Outlaw Torn  Unencumbered By Restrictions 
-02. Bass Solo
-03. Killing Time
-04. Guitar Solo    Читать дальше...    Жанр: Thrach Metal, HeavyПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:35088B4B9F6728598A694EFAC00DDC37F59E7532
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237113.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 237 087
-
-VA - Зайцев.нет: Лучшие новинки Июля 2018 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. GAZIROVKA - Яйца в кулак 2:49
-002. Эльбрус Джанмирзоев - Этой ночью 3:19
-003. RASA - Эликсир 3:40
-004. Хлеб - Шашлындос 2:58    Читать дальше...    Жанр: PopПродолжительность: 05:53:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F1F731205C0C8E27798B79D6A629A4669260F0AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237087.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 237 069
-
-VA - Зайцев.нет Музыкальные новинки 2 Июль 2018 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Willy William - La La La 2:52
-02. Rasel feat. Brytiago - Voy Subiendo 3:33
-03. Sabi Miss - Северный ветер 3:08
-04. Misty - Девочка 3:49    Читать дальше...    Жанр: Pop, DanceПродолжительность: 04:25:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:55E570D200CFA4C00B333259A94B4322E68F7EEA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237069.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 237 061
-
-VA - Summer Temptation: Night Party  2018  [MP3|320 Kbps] <Club, Dance, House, Trance>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. Don Diablo - People Say
-002. Raw N Holgerson - Still Thinking
-003. Free 2 Night - The Only One  Radio Mix 
-004. Blutonium Boy - Where Did I Go    Читать дальше...    Жанр: Club, Dance, House, TranceПродолжительность: 09:29:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4FD5787E4827BB46F05D4685F8A8BE35606C6BE8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237061.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

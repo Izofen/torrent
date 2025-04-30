@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 548 332
+
+VA - MEGA HITS 2022 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Glass Animals - Heat Waves 3:59
+02. Felix Jaehn, The Stickmen Project, Calum Scott - Rain In Ibiza 2:22
+03. Justin Bieber - Ghost 2:33
+04. Olivia Rodrigo - Good 4 U 2:58    Читать дальше...    Жанр: PopПродолжительность: 06:09:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D4593662B03C155459A4B18F90278690132E8CC4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548332.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 311
+
+VA - Velour Mood  2CD   2022  [MP3|320 Kbps] <Soul, Funk, Jazz>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+Мягкость, меланхоличность и лиричность композиций сборника  Velour Mood , а так же аранжировка в духе классических  барных  инструментальных джаз компиляций раскрывается в совершенно неожиданном ключе и за счет вокала, который является центральным образом музыкальной картины.CD 01:
+
+001. Sault - London Gangs
+002. Damos Room - Soft Bodied    Читать дальше...    Жанр: Soul, Funk, JazzПродолжительность: 13:39:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21D857444D2BB3FBE5AAD00CA171985E246F9335
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548311.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 307
+
+VA - The Atmosphere Harmony: Ambient Antistress Collection  2022  [MP3|320 Kbps] <Ambient, Relax
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Такая музыка придется как нельзя лучше поздним вечером, когда хочешь уснуть но груз мыслей и вопросов прошедшего дня не дают тебе этого сделать и ты включаешь негромко эту музыку и просто понимаешь что всё суета и есть другие, более важные, ориентиры жизни.001. Síntese - The Beyond
+002. Anthene & Simon Mccorry - Distant Glitter
+003. Sotvorishi & Heavenchord - Uletaem
+004. Raum - Revolving Door    Читать дальше...    Жанр: Ambient, Relax, MeditationПродолжительность: 11:56:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C3851377AFC571DB1C1EC40EEC83E4E72E781BB1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548307.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 306
+
+VA - La Perla De Musica: New Latin  2022  [MP3|320 Kbps] <Latin, Dance, Reggaeton>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Сюжетная линия музыки этого сборника буквально нашпигована этническими мотивами латино, но наложено это на вполне себе европейский бит и бас. Авторам очень удачно удалось использовать схожесть народных инструментов с различными современными электронными  фишками  и они очень удачно это обыграли.001. Anuel Aa - Nunca
+002. J. Balvin - Blanco
+003. Sech - Relacion
+004. Manuel Turizo - Una Vez Mбs    Читать дальше...    Жанр: Latin, Dance, ReggaetonПродолжительность: 08:24:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C97F2F7E5ED9A053C63EDC845532196C9404E2A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548306.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 548 305
 
 VA - Find Your Balance: Music For Deep Meditation  2022  [MP3|320 Kbps] <Meditation, Ambient, Re
@@ -1893,106 +1993,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543474.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 450
-
-VA - National Pop Dance Music  Vol.33   2022  [MP3|320 Kbps] <Pop, Dance, Shlager>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Представляем Вам очередной 33-й релиз проекта  National Pop Dance Music , в котором вы сможете найти для себя самые лучшие и самые признанные хиты европейской популярной национальной музыки уходящего месяца. Только самая качественная танцевальная музыка весеннего сезона ждет Вас на треках позитивного лонгплея!001. Freya - Du Hast Mich Tausendmal Belogen
-002. Everglow - Don t Speak
-003. Faren - Sors De Ma Vue
-004. A.Takalo & Takavalot - Tabula Rasa    Читать дальше...    Жанр: Pop, Dance, ShlagerПродолжительность: 08:54:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:72A04557B85978A4A5379BA9F34A34FAA7AEE796
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543450.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 449
-
-VA - Fest Rebel Rock Radio, Vol.02  2022  [MP3|320 Kbps] <Rock, Alternative, Indie>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-Эпическая мощь и красота - основные характеристики альбома и всего творчества групп представленных на его треках. Дух новаторства в музыке, когда даже в рамках давно использованного вдоль и поперек стиля, музыкантам удается найти свой путь. Их композиторское богатство основывается на фэнтезийной лирике, что привносит в музыку и стилистику песен определенное настроение     Читать дальше...    001. El Pistolero - Fear The Reaper
-002. Naked Giants - Better Not Waste My Time
-003. Holy Ship - Schrödingers Cat
-004. Royal Blood - Boilermaker    Читать дальше...    Жанр: Rock, Alternative, IndieПродолжительность: 08:32:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:409FD184B8EA64C48A5616D7517F55BCC8E3BEBF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543449.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 446
-
-VA - Beatport Hardstyle: Sound Pack #510  2022  [MP3|320 Kbps] <Hardstyle, Core Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Будьте готовы к ударному Hardstyle! Beatport в 510-м релизе представляет вашему вниманию отличную подборку. Благодаря успешным продюсерам в сфере EDM, эта музыка остается на вершине новейших технологий звукового дизайна, чтобы гарантировать, что вы получите самые потрясающие впечатления.001. Adrian Zgz - This Is My Music
-002. Shadowcore - Deadman Walking
-003. Rubens Hard - Arpegio Noize
-004. Hyphen - Quantum Entanglement    Читать дальше...    Жанр: Hardstyle, Core DanceПродолжительность: 08:38:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C350B1AF58445C53359E9BF36ECF0E67C1646F7F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543446.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 443
-
-VA - Beatport Synth Electronic: Sound Pack #509  2022  [MP3|320 Kbps] <Electronic, Synthwave>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-В этом релизе от Beatport вас ждет полное погружение в загадочный мир синтетической электронной музыки. Слушайте с открытой душой и будьте готовы познать кульминацию электронного искусства и глубину открытого космоса!001. Red Axes - Little Prince
-002. The Wise Thinker - World Beyond
-003. Marco Berto - Solidarity
-004. Vindata - Skin    Читать дальше...    Жанр: Electronic, SynthwaveПродолжительность: 10:18:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4F70EBB401AA685581CF75658662B6242C6C2BFF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543443.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

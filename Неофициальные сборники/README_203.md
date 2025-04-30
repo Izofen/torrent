@@ -1,4 +1,116 @@
 ﻿
+###  Публикация: 822 214
+
+VA - Night Show Dance 2  2014  [MP3|320 кб с]<House, Tech House, Deep House, Progressive House
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Zo! feat. Erro & Phonte - We Are On The Move  Joey Negro Revival Mix .
+02. Distant People feat. Stephanie Cooke - Send Me  Reelsoul Full Length Mix .
+03. Fafaq vs. Anthony Attia & Novabroken - Overload Hell Yeah  Matt Neve Mashup 
+04. Mr. Probz - Waves  Robin Schulz Radio Edit .
+05. White Soul Project - Ever Love  Richard Earnshaw s Classic Reconstruction .
+06. Masahiro Nishibata - Undulating Lines  Reiklavik Remix  .
+07. Pray For More feat. Eddy - Brand New Day 2014  MoD & Staffan Thorsell Remix .     Читать дальше...    Жанр: House, Tech House, Deep House, Progressive HouseПродолжительность: 02:30:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B1FD778F444EB680FED592351557D4771F10ADB9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 822 158
+
+VA - Не Попса. Rock - Cocktail  2014  [MP3|320 кб с]<Rock, Hard Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Uriah Heep - Easy Livin
+02. Kingdom Come - Outsider
+03. Motley Crue - Kickstart My Heart
+04. UDO - Break The Rules    Читать дальше...    Жанр: Rock, Hard RockПродолжительность: 07:45:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:66DB622524C1C92773666EAED13535DD975B6F10
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_822158.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 822 045
+
+VA - Клубные Новинки Vol.500  2014  [MP3|320 кб с]<Dance, Club>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Kaimo K & Sopheary - I Will Feel Again  Orginal Mix 
+02. Dan Thompson - Skywalker  Original Mix 
+03. Driftmoon vs. Geert Huinink feat. Kim - Forever  Original Mix 
+04. Denise Rivera, Dennis Pedersen - For You To Wake Up  UDM Remix 
+05. Crazibiza, Lauer & Canard feat. Max Williams - Fantasy  Original Club Mix 
+06. Paul Oakenfold - Barbers Adagio for Strigs  Club Mix 
+07. Davey Asprey - Illusions  Original Mix 
+08. Nico Otten feat. Crystal Balkk - Sweetest Silence  Rene Ablaze & Global Influence     Читать дальше...    Жанр: Dance, ClubПродолжительность: 05:07:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:608DBFABD7EB8607585493EBF46A23D88F20AE99
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 822 039
+
+VA - Клубные Новинки Vol.498  2014  [MP3|320 кб с]<Dance, Club>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Shakira - Empire  Gustavo Scorpio Club Mix 
+02. Chris Jones, Feel, Vadim Spark - So Lonely  Kaimo K Dub 
+03. Pau Webster - Hold On  Quest 4 Trance Beach Anthem 2014   Original Mix 
+04. Vitodito & Talamanca - Gran Via  Original Mix 
+05. Mischa & NekliFF feat. Anna Rome - Almost Gone  Original Mix 
+06. Super8 & Tab feat. Julie Thompson - No Frontiers  Original Mix 
+07. Aurosonic & Neev Kennedy - Now I See  Progressive Mix 
+08. Diego Broggio, Castaman - Come On Get Up  The Cube Guys Mix 
+09.     Читать дальше...    Жанр: Dance, ClubПродолжительность: 05:10:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:746300D9155D09C07624E42D59AD7F0C7BC89F9D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 821 995
 
 VA - Trance Top 239  2014  [MP3|320 кб с]<Progressive, Trance, House>
@@ -2293,129 +2405,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 816 579
-
-VA - Deep Dubstep, Dark Dubstep Vol.2  2014  [MP3|320 кб с]<Deep Dubstep, Dark Dubstep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Enigma Dubz - Lights Out [04:38]
-02. AtYyA - Seeing Truly [05:03]
-03. Balam Acab - See Birds  Moon  [03:48]
-04. Darj - On The Move [05:18]
-05. Concealed Identity - Backwater [05:32]
-06. Artikal - Alone In The Darkness  DJ Madd Remix  [04:36]
-07. Submotion Orchestra - Blind Spot  Distance Remix  [04:37]
-08. Benton - Take Me Away [05:38]
-09. Visionz & Jodie - Let the Light  J Kenzo Remix  [06:02]
-10. Biome - Space [05:36]    Читать дальше...    Жанр: Deep Dubstep, Dark DubstepПродолжительность: 02:38:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9235583B9EB2CF6AFC55C1CF01674AF0FF1671F2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 816 578
-
-VA - Artist Portraits: 01 Roald Velden  2014  [MP3|320 кб с]<Progressive House, Breaks>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. For You  Original Mix   07:44 
-02. Time Stood Still  Original Mix   07:44 
-03. One Step Closer  Original Mix   07:54 
-04. Without Regret  Original Mix   08:49 
-05. She s Like a Sunset  Original Mix   08:21 
-06. On A Rainy Day  Original Mix   07:20 
-07. Moments  Original Mix   09:10 
-08. Deserted Places  Original Mix   08:39 
-09. Endless Summer  Original Mix   08:09 Жанр: Progressive House, BreaksПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E8EF3A1C075035834E4007DF499C9F3D5BD0E82
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 816 575
-
-VA - Deep & Dark Dubstep Vol.1  2014  [MP3|320 кб с]<Deep Dubstep, Dark Dubstep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Plastician - Japan [04:09]
-02. Cruel Culture - Future [05:42]
-03. Amit - Human Warfare [05:12]
-04. Mobthrow - Black Fluid [05:55]
-05. Lsn - Diyumi [04:11]
-06. Demon - Chronik [05:03]
-07. Evoke & Bijou - Bittersweet  Frequent Remix  [04:34]
-08. Above & Beyond Feat. Richard Bedford - Sun & Moon  Distance Remix  [04:28]
-09. Sukh Knight - Chronicle [04:13]
-10. Mala - Changes  Distance Remix  [05:35]    Читать дальше...    Жанр: Deep Dubstep, Dark DubstepПродолжительность: 02:34:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:749AFF54D6635CA9981AFA3E9D48A439FAFF2A1D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_816575.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 816 566
-
-VA - Ambient Relax Vol 2  2014  [MP3|320 кб с]<Chillout, Ambient, Electronic, Pop>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Dhamika - Illusions  05:55 
-02. Liquid Space - Copy Dreams Later  09:27 
-03. Synthetic Pulse - Password  08:07 
-04. MAX MILLION - Utter Oblivion  07:52 
-05. MikTek - Dear Universe  04:32 
-06. Perpetual Loop - The Ones We Love the Most  06:10 
-07. Olexa - Purification  07:08 
-08. Perpetual Loop - Where the Road Meets the Beach  07:54 
-09. SYGNALS - Anamnesia  08:47 
-10. Squazoid - Sarigama  06:18     Читать дальше...    Жанр: Chillout, Ambient, Electronic, PopПродолжительность: 01:32:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3BE1088546DA605DD2AB729F608662FA2098CCC8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_816566.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

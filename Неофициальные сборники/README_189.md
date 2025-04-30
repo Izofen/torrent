@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 912 967
+
+VA - Sexy Elevator Music  2015  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Victor Peixiero - In the Air Tonight [05:16]
+02. Bossanatics, Ana Costa & Barry Gibb - Night Fever [03:56]
+03. Diana Martinez - Time After Time [05:21]
+04. Andre Sarbib - Every Breath You Take [03:41]    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:03:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:13CFFBC6F678B781307CBA26BD1B2F130FAFC345
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912967.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 889
+
+VA - Дискотека забытых хитов  зарубежная  - 13  2015  [MP3|246 - 269 кб с]<Pop, Disco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Tommy Bow - Dance Tonight  07:28 
+02. Fockewulf 190 - Body Heat  06:26 
+03. Felli - Greatest Mind  06:37 
+04. Mac Jr. - Elephant Song  07:11     Читать дальше...    Жанр: Pop, DiscoПродолжительность: 04:31:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3437F3E34DDBB9E2E7087BC4A8332EEBD49137CF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912889.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 868
+
+VA - Extra Trance  episode 4   2015  [MP3|320 кб с]<Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Peter Steele - Mantra  The Noble Six Remix   07:33 
+02. Sean Mathews - Dubai Sunset  Original Mix   07:12 
+03. Fisher & Sean Tyas - Something In The Way  Original Mix   08:11 
+04. Freigeist - Back in the Days  Original Mix   08:37     Читать дальше...    Жанр: TranceПродолжительность: 02:08:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B1795E7F1586A1588B43B7CEC3830289D721936D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912868.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 912 858
+
+VA - Club Dance  2015  [MP3|319-448 кб с]<Club, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Africanism & Erik Hagleton - Together Forever  Erik Hagleton & Chris Garcia Remix 
+002. Mark Jenkyns, MC Chickaboo - On Me  Club Tweak 
+003. Luca Garaboni - Bassword  Original Mix 
+004. Rio Dela Duna, Erik Hagleton & Africanism - En la Mar  Erik Hagleton Rework The Cube Guys Remix     Читать дальше...    Жанр: Club, DanceПродолжительность: 09:36:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:82A77CBA76E0846D0FE7BF938335D47AB8FC1114
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912858.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 912 856
 
 VA - Hot Dance Summer  2015  [MP3|320 кб с]<Club, Dance, House>
@@ -1890,106 +1990,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906941.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 932
-
-Space - Лучшие хиты  2014  [MP3|320 кб с]<Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Magic Fly
-02. Symphony
-03. Tango In Space
-04. Just Blue    Читать дальше...    Жанр: ElectronicПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1BF1C8E532599B07216D1EF0D54AAE0035569D68
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906932.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 848
-
-VA - Дискотека забытых хитов  зарубежная  - 12  2015  [MP3|247 - 290 кб с]<Pop, Disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Jilly - Touch Me  06:01 
-02. Annabelle - In Your Arms  06:16 
-03. Country & Town - Yo Yo  05:32 
-04. Art Fine - Dark Silence  07:59     Читать дальше...    Жанр: Pop, DiscoПродолжительность: 04:03:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:449DBB197F54075AEEA7832E5B58A73E0DDCC631
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906848.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 841
-
-VA - My Favourite Hits of 1976  14CD   2015  [MP3|320 кб с]<Electronic, Chanson, Funk, Dis
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Nazareth - Somebody To Roll  03:53 
-002. ABBA - Dancing Queen  03:48 
-003. Smokie - I ll Meet You At Midnight  03:15 
-004. Boney M. - Daddy Cool  03:27     Читать дальше...    Жанр: Electronic, Chanson, Funk, Disco, Pop, Rock, Blues RockПродолжительность: 16:45:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F4E5C4E2E221B0483692EF12B9729246AE82465
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906841.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 906 811
-
-VA - Лирика по венам. Первая доза  2015  [MP3|320 кб с]<Rap, Hip-Hop>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-01. Денис RiDer - Будущая
- 02. DJ HaLF & SERPO - Мономир
- 03. Serpo - 24 часа
- 04. Андрей Леницкий - Никогда    Читать дальше...    Жанр: Rap, Hip-HopПродолжительность: 03:48:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0BAF0AAA443FEDEF1193EFE5AA6E1177490E9ACB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906811.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

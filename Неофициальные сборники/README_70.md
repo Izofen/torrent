@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 345 223
+
+VA - Sphinx: Synth Electronica  2019  [MP3|320 Kbps] <Electronic, Syntheti>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Z · Axis - Voluptous
+002. Geomatic - Shadow World
+003. Asc - Scattered Mind
+004. Dmitry Molosh - Only U  Original Mix     Читать дальше...    Жанр: Electronic, SynthetiПродолжительность: 11:11:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E1ABFC0D02D32496F02462B611A753D21A6B14AC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345223.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 345 222
+
+VA - Sweet Green Dreams: Natural Relaxed Mix  2019  [MP3|320 Kbps] <Chillout, Ambient, Downtempo
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Afterlife Feat. Cathy Battistessa - Speck Of Gold
+002. For The First Time - Jules Calmer
+003. Madhukar - When Love Rules
+004. Cream Lounge - Balearica Del Mar    Читать дальше...    Жанр: Chillout, Ambient, DowntempoПродолжительность: 08:35:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4FA003FC77448C120292047AA2313D5FAC6F2ECF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345222.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 345 209
+
+VA - ЕвроХит Топ 40 Europa Plus 13.12.2019 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1.SAINt JHN - Roses  Imanbek Remix   2:55 
+2.Regard - Ride It  2:37 
+3.FILV & Edmofo feat. Emma Peters - Clandestina  2:28 
+4.Tones And I - Dance Monkey  3:29     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:06:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA2D43681E16F10325ACCB40632B72CB743F356D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345209.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 345 185
+
+VA - Remixes 2020 NNM  2019  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Adam - Нелегальная  2:52 
+02. Anella feat Arash vs Struzhkin vs Tarantino & Dyxanin- Chori Chori  DJ ZIROV MASH   3:47 
+03. B.O.B Feat. Hayley Williams - Airplanes  Soul Beast Remix   2:39 
+04. Billy Ray Cyrus, Lil Nas X - Old Town Road  Remix   2:37     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 09:06:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9077CE7226C4E7D68E988B0C0EF331E87301D729
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345185.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 345 090
 
 VA - My Lyric Soul: Romantic Music Compilation  2019  [MP3|320 Kbps] <Pop, Lyric>
@@ -1894,106 +1994,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341600.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 553
-
-VA - The Taste Of Gold  2019  [MP3|320 Kbps] <Techno, Tech House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Jclarke1880 - Mekhong  Original Mix 
-002. Chiqito - Get Funky  Original Mix 
-003. Traumfabrik - Jack To Jack  Original Mix 
-004. Hokasa Toro - Build Up Drop  A.I. Beats Mix     Читать дальше...    Жанр: Techno, Tech HouseПродолжительность: 11:26:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1238EEE677112928ED473B2E20AD4E8982B89941
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341553.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 542
-
-VA - Creativity: Rap Playlist  2019  [MP3|320 Kbps] <Rap>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. Roc Marciano - 1,000 Deaths
-002. Young Dolph - Major
-003. Chucky Trill - Keisha
-004. Fat Trel - Too Much Drink    Читать дальше...    Жанр: RapПродолжительность: 08:49:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BB2D71CC7CD135717F9F66DE9A74E839F8923643
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341542.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 515
-
-VA - Shazam World Top 100 Ноябрь  2019  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Tones And I - Dance Monkey 3:30
-002. Maroon 5 - Memories 3:09
-003. The Black Eyed Peas & J Balvin - RITMO  Bad Boys For Life  3:42
-004. Regard - Ride It 2:38    Читать дальше...    Жанр: PopПродолжительность: 05:21:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90F21BA3AA87A90C589D6CF1656AADB6223780EB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341515.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 341 473
-
-VA - Soul And Love Song  2019  [MP3|320 Kbps] <Soul, R&B, Other>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Allуshа Jоу - Fnfl
-002. Jеаn Dеаux - It’s Whаtеvеr
-003. Quеntin Mооrе - Swееt Sроt
-004. K nуа - Cоnstаnt    Читать дальше...    Жанр: Soul, R&B, OtherПродолжительность: 09:06:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44E27A3ABAB293B47A12F351A3FF1111A86404BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341473.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

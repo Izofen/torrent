@@ -1,4 +1,406 @@
 ﻿
+###  Публикация: 971 172
+
+Элизиум - Снегири и драконы  2015  [FLAC|Lossless|image + .cue] <Ska Punk, Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Всё или ничего...
+02. Где-то сжигают книги
+03. Как мотылёк
+04. Снегири и Драконы    Читать дальше...    Жанр: Ska Punk, RockПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E86231A3F2BA1759E5D34DD313E451A83D05CD0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_971172.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 971 159
+
+Фляус и Кляинн - Тестирование потустороннего гидровелосипеда в многомерном пространстве  2015  [
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01 ******
+02 Воздушный шар
+03 Импровизация в синтетическом парке
+04 Говорящий вакуум    Читать дальше...    Жанр: Indie Rock, Brit Pop, Psychedelic RockПродолжительность: 01:06:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:74F49A9F9213E844DB819965EB51864F353DC66E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_971159.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 876
+
+The Rolling Stones - Bridges To Babylon  1997  Remaster, 2009, Polydor [FLAC|Lossless|image + .c
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Flip The Switch  3:27 
+02. Anybody Seen My Baby?  4:31 
+03. Low Down  4:24 
+04. Already Over Me  5:24     Читать дальше...    Жанр: RockПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E9BE578322DDF381E752B2EC2DFFB37DA0A10198
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970876.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 775
+
+Pink Floyd - The Dark Side Of The Moon  1973  SACD, Remastered, 2003 EMI [FLAC|Lossless|tracks +
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Speak to Me  1:08 
+02. Breathe  2:48 
+03. On the Run  3:50 
+04. Time  6:49     Читать дальше...    Жанр: Psychedelic Rock, Prog RockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A59F96E359C84266AB98D1ACF22B70F46AC9341
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970775.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 639
+
+Anthrax - For All Kings  2016  Deluxe Edition [MP3|320 кб с] <Heavy Metal, Speed Metal, Thrash
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+CD 1:
+1. You Gotta Believe
+2. Monster At The End
+3. For All Kings    Читать дальше...    Жанр: Heavy Metal, Speed Metal, Thrash MetalПродолжительность: 01:21:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D60DDC18242235E004969163E452DE03C6BF2165
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970639.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 584
+
+Bon Jovi - This Left Feels Right  2003  SACD [FLAC|Lossless|tracks + .cue] <Arena Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Wanted Dead or Alive  3:43 
+02. Bon Jovi feat. Olivia D abo - Livin  on a Prayer  3:41 
+03. Bad Medicine  4:27 
+04. It s My Life  3:42     Читать дальше...    Жанр: Arena RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE440350F753647BCF83C2E750B803CB04128B2D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970584.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 578
+
+Jon Lord - Beyond The Notes  2004  SACD [FLAC|Lossless|tracks + .cue] <Prog Rock, Classic Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Miles Away  7:42 
+02. De Profundis  7:22 
+03. One From the Meadow  8:16 
+04. Cologne Again  6:46     Читать дальше...    Жанр: Prog Rock, Classic RockПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F706679A2F6C2A9DD7E3E603DB05129E9B28AC78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970578.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 540
+
+Chris Rea - The Road To Hell  1989  Geffen Records [FLAC|Lossless|image + .cue] <Blues Rock, Pop
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. The Road To Hell  Part I 
+02. The Road To Hell  Part II 
+03. You Must Be Evil
+04. Texas    Читать дальше...    Жанр: Blues Rock, Pop RockПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E1AB6BDBFA7589C5D4ECE4093A7826A5813BEBBF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970540.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 514
+
+Kingdom Come - The Best Of Kingdom Come  2003  20th Century Masters The Millennium Collection, C
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+01. Living Out Of Touch  04:21 
+02. What Love Can Be  05:19 
+03. Get It On  04:24 
+04. Pushin Hard  04:49     Читать дальше...    Жанр: Hard RockПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9E277D886194C4A93CA7FF63EC433328E36C59F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970514.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 470
+
+Коrsика - Взрывая Тишину  2015  EP [FLAC|Lossless|tracks + .cue] <Heavy Metal, Modern Rock>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+Новый EP от московской Heavy Metal группы КОRSИКА - Взрывая Тишину.01. Взрывая Тишину [03:45]
+02. Остров Свободы [05:09]
+03. Ночь И Драйв [03:13]
+04. Твоё Время [04:10]    Читать дальше...    Жанр: Heavy Metal, Modern RockПродолжительность: 00:19:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9E12D106C7F195494C47ED73320613A873CA708F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970470.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 333
+
+Jono - Silence  2015  [FLAC|Lossless|image + .cue] <Progressive, Melodic Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Man Of Misery 3:02
+02. Wasting Time 2:50
+03. Can We Make It 4:18
+04. Turn Around 4:57    Читать дальше...    Жанр: Progressive Rock, Melodic RockПродолжительность: 00:40:13
+
+Благодарность
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:15C5E202C5977F342E46E07D4B3A7442590EA539
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970333.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 300
+
+Polydeluxe - Behind The Backdoor  2015  [MP3|320 кб с] <Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Backdoor  04:12 
+02. Runaway  03:41 
+03. Memphis  05:05 
+04. Pack Of Lies  03:57     Читать дальше...    Жанр: RockПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AB40ECBAF09FE4F58A7405BA0DB90B2962FCCFC9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970300.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 256
+
+Deep Purple - Machine Head  1972  SACD, 2003 EMI [FLAC|Lossless|tracks + .cue] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+01. Highway Star  6:08 
+02. Pictures of Home  5:05 
+03. Maybe I’m a Leo  4:52 
+04. Never Before  4:00     Читать дальше...    Жанр: Hard RockПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB19FF5ED5A2363325919737D9409CD930A0A275
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970256.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 243
+
+Pixies - Doolittle  1989  SACD, Remastered, 2008 Mobile Fidelity Sound Lab [FLAC|Lossless|tracks
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Debaser  2:53 
+02. Tame  1:55 
+03. Wave of Mutilation  2:06 
+04. I Bleed  2:35     Читать дальше...    Жанр: Indie RockПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FA392AAF7458B0B94C50AB18D2B6AB5DAD3564A5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970243.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 230
+
+Everfrost - Blue Eyed Emotion  2015  [MP3|320 кб с] <Power Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+1. The Lonesome Prince
+2. Arctic Scream
+3. Back To The Light
+4. The Glades And The Cradle    Читать дальше...    Жанр: Power MetalПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FFEF940C4451477809F8E203B47A998C486E6B00
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970230.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 229
+
+Warnerbeast - Rewrite History  2015  [MP3|320 кб с] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+1. Mother Television
+2. Rewrite History
+3. Paul Revere s Last Ride
+4. Age Of Kings    Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:289DD05AADD5620EAD36E205AD1F8CC98DD5D432
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970229.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 970 226
 
 Eyes Of Gaia - The Power Of Existence  2015  [MP3|320 кб с] <Heavy Metal>
@@ -1590,403 +1992,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967160.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 967 136
-
-Mourning Beloveth - Rust & Bone  2015  [MP3|320 кб с] <Doom-Death Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-1. Godether
-2. Rust
-3. The Mantle Tomb
-4. Bone    Читать дальше...    Жанр: Doom-Death MetalПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6E354E3B1DB74553C16F9FDF9DB9709754157BC9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967136.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 967 100
-
-Браво - Новогодний акустический концерт  2015  Live [MP3|320 кб с] <Rock & Roll>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Евгений Хавтан и компания презентовали новогодний акустический концерт. Не беда, что записан он был в прошлом году: на концерте звучат в основном золотые хиты, причем многие из них — в неожиданных версиях.01. Добрый вечер, Москва!
-02. Принцесса
-03. Любите девушки
-04. Джаз на орбите    Читать дальше...    Жанр: Rock & RollПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B2A2F8D513F12FAB42A6BDDA70FEA3BFF809FB94
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967100.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 870
-
-The Rolling Stones - 1989 Steel Wheels ● 1991 Flashpoint  2015  Mini LP Platinum SHM-CD Universa
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-1989 - Steel Wheels
-1991 - FlashpointЖанр: Rock, Rock & Roll, Classic RockПродолжительность: 02:10:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:27A6938D9D687723E5C549A7FB6A18C474B30B40
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966870.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 780
-
-Mystery - Delusion Rain  2015  [FLAC|Lossless|image + .cue] <Progressive Rock, Neo-Prog>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Delusion Rain [10:03]
-02. If You See Her [06:10]
-03. The Willow Tree [06:46]
-04. The Last Glass Of Wine [19:29]    Читать дальше...    Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E7B5092F14A5133F2EFF6B73D313802D8A2A607D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966780.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 735
-
-Курара - Архиверсии  2015  [MP3|320 кб с] <Alternative Rock, Indie Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Группа приготовила новогодний подарок – сборник ремиксов и версий на песни из прошлогоднего альбома группы «Архимед», который и получил название «АРХИВЕРСИИ».01. Барокамера  J-Kom Remix 
-02. Локомотив  Барто Rmx 
-03. Так оно и будет  ННТКЗ30 Remix 
-04. Байконур  АлоэВера Версия     Читать дальше...    Жанр: Alternative Rock, Indie RockПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA0524C960F1727CB3C8E092600CE1B30FB7C0BB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966735.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 632
-
-Black Sabbath - Mob Rules  1982  Reissue, Remastered 1996, BMG [FLAC|Lossless|tracks + .cue] <He
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Turn Up the Night  3:42 
-02. Voodoo  4:32 
-03. The Sign of the Southern Cross  7:45 
-04. E5150  2:54     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8957F886CB95D488886A3FDA300366575EA7FA64
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966632.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 599
-
-Paul Simon - Greatest Hits - Shining Like A National Guitar  2000  [FLAC|Lossless|tracks + .cue]
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Graceland  4:47 
-02. You Can Call Me Al  4:41 
-03. Mother And Child Reunion  2:59 
-04. The Cool, Cool River  4:33     Читать дальше...    Жанр: Alternative Rock, Acoustic, Soft Rock, Folk RockПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E297A93551A31E987AD096A92A6505A3FB4441E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966599.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 587
-
-Dire Straits - On Every Street  1991  Remastered, 1996, Vertigo [FLAC|Lossless|tracks + .cue] <P
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Calling Elvis  6:26 
-02. On Every Street  5:04 
-03. When It Comes to You  5:01 
-04. Fade to Black  3:50     Читать дальше...    Жанр: Pop Rock, Classic RockПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5E7E2AB7F72DF332A509C819B7D8D583ED31CB24
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966587.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 481
-
-Bloodhound Gang - Hard-Off  2015  [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk-Rock>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. My Dad Says That s For Pussies
-02. Dimes
-03. American Bitches
-04. Chew Toy    Читать дальше...    Жанр: Alternative, Punk-RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:374408E7C58FC12E69A537EB3ACEE98BCE6811A6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966481.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 430
-
-Cain s Dinasty - The Hollow Earth  2015  [MP3|320 кб с] <Power Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-1. The Grey Ones
-2. The Roots Of Mankind
-3. Two Fools Against The World
-4. Screaming Lungs    Читать дальше...    Жанр: Power MetalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38F6B68154BE49740C0BCEAF6EFCCBE9D4399854
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966430.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 401
-
-Eloy - Ra  1988  Japanese Edition, 1993, Victor [FLAC|image+.cue] <Progressive Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-1. Voyager Of The Future Race 9:02
-2. Sensations 5:11
-3. Dreams 8:07
-4. Invasion Of A Megaforce 7:44    Читать дальше...    Жанр: Progressive RockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B3474FDA95DB9648695CA38F74335EBF7BE0C66E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966401.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 378
-
-Ритмы подвалов - Акустический  2015  [MP3|320 кб с] <Acoustic, Pop-Punk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1 Депрессия
-2 Дед
-3 Мгновения
-4 Я с Тобой    Читать дальше...    Жанр: Acoustic, Pop-PunkПродолжительность: 00:28:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2FE6AD795430B9DF9255663094054100DB9E4209
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966378.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 370
-
-In Each Hand A Cutlass - The Kraken  2015  [MP3|320 кб с] <Post-Rock, Post-Metal>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. The Deep  03:53 
-02. Overture  07:27 
-03. Satori 101  05:49 
-04. Combing Through the Waves  01:16     Читать дальше...    Жанр: Post-Rock, Post-MetalПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F5FAFC998AA463790AD4EEDBD6C564FB8C1F9E22
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966370.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 368
-
-mewithoutYou - Pale Horses  2015  [MP3|320 кб с] <Indie Rock, Alternative>
-Rock, Alternative, Punk, Metal
-Alternative, Punk (Lossless)
-
-###  Подробнее
-
-01. Pale Horse  2:26 
-02. Watermelon Ascot  3:08 
-03. D-Minor  3:19 
-04. Mexican War Streets  3:34     Читать дальше...    Жанр: Indie Rock, AlternativeПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B56AA3257E9C26829456347020524502002C693C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966368.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 366
-
-Sonata Arctica - Christmas Spirits  2015  EP [MP3|320 кб с] <Power Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. Christmas Spirits
-02. Christmas Spirits  Orchestral Version 
-03. Christmas Spirits  Radio Edit Жанр: Power MetalПродолжительность: 00:17:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A2B36368D60C5AE8C0B1E87AB59E1C625AC4C1F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966366.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 966 339
-
-SikTh - Opacities  2015  EP [MP3|320 кб с]<Progressive Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. Behind The Doors  4:26 
-02. Philistine Philosophies  5:02 
-03. Under The Weeping Moon  4:42 
-04. Tokyo Lights  1:40     Читать дальше...    Жанр: Progressive MetalПродолжительность: 00:27:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:715AF570AE733B06B35D9DDE0CF6E3421961A392
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_966339.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 230 538
+
+Mystic - 4 Singles  1977  7  [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01.  Disco Love Affair  3:59 
+02.  Disco Symphony  3:52 
+03.  In The Year 2525  4:21 
+04.  Dance Tonight  2:56     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:15:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3C634BD4FAF7A6820FA38194EF046CFCAC5DBBD5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230538.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 230 465
+
+VA - Radio Italia: Summer Hits 2018  2018  2хCD [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. J-AX - Italiana  2:54 
+02. Jovanotti - Le Canzoni  4:09 
+03. Calcutta - Pesto  3:28 
+04. Francesca Michielin - Tropicale  3:26     Читать дальше...    Жанр: PopПродолжительность: 02:05:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4C8FB3DE11A226221E145A9C9CBEE138232A5665
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230465.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 230 463
+
+VA - Radio Italia: Summer Hits 2017  2017  2CD [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Vasco Rossi - Come nelle favole  4:12 
+02. Giusy Ferreri - Partiti adesso  3:14 
+03. Brunori Sas - Lamezia Milano  3:52 
+04. Giorgia - Credo  2:57     Читать дальше...    Жанр: PopПродолжительность: 01:47:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0117F3F514E41DA5CE0D59348296E8FBEAF64034
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230463.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 230 441
 
 Алена Апина и группа Комбинация - До и после  1994  [FLAC|Lossless|image + .cue]<Pop>
@@ -1920,81 +1995,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225688.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 225 595
-
-Восток - Все небо  1996  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Миражи 3:30
-02. Все небо 3:03
-03. Только дождь 3:42
-04. Огонек в ночи 3:08    Читать дальше...    Жанр: PopПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B4DBCDE83470E11FC94881624E376CD70205060E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225595.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 225 498
-
-Анна Герман - Grand Collection  2005  [FLAC|Lossless|image + .cue] <Эстрада, Ретро>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Надежда  3:41 
-02. Не спеши  3:25 
-03. Когда цвели сады  4:48 
-04. Эхо любви  3:06     Читать дальше...    Жанр: Эстрада, РетроПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EE8A54FF44D2B35EB65A240E4E0A87E734BDDA18
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225498.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 225 417
-
-Syreeta - The Essential  2001  Compilation [FLAC|Lossless|image + .cue] <Soul, Disco, Funk>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1	Spinnin & Spinnin 
-2	Your Kiss Is Sweet
-3	Harmour Love
-4	Come And Get This Stuff    Читать дальше...    Жанр: Soul, Disco, FunkПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BCC0C0C612AE0771C1521E0FC67C8443D918608C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225417.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 260 647
+
+VA - Frozen Beats  2018  [MP3|320 Kbps] <Bass, Drum and Bass, Dubstep>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Bcee - Surfacing
+002. Fox Stevenson - Bruises
+003. Carlito & Addiction - Rumours  Original Mix 
+004. Enta - Warped    Читать дальше...    Жанр: Bass, Drum and Bass, DubstepПродолжительность: 08:33:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:34661DAF1560D57E9A04ECD446A4202020FA285D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260647.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 644
+
+VA - Electronic Space  2018  [MP3|320 Kbps] <Electronic>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Bonfarado - Hot Cupboard
+002. Caterina Barbieri - How To Decode An Illusion
+003. Audion - Dem Howl
+004. Matt Sassari - Speshial    Читать дальше...    Жанр: ElectronicПродолжительность: 09:45:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D86F989BED3118B7409FA27D8BED7FD3EA497CE8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260644.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 642
+
+VA - An Olden Sea Of Prayers  2018  [MP3|320 Kbps] <Heavi, Black, Death Metall>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Tankard - Don t Bullshit Us!
+002. Leo - Baby Shark
+003. Pryamo - Explota
+004. Leo - Hollaback Girl    Читать дальше...    Жанр: Heavi, Black, Death MetallПродолжительность: 10:16:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:75AFD071B5643BFF1837F0E8E95D8160D35A0068
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260642.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 392
+
+VA - New Age Style - Enigmatic 29  2018  [MP3|320 Kbps] <New age, Enigmatic>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Devaldi - Amaranthine  3:42 
+02. Grvty - Le Verset  4:00 
+03. David Thomas - Sacred Lotus  4:04 
+04. Black Ether - Life Is a Microchip  7:43     Читать дальше...    Жанр: New age, EnigmaticПродолжительность: 02:38:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:275EB81CC77DE4779A43874E52E373993A0BB7BF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260392.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 260 334
 
 VA - Наше Радио. Лучшее 2018  10.2018  от DON Music  2018  [MP3|256-320 Kbps] <Поп, Рок, Авт
@@ -1869,100 +1969,6 @@ VA - Громкие новинки месяца Vol.14  2018  [MP3|320 Kbps] <Po
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1256111.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 256 084
-
-VA - ЕвроХит Топ 40 Europa Plus 19.10.2018  2018  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Calvin Harris & Dua Lipa - One Kiss 3:35
-02. David Guetta feat. Sia - Flames 3:15
-03. Clean Bandit feat. Demi Lovato - Solo 3:41
-04. The Chainsmokers feat. Emily Warren - Side Effects 2:57    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:13:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D724ACDDDC12B28541EA1D4995699AE71F0120D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1256084.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 256 059
-
-Linkin Park - In The End  2018  Cover, Remix [MP3|320 Kbps] <Trap, Dream House, Trance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. In The End ★ Cover Tommee Profitt feat Jung Youth & Fleuri In ★ Mellen Gi Trap RemixЖанр: Trap, Dream House, TranceПродолжительность: 00:03:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:006875F63C699B631A0F17D0988220CA58ABA5DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1256059.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 256 011
-
-VA - German Top 100 Single Charts 22.10.2018  2018  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Bonez MC & RAF Camora - 500 PS
-002. Bonez MC & RAF Camora - Kokain  feat. Gzuz 
-003. Bonez MC, RAF Camora - Nummer unterdrückt
-004. Dynoro & Gigi D Agostino - In My Mind    Читать дальше...    Жанр: PopПродолжительность: 05:31:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DEFD88C77389D1F0192CB59FEF92C9A5DB1A8407
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1256011.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 255 868
-
-Technotronic - Pump Up The Jam  2018  Remix [MP3|320 Kbps] <Club, Dance, Rap>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Pump Up The Jam ★ KaktuZ RemixЖанр: Club, Dance, RapПродолжительность: 00:03:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1E1C00252CE730DBE607D9C056F762CCDE886025
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1255868.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

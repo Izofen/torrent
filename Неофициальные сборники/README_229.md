@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 666 369
+
+VA - Electro Life 25  by ZiP   2013  [MP3|320 kbps]<Electro House, Electro Progressive>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Danny Suko & Denny Crane ft. Tommy Clint - Kill It On The Floor  Bodybangers Remix   4:59 
+02. Deorro - Yee  Original Mix   3:30 
+03. Di Key - В сердце твоём была не я  Greysound Remix Dub Version   5:39 
+04. DJ JIM & Greysound - Who Is It  Greysound Remix   3:57 
+05. DJ Smash ft. Shahzoda - Между небом и землёй  Club Mix   6:16  клёвый ретро микс
+06. Emma Hewitt - Rewind  Mikkas Remix   6:02 
+07. Forum Project - Белая ночь 2013  DJ Stanislove & DJ Igor Titov Remix   4:01 
+08. Groove Coverage - Riot On The Dancefloor  Bodybangers Remix   4:52 
+09. Guru Josh Project - Infinity  Klaas Vocal Mix   4:52  клёвый ретро микс
+10. Haddaway - What Is Love  DJ JIM Remix   5:14  ...Жанр: Electro House, Electro Progressive, HouseПродолжительность: 02:08:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:05DA27E9EE7FC652410B31B18F600A25296B2C50
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 666 263
+
+VA - DJ JIM May Chart  part 1   2013  [MP3|192 - 320 кб с]<Electro House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Tritonal ft. Underdown - Bullet That Saved Me  Festival Mix   4:30 
+02. Leventina - Tumbler  Original Mix   6:01 
+03. Andalo ft. St.James - Touch The Sky  Club Edit   5:32 
+04. SHato & Paul Rockseek - Deer Friends  Original Mix   5:48 
+05. Acsourse - Underground City  Original Mix   5:13 
+06. Moreno ft. Marielin - See You In Heaven  Extended Club Mix   5:00 
+07. Sunrise Inc. - Nina  Johan K Remix   3:59 
+08. Pink Fluid - Rebel Rebel  Original Mix   5:07 
+09. Steve Cypress & Selecta ft. Latoya R. - Good Time  Hard Club Mix   6:05 
+10. Deorro - Rock The Party  Original Mix   4:00     Читать дальше...    Жанр: Electro House, Electro Progressive, Progressive HouseПродолжительность: 01:54:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:076D8ABBBBE203B2CB6736582453A05AD7B7F39F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 666 041
+
+VA - CD Club Promo Only June 2013  2013  [MP3| ~245 кб с  V0 ]<Club, Dance, House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. David Guetta Feat. Ne-Yo And Akon - Play Hard   Extended 
+02. Depeche Mode - Soothe My Soul   Steve Angello vs. Jacques Lu Cont Remix 
+03. David Guetta feat. Ne-Yo and Akon - Play Hard   Spencer and Hill Remix 
+04. R.I.O. - Living In Stereo   Extended Mix 
+05. Tom Boxer And Morena Feat. Sirreal - Summertime   Extended 2013 
+06. Alexandra Stan vs. Manilla Maniacs - All My People   Extended Version 
+07. Chicane And Ferry Corsten Feat. Christian Burns - One Thousand Suns   Soundprank Vocal Mix 
+08. Amari feat. Heidi Anne - Paradise   Bodybangers Extended Remix 
+09. Prok And Fitch Vs. Marco Lys - Bango   DJ PP Remix 
+10. Mafia Mike and Asia Ash - Hello Hello   Wutes Remix     Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 02:29:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E578C65E0D885C2212AD38A3F9C201E3D1DAFBF0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 666 002
+
+VA - Now That s What I Call 30 Years  2013  [MP3|320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:16:17
+
+01. Adele - Rolling In The Deep  3:48 
+02. Lady Gaga - Bad Romance  4:21 
+03. La Roux - In For The Kill  4:08 
+04. The Black Eyed Peas - I Gotta Feeling  4:49 
+05. Cee Lo Green - Forget You  3:42 
+06. Usher ft will.i.am - OMG  4:29 
+07. Duffy - Mercy  3:40 
+08. Rihanna - Only Girl  In The World   3:55     Читать дальше...    
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 665 998
 
 VA - NRJ Hit List 2013  2CD  [MP3|320 кб с]<Pop, Dance>
@@ -2317,130 +2441,6 @@ VA - Love Radio: Big Love 20  12.05.13  [MP3|128 - 320 кб с]<Pop>
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:C168033E6B109B5C26B23DE9B394EEC8EBDB03DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 655 830
-
-VA - Ave  Maria - Collection  2013  [MP3|256-320 кб с]<Pop, Classical, Instrumental>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Mylene Farmer - Ave Maria
-02. Chris Michell - Ave Maria
-03. Christina England Hale - Ave Maria
-04. Sarah Brightman - Ave Maria
-05. Andre Bernard, Jean-Louis Gil - Ave Maria
-06. Schubert - Ellen dritter Gesang - Ave Maria
-07. Budapest Strings - Ave Maria D 839
-08. Pavenskaya Olga - Ave Maria
-09. Schubert - Ave Maria
-10. G. Zamfir - Ave Maria  Schubert     Читать дальше...    Жанр: Pop, Classical, InstrumentalПродолжительность: 02:50:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:26A06EDB937E814B0BCADCA3058A09BC98DB5D62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 655 759
-
-VA - Рок Нашествие  2013  [MP3|128 кб с]<Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Светлана Сурганова и Настя Полева - Шоссе
-002. Вячеслав Бутусов и Ю-Питер - 10 шагов
-003. Калинов Мост - Время колокольчиков
-004. Lumen - На части
-005. Мумий Тролль - Прекрасный дилетант  Аквариум Cover 
-006. Смысловые Галлюцинации - Не могу оторвать глаз от тебя
-007. Машина времени - Крысы
-008. Гарик Сукачев и Неприкасаемые - Веревочка
-009. БИ-2 - Блеф
-010. Найк Борзов и Линда - Далеко    Читать дальше...    Жанр: RockПродолжительность: 12:19:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7FF185CCA6993DD79941C98DD87EB616FB8AFC67
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 655 721
-
-VA - XXXL Зарубежный SUPERHIT Pop MTV  2013  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Addicted Craze - Hold Me Tight  Pulsedriver Remix 
-02. Alexis Jordan feat. J. Cole - Acid Rain
-03. Sebastian Ingrosso & Alesso - Calling
-04. Timbaland feat. Lil Wanye, Missy Elliott & T - Pain - The Party Anthem
-05. Atfc - This Is Not A Test  Edit 
-06. Destiny S Child - Nuclear
-07. Dirty Nano Vs. Les Elephants Bizarres - Nu Ma Opri  Radio Edit 
-08. Dirty South & Thomas Gold - Eyes Wide Open
-09. James Allan - U Can Light My Love  Radio Mix 
-10. Lil Wayne feat. Drake & Future - Bitches Love Me    Читать дальше...    Жанр: PopПродолжительность: 05:59:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8A4C0073BEF1343A498942B816F3F0FDAE62ED76
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 655 695
-
-VA - Dance Битва Русских Диджеев  2013  [MP3|256 кб с]<Dance, Club>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Владимир Панченко  Faktor-2  & feat. MC Puppet - Запиши мой номер телефона  DJ Alfred Newman Remix 
-02. Lumidee feat. Pitbull Vs Nicola Fasano & Steve Forest - Crazy  DJ Solovey Remix 
-03. DJ Sandro Escobar & Рэпер СЯВА feat. Анастасия Главатских - Фэйсконтроль  DJ Solovey Remix 
-04. Дима Билан - Ночной Хулиган  Dima Smart & Niko Radio Edit 
-05. Artik feat. Asti - Облака  DJ Nejtrino & DJ Baur RU Edit 
-06. Tomy Wega - Balkan Sexy Beat  Roma Stereo Radio Remix 
-07. DJ Nikita Noskow feat. Marlena - Время Настало  Radio Edit 
-08. Europe - The Final Countdown  DJ Shevtsov & Slash Junior Remix 
-09. Оксана Краски - А Девочке Хочется  Vlas Project Remix 
-10. Алисия - Простила  DJ Sergey Fisun Extended mix     Читать дальше...    Жанр: Dance, ClubПродолжительность: 04:56:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C25952DCF4CA7A8FB3D5B4E3C9915E95DC51B833
 ```
 
 <div id="header" align="center">

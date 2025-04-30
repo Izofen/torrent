@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 482 164
+
+VA - 100 Greatest Alternative 80s  2021  [MP3|320 Kbps] <Rock, Alternative>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. The Smiths - How Soon Is Now?  2008 Remaster 
+02. Joy Division - Love Will Tear Us Apart  2010 Remaster 
+03. Pixies - Monkey Gone to Heaven
+04. New Order - Blue Monday    Читать дальше...    Жанр: Rock, AlternativeПродолжительность: 07:04:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:942E4B6A5E937898A7D7E14B6B1CA4ECD651B824
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482164.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 482 088
+
+VA - Beatport Psychedelic Trance: Sound Pack #316  2021  [MP3|320 Kbps] <Psychedelic Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Algorithium - Unplugged
+002. Tartaruz - Matrix Of Lies
+003. Eat Static - Implant
+004. Ketamane - Lonely Walk    Читать дальше...    Жанр: Psychedelic TranceПродолжительность: 12:41:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90AD1383C14B0B4935F2F524E9D2D94A1A1A3790
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482088.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 482 081
+
+VA - Beatport Tech House: Sound Pack #313  2021  [MP3|320 Kbps] <Tech House, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Julian Iannone - Eclipse
+002. Greg Delon - Cezar
+003. Rex The Dog - Crasher
+004. Roc - Vocalicious    Читать дальше...    Жанр: Tech House, ElectroПродолжительность: 11:56:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2C5AE8A85813AE54232847688DBDE4348C5EC767
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482081.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 482 080
+
+VA - Rock covers  2021  [MP3|320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Nirvana - The Man Who Sold The World  4:21 
+02. Frank Carter & The Rattlesnakes - Nothing Breaks Like a Heart  3:30 
+03. Jeff Beck, Johnny Depp - Isolation  5:14 
+04. Halestorm - Get Lucky  3:08     Читать дальше...    Жанр: RockПродолжительность: 06:05:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F4E878C1144CBFC34531B926F4964EF9BFA6B022
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482080.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 482 077
 
 VA - Beatport Funky House: Sound Pack #312  2021  [MP3|320 Kbps] <Funky, Disco House, Jackin Hou
@@ -1894,106 +1994,6 @@ VA - Зайцев.нет Лучшие новинки Июня  2021  [MP3|320 Kb
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478583.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 478 539
-
-VA - Rock  2021  [MP3|320 Kbps] <Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Godspeed You! Black Emperor - Job s Lament  8:02 
-002. Би-2 feat. Моя Мишель & Yuri Kasparyan & Глеб Колядин & Алексей Мещеряков & Антон Давидянц - Падал Свет  6:07 
-003. The Black Keys - Crawling Kingsnake  6:08 
-004. Greta Van Fleet - Broken Bells  5:50     Читать дальше...    Жанр: RockПродолжительность: 06:29:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9009A13EAA468A499B6838F1E43251FC2175806F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478539.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 478 456
-
-VA - German Top 100 Single Charts 18.06.2021 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Olivia Rodrigo - good 4 u
-02. Måneskin - Beggin 
-03. Måneskin - I WANNA BE YOUR SLAVE
-04. Nathan Evans - Wellerman  Sea Shanty   220 KID x Billen Ted Remix     Читать дальше...    Жанр: PopПродолжительность: 04:56:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75D22C649D6A4B1D8F6C6BD1CE8512E65084D950
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478456.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 478 441
-
-VA - Music News vol.109  2021  [MP3|320 Kbps] <Pop, Soul, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Вера Брежнева - Розовый Дым  03:27 
- 002. Aisha - Выдуманы  03:45 
- 003. Юлия Пушман - Эй, Бой  02:20 
- 004. Alice Change - Никому  04:02     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 06:23:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90639832DB9D63F45A533E2BEC9797B0C6DAD78C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478441.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 478 262
-
-VA - ЕвроХит Топ 40 Europa Plus 18.06.2021 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Chael feat. Kaii - Don t Speak  3:19 
-02. Imagine Dragons - Follow You  2:55 
-03. The Weeknd - Save Your Tears  3:35 
-04. INNA - Flashbacks  2:33     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:00:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3C66A073D342C075BE4C8B6C2D49BF897D7C4725
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478262.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

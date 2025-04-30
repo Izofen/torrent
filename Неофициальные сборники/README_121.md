@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 144 323
+
+VA - Moving Dance: Summer Longplay  2017  [MP3|320 Kbps] <Pop, House, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001.  Kygo & Ellie Goulding - First Time  3:14
+002.  Alice Merton - No Roots  3:56
+003.  Alan Walker - Tired  feat. Gavin James   3:12
+004.  Jason Derulo feat. Nicki Minaj & Ty Dolla Sign - Swalla  3:37    Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 08:28:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DBA07DCCE6F1CA8ADC7E12BE4CBEC873294A910C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1144323.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 144 100
+
+VA - DJ Radio Show Latino RnB  2017  [MP3|192-320 Kbps] <RnB, Hip Radioshow>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+001. Alexis Ayaana Feat. Quavo - Bad Enough 04:06
+002. Dj Jay Rock - Intro 00:12
+003. Kent Jones - Counting Stars 03:43
+004. Kevin Ross - Long Song Away 04:33    Читать дальше...    Жанр: RnB, Hip RadioshowПродолжительность: 08:06:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CF192EBCD6CE78B46BE61F2F171CC0761F74222C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1144100.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 144 008
+
+Zucchero - Hybrid of Zucchero Sugar Fornaciari  2017  [MP3|192-320 CBR,VBR Kbps] <Rock, Pop Rock
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Diamante
+02. Va pensiero
+03. Menta E Rosmarino
+04. Cosi Celeste    Читать дальше...    Жанр: Rock, Pop Rock, BluesПродолжительность: 04:35:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BCA883292DE3457A42088335F8FC8E5C0CDB7D26
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1144008.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 143 923
+
+VA - Diamond Euphoria: Night House Party  2017  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001.  Deep Spirit - Lonely 2K16  Club Edit   3:25
+002.  Moonrider - Resurrection  Radio Edit   3:39
+003.  Arctic Motion - Black & White  Radio Edit   3:33
+004.  Miguel Alcobia - We Get It Right Sometimes  Radio Edit   3:12    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 07:42:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2BB6F1989719F3CAF4F15DD5534AC713A0BDB718
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1143923.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 143 920
 
 VA - Drumsound and Bassline Sampler  2017  [MP3|320 Kbps] <Drum&Bass, Dubstep>
@@ -1894,106 +1994,6 @@ VA - Summer Romantic Songs  2017  [MP3|320 Kbps] <Pop, R&B, Rock>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1140252.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 140 244
-
-VA - Soul Motion: Top 100 Original Club Mix  2017  [MP3|320 Kbps] <House, Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  Croatia Squad & Frey - White Horse  Original Mix  5:22
-02.  Danny D - Without Me 4:56
-03.  Blank & Jones - Coh 6:49
-04.  Topmodel - Within 2:57    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 08:25:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1780C8904D637AD05D2C54B3E7A4197CAC85A057
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1140244.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 140 229
-
-VA - The Horizont Of Bliss  2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge, Relax>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01.  Soty - Sun Touch  Intro Mix  3:52
-02.  Kool & Klean - The Way You Look Tonight 5:07
-03.  Don Markus - I Don t Won t Illusion 5:10
-04.  Soul Guru - Addicted To Tantric Sex  Sensual Love Mix  4:56    Читать дальше...    Жанр: Downtempo, Chillout, Lounge, RelaxПродолжительность: 07:46:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:82BECB742D3DD77E25B99EDF36D38CFF3DFB80D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1140229.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 140 217
-
-VA - The Best Of Trance 56  2017  [MP3|320 Kbps] <Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  NoMosk - Black Cloud  Extended Mix  6:23
-02.  Solarstone & Meredith Call - I Found You  Giuseppe Ottaviani Remix  6:51
-03.  PureNRG - Cala Blanca 7:53
-04.  Roman Messer - Lost  Extended Mix  6:21    Читать дальше...    Жанр: TranceПродолжительность: 05:48:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EFAF25D9C15096CFC20772D6A392F57A15F78D83
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1140217.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 140 213
-
-VA - Beatport Top 100 Trance May  2017  [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive, V
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001.  Solarstone & Meredith Call - I Found You  Giuseppe Ottaviani Remix  6:51
-002.  Allen Watts - Arizona  Extended MIx  6:35
-003.  Davey Asprey - Fallout  Extended Mix  5:52
-004.  Talla 2XLC - Arcadia  Original Mix  6:16    Читать дальше...    Жанр: Trance, Uplifting Trance, Progressive, Vocal Trance, EnergyПродолжительность: 11:04:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14FAE257CAFC93545DC9FDA6D979A9E238355939
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1140213.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 549 310
+
+O.C.A - Ночной дожор  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Бездна
+2. Зайки
+3. 7 нот
+4. Море    Читать дальше...    Жанр: PopПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65AE871AF500CED2047B0D0DF93BB15ED437D44F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549310.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 189
+
+VA - Summer Dance Party 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. ACRAZE - Do It To It  2:37 
+02. Elton John - Cold Heart  PNAU Remix   3:22 
+03. Jax Jones - Where Did You Go  2:57 
+04. Becky Hill - Remember  2:41     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:33:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FDE7DDDB1976F8886C80A24D99A65B2EF92FEC85
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549189.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 118
+
+VA - Disco Music  2021  [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Bee Gees - Stayin Alive  4:46 
+02. Kool & The Gang - Celebration  Single Version   4:57 
+03. Donna Summer - Hot Stuff  12   Version   6:41 
+04. Sylvester - You Make Me Feel  Mighty Real   6:35     Читать дальше...    Жанр: Dance, DiscoПродолжительность: 03:03:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6855E91651D9210D19845A5D7BDAE7F8E6708143
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549118.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 549 073
 
 VA - Back to Basics Disco Hits  2021  [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, Pop>
@@ -1915,81 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542455.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 443
-
-Atmosfear - Dancing In Outer Space  2000  Compilation [MP3|320 Kbps] <Electronic, Funk Soul, Jaz
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Dancing In Outer Space  9:36 
-02. Outer Space  6:07 
-03. Motivation  8:50 
-04. Extract  5:21     Читать дальше...    Жанр: Electronic, Funk Soul, Jazzdance, DiscoПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF74FFEB181A433FA2A8BB4908641944902D0BEB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542443.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 408
-
-Natasha Morozova  Наташа Морозова  - The Mystery of the Russian Soul  2013  2021, Russian En
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Fly Away on the Wings of the Wind  4:30 
-02. Steppe  4:17 
-03. Seachange  3:53 
-04. You re Far Away  4:16     Читать дальше...    Жанр: Pop, New Age, ClassicalПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A4145ABCA359610DB4CCAEE36391C7FAF3CAAE71
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542408.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 406
-
-Natasha Morozova  Наташа Морозова  - Перелётные птицы  2014  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Улетай на крыльях ветра  4:30 
-02. Перелётные птицы  4:10 
-03. Колокольчик  3:47 
-04. Сердцем в сердце  3:59     Читать дальше...    Жанр: PopПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FFCF81C5FA1C36EF00E762BF22B44FD58E88727E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542406.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

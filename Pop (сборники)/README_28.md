@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 534 199
+
+Dido - Still On My Mind  2019  [FLAC|Lossless|image + .cue] <Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Hurricanes [0:05:14.69]
+02. Give You Up [0:03:21.40]
+03. Hell After This [0:03:27.54]
+04. You Don t Need A God [0:03:31.47]    Читать дальше...    Жанр: Synth-popПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F49AAD4BF889A133529EA3F1F60F4E75A56DA1BF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534199.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 533 952
+
+VA - ZYX Italo Disco: Flemming Dalum Remixes  2021  [MP3|320 Kbps] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01.  Lectric Workers - Robot Is Systematic  Flemming Dalum Edit   6:33 
+02. Duke Lake - Do You  Flemming Dalum Short Edit   6:21 
+03. Mono Band - Ghost Town  Flemming Dalum Edit   7:46 
+04. Wish Key - Orient Express  Flemming Dalum Edit   5:41     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E6371754FB990FB1AADEF3937519C789EB7DE9B9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533952.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 533 948
+
+VA - Italo Disco Classics  2013  2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Europop, Synthpop
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. P. Lion - Happy Children  Vocal Version   6:01 
+02. Brian Ice - Talking To The Night  Extended Version   5:53 
+03. Styloo - Pretty Face  6:06 
+04. Grant Miller - Colder Than Ice  Maxi Version   5:37     Читать дальше...    Жанр: Italo-Disco, Europop, SynthpopПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA262BD73890D1C91EEFEBA5D1C8BE51A92CC1F1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533948.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 533 907
 
 VA - DMC Dance Extra Mixes 168  2021  [MP3|320 Kbps] <Electronic, Funk   Soul, Pop>
@@ -1917,81 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1519023.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 518 895
-
-VA - Best Songs of 2021 [MP3|320 Kbps] <Pop, Rock, Other>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-001. Doja Cat - Kiss Me More  feat. SZA 
-002. Walker Hayes - Fancy Like
-003. Drake - Way 2 Sexy
-004. The Kid Laroi - STAY    Читать дальше...    Жанр: Pop, Rock, OtherПродолжительность: 05:23:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5CDF835F455FB84FB0ED1D3A9404B2B239FD9170
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518895.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 518 868
-
-Lara Fabian - Lockdown Sessions  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Listen to the Silence
-02. I Remember
-03. Song for a Child
-04. Le Passage    Читать дальше...    Жанр: PopПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:464ECE385D5C3693AEA93F2E5AB8AFAAD30483B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518868.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 518 394
-
-VA - Saturday Feel Good  2021  Explicit [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Twenty One Pilots - Saturday  2:52 
-02. James Blunt - Love Under Pressure  2:45 
-03. fun. - We Are Young  feat. Janelle Mon+бe   4:10 
-04. Ali Gatie - It s You  3:32     Читать дальше...    Жанр: PopПродолжительность: 02:03:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2DCD5191DEF23EA1E7E49C099BEAAE67F52D82DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1518394.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 159 449
+
+VA - Oldies 70 s  2017  [MP3|320 Kbps] <Disco, Pop, Rock>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. America - A Horse With No Name 4:09
+02. Sister Sledge - We Are Family 3:19
+03. Foreigner - Feels Like the First Time  Edit  3:28
+04. Frankie Valli - Grease 3:21    Читать дальше...    Жанр: Disco, Pop, RockПродолжительность: 03:14:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:82A851303DDCB205C6A165C1CFF31C96339B5344
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1159449.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 159 418
+
+VA - EuroHit Top 40 Europa Plus  18.08.   2017  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Dua Lipa - Blow Your Mind  2:59
+02.  The Chainsmokers & Coldplay - Something Just Like This  4:08
+03.  Kokab - Got U  Ready Or Not   3:12
+04.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:15:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E3590AA323890EEEFD5C7C95D931D4C8DB3F1E7F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1159418.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 159 416
+
+VA - Soul Deep 08: Smooth Jazz Review  2017  [MP3|320 Kbps] <Smooth Jazz>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001.  Anita Baker - My Funny Valentine  5:06
+002.  Jazz 2 More - Soulsamba  6:58
+003.  Lo Greco Bros - Friendly Pressure  4:39
+004.  South Froggies - Dub Jazz  3:50    Читать дальше...    Жанр: Smooth JazzПродолжительность: 08:14:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:416117E4AB0CA26EC2335D1961F4EA9E535FD07D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1159416.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 159 374
+
+VA - Master Dance Collection Of EDM Music  2017  [MP3|320 Kbps] <Club, Dance, Electro House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Flauschig - ...Und bequem
+002. Djane Housekat Feat. Rameez - 38 Degrees  Club Mix 
+003. Tiesto vs. Konih - Adagio For 9MM  I.GOT.U & MESZI SMASH 
+004. Mr Matt - Alcoholic Party  Original Mix     Читать дальше...    Жанр: Club, Dance, Electro HouseПродолжительность: 08:24:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0408C28389AFDDF7871EDF99EF73AF0024C55E64
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1159374.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 159 372
 
 VA - Record Super Chart #499  2017  [MP3|320 Kbps] <House, Club, Dance>
@@ -1897,106 +1997,6 @@ Hits of My Soul - сборник электронной и инструмент�
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154772.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 154 596
-
-VA - Русский Рок - Эта музыка будет вечной  2017  [MP3|320 Kbps] <Рок>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-01.  Константин Никольский - Мой друг художник и поэт  6:08
-02.  Альфа - Гуляка  3:18
-03.  Аракс - Дороги  3:28
-04.  В.Кузьмин и Динамик - Мама я попал в беду  5:31    Читать дальше...    Жанр: РокПродолжительность: 02:12:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36947EEDE0F5EB82A0A07E854C102FF845588DBF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154596.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 154 384
-
-VA - Progressive House Vol.4  Compiled by ZeByte   2017  [MP3|320 Kbps] <Progressive House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01.  Subconscious Tales - Dopa Mine  8:45
-02.  Robert R Hardy - Last Indos  Nicolas Rada Remix   8:14
-03.  Criss Source - Trancentral  7:56
-04.  Julian Rodriguez - Ulinpit Disconnection  Nicolas Rada Remix   9:03    Читать дальше...    Жанр: Progressive HouseПродолжительность: 02:46:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6BA5A0138030C8D59A7DDC32029CF6E86240DB16
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154384.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 154 318
-
-VA - Record Super Chart #496  2017  [MP3|320 Kbps] <House, Club, Dance>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01.  Yellow Claw - Open  3:31
-02.  Abel Ramos & Albert Neve - Flat Beat  4:30
-03.  Hardwell feat. Jolin Tsai - We Are One  4:23
-04.  Fedde Le Grand vs. Ian Carey - Keep On Rising  Extended Mix   4:48    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 02:07:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:01230E981126015E5839D7BABDE34430B2588E15
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154318.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 154 291
-
-VA - Top 100 Energy European Trance  2017  [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001.  Alan Morris - Wherever We Fly  Original Mix   3:32
-002.  Kaimo K - Avalanche  Original Mix   6:14
-003.  Elite Electronic & John Swanson - Polaris  Original Mix   3:56
-004.  Frainbreeze & Cari - Stronger  Radio Edit   4:11    Читать дальше...    Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 09:02:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9DB49833668F7DCE938D8985BC00D56E5C83985B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154291.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

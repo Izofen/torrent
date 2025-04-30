@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 280 001
+
+VA - Elements Trance: Extended Mix  2019  [MP3|320 Kbps] <Trance, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Alex Kunnari - This Fire
+002. Fuenka - Lanesra  Original Mix 
+003. Adnane Touzani - Raikiri  Extended Mix 
+004. Mr. Greidor - Trancestation    Читать дальше...    Жанр: Trance, ElectroПродолжительность: 09:45:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:35D3D70995219E34250871D2F5F7D77E759D9C54
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1280001.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 279 996
+
+VA - The Disco Mind: Funky Edition  2019  [MP3|320 Kbps] <Funky, Disco House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Canosa - Fireworks
+002. Discotron - Mo Swagger Than Jagger
+003. Charlie - Switch The Sound
+004. Enyon - All Night Long    Читать дальше...    Жанр: Funky, Disco HouseПродолжительность: 11:02:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7CB370FE56BDE0B3CCFD5C83D201A499F68A3A47
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1279996.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 279 994
+
+VA - Time Machine: Hard Dance Techno  2019  [MP3|320 Kbps] <Techno, Hard Dance, Electronic>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Borzoo - Seagulls Tripping
+002. Anderex - Gucci Bag  Original Mix 
+003. Crystal Lake - Invaders  Extended Mix 
+004. Devin Wild - For All Of Us    Читать дальше...    Жанр: Techno, Hard Dance, ElectronicПродолжительность: 10:56:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CCAC847B01E9E19BB11ABEA9FC10C46B5E997BED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1279994.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 279 992
+
+VA - Billboard Hot 100 Singles Chart 02.02.2019  2019  [MP3|320 Kbps] <Pop, Dance, Euro>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Travis Scott - SICKO MODE
+002. Halsey - Without Me
+003. Post Malone - Sunflower  Spider-Man_ Into the Spider-Verse 
+004. Ariana Grande - thank u, next    Читать дальше...    Жанр: Pop, Dance, EuroПродолжительность: 05:32:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C3B17CCBA872E1CEE3A93AD3F8849D1D70D2310E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1279992.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 279 840
 
 VA - Better World  2019  [MP3|320 Kbps] <Reggae, Dub, SKA>
@@ -1874,106 +1974,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1276197.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 276 168
-
-VA - German Top 100 Single Charts 21.01.2019 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Ava Max - Sweet but Psycho
-002. Capital Bra - Benzema
-003. 187 Strassenbande - HaifischNikez Allstars
-004. Sido - Tausend Tattoos    Читать дальше...    Жанр: PopПродолжительность: 05:37:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06B402F7C003646445664D3FAF6BFD3F2DD4A5A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1276168.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 275 997
-
-VA - The Sacrifice: Techno Folk Party  2019  [MP3|320 Kbps] <Techno, Minimal, Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Sirch And William Kiss - Delhi
-002. Dimor - Dark Story  Original Mix 
-003. Headhunterz - The Sacrifice  Max Enforcer Remix 
-004. Jnxd - Fuck Shit Up  Extended Mix     Читать дальше...    Жанр: Techno, Minimal, ElectronicПродолжительность: 10:29:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9B2333B176CEB516F11DF1FF65939258C718EA64
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1275997.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 275 955
-
-Сборник миксов от DJ Jack Ben  Евгений Баленко   2013-2019   [MP3|320 Kbps] <Eurodance, Club
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Jack Ben - Disco Paradise Vol.41  OCTOBER 2014 MEGAMIX 
-002. Jack Ben - Disco Paradise Vol.43  NOVEMBER 2014 MEGAMIX 
-003. Jack Ben - Disco Paradise Vol.44  DECEMBER 2014 MEGAMIX 
-004. Jack Ben - Disco Paradise Vol.45  HAPPY NEW YEAR 2015 MEGAMIX     Читать дальше...    Жанр: Eurodance, Club House, Deep House, Future House, OLDSCHOOL,Продолжительность: 122:27:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:79D7BE4DC4E43A0E47B3D82AACB34C4AEEA8488F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1275955.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 275 885
-
-VA - Music for Car 11  2019  [MP3|320 Kbps] <Electronic, Dance, House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. MiyaGi & Эндшпиль, Kadi - In Love  3:15 
-02. Alec Benjamin - Swim  2:24 
-03. Bea Miller - Outside  3:21 
-04. 3LAU - You Want More  feat. Max   3:00     Читать дальше...    Жанр: Electronic, Dance, HouseПродолжительность: 03:56:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90F415A6FAC7756F5C7DBF37ADFF1554AD308EB5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1275885.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 710 967
+
+Beyonce - Cowboy Carter (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Country>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - AmerIIcan Requiem
+02 - BlackbIIrd
+03 - 16 Carriages
+04 - Protector(   Читать дальше...   )Жанр: Pop, Soul, CountryПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D7398DF616D2D57A104C1A16243A640B5AFAC5C7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1710967.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 710 506
+
+Various - Stars On 45 - Let's Dance! (2003) [FLAC|Lossless|image + .cue] <Disco, Italo-Disco, Euro-D
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+Disco 70’s Medley.
+01. Stars On 45– Stars On 45 (Part One) 0:58
+02. Eruption (4)– Runaway 1:43
+03. Cashmere– Hey Baby 3:27(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89D22D371CA437FB24EE01F65310CF1C4FBF55DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1710506.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 710 379
+
+Modern Heroes - Magic-The 1st Album  2024  [MP3|320 Kbps] <Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. You re My Heart  5:50 
+02. Romance In Paris  3:08 
+03. The City Of Blue Angels  3:52 
+04. Moment Of Love  3:16     Читать дальше...    Жанр: Euro-DiscoПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BE89A2BF932140218662AA7AC7C3EDF98D7E4A3A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1710379.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 709 541
 
 Cherry Laine - The Singles Collection - Projects, Versions & New (2023) Compilation [FLAC|Lossless|i
@@ -1915,77 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700085.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 019
-
-VA - Greatest Ever Decade 90s  2021  4 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Jazz, Rock
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Deee-Lite - Groove Is In The Heart
-02.  Simply Red - Stars
-03.  Duran Duran - Ordinary World
-04.  Roxette - Listen To Your Heart    Читать дальше...    Жанр: Electronic, Hip Hop, Jazz, RockПродолжительность: 05:16:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B90CBE4A4B2172EF2707C84F2DAEB0A15A4744B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700019.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 006
-
-Моя Мишель - Медленная Звезда (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1.Медленная ЗвездаЖанр: PopПродолжительность: 00:02:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A7105ED8D63F61CC60C39B0019B8C167A89D2EB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700006.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 700 004
-
-Моя Мишель - Наивность,Ч.1  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-1.Стюардесс
-2.Не обещала
-3.СозвездияЖанр: PopПродолжительность: 00:10:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:84B29F1DD089DC70139609429CF8EC8B2FBBD51F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1700004.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

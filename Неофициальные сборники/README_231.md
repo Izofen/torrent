@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 649 193
+
+VA - MNM Big Hits Vol. 1  2013  [MP3|256 кб с]<Pop,Club, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Pink Ft Nate Ruess - Just Give Me A Reason 04:03
+02. Tom Odell - Another Love 04:00
+03. Avicii Vs Nicky Romero - I Could Be the One 03:28
+04. Icona Pop Ft Charli Xcx - I Love it 02:34
+05. One Direction - Kiss You 03:02
+06. The Broken Circle Breakdown Bluegrass Band - If I Nee 03:05
+07. Axelle Red - Rouge Ardent 03:51
+08. Candi Staton - Hallelujah Anyway  Larse Vocal Edit  02:59
+09. Bingo Players Ft Far East Movement - Get Up  Rattle  02:44
+10. Showtek & Justin Prime - Cannonball 03:22    Читать дальше...    Жанр: Pop,Club, DanceПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E8CA831D330BFD058E5273CEF2EEF5060258CF5E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 649 077
+
+VA - Love Stories  6CD  [Box Set]  2010  [MP3|320 кб с]<Pop, Ballads, Easy Listening, Love
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Natalie Imbruglia - Torn  4:05 
+02. Wilson Phillips - You re In Love  4:51 
+03. Foreigner - Waiting For A Girl Like You  4:50 
+04. Alpha Ville - Forever Young  3:48 
+05. Johnny Hates Jazz - Turn Back The Clock  4:27 
+06. Culture Club - Love Is Love  3:52 
+07. Breathe - Hands To Heaven  4:20 
+08. The Corrs - What Can I Do  4:18 
+09. Gloria Estefan - Anything For You  4:03 
+10. George Michael - The First Time Ever I Saw Your Face  5:19     Читать дальше...    Жанр: Pop, Ballads, Easy Listening, Love SongsПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC8A2BCB50837E2FD9808743B601C2D07454730C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 649 016
+
+VA - I Love Ballads  2012  [MP3|~245 кб с  V0 ]<Pop, Ballads>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Lionel Richie - Hello
+02. Kool & The Gang - Cherish
+03. Earth, Wind & Fire - After The Love Has Gone
+04. KC & The Sunshine Band - Please Don t Go
+05. Harry Nilson - Without You
+06. Barry Manilow - Mandy
+07. Eric Carmen - All By Myself
+08. Mary Mc Gregor - Torn Between Two Lovers
+09. Lobo - I d Love You To Want Me
+10. Bangles - Eternal Flame    Читать дальше...    Жанр: Pop, BalladsПродолжительность: 01:18:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C11F51925E9AD582C9B0C1E026E7E5BB1539CE3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 648 941
+
+VA - Весенняя хитовая лавина хитов  2013  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+1. Вельвет - Без Меня  DJ Sergey Fisun Remix   3:30 
+2. Mary - Я Стану Светом  3:24 
+3. Полина Гагарина - Нет  DJ Flight & DJ Zhukovsky Official Radio Edit   3:08 
+4. Инфинити - Нежно  DJ Evans Remix   3:25 
+5. Real O - Где Же Ты, Любовь  3:26 
+6. A Studio - Раз и навсегда  3:41 
+7. Тина Кароль - Помню  3:53 
+8. Dino MC 47 feat. Бьянка - Навсегда С Тобой  DJ Viduta & DJ DimixeR remix   4:11 
+9. Дима Вебер - Если бы ты пришла  3:30 
+10. T - Killah feat. Лена Катина  ex. t.A.T.u  - Я Буду Рядом  4:00 Жанр: PopПродолжительность: 06:07:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DED72EE1F62BD3A0ADFF8004ED1BC4EE5B7AB218
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 648 933
 
 VA - Мелодии Весны  2013  [MP3|256 кб с]<Pop>
@@ -2301,123 +2425,6 @@ Pop  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:524D657627028EC40ED356D82A0440A59F56779A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 640 515
-
-VA - Electro Life 24  by ZiP  2013  [MP3|320 kbps]<Electro House, Electro Progressive>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. 30 Second To Mars - From Yesterday  Tony Igy Remix 
-02. Alexey Romeo ft. Gerald G - This Is Your Life  Heartbeat Re-Mode 
-03. Avicii - UMF  Ultra Music Festival Anthem  -Жанр: Electro House, Electro Progressive, Progressive House, Vocal HouseПродолжительность: 02:12:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5BF10FA8484633C86BB5943091BE22DD12DB2988
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_640515.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 640 501
-
-VA - Радио Record Superchart Top-33  06.04.2013  [MP3|320 кб с]<Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. MACKLEMORE & RYAN LEWIS - Thrift Shop  Mikael Wills Bootleg 
- 02. Dj Indygo feat. Chris Antonio - Fuck This Early Morning  Royal XTC Remix 
- 03. Adrian Sina Feat. Sandra N. - Angel  South Blast! Nympho Angel Remix 
- 04. Bingo Players feat. Far East Movement - Get Up  Rattle 
- 05. Havana Brown feat. R3hab & Prophet - Big Banana  Original Mix 
- 06. Deorro - For President  Original Mix 
- 07. Movetown feat. R. Horton - Here Comes The Sun  Record Mix 
- 08. Baauer - Harlem Shake
- 09. Starfuckers feat. Miracle - One Night
- 10. Icona Pop - I Love It  DJ KUBA & NE!TAN Bootleg Жанр: Pop, DanceПродолжительность: 02:31:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:574F6B3C8E7ADE4181F199D7B3ADF6E2A07E4529
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 640 324
-
-VA - Candlelight and Roses  10CD   2013  [MP3|320 кб с]<Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-1. Franck Chacksfield - The way you look tonight   02:59
-2. Norman Candler - Come dancing   02:39
-3. Bert Kaempfert - Hold me   02:51
-4. Les & Larry Elgart - Meditation   02:50
-5. Living Strings - What a diff rence a day made   03:21
-6. Lawrence Welk - Goin  home   02:32
-7. Helmut Brandenburg & The Philharmonic Pop Orchestra - Affaire du coeur   04:25
-8. Tony Hatch - You d better come home   02:49
-9. Manuel and The Music Of The Mountains - Softly as in a sunrise   02:44
-10. Sounds Orchestral - It s too late   04:17    Читать дальше...    Жанр: InstrumentalПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:936E82F7CA1BB350468EFFB267E6B4B4902367FA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_640324.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 640 304
-
-VA - Power Metal Ballads 16  2013  [MP3|224 кб с]<Heavy, Sympho, Glam, Prog, Power Metal, Ball
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001-Golden Ressurection-The Light Overture
-002-Asylum Pure-Will You Believe Me
-003-AtVance-Don t Dream
-004-Baton Rouge-Free
-005-Big Bad Wolf-Crystal
-006-Braveride-At the Village
-007-Dare-Calm Before The Storm
-008-Dragons Cave-Ghosts of the Past
-009-Epica-Delirium
-010-Firewind-Edge Of A Dream  feat. Apocalyptica     Читать дальше...    Жанр: Heavy, Sympho, Glam, Prog, Power Metal, BalladsПродолжительность: 07:20:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D7A2885BE6D4FD67F881BE3AE1A71036A3C0017
 ```
 
 <div id="header" align="center">

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 777 463
+
+VA - Retro Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Bruno Mars - 24K Magic (3:45)
+02. Pet Shop Boys - Go West (2003 Remaster) (5:04)
+03. Ed Sheeran - Shape of You (3:53)
+04. Madonna - Hung Up (5:36)(   Читать дальше...   )Жанр: PopПродолжительность: 02:24:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:390435BADA7DFDF8DDF443FB35F851D21D3FB6D5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1777463.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 777 205
+
+Michael Gray (Reflex) - Больше чем жизнь (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Тюльпаны [00:04:09]
+02. На одной орбите [00:02:46]
+03. Любовь - Ракета [00:03:05]
+04. Больше чем жизнь [00:03:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:11B64C2A833351C38892887C25ECA793FCAF94B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1777205.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 776 717
+
+Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Irréel 2 [00:03:19]
+02 - Abracadabra [00:03:20]
+03 - Mes nuits [00:03:04]
+04 - Démon [00:02:16](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5B78860EB53A6109B652CAE0CC0FD0C91D9E4746
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776717.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 776 613
 
 VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1919,81 +1994,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768858.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 768 665
-
-Денис Клявер - Новогодний поцелуй, Часть 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Новогодний поцелуй [00:04:38]
-02. Любовь с первого взгляда [00:04:56]
-03. Когда ты станешь большим [00:04:44]
-04. Тебя удача найдёт [00:04:21](   Читать дальше...   )Жанр: PopПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6D71E0828C817CF3F3CC3D9496088B183E546B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768665.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 768 662
-
-Андрей Картавцев - Музыка моей души (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Не рви мне душу [00:04:12]
-02. Никто из нас не виноват [00:04:15]
-03. Обманщица [00:03:22]
-04. Она не ты [00:04:37](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3B2D692915D17FA6932653B49B6822B9A20BC22E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768662.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 768 633
-
-Yuri Sosnin - The Night (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Starry Night (5:07)
-02. Night Dreams (5:04)
-03. Night Melody (5:06)
-04. A Magical Night (5:24)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E29A863596F4F3C9538932A4935C7D355C2E02ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768633.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

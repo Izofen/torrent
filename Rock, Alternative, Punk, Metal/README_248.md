@@ -1,4 +1,398 @@
 ﻿
+###  Публикация: 1 366 504
+
+Primal Fear - Devil s Ground  2004  [FLAC|Lossless|image + .cue] <Power Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Metal Is Forever  4:46 
+02. Suicide And Mania  4:04 
+03. Visions Of Fate  4:50 
+04. Sea Of Flames  4:01     Читать дальше...    Жанр: Power MetalПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8705AF4C0589D0F0FDE8BA211CAD66CBE6B5B0A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366504.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 502
+
+Yngwie Malmsteen - War To End All Wars  2000  [FLAC|Lossless|image + .cue] <Neoclassical Power M
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Prophet Of Doom  5:31 
+02. Crucify  6:44 
+03. Bad Reputation  4:52 
+04. Catch 22  4:12     Читать дальше...    Жанр: Neoclassical Power MetalПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0B68DAF8B6D90AAFDE86889902033D2CED0194CF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366502.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 493
+
+Gealdýr  Gealdyr  - Valravn  2020  [MP3|320 Kbps] <Folk & Viking Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01 Valravn [00:03:18]
+02 Deyr Fé [00:02:18]
+03 The Ritual [00:03:09]
+04 The Seeress [00:03:04]    Читать дальше...    Жанр: Folk & Viking MetalПродолжительность: 00:20:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43AFB1288CA93D952895BCD268853F764EF6D8AB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366493.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 459
+
+State Cows - 2 альбома  2010-2013  [MP3|320 Kbps] <Westcoast, AOR>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+2010 - State Cows
+2013 - The Second OneЖанр: Westcoast, AORПродолжительность: 02:08:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD73E1C8C66FDBF207260CB58FB476EE0B3CA45D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366459.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 456
+
+State Cows - 2 альбома  2010-2013  [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+Список альбомов:
+2010 - State Cows
+2013 - The Second OneЖанр: Westcoast, AORПродолжительность: 02:08:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2324BC3F1B715D830D0EB23010C02E29DF57B640
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366456.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 357
+
+Virginia Wolf - 2 альбома  1986-1987  [MP3|320 Kbps] <Melodic Rock, AOR>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+1986 - Virginia Wolf
+1987 - PushЖанр: Melodic Rock, AORПродолжительность: 1986-1987
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:491574FD8EB70EB997D2EB2EBB8C78473FF32164
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366357.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 355
+
+Virginia Wolf - 2 альбома  1986-1987  [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+Список альбомов:
+1986 - Virginia Wolf
+1987 - PushЖанр: Melodic Rock, AORПродолжительность: 1986-1987
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E1853942A1790A956515E6E0568807FDD35AFBF4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366355.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 348
+
+Chasing Violets - 2 альбома  2012-2013  [MP3|320 Kbps] <Melodic Rock, AOR>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+2012 - Outside Heaven
+2013 - Jade HeartsЖанр: Melodic Rock, AORПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:629A946AE01B29622E3B96C86718F2C37973AF3A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366348.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 347
+
+Chasing Violets - 2 альбома  2012-2013  [FLAC|Lossless|image + .cue] <Melodic Rock AOR>
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+Список альбомов:
+2012 - Outside Heaven
+2013 - Jade HeartsЖанр: Melodic Rock AORПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5B3C344D9F9A5DBC10C873459B1B92E5E56651F2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366347.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 328
+
+Kursani - Kursani  2020  [MP3|320 Kbps] <Beatdown Hardcore>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01 - Спортзал это храм [00:02:46]
+02 - Сустанон 250 [00:01:19]
+03 - Курсани [00:02:40]
+04 - Стероидная ярость [00:02:06]    Читать дальше...    Жанр: Beatdown HardcoreПродолжительность: 00:20:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91C8652E5DDCB2C7CD09CBE3B8284118FD647636
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366328.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 251
+
+Suicide Silence - Become the Hunter  2020  [FLAC|Lossless|tracks + .cue] <Deathcore>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Meltdown  02:12 
+02. Two Steps  03:22 
+03. Feel Alive  03:29 
+04. Love Me To Death  04:15     Читать дальше...    Жанр: DeathcoreПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69FE316AA2FD39285BC7EC2E47D58C35D0C4E7FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366251.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 247
+
+Silverstein - A Beautiful Place To Drown  2020  [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Al
+Rock, Alternative, Punk, Metal
+Alternative, Punk  Lossless 
+
+###  Подробнее
+
+01. Bad Habits  feat. Intervals   02:53 
+02. Burn It Down  feat. Caleb Shomo   03:10 
+03. Where Are You  02:54 
+04. Infinite  feat. Aaron Gillespie   02:43     Читать дальше...    Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3020EE589147BCAB48C5EC372F68FECE15654A77
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366247.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 238
+
+Nocturnal Rites - Grand Illusion  2005  [FLAC|Lossless|image + .cue] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Fools Never Die  3:55 
+02. Never Trust  4:44 
+03. Still Alive  4:03 
+04. Something Undefined  4:08     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC8EB5918AD6041742992B38514DEC8009E46E89
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366238.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 237
+
+Wyldest - Dream Chaos  2019  [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop>
+Rock, Alternative, Punk, Metal
+Alternative, Punk  Lossless 
+
+###  Подробнее
+
+01. Headrush  03:42 
+02. Rolling Waves  03:38 
+03. Mind Over Body   Slowdance  05:26 
+04. Reverse Tide  04:12     Читать дальше...    Жанр: Indie Pop, Dream PopПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D54E626BF9C5E20DF3520320DB124470A420DC5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366237.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 232
+
+Сергей Маврин - Запрещённая Реальность  2004  [FLAC|Lossless|image + .cue] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Пока Боги Спят  7:06 
+02. Дьявольский Вальс  8:15 
+03. Падший  6:24 
+04. Дорога В Рай  4:55     Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87D3A93E1180719181EB31CC6D8DB442DBDAA86E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366232.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 227
+
+Eric Martin - I m Goin  Sane  2002   voice Mr.Big  [FLAC|Lossless|image + .cue] <Hard Ro
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+01. My Disease
+02. Spaceman
+03. Goin  Sane
+04. Free Of It    Читать дальше...    Жанр: Hard Rock, AORПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BAAA3D8628C65C30C03A7D3DD387FDA5A3154B0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366227.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 366 176
 
 Louna - Live Show Re:Public Minsk Belarus  2020  [MP3|320 Kbps] <Nu Metal>
@@ -1592,406 +1986,6 @@ Metal (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364979.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 929
-
-Houston - 4 альбома Discography  2010-2014  [MP3|320 Kbps] <Melodic Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2010 - Houston
-2011 - Relaunch
-2013 - II    Читать дальше...    Жанр: Melodic Rock AORПродолжительность: 02:55:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A865CF9947D4CC4111173F59E77F2B8B44035352
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364929.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 928
-
-Houston - 4 альбома  2010-2014  [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-Список альбомов:
-2010 - Houston
-2011 - Relaunch
-2013 - II    Читать дальше...    Жанр: Melodic Rock AORПродолжительность: 02:55:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DD5EEEA11B5E1F80D1CA000A65CB08F465E53F2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364928.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 908
-
-Robert Plant - Digging Deep  2020  Singles Collection [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. Burning Down One Side
-02. Like I’ve Never Been Gone
-03. Big Log
-04. In The Mood    Читать дальше...    Жанр: RockПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:419B26D469790CEACC019D69B2DF4C99126D285D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364908.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 862
-
-Noise Box - Every Picture of You Is When You Were Younger  2016  [FLAC|Lossless|tracks + .cue] <
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Transit  04:29 
-02. Magic  03:59 
-03. Broken Teeth  04:51 
-04. Dunes and Trees  04:36     Читать дальше...    Жанр: Indie Rock, Alternative RockПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D9185ECBBE75C44A0A53475BB5178B7F667F4CC8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364862.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 858
-
-Noise Box - Here s That Bliss You Left Behind  2019  [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Like a Girl [03:38]
-02. On and Off [03:56]
-03. Glow [03:48]
-04. Smithereens [04:57]    Читать дальше...    Жанр: Indie Rock, Alternative RockПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:467C33F7DDB70C8E13BDEAA1645909AB27562C8D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364858.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 846
-
-Sellout - Я остаюсь  2020  [MP3|320 Kbps] <Punk Rock, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Пой со мной  feat. СЛОТ 
-2. Промолчим
-3. Забери меня с собой
-4. В космической хрущёвке  feat. Операция Пластилин     Читать дальше...    Жанр: Punk Rock, RockПродолжительность: 00:29:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:11F1163B4B9B589F06534C3BF7C01355EC601A3E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364846.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 690
-
-Pride Of Lions - 6 альбомов Discography 7CD  2003-2017  [MP3|320 Kbps] <Melodic Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2003 - Pride Of Lions
-2004 - The Destiny Stone
-2006 - Live In Belgium    Читать дальше...    Жанр: Melodic Rock AORПродолжительность: 07:07:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B320FCF42F2570D2A35EAC6D13D12AFC74F9734F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364690.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 688
-
-Pride Of Lions - 6 альбомов Discography 7CD  2003-2017  [FLAC|Lossless|image + .cue] <Melodic Ro
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-Список альбомов:
-2003 - Pride Of Lions
-2004 - The Destiny Stone
-2006 - Live In Belgium    Читать дальше...    Жанр: Melodic Rock AORПродолжительность: 07:07:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6426328E12D4B3E040702A7A7C65448DD3CD8F98
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364688.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 627
-
-Catharsis - Зеркало Судьбы  2019  [FLAC|Lossless|image + .cue] <Power Metal, Sympho Power Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок  Lossless 
-
-###  Подробнее
-
-01 - Я вернусь
-02 - Время потерь
-03 - Лечу за тобой
-04 - Зеркало Судьбы    Читать дальше...    Жанр: Power Metal, Sympho Power MetalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6B32C9A8C82196C9F7E89204BB1D21D5FBBFC390
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364627.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 613
-
-Envy - Compiled Fragments 1997-2003  2005  Anthology [FLAC|Lossless|tracks + .cue] <Hardcore>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. A Far-Off Reason  06:18 
-02. An Adventure of Silence and Purpose  06:07 
-03. Invisible Understanding  08:02 
-04. Chacun de tes pas  04:45     Читать дальше...    Жанр: HardcoreПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:629BE365AFA346E644CEFE9C2DD6BFFE6E5E8155
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364613.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 608
-
-Envy - Recitation  2010  [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Guidance  03:21 
-02. Last Hours of Eternity  07:04 
-03. Rain Clouds Running in a Holy Night  08:32 
-04. Pieces of the Moon I Weaved  04:48     Читать дальше...    Жанр: HardcoreПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0A6680E8A208FF0F911307D94245645A5F4E82F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364608.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 607
-
-Envy - Insomniac doze  2006  [FLAC|Lossless|tracks + .cue] <Hardcore>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Further ahead of warp  06:51 
-02. Shield of selfishness  04:30 
-03. Scene  07:08 
-04. Crystallize  10:34     Читать дальше...    Жанр: HardcoreПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EEE493C268B312350A779F01BF94044E58D35769
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364607.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 601
-
-Envy - A Dead Sinking Story  2003  [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Chain Wandering Deeply [08:28]
-02. Distress of Ignorance [05:45]
-03. Evidence [03:16]
-04. Color of Fetters [07:19]    Читать дальше...    Жанр: HardcoreПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C47541FF72F4E68E82370478F6936A6193062AC2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364601.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 598
-
-Envy - All the Footprints You ve Ever Left and the Fear Expecting Ahead  2001  [FLAC|Lossless|
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Zero  02:05 
-02. Farewell To Words  02:47 
-03. Lies, And Release From Silence  04:49 
-04. Left Hand  03:02     Читать дальше...    Жанр: HardcoreПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364598.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 596
-
-Envy - Atheist s Cornea  2015  [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Blue Moonlight  04:09 
-02. Ignorant Rain at the End of the World  03:29 
-03. Shining Finger  07:04 
-04. Ticking Time and String  06:28     Читать дальше...    Жанр: HardcoreПродолжительность: 00: 43:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AAD9E16501593589ADB11FE8D96B3E22791D0DFE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364596.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 364 589
-
-Envy - The Fallen Crimson  2020  [FLAC|Lossless|tracks + .cue] <Hardcore>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Statement of Freedom  03:49 
-02. Swaying Leaves and Scattering Breath  04:13 
-03. A Faint New World  05:28 
-04. Rhythm  06:21     Читать дальше...    Жанр: HardcoreПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5BCCD15FBEE729AB07C010FC475FCF664D2DBB0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364589.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

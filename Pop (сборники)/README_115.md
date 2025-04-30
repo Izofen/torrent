@@ -1,4 +1,91 @@
 ﻿
+###  Публикация: 806 466
+
+Dschinghis Khan - The History of Dschinghis Khan & Millenium Mega Mixes  1999  [FLAC|Lossless]<D
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+1 The Story Of Dschinghis Khan Part 1  Extended Version 
+2 The Story Of Dschinghis Khan Part 2  Extended Version 
+3 Moskau  99  Rap Version feat. LTC 
+4 Dschinghis Khan  99
+5 Der Verrater
+6 Machu Picchu
+7 Corrida
+8 Samurai
+9 Rome  English Version 
+10 Klabautermann    Читать дальше...    Жанр: DiscoПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5631A9FEC5060E0A2DA5C0F101B0EFB044D057C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_806466.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 806 441
+
+Mike Mareen - Dance Control  2006  [APE|Lossless]<Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Here I Am 5:12
+02. Cecilia  Remix  6:47
+03. Double Trouble 5:20
+04. Peace To Mankind 4:30    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6AD42193C20336889F0F8BBA4947A729370F090A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_806441.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 806 400
+
+Mike Mareen - Dance Control  1986  [FLAC|Lossless]<Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Love Spy  Salutation-Mix  8:40
+02. Here I Am  Megatrain-Mix  7:30
+03. Peace To Mankind 4:44
+04. Days I Remember 4:51
+05. Midnight Runners 3:37
+06. Agent Of Liberty 8:54
+07. Dancing In The Dark  Galactica Re-Mix  7:10
+08. Double Trouble  Zeppelin Re-Mix  6:37
+09. Cecilia 4:09
+10. Walkin  Highway 4:44    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FCA31FDC0C22287F2BDC62EEFA69E3029CD4AB8E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 806 390
 
 Monte Kristo - Sherry Mi-Sai  2007  [MP3|320 кб с]<Italo-Disco>
@@ -2307,99 +2394,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:FD50C8ED22977F82B54B1CDD72D67932B644319C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 789 121
-
-Sam Smith - In the Lonely Hour  2014  Deluxe Edition [MP3|320 кб с]<Pop, R&B, Soul>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Money On My Mind  03:13 
-02. Good Thing  03:21 
-03. Stay With Me  02:53 
-04. Leave Your Lover  03:08 
-05. I m Not the Only One  03:59 
-06. I ve Told You Now  03:30 
-07. Like I Can  02:47 
-08. Life Support  02:53 
-09. Not In That Way  02:52 
-10. Lay Me Down  04:13     Читать дальше...    Жанр: Pop, R&B, SoulПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1A4A377230EB2F3DC1E612E5E26582D43FAD93C0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_789121.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 788 941
-
-Giuliano Palma - Old Boy  2014  [MP3|320 кб с]<Pop, Ska, Rocksteady>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Ora Lo Sai  3:27 
-02. Cosi Lontano  3:03 
-03. Come Ieri  Feat. Marracash   3:27 
-04. Da Capo  3:59 
-05. Una Colpa  3:55 
-06. Un Bacio Crudele  3:23 
-07. 10 Passi  3:58 
-08. Il Cielo E Noi  3:49 
-09. Perfetti Sbagliati  3:39 
-10. L estate Arrivera  4:40     Читать дальше...    Жанр: Pop, Reggae, Ska, RocksteadyПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5C3180B4ED7D45C9F935BAE29FB38603A8D647A9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 788 658
-
-Foxes - Glorious  2014  Deluxe Version [FLAC|Lossless]<Pop, Electronic, DancePop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Talking To Ghosts  4:22 
-02. Youth  4:19 
-03. Holding Onto Heaven  3:31 
-04. White Coats  4:06 
-05. Let Go For Tonight  3:58 
-06. Night Glo  4:25 
-07. Night Owls Early Birds  3:29 
-08. Glorious  4:21 
-09. Echo  4:04 
-10. Shaking Heads  4:47     Читать дальше...    Жанр: Pop, Electronic, DancePop, Adult Alternative, Pop-RockПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4EA4D352ECA93EA27DEA73B324D6A74529006551
 ```
 
 <div id="header" align="center">

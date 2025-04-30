@@ -1,4 +1,76 @@
 ﻿
+###  Публикация: 1 363 254
+
+Света - Другая  2001  [MP3|320 Kbps] <Pop, Europop, Trance>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Твои глаза  03:40 
+02. Птица  04:45 
+03. Почему?  03:49 
+04. Что мне делать?  06:51     Читать дальше...    Жанр: Pop, Europop, TranceПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F8D668BAD7419A1597650496B163099A75B981D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1363254.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 363 253
+
+Света - Что мне делать сегодня  сингл   2001  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Что мне делать?  Radio version   06:47 Жанр: Pop, DanceПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45EFD25446B39316E01AC149B6C0E7DF9FE3F34B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1363253.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 363 250
+
+Света - Что мне делать  сингл   2001  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Что мне делать?  Radio Edit   03:42 
+02. Что мне делать?  DJ Nikk clubbin mix   06:21 
+03. Что мне делать?  virtually mix by Cosmonaut   06:35 
+04. Что мне делать?  Caffe mix   06:53     Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EB1D1C022BFD4C4F9FF9B7EC138FE333555BBE8C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1363250.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 363 247
 
 Света - Другой аLьбом  2000  [MP3|320 Kbps] <Pop, Dance, House>
@@ -1916,81 +1988,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358286.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 358 268
-
-Savage - Love And Rain  2020  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Every Second of My Life  Ouverture 
-02. Don t Say You Leave Me
-03. I Love You  Radio Version 
-04. Italodisco    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1707C2FFCC84E3736C53753C7A145CE8E39C4576
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358268.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 358 262
-
-Натали - Новые 80-е  2020  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Первый луч
-2. Вот так
-3. Я люблю тебя
-4. Грустные истории    Читать дальше...    Жанр: PopПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B0B9418E29F06AA5ADB24D753282B1E0BA5B8F5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358262.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 358 261
-
-Artik & Asti - 7  Part 2   2020  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Последний поцелуй
-2. Все мимо
-3. Чувства
-4. Девочка, танцуй    Читать дальше...    Жанр: PopПродолжительность: 00:25:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AD99CE6F7D626F3A570AB0F103BBAE6182DAD8E9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358261.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

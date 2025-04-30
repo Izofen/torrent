@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 608 284
+
+Gabriella Laberge - Etrangere  2019  [MP3|320 Kbps] <French Pop, Synthpop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Etrangere
+02. Run Away
+03. On Cherche Encore  Never Get Enough 
+04. Je Reve    Читать дальше...    Жанр: French Pop, SynthpopПродолжительность: 00:49:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:36A22A3258008059B3EA0070F528118F5C9BADD4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608284.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 608 194
+
+Ricchi E Poveri - Mamma Maria  1986  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Ciao Italy, Ciao Amore
+02. Sara  Perche  Ti Amo
+03. Made In Italy
+04. Ninni Nanna    Читать дальше...    Жанр: PopПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8746EC21512E8FB8C531B821AE84B317E1CBE342
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608194.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 608 133
+
+VA - soft pop 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Benson Boone - Before You  3:07 
+02. Ed Sheeran - Celestial  3:29 
+03. Omar Apollo - Evergreen  You Didn t Deserve Me at All   3:36 
+04. Zach Bryan - Something in the Orange  3:48     Читать дальше...    Жанр: PopПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:256B365434D9DE4038B0E9A85D3AEB1E74376F2A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608133.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 608 128
 
 Mylene Farmer - Dance Remixes  1992  2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, House>
@@ -1917,81 +1992,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600269.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 600 258
-
-VA - Best of the Best 2022 [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Taylor Swift - Anti-Hero  3:20 
-02. TALK - Run Away to Mars  3:33 
-03. Yung Gravy - Betty  Get Money   2:26 
-04. Reve - CTRL + ALT + DEL  2:37     Читать дальше...    Жанр: PopПродолжительность: 01:56:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E142EB8F37901D5CD9E2161D793A6BC5207E99B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600258.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 600 224
-
-Jonasu - Cutting Through Noise  2022  [FLAC|Lossless|WEB-DL|tracks] <Dance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Why Don t We
-02. Black Magic
-03. On My Mind
-04. All Night & Every Day    Читать дальше...    Жанр: DanceПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2CFBC8E81C48F66BEBB751FEC36E26CFCF8E683D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600224.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 600 176
-
-Michael Kistanov - All About You and Me  2022  [MP3|320 Kbps] <Pop-Rock, Folk>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - The Story Has Just Begun [00:04:08]
-02 - I Fell in Love with You [00:03:25]
-03 - Happy Days [00:03:18]
-04 - We Just Lived [00:03:46]    Читать дальше...    Жанр: Pop-Rock, FolkПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7855F089C1F5444DC8FA7151647F616674731A00
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600176.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

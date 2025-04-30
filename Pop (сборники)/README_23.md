@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 576 246
+
+Chris Norman - Rediscovered Love Songs  2022  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Need You Now [00:04:11]
+02. To Love Somebody [00:03:35]
+03. Wonderful Tonight [00:03:42]
+04. I Drove All Night [00:04:11]    Читать дальше...    Жанр: PopПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29145F65E2BE9ED9B20A49B10B23200E199B8ED2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576246.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 241
+
+Julio Iglesias - Love Songs  2007  [MP3|320 Kbps] <Pop Latino>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - To All the Girls I ve Loved Before [00:03:32]
+02 - Crazy [00:03:16]
+03 - When I Need You [00:04:15]
+04 - Vincent  Starry Starry Night  [00:04:15]    Читать дальше...    Жанр: Pop LatinoПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:88485BCE3BD17922A12C48D259820361CFDF957A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576241.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 159
+
+VA - ZYX Italo Disco New Generation Vol. 21  2022  2CD, Compilation [MP3|320 Kbps] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Italoconnection - All Over  Flemming Dalum Remix   5:48 
+02. Mono Band - Come Back  Mix Extended Version   6:14 
+03. Frontemare feat. Fabio Babini, Venus In Disgrace, Kimerica - Riviera Balera  Extended Version   5:30 
+04. Steele Up - Waiting For You  Flemming Dalum Special ZYX Remix   7:03     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 02:36:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:95A4D9D4DE9139E5852CD74D169A2F1963711E7C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576159.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 576 133
 
 Giorgio Moroder - From Here To Eternity   E=MC2  1977, 1979  Reissue, Remastered [FLAC|Lossles
@@ -1915,81 +1990,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569555.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 526
-
-Blue System - Twilight  1989  [OGG|485 Kbps] <Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Magic Symphony	3:34
-02. Love Me On The Rocks	3:27
-03. Save Me	3:45
-04. Nobody Makes Me Crazy  Like You Do 	3:27    Читать дальше...    Жанр: DiscoПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A4BCE8DE1D74C18400A2C7CD2C120CC7030D4E33
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569526.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 429
-
-Blue System - Body Heat  1988  [OGG|485 Kbps] <Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Under My Skin	3:34
-02. Do You Wanna Be My Girlfriend	3:58
-03. Titanic 650604	3:27
-04. Love Suite	3:22    Читать дальше...    Жанр: DiscoПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B15520A32E31E884DD1E6C8CE21B4649950DB5A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569429.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 371
-
-Fancy - Flames Of Love  1988  [OGG|485 Kbps] <Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Flames Of Love  4:03 
-02. Moscow Is Calling  5:13 
-03. I Can t Live Without You  Lonely Nights   5:38 
-04. What s Your Name, What s Your Game  3:56     Читать дальше...    Жанр: DiscoПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:27385158364DCC7A939426063F3766E06269BEBB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569371.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

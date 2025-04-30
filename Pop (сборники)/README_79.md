@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 185 719
+
+VA - На Луну  2007  [FLAC|Lossless|image + .cue] <Retro, Jazz, Pop>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Анатолий Емельянов, ксилофон — Cumana  B.Allen, R.Hillman, H.Spina 
+02. Любовь Орлова — Песня из кинофильма «Весна»  И.Дунаевский — М.Вольпин 
+03. Квартет Б.Тихонова — Цветущий май  А.Полонский 
+04. Лев Яковлев — Зависть  Н.Иллютович — И.Кобзев     Читать дальше...    Жанр: Retro, Jazz, PopПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B8D67D6BD8EE8FB79AF244A390500A8AC1F7B56
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185719.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 185 635
+
+VA - The Hit Factory: Ultimate Collection  2017  3CD [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01.  Kylie Minogue  - Better The Devil You Know  3:53
+02.  Rick Astley  - Never Gonna Give You Up  3:33
+03.  Bananarama  - Venus  3:37    Читать дальше...    Жанр: PopПродолжительность: 03:39:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6BA62730644570C831CFC7AD1E9AF0C0B3DA47C2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185635.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 185 519
+
+VA - Deep Disco Culture  2006, 2007  Underground Disco Rarities & Future Club Classics - 4CD [MP
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Acuna, Marta - Dance Dance Dance  Original 12 Inch Mix   6:15 
+02. The Anvil Band - I ll Be True  Original Album Version   3:15 
+03. Moment Of Truth - So Much For Love  Original Tom Moulton 12 Inch Instrumental Remix   5:42 
+04. Udell - Won t You Try  Original 12 Inch Mix   5:37     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 05:12:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D0DE531AE551D864E336EEF298FD2073347C6611
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185519.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 185 286
 
 Total Coelo - I Eat Cannibals & Other Tasty Trax  1996  CD [MP3|320 Kbps] <Electronic, Synth-pop
@@ -1911,81 +1986,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176345.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 327
-
-Варвара Визбор - Многоголосье  2017  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Ниже ноля  Полная версия 
-2. Слушать себя
-3. Бродит дождик
-4. Во всём виновата погода    Читать дальше...    Жанр: PopПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:859536D6D079E4F3BD02DF1FD506E9BF8B97243D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176327.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 320
-
-Albert One - Everybody  1988  Reissue CD, ZYX Music, 2001 [MP3|320 Kbps] <Electronic, Italo-Disc
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Everybody  3:21 
-02. Don t Let Me Down  3:05 
-03. Broken Dreams  3:58 
-04. Talk To Me  3:58     Читать дальше...    Жанр: Electronic, Italo-DiscoПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A70AFB91601C7C08FDA06E4ADC101C80435BD352
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176320.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 176 144
-
-Cook County - Pinball Playboy  Playboy Theme   1979  LP [MP3|320 Kbps] <Disco, Sax-Jazz-Funk
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Pinball Playboy  5:30 
-02. Little Girls & Ladies  3:42 
-03. Comin  To Getcha  4:25 
-04. Olympiad  84  3:54     Читать дальше...    Жанр: Disco, Sax-Jazz-FunkПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EDA73F19401171F6B1AB738BEBD7AF606922C2D1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176144.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

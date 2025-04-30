@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 725 586
+
+VA - РАДИО БАТЯ - 010 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. Александр Барыкин - Ты так мила (03:30)
+02. Damaji & OBMANI - Чистосердечное (02:06)
+03. LOBODA - Случайная (03:54)
+04. Иванушки International - Колечко (03:52)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:26:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:32EC1920368DD1CD9AF4B5A911891A7EE5A09407
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1725586.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 725 566
+
+VA - РАДИО БАТЯ - 009 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. Вадим Казаченко - Сезон любви (04:03)
+ 02. Премьер-Министр - Искорки (03:24)
+ 03. Rasster - Come Back Home (02:26)
+ 04. Bad Boys Blue - The Woman I Love (03:38)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:35:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD34CD56A45087C87DDBAA4F4A90B24B07DB85C4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1725566.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 725 524
+
+VA - Instrumental 79 Compilation (2024) [MP3|320 Kbps] <Instrumental, Sax>
+Неофициальные сборники
+Instrumental/New Age/Meditative/Relax (сборники)
+
+###  Подробнее
+
+01. Felicitysaxophonist - All I Want for Christmas is You
+02. Ladynsax - Chi Mai
+03. Felicitysaxophonist - Lose Control
+04. Ladynsax - Careless Whisper(   Читать дальше...   )Жанр: Instrumental, SaxПродолжительность: 01:41:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A79E4AB280B6351085E2172E2F47315275064035
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1725524.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 725 518
+
+VA - РАДИО БАТЯ - 008 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская Эстрада>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. Blue System - Gangster Love (04:29)
+ 02. Future Beat feat. Ian Carma - Faith The Night (03:52)
+ 03. Coma feat. LTG - Reqiuem (Of a Junkies Dream) (03:46)
+ 04. Григорий Лепс - Моя цыганская (05:55)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:36:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06690CC28884E0DB7C1FF077AEB1C62F79CFF777
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1725518.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 725 342
 
 VA - Best Road Trip Biker Music Rock Songs (2024) [MP3|320 Kbps] <Rock>
@@ -1893,106 +1993,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715975.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 715 971
-
-VA - House Beats Unlimited (2024) [MP3|320 Kbps] <Dance, Club, House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. Ben Harris - Disco Breakdown (00:06:48)
-002. Vlad Jet - Rising After Darkness (00:06:26)
-003. Man2.0 - Gilead (00:06:15)
-004. Savin - Illusion (00:06:57)(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 09:33:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A8A1BF05AD55D60B198EDFB7C5051F195AA401DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715971.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 715 957
-
-VA - Instrumental Jazz Variations  2024  [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
-Неофициальные сборники
-Jazz, Blues, Soul (сборники)
-
-###  Подробнее
-
-001. Xavier Richardeau - Linea Oceanica  00:03:35 
-002. Arnold Klos Trio - Whisper Not  00:05:07 
-003. Massimo Faraò - Blue And Blues  00:10:29 
-004. Mongo Santamaria - Song For You  00:07:30     Читать дальше...    Жанр: Jazz, Instrumental, ImprovisationПродолжительность: 09:41:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D20C97D9DC7DAEA7D33580844F62516FAAE70F02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715957.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 715 946
-
-VA - Redemption  2024  [MP3|320 Kbps] <Metal, Death, Black>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-001. Steel Rhino - In Rhino We Trust  00:05:15 
-002. Draconicon - Drowned  00:04:09 
-003. Somewhere In Nowhere - Lake Of Sorrow  00:07:17 
-004. Ignition - Betrayal  00:05:33     Читать дальше...    Жанр: Metal, Death, Black, Heavy, TrashПродолжительность: 11:17:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5AFD61300362208B400EE2F355A261D504FD243F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715946.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 715 583
-
-VA - Music News vol.364 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Dua Lipa - Illusion (Extended) (04:24)
- 002. Amirchik - Космос (03:08)
- 003. AMOR - Lost On You (02:41)
- 004. Anton Rudd feat. SDOB - Smoke (02:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:02:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2BDA07070E8EA4B48C1A3F8B028C920A159B8454
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715583.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

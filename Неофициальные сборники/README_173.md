@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 986 244
+
+VA - Record Super Chart № 423  2016  [MP3|320 кб с] <Club House, Electro House, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+1. KSHMR, Marnik - Bazaar!
+2. Sander Van Doorn, Moti - Lost
+3. Jay Hardway - Electric Elephants
+4. DJ Smash feat. Ridley - Lovers 2 Lovers    Читать дальше...    Жанр: Club House, Electro House, DanceПродолжительность: 01:25:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:20BCBEE6632450AC9CA95623FF55379A712CF1F7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986244.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 986 059
+
+VA - Рок впрок 5  2016  [MP3|320 kbps] <Рок, Поп-Рок>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Мэнчестер - Бей в барабан
+02. Электропартизаны - Пока не поздно
+03. Иваново Детство - С тобой
+04. Альтависта - За несдавшихся врагу    Читать дальше...    Жанр: Рок, Поп-РокПродолжительность: 03:11:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0E1A4A08D1906D64DB2C4D1C0F1FA02F96E2E509
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986059.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 985 896
+
+VA - Снежная лавина популярных хитов радио Шансон  2016  [MP3|256 kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Централ - Весна
+02. Михаил Мартынов - Королева
+03. Роман Алешин - Встреча
+04. Юрий Герляйн - А За Окнами Дождь    Читать дальше...    Жанр: ШансонПродолжительность: 06:11:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6020BCDA043913B061971E1F5867D54C03F2D746
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_985896.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 985 873
+
+VA - Sunrise Lovers Vol 1: 20 Relaxing Lounge Tunes  2016  [MP3|320 kbps] <Downtempo, Chillout,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+1. Jessica Hathaway - Africanism Look  Bonus Track  03:23
+2. Sarah Martin - Little Expression 03:54
+3. Lounge Surfers - Fairground 06:09
+4. James Walden - Guitar Dreams 04:20    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90AA6CAB88D54FE93B1ECCB5C94F939948B2E7A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_985873.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 985 851
 
 VA - Metal & Rock Collection  2016  [MP3|320 кб с] <Metal, Rock, Hard-Rock>
@@ -1893,106 +1993,6 @@ VA - Club Tracks TOP 100  January   2016  [MP3|320 кб с] <Club, Dance, Remix>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_981867.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 981 797
-
-VA - Best Ballads Of Love  2016  [MP3|320 кб с] <Lyric, Pop, Rock, Ballad>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Ray Wilson - Wait For Better Days
-002. Gavin DeGraw - Belief
-003. Plumb - Restored
-004. Ben Moody - Nothing Left Of Me    Читать дальше...    Жанр: Lyric, Pop, Rock, BalladПродолжительность: 07:41:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:88B5C3FD9814DE368F885FF7DBB8B6D249BCCCD5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_981797.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 981 796
-
-VA - Color Climax - Porn Music From The Library  1975  [MP3|192 кб с] <Electronic, Adult Sound
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Mike Vickers - In the Beginning  02:30 
-02. Clark Gault - Silhouette  04:36 
-03. C. Adamowic - Creme De Menthe  04:17 
-04. Keith Mansfield - Before Summer Ends  04:40     Читать дальше...    Жанр: Electronic, Adult SoundtrackПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8ECFB2901C8E210B491CA39DFF9DB815B85D9272
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_981796.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 981 776
-
-VA - Private Lounge Cafe, Vol. 4  25 Delicious Lounge Anthems   2016  [MP3|320 кб с] <Down
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Lind Variante - Costante - Original Mix  05:01 
-02. Spa - Come to Love - Original Mix  04:55 
-03. Leo & Roby Ruini - La Suite - Original Mix  05:25 
-04. Backroom Barn - Sweet Dream - Original Mix  03:16     Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6B5CF6FA6BEACD691DE2A3C93053414503B3ED5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_981776.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 981 533
-
-VA - Absolute Dance Hits Vol.2  2016  [MP3|320 кб с] <Dance, Club, House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Alex Blue & Judith - Dance  Extended Mix  [04:20]
-02. Overtune - How Does It Feel  Clubbticket Remix  [05:27]
-03. Pulsedriver & Tiscore - My Love  Topmodelz Remix  [04:39]
-04. Carolina Marquez - Summerlove Right Now  Na Na Na   Bruno Mayron Remix  [05:17]    Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 05:14:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B3162403F12682BE90DDA5EADDCC9E8E462E8625
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_981533.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

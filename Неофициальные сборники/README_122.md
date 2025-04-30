@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 140 244
+
+VA - Soul Motion: Top 100 Original Club Mix  2017  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.  Croatia Squad & Frey - White Horse  Original Mix  5:22
+02.  Danny D - Without Me 4:56
+03.  Blank & Jones - Coh 6:49
+04.  Topmodel - Within 2:57    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 08:25:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1780C8904D637AD05D2C54B3E7A4197CAC85A057
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1140244.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 140 229
+
+VA - The Horizont Of Bliss  2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge, Relax>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01.  Soty - Sun Touch  Intro Mix  3:52
+02.  Kool & Klean - The Way You Look Tonight 5:07
+03.  Don Markus - I Don t Won t Illusion 5:10
+04.  Soul Guru - Addicted To Tantric Sex  Sensual Love Mix  4:56    Читать дальше...    Жанр: Downtempo, Chillout, Lounge, RelaxПродолжительность: 07:46:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:82BECB742D3DD77E25B99EDF36D38CFF3DFB80D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1140229.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 140 217
+
+VA - The Best Of Trance 56  2017  [MP3|320 Kbps] <Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.  NoMosk - Black Cloud  Extended Mix  6:23
+02.  Solarstone & Meredith Call - I Found You  Giuseppe Ottaviani Remix  6:51
+03.  PureNRG - Cala Blanca 7:53
+04.  Roman Messer - Lost  Extended Mix  6:21    Читать дальше...    Жанр: TranceПродолжительность: 05:48:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EFAF25D9C15096CFC20772D6A392F57A15F78D83
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1140217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 140 213
+
+VA - Beatport Top 100 Trance May  2017  [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive, V
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001.  Solarstone & Meredith Call - I Found You  Giuseppe Ottaviani Remix  6:51
+002.  Allen Watts - Arizona  Extended MIx  6:35
+003.  Davey Asprey - Fallout  Extended Mix  5:52
+004.  Talla 2XLC - Arcadia  Original Mix  6:16    Читать дальше...    Жанр: Trance, Uplifting Trance, Progressive, Vocal Trance, EnergyПродолжительность: 11:04:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:14FAE257CAFC93545DC9FDA6D979A9E238355939
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1140213.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 140 169
 
 VA - Empire Records - Club Hit 14  2017  [MP3|320 Kbps] <House, Club, Dance>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1137371.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 137 369
-
-VA - Душевный сборник Русского радио. Версия № 7  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Авиатор - Сети 3:23
-002. Кристина Орбакайте - Лайт 3:10
-003. Octavian - Обвиняй 4:33
-004. Ирина Билык - У Ветра Есть Тайна 3:45    Читать дальше...    Жанр: PopПродолжительность: 06:01:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2C93EAD9AAEB914EB91BD150CE4C603758CB6B22
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1137369.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 137 368
-
-VA - Русский отрыв. Сборник № 8  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Настико - Ритмозависимые 3:37
-002. Ejen & Lunna - Гармония 3:10
-003. Klimentyev - За Ней 4:03
-004. Карина - Мой Мир 2:31    Читать дальше...    Жанр: PopПродолжительность: 06:06:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:19C9223C6AB55A79F058D54C49289E896D17A658
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1137368.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 137 365
-
-VA - Хитовая весна на Europa Plus. Сборник № 4  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Роника - Агония 3:36
-002. Arsenium Feat. Mianna - А Он Другой Мама 3:19
-003. Funpills - Целовать Cильно 3:10
-004. Кристина Орса - Кино 3:36    Читать дальше...    Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:630F4DAC2CFFD61E780F287A64EA072177E0152C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1137365.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 137 364
-
-VA - Весенняя сотка популярных треков выпуск № 10  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. M19 - Двадцать Первое 3:48
-002. Zoya - Не Прикасайся 4:10
-003. Пальчики Оближешь - Нецветные Розы 3:51
-004. Лена Семенова - Уверен Ли Ты 3:46    Читать дальше...    Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:070D691CF0BCDFD81CEC085AB019B300AACAB0E2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1137364.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

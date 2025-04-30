@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 247 082
+
+VA - Дискотека 2018 Dance Club Vol. 183 от NNNB [MP3|320 Kbps] <Club, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Part 1  Discoteka :
+01. DJ Stranger - Secret Of Love  Radio Edit   2:48 
+02. Tungevaag & Raaban - Bad Boy  feat. Luana Kiara   3:11 
+03. Kaskeiyp - Walls  feat. Irene   2:52     Читать дальше...    Жанр: Club, Dance, OtherПродолжительность: 22:14:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7309C7869E83A115FCCA136F8A384D7B11B7A3B9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1247082.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 247 008
+
+VA - Record Super  Chart 552  2018  [MP3|320 Kbps] <Dance, Club, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Chris Lake - I Want You
+02. The Prince Karma - Later Bitches
+03. Vanessa da Mata - Ai Ai Ai  Felguk & Cat Dealers Remix 
+04. Dynoro feat. Gigi D Agostino - In My Mind    Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 01:56:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EFB96D8F815DF07718E724B10C3733796CA6D18F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1247008.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 246 960
+
+VA - Hawaii Disco Mix  2018  [MP3|320 Kbps] <Nu Disco, Disco, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Tania Haroshka - Life Is On Air
+002. Panosg - The Groove Is Hot
+003. Enrico Bsj Ferrari - You Better Beware
+004. Greg Henderson - Dreamin     Читать дальше...    Жанр: Nu Disco, Disco, DanceПродолжительность: 09:26:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:769246232324E3CCF34FF860F8B4C71A0CC5766F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246960.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 246 959
+
+VA - BBQ Dinner: Ultimate Popular Dance Party  2018  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Jonas Blue - Eden Prince
+002. Alex Good - No  Original Mix 
+003. Dirty Fruit - Summer Love  Original Mix 
+004. Stephan F - Summer Time  Instrumental Mix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 09:18:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C02CC91E63301298E1A5632C18B4D9BB8580F0B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246959.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 246 938
 
 VA - Rainbow Blues  2018  [MP3|320 Kbps] <Blues, Jazz, Soul>
@@ -1903,106 +2003,6 @@ VA - Зайцев.нет Музыкальные новинки 3 Август 20
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241751.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 241 613
-
-VA - The Official UK Top 40 Singles Chart 17.08.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. George Ezra - Shotgun  03:22 
-02. Drake - In My Feelings  03:39 
-03. DJ Khaled feat. Justin Bieber, Chance the Rapper & Quavo - No Brainer  04:26 
-04. Benny Blanco Khalid Halsey - Eastside  02:55     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:22:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:900A1DF65D35EFD561F9EED41A8D0063F9BEE2E0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241613.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 241 592
-
-VA - German Top 100 Single Charts 17.08.2018  2018  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Dynoro & Gigi D Agostino - In My Mind
-002. Capital Bra - Melodien  feat. Juju 
-003. Bonez MC & RAF Camora - 500 PS
-004. El Profesor - Bella ciao  HUGEL Remix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:37:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FBC53BD3D60FF6E2E682481659E8B87E33F98FAB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241592.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 241 591
-
-VA - German Top 50 Official Dance Charts 17.08.2018  2018  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Sean Finn;Guru Josh;Sean Finn x Guru Josh - Infinity 2018  Extended Mix 
-02. Dynoro & Gigi D Agostino - In My Mind
-03. Shakedown - At Night  Purple Disco Machine Remix 
-04. Oliver Heldens;Sidney Samson - Riverside 2099    Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:13:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0321688B342F85A18D8FE89EE0C118880A559B39
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241591.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 241 350
-
-VA - Зайцев.нет: Лучшие новинки Августа  2018  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Альбина - Не я 3:21
-02. T-Yamo - Мой яд 3:06
-03. Наргиз и Баста - Прощай, любимый город 4:09
-04. LSD feat. Sia, Diplo, Labrinth - Thunderclouds 3:07    Читать дальше...    Жанр: Pop, DanceПродолжительность: 04:43:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:756E1B184832B9CF4A7F5DE3E9509223BFF2189C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241350.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

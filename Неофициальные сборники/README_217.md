@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 754 358
+
+VA - Зимний хитовичок в твою машину  2014  [MP3|128-256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Оксана Почепа - Счастье Есть
+002. Adrian Sina feat. Sandra N - Boracay  Real MaKerZ Remix Edit 
+003. Don Cash & Baudo - Ahi Na Ma  Radio Edit 
+004. Тимати & Kristina Si - Посмотри  Dj Ed Remix 
+005. Paul Dave feat. Anna Montgomery - Feel It Way Down  Turbotronic Remix Edit 
+006. Pitbull - Dont Stop The Party  Steve Smart & Westfunk Extended Mix 
+007. Capital Cities - Safe And Sound  Tommie Sunshine & Live City Remix 
+008. Сабина Алиева - Мечтаю  Dj Бел-Off Remix 
+009. Polina - Beat ch - Radio Edit
+010. Сергей Трофимов - Корпоративная тусовка    Читать дальше...    Жанр: PopПродолжительность: 06:11:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4770D285A02C3542E29B5F5973E3D2E341625BA0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 754 160
+
+VA - Electro Life Best  by ZiP  2013  [MP3|320 kbps]<Electro Progressive, Electro House, Dub
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. 30 Second To Mars - From Yesterday  Tony Igy Remix   5:15 
+002. Acsourse - Circles  Original Mix   4:37 
+003. Adrian Sina ft. Sandra N. - Angel  South Blast!  Nympho Angel  Remix   6:02 
+004. Alex Gaudino - I m In Love  I Wanna Do It  Extended Instrumental Mix   8:04 
+005. Alex Van Love - Requiem For A Dream  3:48 
+006. Aruba Ice & Mike Prado vs. Руки Вверх! - Песенка  Ла-ла-ла  Cover   4:18 
+007. Avicii - UMF  Ultra Music Festival Anthem   4:36 
+008. Bass Kleph & Jimi Frew - Gum  Original Mix   6:10 
+009. C-BooL ft. Ricardo Munoz - We Can t Get Enough  Digital Mode  On The Beach  Remix   6:01 
+010. Carly Rae Jepsen - Call Me Maybe  FuzzDead Remix   6:54     Читать дальше...    Жанр: Electro Progressive, Electro House, Dubstep, Progressive HouseПродолжительность: 08:42:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6BD4F519A26993275DA73F293D9627E0C3FF5B43
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 754 041
+
+VA - 100 Золотых Романсов  2014  [MP3|256 кб с]<Шансон, Романсы>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Елена Ваенга - Отойди не гляди
+02. Александр Малинин - Утро туманное
+03. Любовь Казарновская - Ночь светла
+04. Стас Михайлов - Гори звезда моя
+05. Рада Рай - Калина
+06. Раиса Отрадная - Романс пьяна
+07. Нани Брегвадзе - Я помню вальса звук прелестный
+08. Игорь Саруханов - Поплакала, и хватит
+09. Надежда Кадышева и Золотое Кольцо - Две гитары
+10. Сергей Лемешев - Соловьем залетным    Читать дальше...    Жанр: Шансон, РомансыПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80E2A1F9D0A95E3F26E31BE22AE12159E0A2AC26
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 754 037
+
+VA - Gold Jazz  2014  [MP3|320 кб с]<Jazz>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+1.David Benoit, Russ Freeman - Mediterranean Nights  6:58 
+2.Acoustic Alchemy - Missing Your Touch  4:45 
+3.McCoy Tyner Trio - One Less Bell To Answer  5:39 
+4.Quincy Jones and His Orchestra - Quintessence  4:21 
+5.Dave Grusin, Don Grusin - Sailing At Night  4:20 
+6.Ramsey Lewis - Sarah Jane  4:30 
+7.Lee Ritenour, Larry Carlton, Harvey Mason - After The Rain  4:45 
+8.Tom Scott - Born Again  3:55 
+9.Herbie Hancock - Solitude  5:42 
+10.Zoot Sims - Stella By Starlight  4:37     Читать дальше...    Жанр: JazzПродолжительность: 03:51:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4463CC9C9A767FF755A6883718C6C387EA689DF3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 753 961
 
 VA - Радио Record Superchart Top-33  02.02.2014  [MP3|~256 кб с  V0 ]<Pop, Dance, Club>
@@ -2285,130 +2409,6 @@ Pop  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:5453EC0E9369F02CA07F7A1633CC58B45E0EF208
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 747 029
-
-VA - Хит за Хитом  2014  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Эдуард Изместьев  экс-Андрей Бандера  - Не летай беда вокруг
-02. Игорь Мешкой - Украду тебя
-03. Сергей Родня - Срок
-04. Поспелов Ростислав и МАСтер - Цыганская-хулиганская
-05. Алексей Брянцев - Без тебя
-06. Лукьяновка - Скрипка
-07. Сергей Порт и Марина Вальдман - Богиня
-08. Алексей Созонов - Корабли уходят
-09. Александр Жданов - Поединок
-10. Денис Мафик - ПапаЖанр: ШансонПродолжительность: 06:21:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2CFB3E642663A46E503F63108E7AFB9972BB0050
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 747 006
-
-VA - Топ 100 Самых Лучших Хитов 80-х Зайцев Нет  2014  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Михаил Муромов - Яблоки на снегу
-002. Mr. President - Coco Jambo
-003. Moon Ray - Comanchero
-004. Heath Hunter - Revolution In Paradise
-005. Modo - Ein, Cvei, Polizei
-006. Gazebo - I Like Chopin
-007. Modern Talking - Brother Louie
-008. Рома Жуков - Мишель  Ural Dance Mix 
-009. Форум - Белая ночь
-010. Мираж - Звёзды нас ждут    Читать дальше...    Жанр: Pop, DanceПродолжительность: 08:26:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:78C3BB3870703B82832DC3D0DD0C8B6155A78F6B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_747006.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 746 939
-
-VA - Дискотека 80-90х. Новогодняя Discoночь 4  2013  [MP3|256-320 кб с]<Retro, Pop, Dance, Roc
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Божья Коровка - Камушек
-002. Captain Jack - Captain Jack
-003. Мираж - Я Больше Не Прошу
-004. E-Type - Fight In Back
-005. И. Корнелюк - Дожди
-006. Chris Norman & Suzi Quatro - Stumblin`in
-007. Веселые Ребята - Я К Тебе Не Подойду
-008. Pet Shop Boys - Always On My Mind
-009. Самоцветы - Увезу Тебя Я В Тундру
-010. Dj Paul - Rainbow In The Sky    Читать дальше...    Жанр: Retro, Pop, Dance, RockПродолжительность: 06:58:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0B8E0FB0554ADDDA69F996FD3290B5EF75CB4610
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 746 796
-
-VA - Клубняк в Авто Top 50 Special Selected  2014  [MP3|320 кб с]<Club>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Storm Queen - Look Right Through  MK Vocal Extended 
-02. Calvin Harris feat. Ayah Marar - Thinking About You  Laidback Luke Remix 
-03. 2 Unlimited - Get Ready  Steve Aoki Extended Mix 
-04. Hardwell & MAKJ - Countdown
-05. Dimitri Vegas & Like Mike Vs Sander van Doorn - Project T  Martin Garrix Remix 
-06. Sono - Flames Get Higher  Dirty Disco Youth Remix 
-07. Ahzee - Born Again  Original Extended Mix 
-08. Mr. Black feat. Esthera Sarita - Loud
-09. Stefan Dabruck - Acid Phase
-10. Micha Moor - Phunk!Жанр: ClubПродолжительность: 03:01:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38FA7B4A79CBC18B36526D74299DF057A545CD16
 ```
 
 <div id="header" align="center">

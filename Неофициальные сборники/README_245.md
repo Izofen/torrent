@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 384 240
+
+VA - Power Chill Lounge 2: The Best Of  09.2011  [MP3|320 kbps]<Сhillout, Lounge, Lo-Fi>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01 Cataldo - Do It All Night [03:21]
+ 02 Intakt - Cosmic [04:46]
+ 03 Planet Lounge - Sora [04:30]
+ 04 Trinah - I Wish [05:12]
+ 05 Bobby Brazil - Brahma vs Antarctica [05:14]
+ 06 Bebo Best & Super Lounge Orchestra - Le fleur de la musique [05:03]
+ 07 Decт - We Put This Together [04:15]
+ 08 Les Gammas - All Of Me [03:25]
+ 09 De-Phazz feat Pat Appleton - The Mambo Craze  Radio Edit  [03:15]
+ 10 Moby - Porcelain [03:31]Жанр: Сhillout, Lounge, Lo-FiПродолжительность: 03:10:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FC7F321049B6EE620D40F152801417DDADE82F8C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 383 289
+
+VA - Best music of Summer 2011 from DjmcBiT  August   2011  [MP3|320 kbps]<Electrohouse>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Tommie Sunshine - Tonight s The Night Ft. Tiffany Roth  Nom De Strip Remix 
+002. Tomy Declerque - Lowin  Mass Digital Remix 
+003. Tony Romera, Jordan Viviant - Baby Work It Out  Original Mix 
+004. Trafik - The Difference  Miles Dyson Remix 
+005. Trash Yourself - Die  The Toxic Avenger 
+006. Twelve11 - Feathered  Original Mix 
+007. Utmost DJs - Love Me  Dj MriD Remix 
+008. Vengerov - Kazantip Intro  Swanky Tunes & Hard Rock Sofa Remix 
+009. Wolfgang Gartner - Menage A Trois  Original Mix 
+010. Yenn, Nam Nori, Rico Caruso - Call It What You Want  Fast Foot Remix     Читать дальше...    Жанр: ElectrohouseПродолжительность: 11:58:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2B9A84842C5D2376FDA6A1645AA2DC4A7294AB46
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_383289.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 382 817
+
+VA - Hit-Mix по осеннему  2011  [MP3|256 kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Настя Ясная - Прячем руки от холода
+02. Ирина Билык - Девочка
+03. Размер Project - Россия Рулит
+04. Hi - Fi - Я там
+05. Вера Брежнева - Реальная жизнь
+06. Дэнэро - Родная
+07. Шахзода - Все Только Начинается
+08. Любовные Истории - Пена
+09. Катя Баженова - Спасибо Тебе, Лето  Vengerov & Fedoroff Remix 
+10. Music People Deejays - Выпускной    Читать дальше...    2011Жанр: PopПродолжительность: 06:10:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:67AE0081F3A96C18264FDCD86FFBBD107A7D9DA4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 381 945
+
+VA - Trance Maniacs Party: Euphoric Airlines  Special Edition   2011  [MP3|320 kbps]<Vocal T
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Iio feat. Nadia Ali - Rapture  Armin Van Buuren Remix Remastered 
+002. MaRLo feat. Jano - The Island
+003. Alex Kunnari feat. Emma Lock - You & Me  Original Mix 
+004. Allure feat. JES - Show Me The Way
+005. Dave202 - We Are One  Vocal Club Mix 
+006. First State - Skies On Fire  Original Mix 
+007. Jan Martin feat. Hysteria! - Save Me Now
+008. Kyau & Albert - Velvet Morning  Super8 & Tab Remix 
+009. Mark Otten - Libertine
+010. Orjan Nilsen feat. Neev Kennedy - Anywhere But Here    Читать дальше...    Жанр: Vocal TranceПродолжительность: 02:28:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9CBE53128E3BE59587D6865728ABF37C9C8D49E9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 381 916
 
 VA - Дискотека Бездна Зарубежная 10  2011  [MP3|128 kbps]<Pop>
@@ -2166,103 +2290,6 @@ Instrumental New Age Meditative Relax  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 360 339
-
-VA - Зажигательное лето  2011  [MP3|256 kbps]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:00:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:129B91F68DE02600FB5DC8A8B6B124D8336F4921
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 360 318
-
-VA - Жаркие Хиты Лета  2011  [MP3|256 kbps]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:55:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8CBC2240CAEAE2D3244612F62D8C132184227E63
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_360318.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 360 125
-
-1260 композиций в стиле Лайт [MP3|96-256 kbps]<Light>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Сборник записей с канала1. !Deladap - Le Shin  10:07 
-        2. 10cc - I m Not In Love  3:01 
-        3. 3rd Force - Til We Meet Again  7:47 
-        4. 4Fun - Love or Leave  3:01 
-        5. A-Ha - Crying In The Rain  8:30 
-        6. A-Ha - Summer Moved On  2:19 
-        7. A-Ha - Velvet  4:19 
-        8. AB - 00000001  5:46 
-        9. Abakus - A Whole New Way Of Looking At The Day  12:37 
-        10. Above & Beyond - Good For Me  Album version   5:45 Жанр: LightПродолжительность: общее время звучания 98:22:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3C255E2A9AC2F11403A605C42B0248400DDF5F7D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_360125.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 359 875
-
-VA - The LoungLegends play Barry Manilow  2011  [MP3|320 kbps]<Easy Listening, Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-Жанр: Easy Listening, InstrumentalПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F3AFD9DA21E1FF38960D40EEB65FD927FBC2D29C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_359875.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

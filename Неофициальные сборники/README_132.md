@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 110 321
+
+VA - Ultimate Hits Hottest Moves  2017  [MP3|320 Kbps] <Dancehall, Latin, Reggae, R&B, Hip Hop,
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. R3hab Ft Verite - Trouble  Dirty-Short Edit  - 8A 02:22
+02. Ariana Grande Feat Future - Everyday  Transition 90-66   Clean  03:47
+03. Jolivi - Love Who You Wanna Love  Flrivn & Nikki X Remix  04:42
+04. Kungs Ft Ephemerals - I Feel So Bad  Hem Remix  04:00    Читать дальше...    Жанр: Dancehall, Latin, Reggae, R&B, Hip Hop, Electro, Future Bass, Trap, Indie DanceПродолжительность: 07:41:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A23FE200220648BDB4B0CFF12B1E6B781074487
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1110321.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 110 312
+
+VA - Зайцев.Нет: Музыка весны  2017  [MP3|192-320 Kbps] <Поп, Рок, Рэп, Шансон>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+В данный плейлист включены самые весенние композиции - от классических произведений Шопена и Микаэла Таривердиева до современной R&B-музыки Rihanna и хип-хопа Kendrick Lamar. Широкий спектр жанров объединяет одно желание: поскорее избавиться от зимних оков и настроиться на ритм самого безумного и яркого времени года.01.  Рок-Острова - Весна  4:11
+02.  Frank Sinatra - It Might As Well Be Spring  3:17
+03.  5 nizza - Весна  4:20
+04.  Гарик Сукачев и Неприкасаемые - За окошком месяц май  4:08    Читать дальше...    Жанр: Поп, Рок, Рэп, ШансонПродолжительность: 03:05:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ADBB87AD7A91509976325D107539DA46C43D5136
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1110312.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 110 309
+
+VA - Music For Everyone - Tropical House Vol.1  2017  [MP3|320 Kbps] <House, Tropical House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+1. Deep Chills - Lighthearted  Original Mix 
+2. Lost Kings feat. Katelyn Tarver - You  OutaMatic Remix 
+3. Tobu & Jordan Kelvin James - Summer Breeze  Original Mix 
+4. The Chainsmokers feat. ROZES - Roses  Chambo Remix     Читать дальше...    Жанр: House, Tropical HouseПродолжительность: 01:47:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3532E2FE2ED659764C7407DF2BE2B0AD8F9DE4D2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1110309.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 110 212
+
+VA - Music for your Car  2017  [MP3|320 Kbps] <Dance , House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Florian Picasso - This Is Our Time  Original mix  3:34
+002. 2K Feat Adina - Be the 1  Radio Edit  3:13
+003. Milana May - Relationship  Original Mix  4:05
+004. Chassio - Let the Monkeys Out  Radio Edit  2:55    Читать дальше...    Жанр: Dance , HouseПродолжительность: 05:56:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B0E77309932F4FB5532745038013BB46226597A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1110212.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 110 210
 
 VA - Romantic Collection. Rock Ballads  2017  [MP3|320 Kbps] <Rock , Metal>
@@ -1889,106 +1989,6 @@ VA - I Love Music! - Trap Edition Vol. 36  2017  [MP3|320 Kbps] <Trap>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1106101.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 106 097
-
-VA - I Love Music! - Trap Edition Vol. 35  2017  [MP3|320 Kbps] <Trap>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Adam Bomb & WKND BAES - Dab  Original Mix  3:36
-002. Afrojack & Jay Karama - Diamonds  Extended Mix  3:21
-003. Andres Fresko x Lit Lords - Fire Squad  Original Mix  2:20
-004. Anevo & Kiso feat. Kayla Diamond - Black Beatles  Original Mix  3:26    Читать дальше...    Жанр: TrapПродолжительность: 05:45:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA177840A5973D40D4B3D6A018D12A524F9448F4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1106097.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 105 704
-
-VA - Workout Mix vol.7  mixed by Dj V   2017  [MP3|320 Kbps] <Club House, Electro House, Pro
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01-Benny Benassi - Satisfaction  Dj Sergey Dukharin Remix 
-02-2SOULS - Press Play  Original Mix 
-03-Zeskullz vs Falko Niestolik - Rhyme  Mikis & Alex Mad Mash Up 
-04-Far East Movement & Jackal & Bingo Players vs.Noferini & Marini Feat.Criminal Vibes & Alex Shik & Alexx Slam - Rattle  DJ FIOLET Mash Up     Читать дальше...    Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D74591F0B284F5CA9E993ACD82AC7945C8AEA96E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105704.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 105 663
-
-VA - Старый дом. Академия хитов шансона  2017  [MP3|256-320 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Сергей Трунов - Старый Дом
-002. Марина Вальдман и Александр Адмирал - Диалог
-003. Валерий Курас - Песенка
-004. Александр Заборский - Щелкнули затворы    Читать дальше...    Жанр: ШансонПродолжительность: 06:07:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0056C10CC87A4494082BE8A86070FE529114FD1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105663.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 105 625
-
-VA - Chilltrap Vol. 1 - 7 [Compiled by Zebyte]  2015-2016  [MP3|256-320 Kbps] <Chilltrap>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Anna Yvette - Stars & Moon  Elonious Remix  [03:31]
-02. Disclosure - Help Me Lose My Mind  Mazde Remix  [03:54]
-03. Fademan & Oleg K Feat Lime Kid - Wake Me Up [03:43]
-04. Coeur De Pirate - Wicked Games  Huglife Remix  [03:57]    Читать дальше...    Жанр: ChilltrapПродолжительность: 14:28:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2162F9C0CF6556D8FEF1D9E80C2D9A9016DC9169
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105625.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

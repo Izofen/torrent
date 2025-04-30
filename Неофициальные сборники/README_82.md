@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 294 061
+
+VA - Good To Be Alive  2019  [MP3|320 Kbps] <Blues, Rock Blues, Country>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Jimm Ross - Like This
+002. Jean Paul Rena - A Thief Known
+003. Mezcaleros Blues Band - Blues Adolorido
+004. Trace Adkins - Ain t Just The Whiskey Talkin     Читать дальше...    Жанр: Blues, Rock Blues, CountryПродолжительность: 09:53:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C449DBE0A652F2420DE51F9009725C80A4CEFC07
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1294061.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 294 060
+
+VA - 80s Soul Classics  2019  [MP3|320 Kbps] <Soul, RnB, Funk>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Chaka Khan - Ain t Nobody
+02. George Benson - Give Me the Night
+03. Stacy Lattisaw - Jump to the Beat
+04. Grover Washington, Jr. - Just the Two of Us    Читать дальше...    Жанр: Soul, RnB, FunkПродолжительность: 01:51:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:55719F058996647C77C0ED5793F3DB8DEAD02B74
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1294060.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 294 059
+
+VA - Beach House Spring Party  2019  [MP3|320 Kbps] <Deep House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Following Light - Intention
+002. Hilton Caswell - Remember  Original Mix 
+003. Lessnoise - Long Journey
+004. AudioStorm - Harmony Of Ocean Deepness    Читать дальше...    Жанр: Deep HouseПродолжительность: 09:48:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A23CC334C3067E283D08BB6D50E28370916DC981
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1294059.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 293 959
+
+VA - ЕвроХит Топ 40 Europa Plus 05.04.2019 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Aaron Smith feat. Luvli - Dancin  Krono Remix  3:17
+02. Lil Peep & XXXTentacion - Falling Down 3:16
+03. Triplo Max - Shadow 2:57
+04. Denis First & Reznikov feat. Bright Sparks - Shameless 2:46    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:10:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:426E7DCC7B0B0F7008FB97531003DA6F4947BA8D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1293959.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 293 825
 
 VA - Дискотека 2019 Deep House - The Best Vol. 6 от NNNB [MP3|320 Kbps] <Deep House,  Nu Disco,  Ind
@@ -1888,103 +1988,6 @@ Jazz, Blues, Soul  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1290832.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 290 799
-
-VA - не Громкие новинки недели 6  2019  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Alan Walker feat. Sabrina Carpenter & Farruko - On My Way
-02. Alena Grand - Потанцуй Со Мной
-03. Armin Van Buuren feat. Bonnie McKee - Lonely For You  Zack Martino Remix 
-04. Audax & Pri Pach - Wildfire    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:56:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7C89CD06333BA1A04D4D4DA1BCD3C6C8646646CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1290799.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 290 751
-
-Heiko And Maiko - Techno Rock  2018  Radio Remix [MP3|320 Kbps] <Club, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Heiko And Maiko - Techno Rock  DJ Savin Alex Pushkarev Remix  Radio VersionЖанр: Club, DanceПродолжительность: 00:03:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:10CD1512635B4B0B67ABADB24A73C7E958297943
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1290751.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 290 596
-
-VA - Running Workout 2019 [MP3|320 Kbps] <House, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Flo Rida - GDFR  feat. Sage The Gemini & Lookas 
-02. Galantis - Peanut Butter Jelly
-03. Clean Bandit - Solo  feat. Demi Lovato 
-04. Anne-Marie - 2002    Читать дальше...    Жанр: House, DanceПродолжительность: 02:29:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F5A9CB36CC58C5F5437B23B1BB66BFF931C8D1EE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1290596.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 290 496
-
-VA - YR Best Chillout Vol.38  2018  [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. ATB - Feel Like Me  R.I.B & Soty Chillout Version  1:35
-02. FATE - Black Magic  Original Mix  3:00
-03. Katy Perry - Rise  Acoustic Version   Ali Brustofski Сover  3:16
-04. Ana Criado - Vulnerable  Nowhere To Hide   Mark Otten Downtempo Remix  5:02    Читать дальше...    Жанр: Chillout, Downtempo, Lounge, Trap, AmbientПродолжительность: 06:35:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:323DA300B372035F1942E7ADFC8715397C37696B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1290496.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

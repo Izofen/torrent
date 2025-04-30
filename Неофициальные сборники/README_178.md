@@ -1,4 +1,103 @@
 ﻿
+###  Публикация: 962 960
+
+VA - Top 100 Deep House  November   2015  [MP3|320 кб с]<Deep House,Club House, House, Ind
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Ace Of Base - All That She Wants  Abhishek Negi Remix 
+02. Ahmet Kilic, Stoto - Swept Away  Original Mix 
+03. Alekseev - Пьяное Солнце  Roma Pafos Extended 
+04. Alex Hill - Regen The Sky  Original Mix     Читать дальше...    Жанр: Deep House,Club House, House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech HouseПродолжительность: 09:54:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21E1493AC8B10784E6320EFA3BBFD6A75943411E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_962960.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 962 952
+
+VA - Top 100 Club Tracks  November   2015  [MP3|320 кб с]<Club House, Vocal House, House,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Adele - Hello  Ryan Kenney Remix 
+02. Afrojack Ft. Pitbull & Mike Taylor & Gumanev & Shishkov - Summer Thing  ATOM MIX MASH UP 
+03. Agua Sin Gas By Antoine Clamaran - Oh Yeah  Original Mix 
+04. Alex Hill - Regen The Sky  Original Mix     Читать дальше...    Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 08:05:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7966CCC69461906C1EF2183906F258C25BC788C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_962952.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 962 947
+
+VA - 50 Shades of Jazz  2015  [MP3|320 кб с]<Jazz, Jazz Fusion, Smooth Jazz, Vocal Jazz>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Louis Armstrong - A Fine Romance  03:56 
+02. Diana Krall. Jeff Hamilton. John Clayton - Let s Fall In Love  04:19 
+03. Grant Green - Take These Chains from My Heart  Remastered   06:12 
+04. Stanley Turrentine - The Look of Love  Remastered   06:03     Читать дальше...    Жанр: Jazz, Jazz Fusion, Smooth Jazz, Vocal JazzПродолжительность: 03:58:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:812C5978D391B82543C8F9EDD001BE57A0DCF005
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_962947.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 962 944
+
+VA - In the Club 2016.1  2015  [MP3|256 кб с]<Dance, Club, House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Robin Schulz - Sugar  feat. Francesco Yates  03:40
+02. Deorro & Chris Brown - Five More Hours  Radio Edit  03:33
+03. Tiesto & KSHMR - Secrets  feat. Vassy Жанр: Dance, Club, HouseПродолжительность: 05:36:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E942FBDD50BE00AA22F9F7EDF5F4E4839704538B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_962944.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 962 914
 
 VA - DFM тусовка №1 Сводный чарт лучших треков  2015  [MP3|192-320 кб с]<Dance, Club>
@@ -1899,105 +1998,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959173.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 959 169
-
-VA - Trance 100 Best Of 2015  EDM RG Deluxe Edition   2015  [MP3|320 кб с]<Trance, Progres
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Armin van Buuren feat. Mr.Probz - Another You  Mark Sixma Remix  04:42
-002. Gaia - Carnation  Original Mix  05:14
-003. Jody Wisternoff feat. Sian Evans - The Bridge  Chicane Rework  05:48
-004. W&W - The One  Extended Mix  04:03    Читать дальше...    Жанр: Trance, Progressive, Melodic, VocalФормат: CD, CompilationПродолжительность: 14:34:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E2039AB274C533D91CF37430E72DD45C6F365C07
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959169.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 959 159
-
-VA - Bermuda Island: Uplifting Vocal Trance  2015  [MP3|320 кб с]<Trance, Uplifting Trance, Vo
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Jennifer Rene, Somna - Back to Life  Original Mix  07:01
-002. Ana Criado - Arms Of Surrender - Original 06:13
-003. Special - Express To Callisto  Stella Project Remix  09:24
-004. Stephane Badey & DJ T.h. With Eva Kade - Checkmate  Denis Sender Radio Edit  03:23    Читать дальше...    Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 09:36:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:32FBA142369DBA2A31835673039F501EF1F32B25
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959159.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 959 156
-
-VA - Autumn Festival: 100 Club House  2015  [MP3|320 кб с]<Club House, Dance, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Kygo - Stole the Show  feat. Parson James  03:32
-002. Sigala - Easy Love  Faaiirr Remix  04:29
-003. Felix Jaehn - Ain t Nobody  Loves Me Better Жанр: Club House, Dance, ElectroПродолжительность: 08:21:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36CC8DB860DC913692119B35970F338343B835C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959156.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 959 133
-
-VA - White Chill-Out Vol 3  2015  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Dennis Bailey - Kafan - Radio Edit
-02. Bastian Clark - Take a Break - Original Mix
-03. Chuck Mertens - Moshy - Original Mix
-04. Alec Gonzalez - Lia - Original Mix    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA86EFC93FB61EAF6CB5FFE2296F51FEECB54C9B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959133.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

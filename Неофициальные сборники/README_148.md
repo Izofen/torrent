@@ -1,4 +1,103 @@
 ﻿
+###  Публикация: 1 060 077
+
+VA - Top 100 Зайцев.Нет Сентябрь  2016  [MP3|160~320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Burak Yeter - Tuesday Ft.Danelle Sandoval  4:06
+002. Баста - Выпускной  Медлячок   5:35
+003. Тимати & Егор Крид - Где ты, где я  4:43
+004. Calvin Harris - This Is What You Came For  feat. Rihanna   3:42    Читать дальше...    Жанр: PopПродолжительность: 06:09:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3169A8CE00E7051ECE3E1654301C6754F5D1F832
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1060077.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 060 036
+
+VA - Dance Spends Discoplaza  2016  [MP3|320 Kbps] <House, Bigroom, Funky, Nu Disco, Hands Up, C
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Provenzano - Gorbaciov  5:17
+02. Brooklyn Bounce & Rainy - Can You Feel The Bass  Old School Radio Mix   3:35
+03. Alex H & DJ Massymo Tn - Beyond The Blue Horizon  Original Mix   7:34
+04. Max K. Feat. Gerald G! - Get Loose  Radio Edit   3:20    Читать дальше...    Жанр: House, Bigroom, Funky, Nu Disco, Hands Up, Club, DanceПродолжительность: 07:34:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:305A2AC0DE433EF4D37C002A61B83C8002CD2F7A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1060036.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 984
+
+VA - Record Super Chart #456  2016  [MP3|320 Kbps] <House, Electro House, Future House, Club, Da
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. DBSTF & Maurice West - Temple  Extended Mix   4:01
+02. KSHMR & Tigerlily - Invisible Children  Extended Mix   3:45
+03. Bassjackers feat. Luciana - Fireflies  Extended Mix   3:36
+04. Jax Jones feat. Mike Dunn & MNEK - House Work  2:37    Читать дальше...    Жанр: House, Electro House, Future House, Club, DanceПродолжительность: 02:09:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:71CF2197CB257564A1AFDF4A242815B0C77499C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059984.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 960
+
+VA - Дискотека Dance Affective  2016  [MP3|224~320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Sean Finn Feat. Amanda Wilson - All Or Nothing  Original Radio Edit   3:33
+02. Robin Schulz & Jasmine Thompson - Sun Goes Down  Tocadisco Remix   5:54
+03. Dimitri Vegas ft Moguai & Like Mike - Body Talk  Extended Mix Жанр: House, Club, DanceПродолжительность: 07:12:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F141C252C4157FD32F81B797E8639508B5DB355D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059960.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 059 959
 
 VA - Temple of Relaxation: Lounge Relax Deep Meditation for Relaxation, New Age Music  2016  [MP
@@ -1897,106 +1996,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056834.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 794
-
-VA - Google Play Music : Громкие новинки месяца - Сентябрь  2016  [MP3|320 Kbps] <House, Club Ho
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. DJ Mika Richi Art - Arabian  Original Mix   5:34
-002. Captain Monkey - Liquid Soul  Original Mix   9:50
-003. Neon Musk - Azure  4:55
-004. Joonas Hahmo - African Dreams  Original Mix   5:39    Читать дальше...    Жанр: House, Club House, Pop, RnB, DanceПродолжительность: 09:13:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2AF9D0688F984DA5424EB6E252C5105F72D5C365
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056794.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 758
-
-VA - TOP DJs Trance Sounds Melody World  2016  [MP3|320 Kbps] <Trance, Melodic, Uplifting Trance
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. PvR - Legacy Of Ephemeris  Abandoned Rainbow Remix   5:38
-02. Matt Chowski - Simply Magic  Emanuele Congeddu s Magical Touch   6:38
-03. Mostfa & Mostfa - Nosara  French Skies Remix   8:24
-04. Kaimo K & Cathy Burton - You Deserve Life  Mino Safy Remix   7:09    Читать дальше...    Жанр: Trance, Melodic, Uplifting Trance, Tech Trance, Emotional, Energy, ProgressiveПродолжительность: 09:18:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75BAB812DFC6DD668A57C7E5A9AEC6EC817FD617
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056758.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 695
-
-VA - Beatport Trance Pack  25.09.   2016  [MP3|320 Kbps] <Trance, Energy, Progressive>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Ronski Speed Ft Linnea Schossow - Set Me To Light  Extended Mix   6:37
-02. Sean Mathews - What Lies Ahead  Original Mix   6:21
-03. Andre H - Grey Flowers  Perrelli & Mankoff Remix   7:18
-04. Asteroid - Gravitation  Extended Mix   6:44    Читать дальше...    Жанр: Trance, Energy, ProgressiveПродолжительность: 02:58:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C376C83C5D6EB359DCC4FEE6FA5E8A43C038451F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056695.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 056 689
-
-VA - Future Eurodance Hits  2016  [MP3|320 Kbps] <Hands Up, Dancecore>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Shilton - Lift Me Up  Bmonde Edit   feat. Lightwarrior   3:10
-02. Jockeyboys - Higher 2k16  Mumdy Remix   feat. Nance   3:08
-03. J & V - I Just Wanna Dance  S.g. Soun diver Remix   4:04
-04. DJ Dark & MD - Sleeping Satellite  Randy Norton Edit   feat. Vera Russo   3:16    Читать дальше...    Жанр: Hands Up, DancecoreПродолжительность: 02:01:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F8538567537D2DD3E874679BA8CEBD0913610F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056689.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

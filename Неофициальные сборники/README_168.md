@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 004 866
+
+VA - Вспомним 90-2000 от Виталия 72  2016  [MP3|320 кб с] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. И.К.С.Миссия - Ты первая
+02. DVD - Белый снег
+03. Андрей Губин - Облака
+04. Каролина - Русалка    Читать дальше...    Жанр: PopПродолжительность: 04:57:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0723CEC99633A312B78880156E7B5AC7DB221864
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004866.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 004 813
+
+Серебро - Сладко. Сборник лучших хитов  2016  [MP3|320 кб с] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Сладко  03:51 
+02. Я Хочу Слышать  03:33 
+03. Мама Люба, Давай  03:24 
+04. Гудбай Любовь  03:29     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:37:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90B140AC404AB89F79379489E7D1E55F18C15293
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004813.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 004 784
+
+Тату  t.A.T.u.  - Не верь, не бойся, не проси  2016  [MP3|320 кб с] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Тату - Не верь, не бойся, не проси  3:05 
+02. Тату - Ядовитая...разбитая...убитая...Я...  3:58 
+03. Тату .vs.Король и шут - В твоих руках  4:53 
+04. Тату .vs.Король и шут - Заведи  3:54     Читать дальше...    Жанр: PopПродолжительность: 03:54:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2361E7DBF6507B3A374481598013E1B84024298F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004784.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 004 672
+
+VA - Музыкальное ассорти хитов  50 50   2016  [MP3|256 кб с] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Dj Jedy Feat. Личи - Вахтеры
+02. Fedde Le Grand Feat. Erene - Immortal
+03. Григорий Лепс - Одиноко
+04. Dj Marcous Feat. Aria - Tourist    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ABB690F4A4719D7F25DEA34573B22583920600F7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004672.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 004 622
 
 VA - Музыка Нас Связала: Дискотека 90-х  2016  [MP3|320 кб с] <Pop>
@@ -1886,106 +1986,6 @@ VA - Давай, наливай. Сборник радио Шансон 4  2016 
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000564.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 000 495
-
-VA - Дискотека 2016 Dance Club Vol.150 от NNNB  2016  [MP3|192-320 кб с] <Club, Dance  Trance,
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Calvo feat. Gigi - Made For Us  Radio Edit 
-02. Alexandra Stan - Ecoute
-03. DJ Emil Rocks - Feel of freedom  P.R. Project Remix 
-04. Stage Rockers & Dessy Slavova - Go Away  Radio Edit     Читать дальше...    Жанр: Club, Dance  Trance, House, Dubstep, Pop,  Breaks, Trap,  Bass, Chill OutПродолжительность: 10:10:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:245981881C9D2467F2AC6ECD8EA645A582D97179
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000495.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 000 456
-
-VA - Sailing Out Lounge  2016  [MP3|320 кб с] <Lounge, Chillout>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Don Gorda Project - Surfing Emotional Waves  05:45 
-02. Aquarius - The Midnite Call  05:59 
-03. Spiridion - Jazztrain  05:36 
-04. Enrico Donner - Golfinhos  05:57     Читать дальше...    Жанр: Lounge, ChilloutПродолжительность: 01:27:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D47D6B01B2C3B854FE7593CC794AFC08E69B0894
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000456.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 000 449
-
-VA - Old Time Rock And Roll  2016  [MP3|320 кб с] <Rock and Roll, Blues Rock, Country>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. The Blue Notes - My Hero
-002. Del Shannon - The Swiss Maid  Radio Version 
-003. Little Richard - Can t Believe You Wanna Leave
-004. Perez Prado and His Orchestra - Cherry Pink and Apple Blossom White    Читать дальше...    Жанр: Rock and Roll, Blues Rock, CountryПродолжительность: 04:11:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:051FC6F560D3A090BAA19D1B7372FBE9E4594A20
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000449.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 000 391
-
-VA - Euro House Flowers Melody  2016  [MP3|264-320 кб с] <House, Tribal, Bigroom, Future House
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Don Diablo - Tonight  Extended Mix  03:57
-002. Breathe Carolina & Shanahan Feat. Haliene - Stars & Moon  Apek Remix  03:25
-003. Cj Stone Feat. Jonny Rose - Wait Up For Me  Radio Edit  03:31
-004. Jota M - Acariciame Y Besame   New Remix   04:17    Читать дальше...    Жанр: House, Tribal, Bigroom, Future House, Nu-DiscoПродолжительность: 07:58:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:27AEEE56B103FC9EA90D8FBC8E38C361706C5132
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000391.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

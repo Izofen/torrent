@@ -1,4 +1,123 @@
 ﻿
+###  Публикация: 626 501
+
+VA - Drive Poison Melody Days  2013  [MP3|320 кб с]<Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Mauro Panello Feat Mimi - Rise  Alex Greed Remix  07:00
+ 02. Mike Van Fabio, X-Thoff & Jack Noise Feat Helen Sylk - One More Day  Marcos Remix  08:31
+ 03. Markus Schulz - The Spiritual Gateway  Transmission Theme 2013   Radio Edit  02:17
+ 04. Las Salinas - Chipsy Kings  Genix Remix  06:25
+ 05. Mark Eteson & Luke Bond - 4 Days Out  Radio Edit  04:21
+ 06. Markus Schulz - Nothing Without Me  Feat Ana Diaz-Beat Service Remix  07:12
+ 07. Luca De Maas - Futility Of Resistance  Otto Uplifting Remix  08:35
+ 08. Mino Safy - Everlasting  Alan Cuevas & Diego.Morrill Remix  08:03Жанр: TranceПродолжительность: 03:14:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91078704F309A8E1059979417CF14717C34F7F2C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 626 491
+
+VA - Moment Oasis Dreams  2013  [MP3|320 кб с]<Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Misja Helsloot Feat Fisher - Inspire  Original Vocal  07:59
+ 02. Mohamed Bahi - Casablanca 08:42
+ 03. Moonbeam - The Raven  Rosie Romero Ian Round Remix  05:34
+ 04. Moonbeam Feat Jacob A - Only You 04:15
+ 05. Alex Butcher - More & More  Club Mix  06:22
+ 06. Morvan - Charisma  Original Mix  06:08
+ 07. Morvan - When We Fly  Original Mix  06:26
+ 08. Mr Nagasaki & Andrey Subbotin Feat Monika Star - My Love  Original Mix  05:02Жанр: TranceПродолжительность: 06:52:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D91DB71DAF0A831C5757B882948F027337A188F8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 626 475
+
+VA - Club Dubstep №29  2013  [MP3|320 кб с]<Dubstep>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Gemini feat. Fabienne - 3D Romeo  Original Mix 
+02. J.Nitrous - Anywhere But Here  Original Mix 
+03. Quba ft. Daniella - Be Better  Original Mix 
+04. Infuze - Black Out
+05. Rye Rye - Boom Boom  EOS Remix .
+06. Beauty Brain, Poisound - Bullfighter
+07. Jibbs - Chain Hang Low  Crizzly & AFK Remix 
+08. Zeds Dead & Omar Linx - Crank
+09. Majai - Crumble  Klaypex Remix Жанр: DubstepПродолжительность: 02:40:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F2CE791580E1783AB9C958A627DB44A2E6F4EB1F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_626475.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 626 200
+
+VA - Атака танцевальной клубной музыки  2013  [MP3|320 кб с]<Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Basic Element - To You  DJ A-One Remix 
+02. Bombs Away - Party Bass  Slayback & Nexboy Remix 
+03. Dj Cargo & Kei Morton feat. T Paul - SomeBody Dance With Me  Original Saxy Mix 
+04. DJ Layla feat. Dee-Dee - Born To Fly  Radio Edit 
+05. DJ Sergey Fisun - Welcome To Minecraft  Original Mix 
+06. Faydee - Catch Me
+07. Inna - Tonight  Extended Version  [2013]
+08. Madonna - Masterpiece  DJ Yonce Remix 
+09. Manian & Nicco - Tonight  R.I.O. Video Edit 
+10. Mike Candys - Oh, Oh  Original Mix     Читать дальше...    Жанр: DanceПродолжительность: 01:50:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8834B9A956853FC1F4036BE994BA89C4DB9902CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_626200.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 626 184
 
 VA - Sublime Chilled  3CD   2012  [MP3|320 кб с]<Downtempo, Lounge, ChillOut, Ambient>
@@ -2325,124 +2444,6 @@ VA - Авто Ритм. Убойный музон в авто  2011  [MP3|256-32
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_599322.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 599 154
-
-VA - Рок в Авто  vol. 7   2013  [MP3|320 кб с]<Hard Rock, Heavy Metal, Power Metal, Nu Met
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Blue Stahli - Doubt
- 02. The Bloody Beetroots feat. Refused - New Noise
- 03. Within Temptation - What Have You Done  feat. Keith Caputo 
- 04. DefRage - Puddle Of Nirvana    Читать дальше...    Жанр: Hard Rock, Heavy Metal, Power Metal, Nu Metal, Alternative metal, Electronic RockПродолжительность: 05:04:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4DABC8A16E501AB7C0604E2F3BE2B1A52CB700B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_599154.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 598 867
-
-VA - Итоговый Независимый Хит–Парад - «Чартова Дюжина 2012»  2012  [MP3|128-320 кб с]<Rock, Pu
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-14. Ю-Питер - 10 шагов*  4:51 
- 15. Кукрыниксы - Хрустальный мир  4:15 
- 16. Би-2 - Девушки  3:45 
- 17. Пилот - Сумасшедшим жить легко*  4:00 
- 18. Оргия Праведников - Наша Родина - СССР  3:51 
- 19. ДДТ - Напиши мне, напиши  5:43 
- 20. Король и Шут - Счастье  3:24 
- 21. Земфира - Деньги  3:37 
- 22. Ночные Снайперы - Что мы делали прошлым летом  2:49 
- 23. Чайф - Для Него  4:24     Читать дальше...    Жанр: Rock, Punk-Rock, Folk-Rock, Soft-RockПродолжительность: 05:44:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8580217263D144F1BD0069F9295EEEBBA2501E17
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_598867.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 598 302
-
-VA - Дискотека 80-х. Лучшее  2013  [MP3|320 кб с]<Disco>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001.Facts & Fiction - Love Game  feat.Jerome 
-002.Michael Jackson - Pretty Young Thing
-003.Hank Shostak - Don T Tell Me
-004.Curacao - You
-005.Stage - Can t Get You Out Of My Mind
-006.Jessica - Chinese Magic
-007.Boney M - Let It All Be Music
-008.Thomas Anders - Soldier
-009.Fancy - Fools Cry
-010.Ricchi E Poveri - Malinteso    Читать дальше...    Жанр: DiscoПродолжительность: 08:23:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D2715D1FB34AC72196F9005EA5DEB6C290FACAC3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_598302.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 597 920
-
-VA - Aqua Trance Volume #01 - #31  2012-2013   Обновляемая  [MP3|320 кб с]<Uplifting Tranc
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Продолжительность: 03:03:49
-
-01. Cathy Burton & Omnia - Hearts Connected  Skytech Remix  [07:53]
- 02. Ana Criado & Ronski Speed - Afterglow  Ronski Speed Remix  [08:32]
- 03. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase  Original  [11:01]
- 04. Daniel Wanrooy - Dog Day Afternoon [06:01]
- 05. Dash Berlin feat. Emma Hewitt - Like Spinning Plates  Club Mix  [05:39]
- 06. Dub Effect feat. Mix Usha - Perfect Love [05:40]
- 07. Kenneth Thomas feat. Colleen Riley - The Heart Speaks  Damian William Remix  [06:31]
- 08. Ian Betts - Under Below  Original Mix  [08:06]    Читать дальше...    Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:16:44
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

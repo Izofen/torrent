@@ -1,4 +1,526 @@
 ﻿
+###  Публикация: 965 437
+
+B. B. King - Blues Masters  Compilation  [FLAC 2.0 16 44,1|image+.cue  MC-Rip ] <Blues>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Every Day I Have The Blues
+02. Sweet Little Angel
+03. How Blue Can You Get?
+04. Playing The Cost To Be The Boss  King     Читать дальше...    Жанр: BluesПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4B633A2D7C7EF9837296F8875CFF415B8402336C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965437.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 965 360
+
+Secret Service - When The Night Closes In  1985  [FLAC 2.0 24 192|traks Vinyl-Rip ] <Elect
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Ночной город   Night City  3:34
+2. Давайте еще потанцуем   Let Us Dance Just A Little Bit More   4:24
+3. Наша песня   Special Songs  3:30    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:232E9787FB355287810D7BEC66858DEEB9DC4C28
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965360.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 965 183
+
+Robert Michaels - Paradiso  1998  [FLAC 2.0 16 44,1|image+.cue  MC-Rip ] <Flamenco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Paradiso
+02. Cupid s Dance
+03. Alyssa
+04. Rain in Spain    Читать дальше...    Жанр: FlamencoПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBBE624EF642C2696EFC1CEDFF8EBC92BDCDEE94
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965183.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 965 111
+
+М. Горький, Е. Честняков: Сказка про Иванушку-Дурачка, Чудесное яблоко  1980  [FLAC 2.0 16 44,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сказки М. Горького и Е. Честнякова исполняют: В. Тучинский, В. Невинный, Р. Филиппов, М. Калашников, С. Бубнов, О. Якунина, З. Нарышкина, А. Баранцев, в эпизодах артисты московских театров, режиссёры А. Крюков и В. Иванов, инсценировка В. Толмачёвой.01. Сказка про Иванушку-Дурачка  М. Горький 
+02. Чудесное яблоко  Е. Честняков Жанр: СказкаПродолжительность: 00:12:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:312CE21DCEF77E52055E731CEA0F02EB2550BA35
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965111.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 965 009
+
+Eruption - Ансамбль Ирапшн  1980  [FLAC 2.0 24 192|tracks Vinyl-Rip ]<Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. I Can t Stand The Rain  6:30
+2. Movin   4:24
+3. I ll Take You There  2:52    Читать дальше...    Жанр: DiscoПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965009.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 964 888
+
+Jeff Lynne s ELO - Alone In The Universe  2015  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. When I Was a Boy  3:12 
+02. Love & Rain  3:30 
+03. Dirty To The Bone  3:06 
+04. When The Night Comes  3:21     Читать дальше...    Производство: Columbia   Big Trilby Rec.Жанр: RockПродолжительность: 00:32:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E180AAD96C0AF6372D39F23596412C68FFF1ED0A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964888.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 964 605
+
+Boney M - Ночной полет на Венеру  1980  [FLAC 2.0 24 192|tracks Vinyl-Rip ]<Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Nightflight To Venus - Ночной полет на Венеру  4:42
+2. Hooray, Hooray - Ура, каникулы  3:56
+3. He Was A Steppenwolf - Он был степным волком  6:50    Читать дальше...    Жанр: DiscoПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964605.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 964 202
+
+Peter Gabriel - So  1986  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Red Rain  5:39 
+02. Sledgehammer  5:16 
+03. Don t Give Up  6:29 
+04. That Voice Again  4:54     Читать дальше...    Производство: VirginЖанр: RockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E4A3DDACCF14D0DD34F765F28D8A825540FA04C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_964202.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 963 892
+
+Sandra - The Long Play  1985  [FLAC 2.0 24 192|traks Vinyl-Rip ]<Electronic, Pop>
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. В ночной духоте · In The Heat Of The Night  5:18
+2. На блюдечке...  Семь Лет  · On The Tray  Seven Years   3:44
+3. Малышка · Little Girl  3:10    Читать дальше...    Жанр: Electronic, PopПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06764854BCC7FD068EE2B1E9EC8F4D68503BC92D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_963892.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 963 735
+
+Кипелов - Отражение  2013  [WavPack 2.0 32 192 | image+.cue  Vinyl-Rip  | Lossless]<Heavy
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01 - Сальери и его отражение [06:51]
+02 - Ария Надира [04:32]
+03 - Мёртвая зона [06:19]
+04 - Я свободен [07:15]    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:24:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0692437317D1665851153A801944104FE2AB21F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_963735.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 963 156
+
+Meat Loaf - Blind Before I Stop  1986  [FLAC 2.0 24 192|traks Vinyl-Rip ]<Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. День казни · Execution Day  6:30
+2. Торговцы рок-н-роллом · Rock n Roll Mercenaries  5:00
+3. Убить и сбежать · Getting Away With Murder  3:50    Читать дальше...    Жанр: Pop RockПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3ECDF6AE8E440EE3DAE6772249E5711FD0E8A699
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_963156.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 963 050
+
+Paul McCartney - Flowers In The Dirt  1989  [FLAC 2.0 24 192|traks Vinyl-Rip ]<Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. My Brave Face  3:18
+2. Rough Ride  4:44
+3. You Want Her Too  3:12    Читать дальше...    Жанр: Pop RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:64FD3AA19720C2FDDF4DABE0ADFF89CBD138FA69
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_963050.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 962 264
+
+Марина Хлебникова - Чашка Кофе  1997  [FLAC 2.0 16 44,1|image+.cue  MC-Rip ]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Чашка кофе
+02. Кто ты такой
+03. Билли Бом
+04. Случайная любовь    Читать дальше...    Жанр: PopПродолжительность: 00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:012B3252DC6D230847E3A399D4F5C7D2B04BC9B8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_962264.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 961 842
+
+Клифф Ричард - Лучшие песни  1977  [FLAC 2.0 24 192|traks Vinyl-Rip ]<Pop, Ballad>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Как только ты ушла  2:20
+2. Честное слово  2:34
+3. Когда тебя нет со мной  2:58    Читать дальше...    Жанр: Pop, BalladПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B77525AC0D631F1C1D257E238F3D6645507B905
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_961842.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 959 934
+
+Михаил Боярский поёт песни Юрия Чернавского - Лунное Кино  1987  [APE 2.0 24 96|image+.cue  
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Лунное Кино
+02. Если Ты Помнишь
+03. Капитан
+04. Фараон    Читать дальше...    Жанр: Pop, Synth-PopПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2952542D757E130C61F699A5AAF7DF9B1D19E72B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959934.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 959 688
+
+Helen Reddy - Free And Easy  1974  [FLAC 2.0 24 96|image+.cue  Vinyl-Rip ]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1	Angie Baby
+A2	Raised On Rock
+A3	I ve Been Wanting You So Long
+A4	You Have Lived    Читать дальше...    Жанр: PopПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5A77064A5F4D73D15E37FC4A86E203D5B5C9E2F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959688.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 957 393
+
+VA С. Ротару feat. анс. Весёлые Ребята и Синтез-группа И. Гранова - Луна, Луна Дастархан  1986<4
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A	С. Ротару, Веселые Ребята - Луна, Луна
+
+B	Синтез-Труппа Игоря Гранова -	ДастарханЖанр: PopПродолжительность: 00:09:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FFD2A22AB7EA781B043B1A1DDD71E329E0B89FCD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957393.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 957 066
+
+Инструментальный Ансамбль Рококо  1971  [FLAC 2.0 24 96|tracks+.cue  Vinyl-Rip ]<Easy List
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Арабески
+02. Акварель
+03. Королевство гномов
+04. Старый антикварЖанр: Easy ListeningПродолжительность: 00:10:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CCA4C97DCE04F51CD4B6A92C9B4BEC965FAAF942
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957066.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 756
+
+Евгения Лисицина  серия Органная музыка, запись 1972 г.  - И. С. Бах, М. Регер: Партиты, концерт
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1	Партиты На Тему  Sei Gegrüsset, Jesu Gütig  Соль Минор, В. 768
+Концерт №1 Для Органа Соль Мажор, В. 592  И. С. Бах 
+A2	1.  Allegro 
+B1a	2. Grave    Читать дальше...    Жанр: ClassicalПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5469122371C79B871FC2A86F23F1879DF8ED662B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955756.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 597
+
+VA - Мельница: Песни И. Николаева  1988  [FLAC 2.0 24 96|image+.cue  Vinyl-Rip ]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Игорь Николаев	Незнакомка · A Stranger	4:15
+02. Александр Кальянов	Старый Друг · Old Friend	6:54
+03. Алла Пугачева	Любимчик Пашка · Pashka Pet	3:17
+04. Игорь Скляр	Понедельник · Monday	2:51    Читать дальше...    Жанр: PopПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06220FFA057ABCADE08BD23862E9BB4D72D0C3FC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955597.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 953 999
+
+VA - Добрые колыбельные для сладких снов  3  в исполнении В. Толкуновой, О. Анофриева и И. Сурин
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. В. Толкунова - Наступил час ночной
+02. О. Анофриев - Баю баюшки баю, не ложися на краю
+03. И. Сурина - Спи, малютка
+04. Оркестр - Вечером    Читать дальше...    Жанр: LullabyПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91BFB381C53A6131C9A0A4AFD1D2BCBAA6174DC4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_953999.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 953 402
 
 Lesek Semelka  Lešek Semelka  - Coloured Dreams  1985  [FLAC 2.0 24 96|image+.cue  Vinyl
@@ -1467,536 +1989,6 @@ A4. Bonnie  5:39     Читать дальше...    Производство: A
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_921490.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 921 097
-
-Владимир Высоцкий - Vladimir Vissotsky  1977  [APE|image + .cue|2.0 24 192 Vinyl-Rip ]<Авт
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Мы вращаем Землю [3:31]
-02. Вариации на цыганские темы [4:36]
-03. Тот, который не стрелял [3:03]
-04. Прерванный полёт [4:40]    Читать дальше...    Жанр: Авторская песняФормат: 24bit 192kHzПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D8FA1CF173D7C6736ECED467DDEAEEDEC882BA6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_921097.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 912 639
-
-Roger Hodgson - In The Eye Of The Storm  1984  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Soft Roc
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Начинать сольную карьеру в 80-х годах минувшего столетия в прогрессивном роке было делом заведомо неблагодарным. Тем не менее, многих музыкантов это не останавливало, и они наперекор всем начинали выпускать сольные альбомы, нередко вызывая тем самым досаду поклонников и злорадство критиков. Роджер Ходжсон  Roger Hodgson  – один из основателей Supertramp – также не     Читать дальше...    A1. Had A Dream  Sleeping With The Enemy   8:28 
-A2. In Jeopardy  5:58 
-A3. Lovers In The Wind  4:15 
-A4. Hooked On A Problem  4:59     Читать дальше...    Производство: A&M RecordsЖанр: Soft RockПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D9400E4EF1B1EA5782302141DB7AFC5D2F29301D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912639.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 910 949
-
-Scorpions - Love At First Sting  1984  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Hard Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Bad Boys Running Wild  3:55 
-A2. Rock You Like A Hurricane  4:12 
-A3. I m Leaving You  4:18 
-A4. Coming Home  5:00     Читать дальше...    Производство: EMI   HarvestЖанр: Hard RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E3B46D2EB83A020829F628B0FEE437476965C456
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_910949.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 905 762
-
-The Alan Parsons Project - Pyramid  1978  [FLAC 2.0 24 96|image  Vinyl-Rip ] <Progressive
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Voyager  2:15 
-A2. What Goes Up  3:40 
-A3. The Eagle Will Rise Again  4:22 
-A4. One More River  4:17     Читать дальше...    Производство: Arista   Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D3157EC06C0C2FD21A6FC73E8D6BEE6CB85CCD66
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_905762.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 905 001
-
-U.D.O. - 13 Альбомов  1987-2015  [WavPack 2.0 32 192|image  Vinyl-Rip ]<Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01 Speeder
-02 Decadent
-03 House Of Fake
-04 Mystery    Читать дальше...    Жанр: Heavy MetalПродолжительность: 13:10:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:93FE9E3F7F58B8107D2454FCDD6BE8573A955AC2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_905001.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 904 948
-
-Чернавский-Матецкий - Банановые Острова  1983   2013, Мирумир  [FLAC 2.0 24 96|image  Vi
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Банановые острова  7:01 
-A2. Зебра  4:13 
-A3. Здравствуй, мальчик Бананан!  7:07 
-A4. Становитесь в очередь за мной  5:02     Читать дальше...    Производство: МирумирЖанр: RockПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB9DF6F41C7DB2AFED9DBC307CDCF51D06D307AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_904948.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 903 609
-
-Зоопарк - Белая Полоса  1984   1988, Мелодия  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Буги-Вуги Каждый День  2:21 
-A2. Белая Полоса  2:52 
-A3. Песня Простого Человека  2:45 
-A4. Когда Я Знал Тебя Совсем Другой  2:36     Читать дальше...    Производство: МелодияЖанр: RockПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:725EDD029D27E6E94E374D7E78A1D94FA65E9932
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_903609.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 891 917
-
-Queen - The Game  1980  [FLAC 2.0 24 192|traks Vinil-Rip ]<Pop Rock, Classic Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-1. Play The Game  3:25
-2. Dragon Attack  4:20
-3. Another One Bites The Dust  3:34
-4. Need Your Loving Tonight  2:49    Читать дальше...    Жанр: Pop Rock, Classic RockПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4E839A3808BD048268DDE74DFE13BF83483E7895
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_891917.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 887 298
-
-Acker Bilk - Klarinet  1980  [FLAC 2.0  image+.cue |Vinyl-rip  24 96 ]<Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Szállj Fel Magasra
-Written-By – Gallai Péter, Köves Miklós
-A2	Képzelet
-Written-By – Bágya András, Mészáros Ágnes    Читать дальше...    Жанр: PopПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:22B3A869E7A2CCEE6E02273FDB462F13F279209D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_887298.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 885 998
-
-Mariah Carey - #1 s  1998  [FLAC 2.0|16 44,1  image+.cue ]<Hip Hop, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	–Mariah Featuring JD - Sweetheart
-Arranged ByЖанр: Hip Hop, PopПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A95745CD60C081A9C02C3317000A5A54394EC26E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_885998.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 884 987
-
-VA - Ритмы Планеты: Ударные народные инструменты  2002  [FLAC 2.0|16 44,1|image+.cue|MC-Rip] <
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Radio Tarifa Solo drums
-02. Michael Uyttebroek Coukaracha
-03. Michael Uyttebroek Initiation
-04. Michael Uyttebroek Brazilia    Читать дальше...    Жанр: FolkПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36FF66BA1A96B28EA1A0BE6A61DE76895967E5CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_884987.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 884 259
-
-VA - Антология советского киношлягера - Любимые песни из кинофильмов  Чародеи и др.   1996 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Воспоминание - оркестр п у Ю. Силантьева  к ф   О любви   
-02. Люблю тебя - В. Леонтьев  к ф   Не ходите , девки, замуж   
-03. Прощай - А. Градский  к ф   С любимыми не расставайтесь   
-04. Песня о волшебной розе - А. Тукиш  т ф   Не покидай       Читать дальше...    Жанр: Soundtrack PopПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6881EDEECF700FAE0757541ADEB71CC10A32071
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_884259.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 883 954
-
-VA - Антология советского киношлягера - Любимые песни из кинофильмов  Человек с бульвара Капуцинов
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Синема - А. Миронов  из к ф   Человек с бульвара Капуцинов   
-02. Волшебный луч - Л. Долина  из к ф   Человек с бульвара Капуцинов   
-03. Всё прекрасно - Л. Долина  из к ф   Человек с бульвара Капуцинов   
-04. Далека дорога твоя - М. Боярский  из к ф   Человек с бульвара Капуцинов       Читать дальше...    Жанр: Soundtrack PopПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A80D841D90B62676494D323C24E9D01F0E180ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_883954.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 882 873
-
-Кино - запись студии  Тон   1991  [FLAC 2.0 24 96|image  Tape-Rip ]<русский рок>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01.Это не Любовь
-02.Спокойная ночь
-03.Троллейбус
-04.Закрой за мной дверь я ухожу
-05.Попробуй спеть вместе со мной    Читать дальше...    Жанр: русский рокПродолжительность: 0:22:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D9B9DFEF0958E0E409EF36361E761A7DC95B7479
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_882873.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 879 054
-
-Elton John - Goodbye Yellow Brick Road  2014  [LPCM2.0 96 24, DTS96 24 5.1|Audio-DVD  BD-A
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-• 2014 Stereo Remaster
-
-01 Funeral For A Friend  Love Lies Bleeding  2014 Remaster  11:10
-02 Candle In The Wind  2014 Remaster  3:49    Читать дальше...    Жанр: Rock, Glam RockПродолжительность: 01:16:19 + 00:13:11  4 bonus tracks 
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_879054.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 877 180
-
-Fleetwood Mac - Rumours  1977  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Soft Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Second Hand News  2:48 
-A2. Dreams  4:20 
-A3. Never Going Back Again  2:05 
-A4. Don t Stop  3:15     Читать дальше...    Жанр: Soft RockПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B8D21AE3BE8E830387C475552ED04087ED25D739
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_877180.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 876 799
-
-Phil Collins - Face Value  1981  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. In The Air Tonight  5:36 
-A2. This Must Be Love  3:56 
-A3. Behind The Lines  3:58 
-A4. The Roof Is Leaking  3:13 
-A5. Droned  2:50     Читать дальше...    Жанр: Pop RockПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3027D8F30F800EA3F36B11453B547D0E9181967E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 873 198
-
-Gary Moore - Dirty Fingers  1984   1992, SNC Records  [FLAC 2.0 24 96|image  Vinyl-Rip<4
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Hiroshima  4:30 
-A2. Dirty Fingers  1:09 
-A3. Bad News  5:04 
-A4. Don t Let Me Be Misunderstood  3:38 
-A5. Run To Your Mama  4:44     Читать дальше...    Жанр: Hard RockПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E8B28DB52ED1AC275F101BBCC9BE737118E34627
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 940
-
-Nazareth - Hair of the Dog  1975  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Hard Rock>
-След.
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Hair of the Dog  4:10 
-02. Miss Misery  4:42 
-03. Guilty  3:39 
-04. Changin  Times  5:59 
-05. Beggar s Day  3:48     Читать дальше...    Жанр: Hard RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B4ED479653E586BAE21D6D4AD8D328600A10C5E5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 400
-
-Ван Клиберн - Ван Клиберн  1987  [FLAC 1.0 24 96|traks Vinil-Rip ]<Classical>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-Ф. Лист
-1. Грёзы любви  Ноктюрн №3   4:04
-2. Венгерская рапсодия №12  10:36
-Ф. Шопен    Читать дальше...    Жанр: ClassicalПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA63D0DE881B7B64DB45FD30B105E91A1745D3E7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_872400.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 332
-
-Ван Клиберн, симфонический оркестр Московской Государственной филармонии  К. Кондрашин  - С. Рах
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Концерт №3 Ре Минор для фортепиано с оркестром, соч. 30
-Сторона 1
-1. Allegro ma non tanto  17:38
-Сторона 2
-1. Intermezzo. Adagio  10:48    Читать дальше...    Жанр: Classical, Neo-RomanticПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F091C3FD2E4320C7D6541A4EF792989DE056B6C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_872332.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

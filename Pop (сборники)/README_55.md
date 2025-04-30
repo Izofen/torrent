@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 316 577
+
+Ada Lea ‎ - What We Say In Private  2019  [FLAC|Lossless|tracks + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. mercury  04:41 
+02. wild heart  03:58 
+03. the party  02:55 
+04. for real now  not pretend   04:34     Читать дальше...    Жанр: PopПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B0AB9676AA52F735C63B70FB934ADF1BAD3596BA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316577.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 316 499
+
+Lena Katina  Лена Катина  - Моно  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Моно
+2. Ближе
+3. Косы
+4. Куришь    Читать дальше...    Жанр: PopПродолжительность: 00:27:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D554DA363C95C09348F1E41DD37D91C6910BAD24
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316499.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 316 444
+
+Chris Cohen - Chris Cohen  2019  [FLAC|Lossless|tracks + .cue] <Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Song They Play  03:38 
+02. Edit Out  03:26 
+03. Green Eyes  03:18 
+04. Sweet William  02:44     Читать дальше...    Жанр: Indie PopПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F5A26EA6F11259600E9F6C792F6A6F9F4FB13B6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316444.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 316 437
 
 Руки Вверх! - The Best  2013  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1915,81 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311497.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 491
-
-Budka Suflera - Mokre Oczy  2002?  [FLAC|Lossless|image + .cue] <Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Kiedy rozum spi  5:13 
-02. Mokre oczy  4:42 
-03. Szaro - Szary film  4:29 
-04. No i gra  3:49     Читать дальше...    Жанр: Pop RockПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AEA0EDE21E672782CB387CDB1842BD23DAF2C0DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311491.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 446
-
-Q - Dancin  Man  1977  LP [MP3|320 Kbps] <Pop, Disco, Funk Soul>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Dancin  Man  2:41 
-02. Do I Love You?  3:08 
-03. Knee Deep In Love  3:08 
-04. Feel It In Your Backbone, Got It In Your Feet  4:03     Читать дальше...    Жанр: Pop, Disco, Funk SoulПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:533BD5C77202A4245E1EA1936722DD3DB1081FEC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311446.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 311 407
-
-Kim Petras - Clarity  2019  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Clarity  02:02 
-2. Icy  03:09 
-03. Got My Number  02:54 
-04. Sweet Spot  03:14     Читать дальше...    Жанр: PopПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FC4C24C599BE3CDAEDBE7E99168505EC6723428D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1311407.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

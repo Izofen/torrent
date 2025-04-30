@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 078 646
+
+VA - The Chemical Brothers - Best275z  1995 - 2015  [MP3|320 Kbps] <Electronic>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01 Leave Home 05:33
+02 Song To The Siren 03:17
+03 Chemical Beats 04:51
+04 One Too Many Mornings 04:14    Читать дальше...    Жанр: ElectronicПродолжительность: 05:36:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:47F48B4A291B1A53C6EB60CC89764924F2A0E531
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1078646.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 078 622
+
+VA - Новинки С  Разных Популярных MP3 сайтов Выпуск #55  2016  [MP3|256~320 Kbps] <House, Pop, R
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Metallica - Nothing Else Matters  Yastreb Remix   Radio Version  3:50
+002. Gigi D Agostino - Bla Bla Bla  Pink Fluid x Pink Is Punk Bootleg  3:04
+003. Blasterjaxx & Marnik - Heart Starts To Beat 3:10
+004. Denis Rublev feat Alex Kafer & Lera - Я У Твоих Ног  Dj Prezzplay Remix  4:16    Читать дальше...    Жанр: House, Pop, Rap, RnB, Club, DanceПродолжительность: 09:01:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5940DC6A58D972881F9A2FA19DE0A11C312286D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1078622.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 078 570
+
+VA - My Favourite Hits of 1967  8CD   2016  [MP3|320 Kbps] <Psychedelic Rock, Blues Rock, Po
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. The Beatles - Your Mother Should Know  02:27 
+002. Bee Gees - Massachusetts  02:23 
+003. Small Faces - Runaway  02:38 
+004. Tom Jones - Detroit City  03:26     Читать дальше...    Жанр: Psychedelic Rock, Blues Rock, Pop Rock, Folk, Pop, Easy ListeningПродолжительность: 09:43:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2BD15973BF971FEDFDB203A40B9C1468B6D5EA85
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1078570.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 078 505
+
+VA - Real Hip Rhythm And Blues  2016  [MP3|320 Kbps] <RnB, Hip Hop, Rap, Soul>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+001. Mindless Behavior - #Overnightbag 3:55
+002. Marv Won - 96 Draft Feat. Nolan The Ninja 3:36
+003. Tony Toxik - A La Limite 3:35
+004. M.I.A - A.M.P  All My People  3:21    Читать дальше...    Жанр: RnB, Hip Hop, Rap, SoulПродолжительность: 08:20:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9E9B3F8133422D37062EBF9D041F00577DD91EB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1078505.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 078 308
 
 VA - Радио Рекорд - Record Club за 29.11.2016 [MP3|320 Kbps] <Electronic, Breaks, Progressive House>
@@ -1894,106 +1994,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1075181.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 075 076
-
-VA - Study Music and Deep Focus  2016  [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Hjordis Olsson - Yellow
-02. Dylan Cooper - The Dreamer s Island
-03. Niles Harvey Relaxing Music Ensemble - Good Night
-04. Jeevesh - Focus    Читать дальше...    Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:28:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4179A270C8D28B7F732795B2ADEFEE31CE5AF3F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1075076.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 075 038
-
-Наталия Гулькина - Музыкальная Коллекция  часть 2   2016  [MP3|320 Kbps] <Поп, Диско>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Дискотека
-02. Часы
-03. Первое письмо
-04. Море, море    Читать дальше...    Жанр: Поп, ДискоПродолжительность: 03:53:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CBE1A7ED035B8E0FB4991323DD4381988CA6B04C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1075038.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 075 030
-
-Наталия Гулькина - Музыкальная Коллекция  часть 1   2016  [MP3|320 Kbps] <Поп, Диско>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Я не могу без тебя  03:21 
-02. Ветер Скажи  remix   04:01 
-03. Ночь  05:45 
-04. Прощай  03:26     Читать дальше...    Жанр: Поп, ДискоПродолжительность: 04:55:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:418C42FE1FB9AD172D79FBF2D3A62FB7963894CA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1075030.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 075 013
-
-VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.22  2016  [MP3|192-320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Shakira feat. Dizzee Rascal - Loca  03:01 
-002. Alexandra Stan - Mr Saxobeat  Original Mix   03:15 
-003. FaRa Madcon Feat. Ameerah - Freaky Like Me  03:10 
-004. Fly Project - O Male Mandala  04:16     Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:06:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9FB23E9C5AE6EB1B4636C4CABBE162EA2653C324
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1075013.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

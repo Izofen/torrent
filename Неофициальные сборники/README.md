@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 793 559
+
+VA - Compilation Part 158 Electronic (2025) [MP3|320 Kbps] <Electronic>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Akmalov - Echo Drift
+02. Jumanov - Single Girl
+03. A-Sultan - Cruel Summer
+04. Joni - Pacific Ocean(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:58:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D8203C7F200C42DFC2278E5F1C9248C226529EDC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1793559.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 793 232
+
+VA - Rock Hits Of Today (2025) [MP3|320 Kbps] <Rock, Punk, Alternative>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+001. Rudi Biber - Call My Number (04:01)
+ 002. The Doobie Brothers - China Grove (03:15)
+ 003. Roddy Frame - Bigger Brighter Better (03:27)
+ 004. Dio - Push (04:09)(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 12:09:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:26B032FEBF45E97C9DE45F8B28DD3D0C2C87D050
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1793232.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 792 870
+
+VA - National Pop Dance Music Vol.104 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. David Munyon - Song For Cher (04:25)
+ 002. Alec Benjamin - I Sent My Therapist To Therapy (03:01)
+ 003. Massimo Di Cataldo - Scusa Se Ti Chiamo Amore (04:16)
+ 004. Calvin Harris - Giant (03:49)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 11:59:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD0F70FD487E5E9E1347DFB0A9836085DC5A6FFB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1792870.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 792 867
+
+VA - National Pop Dance Music Vol.105 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. M?ss Keta - Divorziata (02:13)
+ 002. Alec Benjamin - King Size Bed (02:44)
+ 003. Massimo Di Cataldo - Solo Se Ci Sei Tu (04:12)
+ 004. Love Regenerator - Hypnagogic (03:14)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 13:12:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:221716563412DAFA4941B54E3436AB50B20916F1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1792867.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 792 633
 
 VA - Music News For Forum vol.075 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -1884,106 +1984,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1781009.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 779 881
-
-VA - House of the past years (2025) [MP3|320 Kbps] <House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. Worakls - Good Night My Love (Joachim Pastor Remix) (6:39)
-002. Tosel & Hale, Heavy Pins feat. Veselina Popova - Read The Signs (Radio Edit) (3:32)
-003. Tensnake feat. Fiora - See Right Through (4:28)
-004. Stefan Gruenwald, Lookee feat. Pearl Andersson - Wonderful Life (Radio Edit) (3:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 09:18:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E38F660098E8C612B2E381B8BCAB824B2DB0760
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779881.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 779 590
-
-Beth Hart - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-Неофициальные сборники
-Jazz, Blues, Soul (сборники)
-
-###  Подробнее
-
-01. Delicious Surprise [04:15]
-02. Let's Get Together [04:10]
-03. Saved [04:31]
-04. Guilty [04:52](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:44:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38922E875221A85A95329381C5FC9761AA7C4DE7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779590.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 779 507
-
-Johnny Valdivia - Mandolin Cover Compilation (2025) [MP3|320 Kbps] <Instrumental, Easy listening, Co
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. David Guetta, Johnny Valdivia - Lovers on the Sun
-02. Annalisa, Johnny Valdivia - Sinceramente
-03. Joe Dassin, Johnny Valdivia - Et Si Tu N'existais Pas
-04. Johnny Valdivia - The Beauty of Rose of Versailles(   Читать дальше...   )Жанр: Instrumental, Easy listening, CoverПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FC8546BB2F59AD5542BB850DE2CBC6729B68FDF9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779507.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 779 475
-
-Fidel Wicked - Compilation (2025) [MP3|320 Kbps] <Electronic>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01.  L'amour
-  02.  Wicked Angel
-  03.  Sadness
-  04.  Fidelity(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:29:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C865DC7808A1BDBB44E706B47D3B5C9D0D8044F2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779475.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

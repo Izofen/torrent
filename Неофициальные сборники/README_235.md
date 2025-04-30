@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 576 358
+
+VA - MAXI. Лучшие хиты для убойной вечеринки  2012  [MP3|320 кб с]<Pop, Dance, Club>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. That s Right - Innamorati  Radio Edit 
+02. Оксана Ковалевская - А Девочке Хочется
+03. Alex Megane - Turn Me On  Radio Edit 
+04. Allexinno feat. Starchild - Joanna  Radio Edit 
+05. Paul Van Dyk feat. Plumb - I DonСЌt Deserve You  Radio Edit 
+06. Xilent - Touch Sound
+07. Dirty Deejays - In The Club  Radio Edit 
+08. Inna - J Adore  Radio Edit 
+09. YarosLOVE - Again
+10. DJ Kuba & Ne!tan ft. Heidi Anne - Be My Baby  Radio Edit     Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 04:53:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1EDA85CD512CEF3D786611226AFCD8957D18B6E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_576358.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 576 346
+
+VA - Самые популярные осенние песни  2012  [MP3|320 кб с]<Pop, Rap, Rock, Dance, Club, House>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. 5sta Family - Вместе Мы
+02. ADELE - Rolling in the Deep
+03. Adele - Skyfall
+04. Alex Clare - Too Close
+05. Alex Ferrari - Bara Bara Bere Bere
+06. Alex Gaudino feat. Taboo
+07. Amelia Lily - You Bring Me Joy  Full Single Version   2012 
+08. Arash feat. Sean Paul - She Makes Me Go
+09. Aura Dione Feat. Rock Mafia - Friends
+10. Azuro feat. Elly - Je Ne Sais Pas  R.I.O. Remix     Читать дальше...    Жанр: Pop, Rap, Rock, Dance, Club, HouseПродолжительность: 06:18:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B8D40526F17930C36891E9D1FC2D750ED3BD7B57
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_576346.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 576 082
+
+VA - DubStep - Pro V.4  2012  [MP3|320 кб с]<DubStep>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Adventure Club feat. Kai - Need Your Heart  Minnesota Remix 
+02. Opiuo - Fizzle Tickler  Original Mix 
+03. Ludovico Einaudi - Ascolta  Flaer Smin 3D Chillout Remix 
+04. Carousel - Let s Go Home  Sound Remedy Remix 
+05. Xilent feat. Shaz Sparks - Universe
+06. The XX - Angels  TrapZillas Remix 
+07. Citizen Cope - Lifeline  Figure Remix 
+08. Total Recall feat. Mark McKenzie - Never Let Go  Subsonik Remix 
+09. Krewella - Alive  Pegboard Nerds Remix 
+10. Vexare - Polar    Читать дальше...    Жанр: DubStepПродолжительность: 04:33:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:875D4613F74F9E176293DEA39A531B87991183FF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_576082.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 575 891
+
+VA - Наше Радио: Лучшее и Новое  2012  [MP3|128 кб с]<Рок>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+002. Кукрыниксы - Хрустальный Мир
+003. Сплин - Страшная Тайна
+004. Антитела - Смотри В Меня
+005. Сансара - Любящие Глаза
+006. Lunchbox - Стальная Нить
+007. Алиса - Ангел
+008. Король И Шут - Христова Невеста
+009. Конец Фильма - На Все 100роны
+010. Ддт - Напиши Мне, Напиши
+011. Василий К. & Интеллигенты - Баллада Об Уходе В Рай    Читать дальше...    Жанр: РокПродолжительность: 12:35:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6BB5935F92B7790E8BCB5B239685AFB06709621A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_575891.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 575 875
 
 VA - Самые Горячие Хиты Авторадио 3  2012  [MP3|128 кб с]<Pop>
@@ -2383,130 +2507,6 @@ CD 1
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_555648.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 555 638
-
-VA - Эксклюзив осенних хитов  2012  [MP3|128-320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Alena Barcelona feat. GTM - life - Ты не знаешь слова Нет  Ночной Мир Project Club Mix 
-02. Олеся Астапова - Я И Ты  Версия 2012 
-03. The Scene & Selena Gomez - Love you like a love song  The Alias radio edit 
-04. DJ Niki feat. Soda - Она Не Ты  Radio Edit 
-05. Точка G Feat. Funky Flo - Я Убита, Ты Попал  Dance Version 
-06. Инфинити - Другая  Tony Kart & Andy Groove feat. DJ Pavel Velchev Remix 
-07. Градусы - Время мое
-08. Soda - Разлука
-09. Clark Owen feat. Лена Катина - Melody
-10. Юлия Беретта - Такси    Читать дальше...    Жанр: PopПродолжительность: 06:09:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7AA23FF39274F91D56C4CAF4AEAF44154923BC0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_555638.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 555 447
-
-VA - Kiss FM - Top-40  02.10.2012  [MP3|320 кб с]<Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Armin van Buuren - Orbion
- 02. Parachute Youth - Can t Get Better Than This  Original Mix 
- 03. Gotye - Somebody That I Used To Know  Dberrie Rmx 
- 04. Florence & The Machine - Spectrum  Calvin Harris rmx 
- 05. Dada Life - Happy Violence  Vocal Extended Mix 
- 06. Orjan Nilsen - Amsterdam  Original Mix 
- 07. W&W & Bree - Nowhere To Go  Shogun Rmx 
- 08. Armin Van Buuren - We Are Here To Make Some Noise
- 09. Skrillex & Members of The Doors - Breakn  A Sweat  Zedd Rmx 
- 10. Zedd & Matthew Koma - Spectrum  Armin Van Buuren Rmx     Читать дальше...    Жанр: DanceПродолжительность: 03:34:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3BFF615AD91BD9BD5CEE688F128B6971C4F77DD7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_555447.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 555 337
-
-VA - Хиты 2012 Русский Шторм  2012  [MP3|112-320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001.  A.R.M.I.Ya - Клянусь
- 002.  A-Dessa - Fire  Нет Wifiя Mix 
- 003.  Aleksandr Shoua  Ex. Nepara  - Солнце Над Моей Головой
- 004.  Alena Barcelona Ft Gtm-Life - Ты Не Знаешь Слова Нет  Ночной Мир Project Club Mix 
- 005.  Alexey Romeo & Алина Артц - Прекрасная Ложь  With Love Remix 
- 006.  Alina Artc - Со Мной По Другому Нельзя
- 007.  Alyosha  Alesha  - Твои Слова
- 008.  Ana Baston - Страшная
- 009.  Andreas - Дым...Твоя Любовь
- 010.  Andy Groove Ft. Danila Rastv & Женя Юдина - Для Нас  Ivan Art Remix Жанр: PopПродолжительность: 12:24:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90D23948A59E9BAB0309B8037A85B011854C1CAA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_555337.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 555 213
-
-VA - Инструментальная музыка  2012  vol. № 93 [MP3|320 кб с]<Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Mario Battaini - Storielle Del Bosco
-02. McCartney - Ebony And Ivory
-03. Анс. Арсенал - Танго
-04. Armik - Santa Barbara
-05. G.Marradi - Angelitos Negros
-06. А.Шишков -  Серебрянный лотос
-07. Arabian Night - Cinema
-08. Fitoussi - Words
-09. Jo Courtin - Le Plus Beau Tango Du Monde
-10. Е.Дога - Мелодии из кинофильмов    Читать дальше...    Жанр: InstrumentalПродолжительность: 01:55:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:09ADEB0B54F5FE048BA1E52B7DAA5140AB2826E7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_555213.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

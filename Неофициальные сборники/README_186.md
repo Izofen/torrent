@@ -1,4 +1,101 @@
 ﻿
+###  Публикация: 928 437
+
+VA - Популярный музыкайф новинок  2015  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Мохито - Я Не Могу Без Тебя  Sasha Abzal Radio Edit 
+02. Chris Brown - Body Shots
+03. Embody Feat. Obenewa - Bad News
+04. Оксана Почепа - Я Не Знаю Как Птицы    Читать дальше...    Жанр: PopПродолжительность: 06:18:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9A24E75E335C87BDF37DD19AD319F944796AB626
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_928437.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 928 424
+
+VA - Best Of Dance 2000s  2015  [MP3|320 кб с]<Club, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Switch - A Bit PatchyЖанр: Club, DanceПродолжительность: 09:03:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:00AFBD3FAC4756EF940CA7D9BF119640D981EA1D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_928424.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 928 420
+
+VA - The Best Dance Hits Of 90 s-2  2015  [MP3|320 кб с]<Pop, Eurodance, House,Techno, Tranc
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001 La Bouche-Be My Lover 4:01
+002 Masterboy-Feel The Heat Of The Night 6:43
+003 Sash!-Adelante 6:49
+004 Jam & Spoon-Right In The Night Fall In Love With Music  3:47    Читать дальше...    Жанр: Pop, Eurodance, House,Techno, TranceПродолжительность: 16:48:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:60F1D30122D7DEE9608F826206A4452CE3907E62
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_928420.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 928 384
+
+Family Of The Year - Collection  2010 - 2015  [MP3|320 кб с]<Alternative, Indie Pop Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. The Barn
+02. The Princess And The Pea  feat. Willy Mason 
+03. St. Croix
+04. In The End    Читать дальше...    Жанр: Alternative, Indie Pop RockПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65D017F17F20075D4C07BCFE4C9568F7B8823F03
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_928384.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 928 370
 
 Tumbleweed Wanderers - Collection  2012 - 2015  [MP3|320 кб с]<Classic Rock, Indie Rock, Indie
@@ -1895,106 +1992,6 @@ VA - Summer Beach Party  2015  [MP3|320 кб с]<Euro, Dance, Club, Vocal, Progr
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_924535.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 924 497
-
-VA - Tomorrow Night  2015  [MP3|320 кб с]<Deep, Chill House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Self Explanatory - Penumbra
-02. Soul Emphasis - Going Deeper
-03. Mighty Real - Atonality
-04. Sigother - Double Motion    Читать дальше...    Жанр: Deep, Chill HouseПродолжительность: 09:39:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:967E19BC855B0EEDF7954F49D88E2495C91094A7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_924497.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 924 485
-
-VA - The Sounds Of The Underground 03  DJ Mix By Deeper82   2015  [MP3|320 кб с]<Deep Hous
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Arctic Night - Wake Me Up  Adam-P Still Dreaming Remix 
-02. Techtower - Wonderland  Original Mix 
-03. 10dens Feat. Velb - Scila  Original Mix 
-04. Jallen - Far From Here  Original Mix     Читать дальше...    Жанр: Deep House, Progressive HouseПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B85FFC9E9A848BB344394CBDB292C906920EC2AD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_924485.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 924 402
-
-VA - 100 Хитов В Машине. Клубная музыка 2015  2015  [MP3|320 кб с]<Trance, Progressive Trance,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. A3 - Stay  Stereojackers Vs. Mark Loverush Club Mix 
-002. Adam Lamber - Ghost Town  Future Nation Remix 
-003. Ahmed Romel, Harmonic Rush - Sevda  Original Mix 
-004. Alessandra Roncone - Place Of Dreams  Sy Gardner Remix     Читать дальше...    Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 11:13:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1BFCCF620F3D7E829079D7B724F61FA6B3C93BBE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_924402.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 924 395
-
-VA - Top 100 Самых Красивых Песен 2015  2015  [MP3|320 кб с]<Pop, Dance, Club, Blues, Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. One Direction - Drag Me Down
-002. Mike Posner - I Took A Pill In Ibiza
-003. Turbotronic - Kick Some Ass
-004. Team BS - Case Depart    Читать дальше...    Жанр: Pop, Dance, Club, Blues, RockПродолжительность: 08:49:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B90D1D3EADBDAD5F4757AFBE25BE5D0B2C50A782
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_924395.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

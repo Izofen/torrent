@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 010 585
+
+Ladies Of Soul - Live At The Ziggo Dome  2016   [FLAC|Lossless|image + .cue] <Pop, RnB, Soul, Di
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Ouverture 2016 1:30
+02. Feel Good 3:39
+03. Night To Remember 2:23
+04. Soul & Supremes Medley 8:46    Читать дальше...    Жанр: Pop, RnB, Soul, Disco, FunkПродолжительность: 02:38:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0ADF310D0C9D1889C609CAD2100DE12C28A7B027
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010585.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 010 113
+
+Dami Im - Classic Carpenters  2016  [FLAC|Lossless|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01.  They Long to Be  Close to You    03:43
+02. There s a Kind of Hush  All Over the World     03:04
+03. Yesterday Once More    04:02
+04. Superstar    03:14    Читать дальше...    Жанр: PopПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6D3A5937221E02BAD0F6830F6C130ED4511EDE68
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010113.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 010 074
+
+Katy B - Honey  2016  [MP3|320 кб с] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Honey
+02. Who Am I  feat. Craig David & Major Lazer 
+03. So Far Away
+04. Chase Me    Читать дальше...    Жанр: PopПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:52BE712D09ED253C4C8369981BF819945B6BDE56
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010074.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 009 975
 
 VA - Radio 538 Hitzone 77  2016  2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
@@ -1926,81 +2001,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_998126.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 998 083
-
-a-ha - Time And Again: The Ultimate a-ha 2 CD  2016  WEB [MP3|320 кб с] <Pop-Rock, Synthpop, N
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Take On Me  2016 Remastered   3:47 
-02. The Sun Always Shines On TV  2016 Remastered   5:06 
-03. Hunting High And Low  7  Remix   2016 Remastered   3:47 
-04. I ve Been Losing You  2016 Remastered   4:24     Читать дальше...    Жанр: Pop-Rock, Synthpop, New-Wave, ElectronicПродолжительность: 02:38:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:01DE8C58A644FB93209524FEE21A68E9BF56F45B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_998083.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 946
-
-Gwen Stefani - This Is What the Truth Feels Like  2016  Japan Deluxe Edition [MP3|320 кб с] <P
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Misery
- 02. You re My Favorite
- 03. Where Would I Be?
- 04. Make Me Like You    Читать дальше...    Жанр: PopПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40AA7FB50115F29A9DAFFAC581F390F9AEB74363
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997946.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 934
-
-Комиссар - Дрянь  1998  [FLAC|Lossless|tracks + .cue] <Europop, Euro House, Synth-pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Дрянь  4:48 
-02. Телефон  Сгорая Огнём   4:47 
-03. Первый Полёт  5:14 
-04. Падла  Какая Же Ты   4:27     Читать дальше...    Жанр: Europop, Euro House, Synth-popПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFAC35CB148DFC7B62A8CB4C2366EDFA9D2422B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997934.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

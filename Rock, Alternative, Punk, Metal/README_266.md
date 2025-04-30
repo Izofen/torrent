@@ -1,4 +1,404 @@
 ﻿
+###  Публикация: 1 306 498
+
+The Hawkmen - The Hawkmen  2019  [MP3|320 Kbps] <Rhythm & Blues, Rockabilly>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Love is blind  02:53 
+02. Soulful dress  02:59 
+03. Acai  02:44 
+04. Chemistry of love  03:07     Читать дальше...    Жанр: Rhythm & Blues, RockabillyПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D732793FF3E283EACE467C2656FB682EC64F827
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306498.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 343
+
+K-Man & The 45s - Stand With The Youth  2019  [FLAC|Lossless|tracks + .cue] <Rock, Punk, Ska>
+Rock, Alternative, Punk, Metal
+Alternative, Punk  Lossless 
+
+###  Подробнее
+
+01. Stand With the Youth  3:12 
+02. Hero With a Death Ray  1:36 
+03. Watcha Doing to Me  2:49 
+04. Get Outta My Head  2:08     Читать дальше...    Жанр: Rock, Punk, SkaПродолжительность: 33:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBD0901BFD8CA06BD6F487B03D8698C5BECBA996
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306343.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 341
+
+Mono Inc. - Symphonic: Live  2019  2CD [MP3|320 kbps] <Gothic Rock, Alternative Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+CD1:
+01 | Welcome to Hell | 04:04
+02 | Kein Weg zu Weit | 04:42
+03 | Long Live Death | 04:23    Читать дальше...    Жанр: Gothic Rock, Alternative RockПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0227E944461578E0999241DE9AD84929559CDB3E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306341.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 340
+
+Lonely Robot - Under Stars  2019  [MP3|320 kbps] <Progressive Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Terminal Earth  01:55 
+02. Ancient Ascendant  05:47 
+03. Icarus  05:20 
+04. Under Stars  05:16     Читать дальше...    Жанр: Progressive RockПродолжительность: 01:08:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A91E0FE8200E91E7FFB9D70E2C275AEFF89A0B7A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306340.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 339
+
+Opprobrium - The Fallen Entities  2019  [FLAC|Lossless|tracks + .cue] <Metal, Death Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+1. Dark Days, Dark Times  3:57 
+2. Creations That Affect  4:53 
+3. Wicked Mysterious Events  5:24 
+4. The Fallen Entities  5:19     Читать дальше...    Жанр: Metal, Death MetalПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC0C1ABDF900680BBDBE5719F4AF6AA1615A0C0E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306339.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 322
+
+The Dead Deads - The Dead Shall Dance: Live  2018  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Introduction  Live 
+02. Space  Live 
+03. Murder Ballad  Live 
+04. Ghosts  Live     Читать дальше...    Жанр: RockПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:395E7385024425A06800CCB915D431522937AC4D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306322.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 308
+
+Tiger Lou - Trouble And Desire And B-Sides  2019  [MP3|320 Kbps] <Indie Rock, Alternative Rock>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Sam, as in Samantha
+02. Nova Lee
+03. When I Was a Kid
+04. Trouble and Desire    Читать дальше...    Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A884BB9EBCB0DAFDD82C7C9473BEE8012F1746D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306308.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 307
+
+Elvenking - The Scythe  2007  [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. The Scythe
+02. Lost Hill of Memories
+03. Infection
+04. Poison Tears    Читать дальше...    Жанр: Power Metal, Folk MetalПродолжительность: 01;00:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89CD9FE3F4A77FAD03D0B3C77DCCBA104DE0B13A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306307.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 289
+
+Rammstein - Rammstein  2019  Deluxe Edition [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Härt
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01 - Deutschland [5:23]
+ 02 - Radio [4:37]
+ 03 - Zeig Dich [4:16]
+ 04 - Auslander [3:52]    Читать дальше...    Жанр: Industrial Metal, Neue Deutsche HärteПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D18E9304AD101A31461A6911D406FF3C44881973
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306289.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 189
+
+LAMPOCHKA & Abazur - Вкл Выкл  2019  [MP3|320 kbps] <Pop-Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Признание  03:46 
+02. Где мое сердце?  03:38 
+03. Малышка  04:53 
+04. Поцелуй  03:34     Читать дальше...    Жанр: Pop-RockПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:817930B840521C5AB73055C0F7EA5D2F62EEF8F8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306189.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 178
+
+Chrome - Addictions  2019  [MP3|320 kbps] <Progressive Rock, Female Vocal>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Alive Again  06:45 
+02. Heart on Fire  06:00 
+03. Rhody  03:50 
+04. Addiction  05:18     Читать дальше...    Жанр: Progressive Rock, Female VocalПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C69CE0F70EC882FF3D0FEC72A0190948D71168F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306178.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 115
+
+Taking Back Sunday - Twenty  2019  [MP3|320 Kbps] <Rock, Alternative>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Cute Without The  E   Cut From The Team 
+02. You re So Last Summer
+03. Timberwolves At New Jersey
+04. A Decade Under the Influence    Читать дальше...    Жанр: Rock, AlternativeПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5F4A088A6403A432F1B6D52402035B7348D7A6E2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306115.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 027
+
+Phil Collins - Other Sides  2019  [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+1 - In the Air Tonight  Demo  [4:59]
+ 2 - I Missed Again  Demo  [4:09]
+ 3 - If Leaving Me Is Easy  Demo  [5:14]
+ 4 - The Man with the Horn [3:59]    Читать дальше...    Жанр: Pop RockПродолжительность: 01:26:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FEED0917A41FAC3BFB27F582DB4B44656943843F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306027.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 305 914
+
+Всё Равно - 5 альбомов, 1 сингл  2009-2019  [MP3|192-320 Kbps] <Punk, Punk Rock>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+2009 - Всё Ровно
+2011 - Русский Рок
+2015 - Хочу курить  Single 
+2017 - Деда Мороза нет!Жанр: Punk, Punk RockПродолжительность: 01:59:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9927971582AC3A717423698821425168CB7A71A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1305914.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 305 905
+
+Amon Amarth - Berserker  2019  Japanese Edition, 2CD [MP3|320 kbps] <Melodic Death Metal, Viking
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+CD1:
+01 | Fafner s Gold | 05:01
+02 | Crack The Sky | 03:50
+03 | Mjolner, Hammer Of Thor | 04:43    Читать дальше...    Жанр: Melodic Death Metal, Viking MetalПродолжительность: 02:14:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57885EF75AF5E7CF504954869A6E88C22FE57438
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1305905.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 305 904
+
+Crazy Lixx - Forever Wild  2019  [MP3|320 kbps] <Hard Rock, Glam Metal>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+01. Wicked  03:47 
+02. Break Out  04:52 
+03. Silent Thunder  05:09 
+04.  She s Wearing  Yesterday s Face  03:49     Читать дальше...    Жанр: Hard Rock, Glam MetalПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9660A4ADACA9F96774CFC9895CC7308CFDCD4DD9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1305904.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 305 902
 
 Tank - Re-Ignition  2019  Japanese Edition [MP3|320 kbps] <Heavy Metal>
@@ -1591,406 +1991,6 @@ Hard Rock (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1303376.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 303 159
-
-Znaki - Видеть больше  2019  [FLAC|Lossless|tracks + .cue] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок  Lossless 
-
-###  Подробнее
-
-01. Разнообразно
-02. Странник
-03. Повезёт
-04. Видеть больше    Читать дальше...    Жанр: RockПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8341B129287A15A9FC4F91C042E433359B613668
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1303159.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 303 117
-
-The Dream Syndicate - These Times  2019  [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. The Way In  02:41 
-02. Put Some Miles On  04:00 
-03. Black Light  04:40 
-04. Bullet Holes  04:02     Читать дальше...    Жанр: Alternative RockПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D99C599E5059BEF1CD32461DD803FAE3D2D587D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1303117.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 303 110
-
-Root Cellar Xtract - Lonesome Miles  2019  [FLAC|Lossless|tracks + .cue] <Country Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. South Dakota Sky  04:51 
-02. Mystery Lady  05:07 
-03. Everytime  05:15 
-04. Kentucky Heartbreak  03:17     Читать дальше...    Жанр: Country RockПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:03EB05560691893D46F53119BAEAF352F33DD458
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1303110.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 303 071
-
-Santiano - Haithabu - Im Auge des Sturms  2018  [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-Немецкая группа из Фленсбурга. Исполняет музыку в различных народных жанрах, преимущественно это немецкая народная музыка, ирландская народная музыка и морская песня шанти.1. Mädchen von Haithabu
-2. Hart am Wind
-3. Du machst mir Mut
-4. Könnt ihr mich hören    Читать дальше...    Жанр: Folk RockПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7EA632C3B6D1216C752EF8B86EF6E422B67817D8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1303071.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 303 070
-
-Possessed - Revelations Of Oblivion  2019  [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01.Chant Of Oblivion
-02.No More Room In Hell
-03.Dominion
-04.Damned    Читать дальше...    Жанр: Thrash, Death MetalПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C4665A96B05D1D9FA63699BCEEE78B78A42AF082
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1303070.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 943
-
-Rammstein - Rammstein  2019  [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Deutschland
-02. Radio
-03. Zeig Dich
-04. Ausländer    Читать дальше...    Жанр: Industrial MetalПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6BD65EDAE3965FF9B19446BAC8C6E856B32FA6DA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302943.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 870
-
-MajorVoice - The Newer Chapter  2019  [FLAC|lossless|image + .cue] <Gothic Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Shot In The Silence  04:53 
-02. Stay  04:22 
-03. Wicked Game  04:37 
-04. Here With Me  03:47     Читать дальше...    Жанр: Gothic RockПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9770DE8781B421CD8C0C68DB054B9F0429FCB501
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302870.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 731
-
-Звери - У тебя в голове  2019  EP [MP3|320 Kbps] <Pop Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Вездеходик
-2. Лунатик
-3. Котёнок
-4. Мотылёк    Читать дальше...    Жанр: Pop RockПродолжительность: 00:16:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A1DA76E897178C6DB350F93EA28930FDB73A63C0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302731.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 715
-
-Rammstein - Rammstein  2019  Special Edition [FLAC|Lossless|image + .cue] <Neue Deutsche Härte>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Deutschland  5:23 
-02. Radio  4:37 
-03. Zeig Dich  4:16 
-04. Auslander  3:52     Читать дальше...    Жанр: Neue Deutsche HärteПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F6623E53EC6AB6881706824B0C5D76FC44B2012
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302715.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 634
-
-New Years Day - Unbreakable  2019  [MP3|320 kbps] <Alternative Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. Come For Me  03:34 
-02. MissUnderstood  03:15 
-03. Skeletons  03:32 
-04. Unbreakable  04:10     Читать дальше...    Жанр: Alternative MetalПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:523652458BCF2B2D11FE0A89A35B1BD09AF9034B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302634.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 626
-
-Barbe-Q-Barbies - Borrowed Time  2019  [MP3|320 kbps] <Hard Rock, Female Vocal>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. Intro  00:17 
-02. Diz-Funk-Tional  03:11 
-03. Alive  04:43 
-04. Hangman s Song  02:53     Читать дальше...    Жанр: Hard Rock, Female VocalПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:846D56BF202C8617CFC8FA112434715F0F833C1B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302626.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 593
-
-Morabeza Tobacco - Morabeza Tobacco  2019  [FLAC|Lossless|tracks + .cue] <Аlternative, Dream - P
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Almost Home  04:24 
-02. Kiss of Death  03:43 
-03. TTYL  03:52 
-04. A little longer  04:25     Читать дальше...    Жанр: Аlternative, Dream - Pop, Lo-FiПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13645BDF5AA1EE10A10C9065653DC87231E24905
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302593.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 575
-
-The Coathangers - The Devil You Know  2019  [FLAC|Lossless|tracks + .cue] <Punk, Garage Rock>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Bimbo  02:46 
-02. 5 Farms  02:31 
-03. Crimson Telephone  03:10 
-04. Hey Buddy  02:57     Читать дальше...    Жанр: Punk, Garage RockПродолжительность: 00: 31:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40294D4E063CDDDD99A242EA663CF38F2C2A70C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302575.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 543
-
-The Partners In Crime - Hoodoo Souls  2019  [MP3|320 Kbps] <Rock & Roll>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. Muddy Was So Right  03:24 
-02. My Way  02:33 
-03. Rockin  Robin  03:08 
-04. Broken Doll  02:51     Читать дальше...    Жанр: Rock & RollПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2BA4D5E4F1BA61BA6BDF9F3224B873DB6A69B803
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302543.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 538
-
-Rodrigo y Gabriela - Mettavolution  2019  [FLAC|Lossless|tracks + .cue] <Rock, Acoustic, Folk>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-1. Mettavolution  04:04 
-2. Terracentric  03:33 
-3. Cumbé  03:19 
-4. Electric Soul  03:58     Читать дальше...    Жанр: Rock, Acoustic, FolkПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1754E148A4523CD875F6BA67E4A989DF35136757
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302538.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 302 443
-
-John Illsley  Ex. Dire Straits  - Coming Up For Air  2019  [FLAC|Lossless|image + .cue] <Roc
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-John Illsley - бас-гитарист Dire Straits. Он был одним из основателей группы и оказал значительное влияние на формирование их музыкального стиля. К моменту распада группы остался единственным участником оригинального состава помимо бессменного лидера группы Марка Нопфлера.01. Old Amsterdam
-02. Double Time
-03. Coming Up For Air
-04. So It Goes    Читать дальше...    Жанр: Rock, Blues-Rock, Folk-RockПродолжительность: 00:32:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF9563D9C0F51384C618CE652AA443C51D8158D9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302443.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

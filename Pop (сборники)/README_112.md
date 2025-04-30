@@ -1,4 +1,97 @@
 ﻿
+###  Публикация: 840 696
+
+Gloria Gaynor - I Will Survive.  The Anthology  1998  2CD [FLAC|Lossless]<Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Casanova Brown  6:25 
+02.  If you want it  do it yourself  5:57 
+03. How high the moon  6:32 
+04. Real good people  3:02 
+05. Walk on by  5:43 
+06. What ll I do  4:34 
+07. I love you cause  5:03 
+08. When you get around to it  3:57 
+09. Let me know  I have a right   8:21 
+10. Tell me how  3:10     Читать дальше...    Жанр: DiscoПродолжительность: 02:18:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A1527EEB306BC8AFEF96B5CA76C84673F8387DE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_840696.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 840 695
+
+Matia Bazar - Studio Collection  2002  2CD [FLAC|Lossless]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Stasera Che Sera  3:23 
+02. Besame  4:43 
+03. Fantasia  4:13 
+04. Il Video Sono Io  3:56 
+05. Se Tu  5:11 
+06. Fuori Orario  4:49 
+07. Nell era Delle Automobili  4:28 
+08. Noi  5:07 
+09. La Prima Stella Della Sera  4:31 
+10. Mi Manchi Ancora  5:28     Читать дальше...    Жанр: PopПродолжительность: 02:16:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:54AF79160D87238E9166B9681FA51BB7D91E4164
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_840695.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 840 609
+
+Nick Jonas - Nick Jonas  2014  Deluxe Version [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Chains
+02. Jealous
+03. Teacher
+04. Warning
+05. Wilderness
+06. Numb  Feat. Angel Haze 
+07. Take Over
+08. Push
+09. I Want You
+10. Avalanche  Feat. Demi Lovato     Читать дальше...    Жанр: Pop, Teen Pop, RockПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6BBCE42D6D7C9F4F6EAF83267358EA34E51F09F3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 840 591
 
 Train - Bulletproof Picasso  2014  [MP3|320 кб с]<Pop Rock>
@@ -2320,92 +2413,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:D72723BB8F270FC6D4525538B324FBDC361EEF1E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 830 563
-
-Мальвина - 2 альбома  1990  [MP3|192 кб с]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-1990 - Магнитный альбом
-1990 - НочьЖанр: ПопПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E83BFD1CDFC4FE53F7F0E63313F030AD80F9AB7F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_830563.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 830 219
-
-Jessie Ware - Tough Love  2014  Deluxe Edition [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Tough Love
- 02. You & I  Forever 
- 03. Cruel
- 04. Say You Love Me
- 05. Sweetest Song
- 06. Kind Of...Sometimes...Maybe
- 07. Want Your Feeling
- 08. Pieces
- 09. Keep On Lying
- 10. Champagne Kisses    Читать дальше...    Жанр: PopПродолжительность: 00:58:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6BD298560243052DF8C8E8FDBE5CD0390A637AA1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 830 103
-
-VA - NRJ Hit Music Only 2014 Vol. 2  2014  [FLAC|Lossless]<Top 40, Pop, Electronic, Dance, Club,
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. David Guetta feat. Sam Martin - Lovers On The Sun  3:24 
-02. Coldplay - A Sky Full Of Stars  Radio Edit   3:55 
-03. Charli XCX - Boom Clap  2:48 
-04. Fréro Delavega - Sweet Darling  2:42 
-05. Iggy Azalea feat. Charli XCX - Fancy  3:17 
-06. Nico & Vinz - Am I Wrong  4:04 
-07. Indila - Run Run  3:44 
-08. Hardwell & Joey Dale feat. Luciana - Arcadia  3:14 
-09. Fly Project - Toca Toca  Radio Edit   2:46 
-10. Tal - Marcher au soleil  3:21     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Electronic, Dance, Club, House, Synthpop, R&B, Soul, Reggaeton, ZoukПродолжительность: 02:13:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9E94A9864363078BDBF44E402BB1E2D7BB6713F
 ```
 
 <div id="header" align="center">

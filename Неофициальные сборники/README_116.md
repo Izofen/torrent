@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 168 686
+
+VA - Autumn Rock Blues Collection  2017  [MP3|320 Kbps] <Blues, Rock Blues, Lyric>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Ray Fuller and the Bluesrockers - Voodoo Mama
+002. Larry Miller - Come Hell or High Water
+003. John the Revelator - A woman knows
+004. Popa Chubby - Bye Bye Love    Читать дальше...    Жанр: Blues, Rock Blues, LyricПродолжительность: 10:25:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4D6978A43C43B7A7A4DFFA85FC72B2CF98F6FFEF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1168686.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 168 661
+
+VA - Auto RU Collection  2017  [MP3|320 Kbps] <Русский Рок, Авторская песня, Поп>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Би-2 - Мой Рок-н-ролл    06:45  
+002. Вячеслав Бутусов - Ударная любовь    03:21  
+003. Крематорий - Всадник    02:56  
+004. Жанна Агузарова - Желтые ботинки    03:29      Читать дальше...    Жанр: Русский Рок, Авторская песня, ПопПродолжительность: 06:36:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:383D6C25B5B652A83246EECF049FD7F4CB927EC3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1168661.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 168 573
+
+VA - TimeLess Heart Mix: Psy Trance Story  2017  [MP3|320 Kbps] <Psychedelic, Psy Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Axawaya - Gipsy
+002. Aerospace - Corrupted
+003. Enarxis - Future Reality
+004. Mechanical Circles - Shining Dust    Читать дальше...    Жанр: Psychedelic, Psy TranceПродолжительность: 12 :49 :56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:750B5296F825928FD823D7AD910E3DFEA517B4E5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1168573.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 168 535
+
+VA - Lust And Love Vol.2: Alternative Rock Revue  2017  [MP3|192-320 Kbps] <Alternative, Hard Ro
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Elephant Plaza - Naked
+002. Kepler Ten - Ultraviolet
+003. Blackwater Conspiracy - Decadent Highway
+004. Yasi Hofer - Tender Storms    Читать дальше...    Жанр: Alternative, Hard RockПродолжительность: 08:55:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C3199113DEDA38383DC69001F91A060A53EB162
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1168535.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 168 496
 
 Doro - I Am What I Am  Compilation   2017  2CD [MP3|320 Kbps] <Heavy Metal, Hard Rock>
@@ -1888,106 +1988,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1164596.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 164 522
-
-VA - Record Super Chart #502  2017  [MP3|320 Kbps] <House, Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  Don Diablo - Momentum  3:28
-02.  Lucas & Steve vs. Mike Williams & Curbi - Let s Go  4:11
-03.  Kokab - Got U  Ready Or Not   Amice Remix   4:08
-04.  Axwell & Ingrosso - More Than You Know  3:21    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 02:05:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE27415A0183EFAC5FBFF3A1BD8696F0A3A08896
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1164522.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 164 448
-
-VA - Billboard Hot 100 Singles Chart  16.09.2017  [MP3|192-320 Kbps] <Pop, Dance, Euro, Indie, F
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Taylor Swift - Look What You Made Me Do
-002. Luis Fonsi feat. Daddy Yankee - Despacito
-003. Cardi B - Bodak Yellow
-004. DJ Khaled feat. Rihanna & Bryson Tiller - Wild Thoughts    Читать дальше...    Жанр: Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 05:50:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D317EF6398FA1F31FA377ACF2D37711D48C80DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1164448.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 164 440
-
-VA - Romantic Songs of Autumn  2017  [MP3|320 Kbps] <Pop, Rock, RnB>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Rag n Bone Man - The Fire
-002. Lana Del Rey Feat.The Weeknd - Lust For Life
-003. John Mayer - Never On The Day You Leave
-004. Zara Larsson - Endless    Читать дальше...    Жанр: Pop, Rock, RnBПродолжительность: 07:48:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AE499482123E1F7BB8362B173FA568F4DE9A1CFA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1164440.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 164 377
-
-VA - Школьные годы чудесные  2017  [MP3|192-256 Kbps]<Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01 - Мария Пахоменко - Школьный вальс
-02 - Утро школьное, здравствуй! - Детский хор п у В. Соколова
-03 - Здравствуй, песня - Девчонка из квартиры сорок пять
-04 - Детская хор-студия  Пионерия  п у Г. Струве - Школьный корабль    Читать дальше...    Жанр: PopПродолжительность: 01:44:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5B14BB1643126B54F16A861871D049FA9EA5AB3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1164377.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

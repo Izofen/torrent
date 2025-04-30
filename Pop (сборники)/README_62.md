@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 284 936
+
+Voggue - 2 Albums  1981, 1983  LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. I Love To Dance  5:02 
+02. Loverboy  5:25 
+03. Heart On The Line  2:42 
+04. Presto Changeo  4:14     Читать дальше...    Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D8C4947C85C2F0F0189270D060A2E911113B7538
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1284936.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 284 899
+
+Vera Lynn - Something To Remember - Wartime Memories  1995  Mono [FLAC|Lossless|image + .cue] <J
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01 Something To Remember You By
+02 Yours
+03 Wish Me Luck As You Wave Me Goodbye
+04 I ll Pray For You    Читать дальше...    Жанр: Jazz, PopПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EA55B983594AC6245942BF59FC8CA98DACB6C8EE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1284899.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 284 650
+
+Mariah Carey - MTV Unplugged  1992  EP [FLAC|Lossless|image + .cue] <Hip Hop, Soul, RnB>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Emotions
+02. If It s Over
+03. Someday
+04. Vision Of Love    Читать дальше...    Жанр: Hip Hop, Soul, RnBПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C757F38E77B4A7C634FCECE83DADD99C9C32B28D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1284650.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 284 545
 
 VA - The Partytime-Singers - Party-Time  1997  Box Set  3CD [MP3|320 Kbps] <Pop, Cover>
@@ -1917,81 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1278727.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 278 722
-
-Шан-Хай - Звездная коллекция  2000  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Солнечный зайчик [04:20]
-02. Ничего такого [04:59]
-03. Незнакомка [03:36]
-04. Пленник [04:50]    Читать дальше...    Жанр: PopПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3DE951B677FA4578969B978A09B7627200F5AFBA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1278722.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 278 671
-
-VA - 2019 Grammy Nominees  2019  [FLAC|Lossless|tracks] <Pop, rock, dance>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-25-е ежегодное издание компакт-диска с номинантами очередной 61-й по счету премии Grammy предлагается вашему вниманию. Все эти треки уже в той или иной степени были в релизах на нашем трекере, но, думаю, будет не лишне ещё раз пробежаться по лучшим  по мнению организаторов Grammy  темам уходящего года.01. Janelle Monae - Make Me Feel   3:15 
-02. Cardi B, Bad Bunny & J Balvin - I Like It   4:13 
-03. Kendrick Lamar & SZA - All The Stars   3:54 
-04. Drake - God s Plan   3:20     Читать дальше...    Релиз состоялся: 25 января 2019 г.Жанр: Pop, rock, danceПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BDF31DD9805678B05E7B74E95F0BCC6B6ACDD09A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1278671.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 278 665
-
-Boney M. - The Best Of 10 Years. Non Stop-Digital Remix  2002  Mixed, Reissue, Unofficial Releas
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Daddy Cool
-02. Sunny
-03. Ma Baker
-04. Belfast    Читать дальше...    Жанр: DiscoПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7C32A732D12C7E99C4ACE082A2DE287D5BF7FFC6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1278665.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

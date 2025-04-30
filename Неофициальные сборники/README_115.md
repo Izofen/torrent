@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 173 512
+
+VA - HGM The Beach Party  2017  [MP3|320 Kbps] <House, Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Ambassadeurs - Looking At You  Moods Remix 
+002. Frankie - Feel What You Want  Original Mix 
+003. Pulsedriver, Chris Deelay - Geiles Gefuhl  Short mix 
+004. James Curd - Now I Believe  feat. Shaun J. Wright     Читать дальше...    Жанр: House, Dance, ClubПродолжительность: 09:24:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6922F727C47693BF4004ADFF4149CFD53CB6DB14
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1173512.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 173 499
+
+VA - Empire Records - House Clinic 2  2017  [MP3|320 Kbps] <House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. TJR - Time To Jack  Original Mix 
+02. Patrick Hofmann - Noon  Paul Vinx Edit 
+03. Integral - Custom
+04. Azurio - 4.1  Original Mix     Читать дальше...    Жанр: HouseПродолжительность: 02:43:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41DF10F025F4B7B09A13514F7759EFEB2F85B47B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1173499.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 173 462
+
+VA - Vocal Electro Dance Music  2017  [MP3|320 Kbps] <EDM, Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Ace of Base - Beautiful Life  Scorpio & Scrooge Rework 
+002. Akade & Krimsonn ft. Bibiane Z - Life Goes On
+003. Alex Adair - Casual  Thomas Gold Remix 
+004. Fenry Hord - My Love  Fitness Mix     Читать дальше...    Жанр: EDM, Dance, ClubПродолжительность: 08:42:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B562C7F08064C98C1AC06F446F406BB68C4B2B94
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1173462.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 173 440
+
+VA - Workout Mix vol.10  mixed by Dj V   2017  [MP3|320 Kbps] <Club House, Electro House, Bi
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01-Sergey Kutsuev - Tribal Dance  Original Mix 
+02-Major Lazer Feat. Busy Signal - Jump  Shtopor & Mikis Remix 
+03-KRS-One - Sound of Da Police  DMC Mikael Remix 
+04-Tujamo - Boom  Starjack Party Starter     Читать дальше...    Жанр: Club House, Electro House, Big RoomПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:28344D6D0BA69787E4014F3685A900BAB846EF6C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1173440.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 173 394
 
 VA - Best Hits 80s от ALEXnROCK часть 1  2017  [MP3|320 Kbps] <Pop, Disco, Rock>
@@ -1891,106 +1991,6 @@ VA - A Song For You Dance Europarty  2017  [MP3|320 Kbps] <Dance, Pop, Shlager>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1168736.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 168 686
-
-VA - Autumn Rock Blues Collection  2017  [MP3|320 Kbps] <Blues, Rock Blues, Lyric>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Ray Fuller and the Bluesrockers - Voodoo Mama
-002. Larry Miller - Come Hell or High Water
-003. John the Revelator - A woman knows
-004. Popa Chubby - Bye Bye Love    Читать дальше...    Жанр: Blues, Rock Blues, LyricПродолжительность: 10:25:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4D6978A43C43B7A7A4DFFA85FC72B2CF98F6FFEF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1168686.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 168 661
-
-VA - Auto RU Collection  2017  [MP3|320 Kbps] <Русский Рок, Авторская песня, Поп>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Би-2 - Мой Рок-н-ролл    06:45  
-002. Вячеслав Бутусов - Ударная любовь    03:21  
-003. Крематорий - Всадник    02:56  
-004. Жанна Агузарова - Желтые ботинки    03:29      Читать дальше...    Жанр: Русский Рок, Авторская песня, ПопПродолжительность: 06:36:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:383D6C25B5B652A83246EECF049FD7F4CB927EC3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1168661.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 168 573
-
-VA - TimeLess Heart Mix: Psy Trance Story  2017  [MP3|320 Kbps] <Psychedelic, Psy Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Axawaya - Gipsy
-002. Aerospace - Corrupted
-003. Enarxis - Future Reality
-004. Mechanical Circles - Shining Dust    Читать дальше...    Жанр: Psychedelic, Psy TranceПродолжительность: 12 :49 :56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:750B5296F825928FD823D7AD910E3DFEA517B4E5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1168573.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 168 535
-
-VA - Lust And Love Vol.2: Alternative Rock Revue  2017  [MP3|192-320 Kbps] <Alternative, Hard Ro
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Elephant Plaza - Naked
-002. Kepler Ten - Ultraviolet
-003. Blackwater Conspiracy - Decadent Highway
-004. Yasi Hofer - Tender Storms    Читать дальше...    Жанр: Alternative, Hard RockПродолжительность: 08:55:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1C3199113DEDA38383DC69001F91A060A53EB162
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1168535.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 105 957
+
+Иван Дорн - Jazzy Funky Dorn  2017  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Лимонадный  feat. Каста 
+02. Тем более
+03. Уезжать
+04. Безмато    Читать дальше...    Жанр: PopПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:128FD013BA0FD0144B955B27E78CBFC2657847F8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105957.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 105 644
+
+Peter Wilson - Overdrive  2017  2CD [MP3|320 Kbps] <Italo-Disco, Hi NRG, Synth-pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Hold You Tight  03:52 
+02. Brokenhearted  03:55 
+03. Take A Chance On Loving You  03:56 
+04. Overdrive  04:02     Читать дальше...    Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C0EB96DA826F2F8514ACC4AEE75428BB4CD0298
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 105 617
+
+VA - BRAVO Hits 96  2017  [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Sean Paul feat. Dua Lipa - No Lie  3:43 
+02. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye  4:10 
+03. Alan Walker - Alone  2:39 
+04. Nevada feat. Mark Morrison & Fetty Wap - The Mack  2:46     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:36AD1AD45936FE439BCDC0196C4CB0514F9DBA4A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105617.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 105 420
 
 Adolf Stern - More... I Like It   Twenty Seven  1979  7  [MP3|320 Kbps] <Electronic, Italo-D
@@ -1903,81 +1978,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1092545.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 092 420
-
-VA - NRJ Winter Hits  2017  3CD [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - зимний сборник     Читать дальше...    CD1:
-01. Maitre Gims - Tout donner  pilule violette    3:23 
-02. Rag n Bone Man - Human   3:19 
-03. DJ Snake feat. Justin Bieber - Let Me Love You   3:27     Читать дальше...    Жанр: PopПродолжительность: 03:04:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02B68C455F788AB2F719507BB467F19142F1D950
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1092420.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 092 347
-
-The Ritchie Family - The Best Disco in Town  1994  [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-The Rithie Family  USA  Состав: Cheryl Jaks, Cassandra Wooten, Gwen Oliver - vocals. Группа The Rithie Family была сформирована в Philadelphia, PA, USA. Названная по имени их продюсера Pitchie Rome, группа была создана Jacques Morali  также создал Village People  чтобы произвести фурор в disco и dance музыке. Их главный хит - «The Best Disco in Town».01. Brazil   5:14 
-02. Dance With Me   3:55 
-03. Best Disco in Town   6:45 
-04. Arabian Nights   7:27     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CFC55467AE32B7DC1DA60ECA1525689DC0DAD0C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1092347.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 092 156
-
-ABC - Skyscraping  1997  [FLAC|Lossless|tracks + .cue] <Pop, Rock, New Romantic>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Stranger Things 5:18
-02. Ask A Thousand Times 5:13
-03. Skyscraping 4:20
-04. Who Can I Turn To? 3:48    Читать дальше...    Жанр: Pop, Rock, New RomanticПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D7B97977F64010B4DFA32925E1BE4BFB769D304
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1092156.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

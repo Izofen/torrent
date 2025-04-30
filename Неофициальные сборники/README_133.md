@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 106 097
+
+VA - I Love Music! - Trap Edition Vol. 35  2017  [MP3|320 Kbps] <Trap>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Adam Bomb & WKND BAES - Dab  Original Mix  3:36
+002. Afrojack & Jay Karama - Diamonds  Extended Mix  3:21
+003. Andres Fresko x Lit Lords - Fire Squad  Original Mix  2:20
+004. Anevo & Kiso feat. Kayla Diamond - Black Beatles  Original Mix  3:26    Читать дальше...    Жанр: TrapПродолжительность: 05:45:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CA177840A5973D40D4B3D6A018D12A524F9448F4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1106097.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 105 704
+
+VA - Workout Mix vol.7  mixed by Dj V   2017  [MP3|320 Kbps] <Club House, Electro House, Pro
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01-Benny Benassi - Satisfaction  Dj Sergey Dukharin Remix 
+02-2SOULS - Press Play  Original Mix 
+03-Zeskullz vs Falko Niestolik - Rhyme  Mikis & Alex Mad Mash Up 
+04-Far East Movement & Jackal & Bingo Players vs.Noferini & Marini Feat.Criminal Vibes & Alex Shik & Alexx Slam - Rattle  DJ FIOLET Mash Up     Читать дальше...    Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D74591F0B284F5CA9E993ACD82AC7945C8AEA96E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105704.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 105 663
+
+VA - Старый дом. Академия хитов шансона  2017  [MP3|256-320 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Сергей Трунов - Старый Дом
+002. Марина Вальдман и Александр Адмирал - Диалог
+003. Валерий Курас - Песенка
+004. Александр Заборский - Щелкнули затворы    Читать дальше...    Жанр: ШансонПродолжительность: 06:07:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B0056C10CC87A4494082BE8A86070FE529114FD1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105663.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 105 625
+
+VA - Chilltrap Vol. 1 - 7 [Compiled by Zebyte]  2015-2016  [MP3|256-320 Kbps] <Chilltrap>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Anna Yvette - Stars & Moon  Elonious Remix  [03:31]
+02. Disclosure - Help Me Lose My Mind  Mazde Remix  [03:54]
+03. Fademan & Oleg K Feat Lime Kid - Wake Me Up [03:43]
+04. Coeur De Pirate - Wicked Games  Huglife Remix  [03:57]    Читать дальше...    Жанр: ChilltrapПродолжительность: 14:28:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2162F9C0CF6556D8FEF1D9E80C2D9A9016DC9169
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105625.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 105 551
 
 VA - Blues and Rock Ballads  2017  [MP3|160-320 Kbps] <Blues, Rock>
@@ -1892,106 +1992,6 @@ VA - Salsa Gorda Romantica  2017  [MP3|320 Kbps] <Latin Music, Salsa, World Musi
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1101693.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 101 567
-
-VA - LUXEmusic proжект - The Russian Project  2016  [MP3|320 Kbps] <Club House, Deep House, Elec
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Eya - Море  Ivan Spell Remix  04:27
-002. Мот feat. Миша Марвин - А может  Eldar Stuff & Biki Remix  05:06
-003. Кристина Си - Космос  Reznikov & Denis First Remix  05:12
-004. Moт - Капкан  Anton Ishutin Remix  05:58    Читать дальше...    Жанр: Club House, Deep House, Electro House, Future House, House MusicПродолжительность: 26:30:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2CBF1AB9029CE16461CCA90CBAFCBFD87E2800B1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1101567.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 101 528
-
-VA - Танцевальная зима. Снежная сотка версия №8  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Виктор Гурченко - Я Уезжаю 3:20
-002. Dave Till Feat. Big Dawg - Real Love 3:41
-003. София Куценко - Луна 3:34
-004. Dnce - Zoom 3:42    Читать дальше...    Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EDB9A1BCE3833926C3E6D0CBB020E624F3AB4B50
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1101528.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 101 525
-
-VA - Автозвук. Отборный зимний хит выпуск №4  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Craig David - Warm It Up 3:11
-002. Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
-003. Evidelle - Ну Почему 3:40
-004. Juliette Claire - Somebody Else s Lover 3:14    Читать дальше...    Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C184175003DD3181EE9AFD73DA55D58FB8C02FB7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1101525.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 101 519
-
-VA - Душевная музыка на радио Шансон. Сборник №10  2017  [MP3|256 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Андрей Широков - Голубые Города 3:34
-002. Александр Блик - Телогрейка 3:18
-003. Milen - Вишенка На Торте 3:34
-004. Владимир Курский - Колода 3:08    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:55E6FD1648512EB81B02401063C361A8447F9122
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1101519.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

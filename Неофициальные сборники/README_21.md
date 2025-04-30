@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 579 172
+
+VA - Record Super Chart 24.09.2022 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Robin Schulz feat. David Guetta - On Repeat  3:10 
+02. Purple Disco Machine feat. Sophie And The Giants - In The Dark  Denis Bravo Radio Edit   3:10 
+03. Argy - Tataki  5:28 
+04. James Hype & Miggy Dela Rosa - Ferrari  3:05     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:40:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A88C42A17C6FEEBCC24280398B54BF0FC49D4CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579172.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 578 936
+
+VA - Remix NNM 5  2022  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Dj Slon and Катя - Я не дам  Ночное движение Remix   6:20 
+002. Света - Дорога в аэропорт  Ozz and Ali feat Dmitry Rs Remix   5:27 
+003. Оксана Ковалевская  Kraski  - 15 лет  Storm Djs Official Extended Remix   5:13 
+004. Homie - Дай мне силы для кайфа  Vacok Remix   5:04     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 22:05:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0CF53C4225CAFBDB4E29BF7FEF1AFEBF65BD1791
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1578936.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 578 693
+
+VA - ЕвроХит Топ 40 Europa Plus 23.09.2022 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Klangkarussell - Home  3:45 
+02. Cassette - Tell me why  3:07 
+03. Sofia Reyes feat. Jason Derulo & De La Ghetto - 1, 2, 3  3:21 
+04. Maneskin - Supermodel  3:05     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:05:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7EC0BE4EDA9ABF642D80DE1AACF7835CC265FE20
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1578693.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 578 368
+
+VA - TOP Non-Stop 2000-2009 - Lounge & Chillout. Volume 3 (2022) [MP3|192-320 Kbps] <Lounge, Chillou
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Leggo Beast - Quagmire (3:44)
+02. Bent - Duke Thing (2000) (5:02)
+03. Leggo Beast - Big Egg (2001) (4:44)
+04. Aya - Put Your Faith in Us (2004) (3:30)(   Читать дальше...   )Жанр: Lounge, Chillout, Deep HouseПродолжительность: 08:33:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:472FF5556C318EDAF2D21F5854EEFC5961B1093A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1578368.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 578 282
 
 VA - Music News vol.218  2022  [MP3|320 Kbps] <Pop, Dance, Other>
@@ -1893,106 +1993,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1571807.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 780
-
-Zivert: the best  2022  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Credo  3:45 
-02. Это была любовь  feat. Dima Bilan   3:46 
-03. CRY  4:23 
-04. Выдыхай  feat. Три дня дождя   4:21     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:42:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ED4396D4DB83010AF7FA3C99A0BA2B77069EF03B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1571780.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 615
-
-Lynsey De Paul - Compilation  2022  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. My Man and Me
-02. House of Cards
-03. Rockerdile
-04. Water    Читать дальше...    Жанр: PopПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:58521741E0DB9B2412962EF4F89C66A8800F0828
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1571615.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 584
-
-Avalanche - Compilation  2022  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Always
-02. Once Upon a Time
-03. If You Ever Want to Love Again
-04. All Blame on Love    Читать дальше...    Жанр: PopПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB7BBEAEA9D96CB006E97DF27C7B698634CCEA41
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1571584.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 571 535
-
-VA - TOP Non-Stop 2010-2019 - Progressive House  2022  [MP3|192-320 Kbps] <Progressive House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Burhan Yuksekkas - Awaking  2013   4:54 
-02. Christopher Fafa - 05.20 A.M.  Diego Ferran s  deep mix , 2016   6:09 
-03. Kaito Aman - Comand Ashtar  2019   9:24 
-04. Santini & SpeakOf - Melodrama  2018   5:30     Читать дальше...    Жанр: Progressive HouseПродолжительность: 10:57:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F579A9296D5B9A18A6F56B01603944A18638C930
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1571535.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

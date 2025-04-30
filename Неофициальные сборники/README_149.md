@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 056 794
+
+VA - Google Play Music : Громкие новинки месяца - Сентябрь  2016  [MP3|320 Kbps] <House, Club Ho
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. DJ Mika Richi Art - Arabian  Original Mix   5:34
+002. Captain Monkey - Liquid Soul  Original Mix   9:50
+003. Neon Musk - Azure  4:55
+004. Joonas Hahmo - African Dreams  Original Mix   5:39    Читать дальше...    Жанр: House, Club House, Pop, RnB, DanceПродолжительность: 09:13:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2AF9D0688F984DA5424EB6E252C5105F72D5C365
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056794.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 056 758
+
+VA - TOP DJs Trance Sounds Melody World  2016  [MP3|320 Kbps] <Trance, Melodic, Uplifting Trance
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. PvR - Legacy Of Ephemeris  Abandoned Rainbow Remix   5:38
+02. Matt Chowski - Simply Magic  Emanuele Congeddu s Magical Touch   6:38
+03. Mostfa & Mostfa - Nosara  French Skies Remix   8:24
+04. Kaimo K & Cathy Burton - You Deserve Life  Mino Safy Remix   7:09    Читать дальше...    Жанр: Trance, Melodic, Uplifting Trance, Tech Trance, Emotional, Energy, ProgressiveПродолжительность: 09:18:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:75BAB812DFC6DD668A57C7E5A9AEC6EC817FD617
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056758.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 056 695
+
+VA - Beatport Trance Pack  25.09.   2016  [MP3|320 Kbps] <Trance, Energy, Progressive>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Ronski Speed Ft Linnea Schossow - Set Me To Light  Extended Mix   6:37
+02. Sean Mathews - What Lies Ahead  Original Mix   6:21
+03. Andre H - Grey Flowers  Perrelli & Mankoff Remix   7:18
+04. Asteroid - Gravitation  Extended Mix   6:44    Читать дальше...    Жанр: Trance, Energy, ProgressiveПродолжительность: 02:58:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C376C83C5D6EB359DCC4FEE6FA5E8A43C038451F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056695.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 056 689
+
+VA - Future Eurodance Hits  2016  [MP3|320 Kbps] <Hands Up, Dancecore>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Shilton - Lift Me Up  Bmonde Edit   feat. Lightwarrior   3:10
+02. Jockeyboys - Higher 2k16  Mumdy Remix   feat. Nance   3:08
+03. J & V - I Just Wanna Dance  S.g. Soun diver Remix   4:04
+04. DJ Dark & MD - Sleeping Satellite  Randy Norton Edit   feat. Vera Russo   3:16    Читать дальше...    Жанр: Hands Up, DancecoreПродолжительность: 02:01:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F8538567537D2DD3E874679BA8CEBD0913610F7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1056689.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 056 634
 
 VA - Romantic Ballads  2016  [MP3|320 Kbps] <Pop>
@@ -1892,106 +1992,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1050944.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 050 934
-
-VA - Улетная попсовая 100ка  2016  [MP3|192-256 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Полина Гагарина - Танцуй Со Мной
-002. Анна Плетнёва - Сильная Девочка
-003. Тори - Давай Играть
-004. Аркадиас - Сон Где Мы Вдвоем    Читать дальше...    Жанр: PopПродолжительность: 06:08:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C4F21DC1435C1F42B115B92ADAB516773D6DFE70
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1050934.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 050 915
-
-VA - Звездный Хит - Парад. Русский Выпуск  2016  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Мерседес - На Крыльях Любви
-002. Слот - Круги На Воде
-003. Блокбастер - Девушка-Печаль
-004. Потап & Настя - Вадимка Зачем Ты    Читать дальше...    Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CDA7C8BE776CFA7F517DD39EA08A498D9C0C68B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1050915.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 050 862
-
-VA - Все Хиты 80х Зарубежный Часть 3  2016  [MP3|320 Kbps] <Pop, Rock>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Bucks Fizz - Making Your Mind Up
-002. Bow Wow Wow - Go Wild in the Country
-003. Daryl Hall & John Oates - Maneater
-004. Men Without Hats - The Safety Dance    Читать дальше...    Жанр: Pop, RockПродолжительность: 06:18:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B56B16586C101334933F78528BE9815F5A775E7C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1050862.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 050 754
-
-VA - Умная Электроника  Музыка Поднимающая Настроение  Часть 3  Compiled by Zebyte   2016<
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Kombinat 100 - Hanne Nute  06:33 
-02. Umami - Anything  06:47 
-03. Dole & Kom - Rose  06:50 
-04. Pupkulies & Rebecca - Ton Chauffeur  Seth Schwarz Remix   05:36     Читать дальше...    Жанр: Electro Swing, Deep House, Techno SwingПродолжительность: 02:45:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F3835D3028688B7A3BAEE7BF30A13CC80EED087
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1050754.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

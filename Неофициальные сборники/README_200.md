@@ -1,4 +1,127 @@
 ﻿
+###  Публикация: 835 205
+
+VA - Hardcore Top 100 - Best Of 2014  2014  [MP3|320 кб с]<Techno, Hardcore, Schranz>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. N3AR & Lowroller - Minnesota [04:21]
+002. The Wishmaster - Everybody Hardcore [04:28]
+003. Amnesys & Tommyknocker Ft. Jessica Pearson - Eliminate [04:29]
+004. N-Vader - The Enemy [04:18]
+005. Placid K - G Member  Placid K 8PM Remix  [04:31]
+006. Miosa Ft. MC Rephex - Going Hard [05:27]
+007. Cruel Intentions - Slaves Ever Since [05:10]
+008. Biorekk - Get Up on this [05:12]
+009. Decipher & Shinra - Execute [05:30]
+010. Endymion - Gladiator  Album Edit  [03:48]    Читать дальше...    Жанр: Techno, Hardcore, SchranzПродолжительность: 10:39:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5901BB49BF51A715FF509B6A750757428001F3B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 835 199
+
+VA - Hardstyle Top 100 Best of 2014  24.10.2014  [MP3|320 кб с]<Techno, Hardstyle, Jumpstyle>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Audiotricz & TNT - Ghettoblaster  Edit  [03:24]
+002. Code Black - Unleash the Beast  Defqon.1 Australia Anthem 2014   Edit  [05:01]
+003. Dillytek Ft. Missjudged - This Moment [05:30]
+004. Pherato - Start Living [04:19]
+005. Max Enforcer - Journey [05:56]
+006. Audiofreq Ft. Teddy - Elevation [04:16]
+007. Atmozfears & Energyzed - Rapture [04:42]
+008. Toneshifterz - Wild Wild Weekend  the Qontinent Anthem 2014  [06:33]
+009. Crystal Lake - BVRN! [04:29]
+010. Joeysuki & Kill the Buzz - Life is Calling     Читать дальше...    Жанр: Techno, Hardstyle, JumpstyleПродолжительность: 10:43:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:811AD2BD15DC3818833E6F4E4A718DABD0741CB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 835 185
+
+VA - Club Playlist Autumn Edition 2014  25.10.2014  [MP3|320 кб с]<Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Magnessi - Kangaroo  Original Mix  [04:39]
+02. Bart Claessen - How I Roll  Original Mix  [05:14]
+03. Labrinth - Let It Be  Matrix & Futurebound Vocal Edit  [04:36]
+04. 2SOULS feat. Digital Heroes & Lexell - Get Down  Original Mix  [05:13]
+05. MAKJ & Lil John - Let s Get Fucked Up  Doggun Remix Competition  [04:22]
+06. DJ Mikesh - Discoshit  Ill-Ko & Mike Air Remix  [05:10]
+07. Kaizer - Neapolis  Original Mix  [04:20]
+08. Chris Lake - Squeak  Tom Piper Remix  [05:08]
+09. Joe Bermudez feat.     Читать дальше...    Жанр: Dance, ClubПродолжительность: 06:10:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE0A15C2C6A8EC06DEA7F021C184CACDA0893BFC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 835 104
+
+VA - Trance Pro V.64  2014  [MP3|320 кб с]<Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Stella Project - Perfect Day  John Sunlight Remix 
+02. Luke Warner - Epiphany  Original Mix 
+03. Ronny K. - Simferopolis  Original Mix 
+04. Solis & Sean Truby - Marina  Original Mix 
+05. ArtuR - Days  Original Mix 
+06. TerraNation - Spirits of Egypt  Original Mix 
+07. Scorpius - Storm Tears  In Progress Distorted Orchestra Mix 
+08. Mitchell Claxton - Dive  Icedream Remix 
+09. KAYAT - Nordwind  Touchstone Remix 
+10. Otto Uplifting - I ll Miss You  Original Mix     Читать дальше...    Жанр: TranceПродолжительность: 06:14:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:77D06DCEA1830FC687893BFDB1A2D60014EA47B0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 835 101
 
 VA - Electro House Pro V.73  2014  [MP3|320 кб с]<Electro House>
@@ -2270,130 +2393,6 @@ Electronic  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:87760B3F6CF1F0084782C43D3FFB8745737E6DDB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 832 357
-
-VA - 80 Cover Songs  2014  [MP3|320 кб с]<Dance, Pop, Disco, House>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Billie Jean  Radio Mix  - Crew 7 feat. Geeno Fabulous
-02. Last Night a DJ Saved My Life - Outatime
-03. I Won t Let the Sun Go Down  Raggatone Edit  - Sunflash
-04. Ghostbusters  Dancecom Project Radio Version  - Sunrider
-05. Cuba  Sunset Crew Radio Edit  - Cuba Club
-06. Baby Come Back  A-Class Video Mix  - Soul Bros.
-07. Bad Boys  A-Class Video Mix  - Crew 7 feat. Soul Bros
-08. Born to Be Wild  Crew 7 & Hans-O-Matik Edit  - Dirty Impact feat. Chris Antonio
-09. Avenue  Radio Mix  - Crew 7
-10. California     Читать дальше...    Жанр: Dance, Pop, Disco, HouseПродолжительность: 04:23:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:16AAA46C614447218C0575CEFED16C6532125C81
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 832 238
-
-VA - Palmera Blanca Vol. 1: Antares  2014  [MP3|320 кб с]<IDM>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Intro 0:19
-02. 2ndMOUSE — Ronin 2:32
-03. Skrux — If You  Original Mix  5:08
-04. Mister Lies — flood you 3:51
-05. TroyBoi — Memoirs of an Angel 3:43
-06. Polarbye — We are stars master 4:05
-07. Why Murph — Leftovers 4:28
-08. $aturn — Pentecostic 4:51
-09. Chvrches — Mother We Share  KR$CHN Remix  3:17
-10. Cast — t 4:02    Читать дальше...    Жанр: IDMПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FD64781534C3826928E654F40D8911EE1B25120C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 832 083
-
-VA - In Da Club Vol.80  2014  [MP3|320 кб с]<Trance, Vocal Trance, Uplifting Trance, Classic T
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Rafael Frost - In The Air
-002. 2nd Phase - Lesson Learned  Garry Heaney Remix 
-003. Andy Duguid feat. Shannon Hurley - I Want To Believe  Original Mix 
-004. Theta Rhythm - Fly With Me  Original Mix 
-005. Boxer - Fathom  LTN Remix 
-006. Mike Danis - For You  Juventa Club Mix 
-007. Ex-Driver & Alex Piletski - Last Rain  Aurosonic Remix 
-008. Johan Vilborg - Leaving Home  Original Mix 
-009. Timur Shafiev - Infarct  Arcalis Remix 
-010. Magnus - Hypnotic  Original Mix     Читать дальше...    Жанр: Trance, Vocal Trance, Classic TranceПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99C46549DF3DF9C02939D62DF5E66D6AE20294C3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 831 873
-
-Студия Маркел - Тереза  2014  [MP3|320 кб с]<Blues>
-Неофициальные сборники
-Шансон, Авторская и Военная песня (сборники)
-
-###  Подробнее
-
-01. Чижик-пыжик  Андрей Шепелев - народные 
-02. Крутится-вертится шар голубой  Joe Cocker - народные 
-03. Постой, паровоз  Калинов мост - народные 
-04. Ой мороз мороз  B.B. King - народные 
-05. Лошадка  Eric Clapton - народные 
-06. Тереза  Chris Rea - народные 
-07. Ямщик, не гони лошадей  Joe Cocker - народные 
-08. Клён  Tony Joe White - Л. Шишко 
-09. В тропическом лесу купил я дачу  Janis Joplin - народные 
-10. Я милого узнаю по походке  George Gershwin - народные     Читать дальше...    Жанр: BluesПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BCAB4E21D7D2FE6CEFDF21D85F34193769CC8E36
 ```
 
 <div id="header" align="center">

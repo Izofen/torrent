@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 065 789
+
+The Radio Dept. - Running Out Of Love  2016  [FLAC|Lossless|tracks] <Indie Pop, Synthpop, Dream
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Sloboda Narodu
+02. Swedish Guns
+03. We Got Game
+04. Thieves Of State    Читать дальше...    Жанр: Indie Pop, Synthpop, Dream PopПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4126E1E9F02A4FA0A3DEC888DAE837849F118C5F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065789.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 776
+
+Colbie Caillat - The Malibu Sessions  2016  [FLAC|Lossless|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Gypsy Heart
+02. Goldmine
+03. Cruisin 
+04. Like Tomorrow Never Comes    Читать дальше...    Жанр: PopПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BD3FA5B754D7A741284302FE34F74EF2366C44C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065776.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 065 663
+
+Евгений Гетманский - Легендарные песни Вокально-Инструментального Века  1994  [FLAC|Lossless|ima
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01.Кто тебе сказал  В.Добрынин - Л.Дербенёв 
+02.Если любишь ты  Ю.Антонов - Л.Дербенёв 
+03.Нет тебя прекрасней  Ю.Антонов - И.Безладнова 
+04.Вот увидишь  В.Добрынин - И.Шаферан     Читать дальше...    Жанр: PopПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B68868077CDF00143204B8D1CB3AD254871046F6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065663.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 065 574
 
 VA - И Просится Сердце В Полёт...  Аэрофлоту - 75   1998  [MP3|320 Kbps] <Советская эстрада>
@@ -1904,81 +1979,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1057404.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 057 123
-
-Charlee Remitz - Bright White Trims  2015  [MP3|320 Kbps] <Alternative Pop, Indie Dream Pop, Ele
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. King s Cup
-02. Fillin  in for a Goddess
-03. Cake Eater
-04. Bmw    Читать дальше...    Жанр: Alternative Pop, Indie Dream Pop, ElectronicПродолжительность: 00:26:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A4656FFF7EDEBCCA0F162D99509589395E4C02DE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1057123.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 057 101
-
-Falco - So80s  Soeighties  Presents Falco  Curated By Blank & Jones   2012  2CD [FLAC|Lo
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Body Next To Body  Dance Mix  with Brigitte Nielsen
-02. Wiener Blut  12  Remix 
-03. Satellite To Satellite  Extended Remix Version 
-04. Helden von heute  Extended Version     Читать дальше...    Жанр: Pop, RockПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:744C37D2B509AB645BA7BEBC1AA36E57A762051B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1057101.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 057 097
-
-Charlee Remitz - Saints Until Fridays  2016  EP [MP3|320 Kbps] <Alternative Pop, Indie Dream Pop
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Valley Tantrums
-02. Chlorine
-03. 1,000 Ruined Holidays
-04. Younger Blood    Читать дальше...    Жанр: Alternative Pop, Indie Dream Pop, ElectronicПродолжительность: 00:22:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6139B6D98A221DC3545512C78462FF6179A4B7CF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1057097.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 287 051
+
+VA - Partybreaks and Remixes - All In One November 001  2019  [MP3|320 Kbps] <Disco, Funk, Soul,
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Jeff92 & Sumania  Alan Cook - Do You Want To Stay  Jeff92 & Sumania Redrum 
+002. Collini  Basslovers United - A+ Superstar  C - Baumann Remix 
+003. Jeff92 & Sumania  Company B - Fascinated  Jeff92 & Sumania Redrum 
+004. Frankie Steel   Clean Bandit,  Julia Michaels - I Miss You  Trp Remix     Читать дальше...    Жанр: Disco, Funk, Soul, Electronic, ErasПродолжительность: 10:04:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB6E71039288104E47D0977DBBE81D17BAACF9DB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287051.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 287 026
+
+VA - Brooklyn Bounce  2019  [MP3|320 Kbps] <Electro House, Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. 22Bullets - Konichiwa
+002. Max Grade - Emotion  Original Mix 
+003. Albatros 67 - Play pen
+004. Zafer Atabey - A Sad Song  Original Mix     Читать дальше...    Жанр: Electro House, Dance, ClubПродолжительность: 10:15:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A3D8013C99A3003D3E896EF7DDA1B81534B97387
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287026.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 287 024
+
+VA - Я в глазах твоих тону  2019  [MP3|320 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Алексей Ром - Я люблю эту женщину очень  3:21 
+002. Виктор Дорин - Если нет тебя  3:33 
+003. Александр Курган - Оттенки печали  3:54 
+004. Александр Вестов - Бог и она  3:57     Читать дальше...    Жанр: ШансонПродолжительность: 06:24:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29390D378ED3DE2A0817103F3E1960FBDBC2B295
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287024.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 287 023
+
+VA - Beach Sound: The Velvet Jungle  2019  [MP3|320 Kbps] <Drum And Bass, Jungle, Bass>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Fishy - Enchanted
+002. Invadhertz - Deep In The Jungle
+003. Sappo - Survival
+004. Calibre - Zee Tone    Читать дальше...    Жанр: Drum And Bass, Jungle, BassПродолжительность: 07:58:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0DC6EE2D0A03EE71623AAC48F5040C4C4A2D6B6F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287023.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 286 990
 
 VA - Divine Lotys: Psychedelic Trance  2019  [MP3|320 Kbps] <Psychedelic, Goa Trance>
@@ -1894,109 +1994,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1283235.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 283 137
-
-VA - ЕвроХит Топ 40 Europa Plus 15.02.2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Lil Peep, XXXTentacion - Falling Down
-02. Vanotek - Love Is Gone
-03. Don Diablo feat. Emeli Sande, Gucci Mane - Survive
-04. Denis First, Reznikov, Bright Sparks - Shameless    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:10:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:582E6186FA276E94EB44902038A175D6CFA741E0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1283137.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 282 981
-
-VA - Зайцев.нет Лучшие новинки Февраля 2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Григорий Лепс - Life Is Good 4:38
-02. Макс Барских - Неземная 3:44
-03. Morgenshtern feat. Palc - Turn It On! 3:27
-04. Тима Белорусских - Витаминка 2:56    Читать дальше...    Жанр: Pop, DanceПродолжительность: 04:06:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A17C8B823B833BBB95CBB4C1DC0B439517FFAD8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1282981.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 282 974
-
-VA - Вспоминая Rock 80-х  зарубежный выпуск   1980-1989  [MP3|320 Kbps] <Rock, Hard Rock, Me
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Black Sabbath - Neon Knights  03:45 
-002. Judas Priest - The Hellion + Electric Eye  04:22 
-003. Kiss - Danger  03:57 
-004. W.A.S.P. - Mean Man  04:48     Читать дальше...    Жанр: Rock, Hard Rock, MetalПродолжительность: 07:14:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:76EDCA53BEC5B8E4BF1EA9BA015E624B5BCFB0A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1282974.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 282 973
-
-VA - Hits of My Soul Vol. 44  2019  [MP3|320 кб с]<Trance, Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Arman Bahrami & Ailsa Villegas - Beat Of My Heart  Original Mix   08:51 
-02. Morvan - Kiss Of A Muse  Original Mix   07:41 
-03. Dannie Denito feat.Wenturo - Rain On The Venus  Original Mix   06:12 
-04. Neo & Farina - Alba Rossa  Remastered Original Vocal Mix   09:32     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 06:01:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F997E9213291ABC133658308C458EA31D232D74E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1282973.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

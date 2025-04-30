@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 176 327
+
+Варвара Визбор - Многоголосье  2017  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Ниже ноля  Полная версия 
+2. Слушать себя
+3. Бродит дождик
+4. Во всём виновата погода    Читать дальше...    Жанр: PopПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:859536D6D079E4F3BD02DF1FD506E9BF8B97243D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176327.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 176 320
+
+Albert One - Everybody  1988  Reissue CD, ZYX Music, 2001 [MP3|320 Kbps] <Electronic, Italo-Disc
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Everybody  3:21 
+02. Don t Let Me Down  3:05 
+03. Broken Dreams  3:58 
+04. Talk To Me  3:58     Читать дальше...    Жанр: Electronic, Italo-DiscoПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A70AFB91601C7C08FDA06E4ADC101C80435BD352
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176320.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 176 144
+
+Cook County - Pinball Playboy  Playboy Theme   1979  LP [MP3|320 Kbps] <Disco, Sax-Jazz-Funk
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Pinball Playboy  5:30 
+02. Little Girls & Ladies  3:42 
+03. Comin  To Getcha  4:25 
+04. Olympiad  84  3:54     Читать дальше...    Жанр: Disco, Sax-Jazz-FunkПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EDA73F19401171F6B1AB738BEBD7AF606922C2D1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1176144.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 176 096
 
 Диана Гурцкая - Паника  2017  [MP3|320 Kbps] <Pop>
@@ -1928,81 +2003,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167234.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 167 023
-
-Emily Haines  of Metric  & The Soft Skeleton - Choir of the Mind  2017  [FLAC|Lossless|track
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Planets
-02. Fatal Gift
-03. Strangle All Romance
-04. Wounded    Читать дальше...    Жанр: Alternative Pop, Acoustic Indie Rock, PianoПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BF36EB4B6BA52E4882469B7D742CF7472C81AC5D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167023.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 965
-
-VA - Romantic Collection Vol. 6  2000  [FLAC|Lossless|tracks + .cue] <Pop, Retro>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01 Elvis Presley - Love Me Tender
-02 Scorpions - Still Loving Tou
-03 Annie Lenox - Love Song For A Vampire
-04 Sting - Shape Of My Heart    Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AB1A2F71F9AE0E6544E8EDB82D8926D7B7361A66
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166965.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 166 963
-
-VA - Romantic Collection Vol. 8  2000  [FLAC|Lossless|tracks + .cue] <Pop, Retro>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01 Andy Williams - Love Story
-02 Patricia Kaas - Mon Mec A Moi
-03 Terence Trent D Arby - Sign Your Name
-04 Sam Brown - Stop    Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:68EEAB8F0E5E75D870E4494B467C3772AA6F4270
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166963.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

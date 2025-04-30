@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 413 020
+
+VA - Heartbreak Hits  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Justin Bieber - That Should Be Me  Album Version   3:52 
+02. Dean Lewis - Waves  4:00 
+03. OneRepublic - Apologize  Album Version   3:26 
+04. Whitley - More Than Life  2:55     Читать дальше...    Жанр: Pop, Pop-RockПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:084CEC7DEF07994B89632AA4BDC3AEC438512F72
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413020.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 412 814
+
+VA - 35 Top Songs For Gym & Weight Lifting 2020 Edition [MP3|320 Kbps] <Euro-Dance, Pop-Dance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. DJ Hush - Anthem  Fitness Version   04:20 
+02. Radiorama - I ll Be There  Fitness Version   04:04 
+03. Vanillas - Planet Rock  Fitness Version   05:20 
+04. Hellen - Live Your Story  Fitness Version   05:11     Читать дальше...    Жанр: Euro-Dance, Pop-DanceПродолжительность: 02:41:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:26BF30B17C610F5518D0F4B04E6C8E64849FF6BE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1412814.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 412 489
+
+VA - New Italo Disco Top 25 Compilation Vol. 14  2020  [MP3|320 Kbps] <Italo-Disco, Euro-Disco,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Emy Care - Do You Love Me  Radio Edit  [4:12]
+02. Emy Care - You And Me  Radio Edit  [4:07]
+03. Boy Blue - Don t Break My Heart  Radio Edit  [4:29]
+04. Brad Lake - Yesterday  When I Was Young   Radio Edit  [4:36]    Читать дальше...    Жанр: Italo-Disco, Euro-Disco, DanceПродолжительность: 01:48:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89B83BA866999D7511B05C3A38949D6630DFD150
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1412489.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 411 728
 
 VA - Best of New Generation Maxi Disco Vol. 1  2020  [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco,
@@ -1906,81 +1981,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1402464.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 402 460
-
-VA - Euromania Vol. 1  2001  Compilation [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco,
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Modern Talking - Brother Louie  Remix   6:59 
-02. Fancy - Gimme A Sign  3:32 
-03. Scotch - Disco Band  6:34 
-04. C.C. Catch - Heaven And Hell  6:28     Читать дальше...    Жанр: Euro-Disco, Italo-Disco, EuropopПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B79A1951678DDC5BDBFA01F188D11439247A84EB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1402460.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 402 378
-
-VA - Оcean Feeling: Luftige Sommer-songs  2016  Limited Special Edition [FLAC|Lossless|tracks +
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Лето на излёте, а отдохнуть под хорошую музыку хочется всё больше. Представляю этакий океанический сборник  его подзаголовок: воздушные летние песни  для расслабления и хорошего настроения.  Немцы со свойственной им основательностью включили в него действительно запоминающиеся треки, да ещё снабдили достаточно обстоятельным буклетом с описанием действующих лиц и полной     Читать дальше...    01. Andrea Bourani - Ultraleicht   4:23 
-02. Glasperlenspiel - Geiles Leben   3:31 
-03. Alvaro Soler - El Mismo Sol   3:00 
-04. Katy Perry - The One That Got Away   4:18     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:12:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B09EADB7B3411C3D376B798655DFE75F6970F663
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1402378.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 402 293
-
-The Difference - High Fly  1979  LP [MP3|320 Kbps] <Funk, Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. High Fly  Poporompompo   4:14 
-02. Searchin   4:20 
-03. Hey Lover  3:56 
-04. Tell Me  5:07     Читать дальше...    Жанр: Funk, Soul, DiscoПродолжительность: 00:24:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:175D451FCDD141AF05EEAD4926FAA7F6498A72D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1402293.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,404 @@
 ﻿
+###  Публикация: 1 580 025
+
+7раса - 7жизней  2022  [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. 1й круг  2022  [00:04:19]
+02. В поисках рая  2022  [00:03:26]
+03. Вечное лето  2022  [00:04:33]
+04. Качели  2022  [00:03:40]    Читать дальше...    Жанр: RockПродолжительность: 00:25:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C19C47B21419FB235B26C12640EB3DC3F916573B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580025.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 022
+
+Within Destruction - Lotus  2022  [MP3|320 Kbps] <Nu Metalcore, Electronic>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Lotus [00:03:32]
+02. Toxic [00:03:34]
+03. Nightmare [00:03:48]
+04. Survival [00:03:19]    Читать дальше...    Жанр: Nu Metalcore, ElectronicПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EA3DCAA60F5D5DD6CEFA29D8A6A4DBAA99E824B6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580022.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 016
+
+Scarlet Dorn - Queen of Broken Dreams  2022  [MP3|320 Kbps] <Dark Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+01 - Falling [00:04:08]
+02 - Born to Suffer [00:03:45]
+03 - Queen of Broken Dreams [00:03:46]
+04 - Your Highness [00:03:54]    Читать дальше...    Жанр: Dark Hard RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1CBF4331209A244B36DCEDD31B36B0CCB89CFD11
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580016.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 014
+
+Icon For Hire - The Reckoning  2022  [MP3|320 Kbps] <Alt. Rock, Female Vocal>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. The Ascent [00:00:48]
+02. Breakdown [00:03:19]
+03. Ready For Combat [00:03:08]
+04. Dismantled [00:03:11]    Читать дальше...    Жанр: Alt. Rock, Female VocalПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:05092E4F4B047DCCEFC94B1E92E9BA13C349A2FC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580014.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 013
+
+Dark Oasis - Ode To The Dead   Lurking In The Darkness  2021  Compilation, Huangquan Records [
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+1995 - Ode to the Dead  Demo 
+01. Taste the Blood  02:34 
+02. Defiance  02:37 
+03. Suffering  03:18     Читать дальше...    Жанр: Death MetalПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4678ED5AB46C573617A2B781C4433EEF5579DF9F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580013.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 012
+
+Hexed - Pagans Rising  2022  [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01 - Pagans Rising [00:05:15]
+02 - Resurrection [00:04:19]
+03 - Stigma Diaboli [00:05:49]
+04 - Repentance [00:04:51]    Читать дальше...    Жанр: Symphonic Metal, Female VocalПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9323B72B85322D6217C2B9D70A2ECB45651A89CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580012.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 009
+
+Def Leppard - Songs From The Sparkle Lounge (2008) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Def Leppard–	Go	3:20
+02. Def Leppard & Tim McGraw–	Nine Lives    3:32
+03. Def Leppard–	C'mon C'mon	4:09
+04. Def Leppard–	Love	4:17(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:19811FA1FC7A839E03CB66F46D67A5616E829A71
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580009.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 006
+
+Drowning Pool - Strike A Nerve  2022  [MP3|320 Kbps] <Alt. Metal, Hard Rock>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. Doing Time In Hell [00:01:13]
+02. Hate Against Hate [00:03:34]
+03. Stay And Bleed [00:03:09]
+04. Strike A Nerve [00:03:05]    Читать дальше...    Жанр: Alt. Metal, Hard RockПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DB1E352CF9344D41593B0BDEB3E91A4F8DFB48BB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580006.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 580 003
+
+Aviana - Corporation  2022  [MP3|320 Kbps] <Progressive Metalcore>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. Curriculum [00:01:15]
+02. Obsession [00:03:30]
+03. Rage [00:03:36]
+04. Paradox  feat. Marcus Vik of Invent Animate  [00:03:31]    Читать дальше...    Жанр: Progressive MetalcoreПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2D1BCBD9CDE38E044915B3FFA20DF16C4436905C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1580003.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 997
+
+Rage - Spreading the Plague  2022  EP [MP3|320 Kbps] <Heavy Metal, Power Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01 - To Live and to Die [00:04:07]
+02 - Spreading the Plague [00:04:47]
+03 - The King Has Lost His Crown [00:04:29]
+04 - A New Land  Acoustic Version  [00:03:29]    Читать дальше...    Жанр: Heavy Metal, Power MetalПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6989C32A2CDFF34480D626FD0CCF9B068A696BB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579997.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 976
+
+Cthulhuss - Obliteration of Souls (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01 - Visions of Yog-Sothoth (07:57)
+02 - The Cave (07:34)
+03 - Hubris Hammer (10:35)
+04 - Die in the Dreams of Dead (08:05)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D795F883A918854DDEFBB5C90AA9E746D696FD73
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579976.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 963
+
+Moonspell - From Down Below - Live 80 Meters Deep  2022  [FLAC|Lossless|WEB-DL|tracks] <Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. The Greater Good  Live 80 Meters Deep  [00:06:51]
+02. Common Prayers  Live 80 Meters Deep  [00:04:12]
+03. All or Nothing  Live 80 Meters Deep  [00:07:21]
+04. Hermitage  Live 80 Meters Deep  [00:05:03]    Читать дальше...    Жанр: MetalПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4AD4F971CCBDC55D7DB2992878F358EA4790AE49
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579963.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 960
+
+Judas Priest - Fuel for Life 1986  live   1986  Reissue, 2022, Cult Legends [MP3|320 Kbps] <
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. KB Intro  live  [00:01:36]
+02. KB Interview  live  [00:04:49]
+03. Out In The Cold  live  [00:06:20]
+04. Locked In  live  [00:04:52]    Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 01:53:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:37A6B2DB12D1D571069141532F7D776026B81A6E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579960.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 950
+
+Bukowski - Bukowski  2022  [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doom>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. From Above [00:04:19]
+02. Breathin  underwater [00:06:48]
+03. Crossroads [00:03:37]
+04. NCFYC [00:05:29]    Читать дальше...    Жанр: Heavy Rock, Stoner, DoomПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:210873F336EDE40E4E1AA27A538FC05B02B09158
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579950.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 945
+
+The Hu - Rumble Of Thunder  2022  [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. This Is Mongol [00:03:44]
+02. YUT Hövende [00:05:34]
+03. Triangle [00:04:12]
+04. Teach Me [00:03:58]    Читать дальше...    Жанр: Folk MetalПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AEC7C15B3660DE01362DF1CD80C0F5461E697CB7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579945.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 579 941
+
+Tankard - Pavlov s Dawgs  2022  [MP3|320 Kbps] <Hard Rock, Thrash Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01 - Pavlov`s Dawg [00:05:31]
+02 - Ex-Fluencer [00:04:58]
+03 - Beerbarians [00:05:21]
+04 - Diary of a Nihilist [00:04:50]    Читать дальше...    Жанр: Hard Rock, Thrash MetalПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:75E9C625016A021FA25CCBD717E4B1E659AAC751
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579941.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 579 940
 
 Stratovarius - Survive  2022  2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Melodic Powe
@@ -1592,406 +1992,6 @@ Metal  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579182.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 144
-
-My Sleeping Karma - Atma  2022  [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Space>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Maya Shakti [00:09:13]
-02. Prema [00:07:55]
-03. Mukti [00:06:43]
-04. Avatara [00:09:37]    Читать дальше...    Жанр: Psych, Stoner, SpaceПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AE38D4C02077559DDC61FDE8C3273C25A1962CDB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579144.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 131
-
-Zmey Gorynich - Vжица  2022  [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Deathcore>
-Rock, Alternative, Punk, Metal
-Русский Рок  Lossless 
-
-###  Подробнее
-
-01. Аꙁъ Бꙋки Вѣди [00:01:56]
-02. Пыжица [00:02:49]
-03. Квасъ [00:02:40]
-04. Финифть [00:03:17]    Читать дальше...    Жанр: Folk Metal, DeathcoreПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:51FD69005A0210A8394A35B9C3AF15262CB0782D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579131.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 119
-
-Nicolas Cage Fighter - The Bones That Grew from Pain  2022  [FLAC|Lossless|WEB-DL|tracks] <Hardc
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Grey Eye  3:22 
-02. Shrine of Wire  3:08 
-03. Coughing Nails  3:01 
-04. Static Abyss  3:47     Читать дальше...    Жанр: Hardcore MetalПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73347EF1F286CEB14EFC0F716C9CA2C616AC0F04
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579119.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 116
-
-Rain - A new tomorrow  2022  [FLAC|Lossless|WEB-DL|tracks] <Hard  n  Heavy>
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-01. A new tomorrow [00:03:40]
-02. Down in hell [00:04:13]
-03. New sin [00:03:26]
-04. Double game [00:03:08]    Читать дальше...    Жанр: Hard  n  HeavyПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0623981994B01A18E97F92AC6D2A866D83DBD29C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579116.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 109
-
-Seventh Storm - Maledictus  2022  [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Progressive Gothic M
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-01. Pirate s Curse [00:06:24]
-02. Saudade  English version  [00:06:38]
-03. Sarpanit [00:02:21]
-04. Gods Of Babylon [00:06:48]    Читать дальше...    Жанр: Hard Rock, Progressive Gothic MetalПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:35858978EC0ACD2343D14DA08FCEC06C179AEF66
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579109.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 105
-
-Strom - Strom  2022  [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-01. Tiden sjunger [00:04:08]
-02. Katapult [00:03:22]
-03. Ta mig tillbaks [00:04:08]
-04. Vass tunga [00:04:32]    Читать дальше...    Жанр: Hard RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7053785EF67D44FD63E375AB85507B8F926EF7EC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579105.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 098
-
-UTO - Touch the Lock  2022  [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Délaisse [00:03:36]
-02. Row Paddle [00:03:17]
-03. Souvent parfois [00:03:31]
-04. Heavy Metal [00:03:11]    Читать дальше...    Жанр: Indie, AlternativeПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9814DD97835D2229128BE51696D0C8F907D398A8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579098.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 091
-
-Wailin Storms - The Silver Snake Unfolds  2022  [FLAC|Lossless|WEB-DL|tracks] <Dark Doom Rock, S
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. In the Heart of the Sea [00:06:28]
-02. Broken Into Three [00:04:22]
-03. Sunday Morning Ceremony [00:04:50]
-04. Drag [00:05:31]    Читать дальше...    Жанр: Dark Doom Rock, Swamp PunkПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2EAB5BF60A3DA5FDCA8F185B33495FF64769D6EC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579091.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 074
-
-Кино - Последний Герой  1991  Remastered, 1998, Moroz Records [OGG Vorbis|484 Kbps] <Rock, New W
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Хочу Перемен	5:00
-02. Электричка	4:51
-03. Война	4:06
-04. Троллейбус	2:56    Читать дальше...    Жанр: Rock, New WaveПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:411CCE8B2546D2548653364D879DE1C0360CD10E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579074.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 047
-
-Ed Wynne And Gre Vanderloo - Tumbling Through The Floativerse  2022  [FLAC|Lossless|tracks + .cu
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-1. Oilyvoice  6:27 
-2. Seen the Sun  11:41 
-3. Magnetoforia  5:50 
-4. Pelmonauts  6:38     Читать дальше...    Жанр: Psychedelic Rock, Space RockПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DBA566B0C3941948243BC40015E9AA168F156FB7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579047.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 044
-
-Thousand Thoughts - Better than Never  2022  [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, R
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. Mixtape [00:01:53]
-02. Undone [00:03:10]
-03. Circles [00:03:26]
-04. Flip tha Switch [00:03:34]    Читать дальше...    Жанр: Alternative Metal, RapcoreПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2B09ECE3519F46962EF46123DA576D1A55C8A410
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579044.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 036
-
-Mara - Loka Mær  2022  EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Myrkriða [00:01:34]
-02. Mara [00:04:20]
-03. Loka Mær [00:04:38]
-04. Wolf [00:05:02]    Читать дальше...    Жанр: Black MetalПродолжительность: 00:25:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8A038E18597923E3E6DB9701ABA344E3E3DC2395
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579036.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 028
-
-Infected Rain - Ecdysis  2022  2CD [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Female Vocal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Postmortem Pt. 1 [00:04:59]
-02. Fighter [00:05:05]
-03. Longing [00:05:14]
-04. Goodbye [00:05:28]    Читать дальше...    Жанр: Metalcore, Female VocalПродолжительность: 01:49:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:265F69DF1ED136F720E55A8169B49C04B5FB7209
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579028.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 027
-
-Dark At Dawn - Of Decay And Desire  2003  [FLAC|Lossless|image + .cue] <Power Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01.The Sleepwalker 03:42
-02.End of Ice - Warriorqueen 03:53
-03.Luna 03:40
-04.Maid of Stone 02:59    Читать дальше...    Жанр: Power MetalПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99E93822CD47F22BE424336B70AF6E358F2CA4B5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579027.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 018
-
-We are Legend - 3 Albums  2012-2022  [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-Список альбомов:
-2012 - We Are Legend  EP 
-2013 - Rise of the Legend  Extended Version Remastered 
-2022 - Fallen AngelЖанр: Power MetalПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8FD1D76BF8976E6022DCABCCD9203D3C730ED012
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579018.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 579 007
-
-Highly Suspect - 3 Albums  2015-2022  [MP3|320 Kbps] <Hard Rock, Blues Rock, Progressive Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. The Sound [00:04:22]
-02. Natural Born Killer [00:03:16]
-03. Ice Cold [00:03:27]
-04. Midnight Demon Club [00:04:12]    Читать дальше...    Жанр: Hard Rock, Blues Rock, Progressive RockПродолжительность: 3 CD, 02:23:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:354579F597BB9654F067C0C8B0579F3A02A88EF6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1579007.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

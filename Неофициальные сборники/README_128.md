@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 124 489
+
+VA - Весенняя танцевальная вечеринка. Выпуск № 11  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. София Ротару - Не Забывай Меня 3:25
+002. Автобус - Слышишь 3:26
+003. Funpills - Страсти 3:23
+004. Mainstream One - Любил Так Жить 3:34    Читать дальше...    Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F78268C572D2E43E42BEA6587667C24F5805FC9A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124489.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 124 487
+
+VA - Популярные весенние новинки. Сборник № 2  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Yolla - Не Отпускай 3:11
+002. Полина Гагарина - Драмы Больше Нет 3:14
+003. Татьяна Буланова - Плачь Любовь 3:40
+004. Паша Панамо - Слишком Красивая 3:11    Читать дальше...    Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:13147F5F94A91F74F709A081331855D79269A066
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124487.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 124 485
+
+VA - Весна. Высшая лига. Часть № 2  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Алиса Кожикина - В Стране Чудес 3:32
+002. Натали Янковских - Ты Мой 3:34
+003. Кристина Орбакайте - Жду 3:37
+004. Vavan Aka Вова Селиванов - Хулиганка 3:36    Читать дальше...    Жанр: PopПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5F8F866CE78390C614141FB819FAFE0FB43C2CD2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124485.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 124 484
+
+VA - Музыкальный подарок на радио Europa Plus выпуск № 5  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Dante - Не Вздумай 3:24
+002. A las Lito - Где Ты Сейчас 3:34
+003. Влад Кевраликин - Хоровод Луны 3:07
+004. Виктория Черенцова - Не Остыло Сердце 3:34    Читать дальше...    Жанр: PopПродолжительность: 06:06:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B005A16F7C0DA1CB48A7D5DC49814187C76ED4E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1124484.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 124 482
 
 VA - Русский отрыв на Русском радио  2017  [MP3|256 Kbps] <Pop>
@@ -1895,106 +1995,6 @@ VA - Discoteka Dance Club. Best Hits of Year  2017  [MP3|320 Kbps] <Dance , Club
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1120603.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 120 542
-
-VA - The Best - In Music We Trust Vol.14  2017  [MP3|320 Kbps] <House, Electro, Dutch, Trance, D
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  Blasterjaxx & Marnik - Heart Starts To Beat  Extended Mix   4:09
-02.  Teknova - E  Radio Edit   3:24
-03.  Paul Gannon - Braveheart  Original Mix   4:05
-04.  Paul van Dyk - Touched by Heaven  Extended   7:30    Читать дальше...    Жанр: House, Electro, Dutch, Trance, Dance, ClubПродолжительность: 06:41:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3800BE30AD7DDD0ED1F315760232F55ABCB3BF89
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1120542.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 120 466
-
-VA - Pacific Relax Zone  2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Don Gorda - Festa Do Sol
-002. Ignat Shamko - Ice City
-003. Arnold T - Summertime Sadness
-004. Cafe  ibiza - Love Hurts    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:51:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40B9E7602F6C4FB8EAF123FBC1E4CBF4C591DEE0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1120466.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 120 162
-
-VA - Dинамик. Весна  2017  [MP3|256-320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01.  Loboda - Случайная  3:53
-02.  Макс Барских - Неверная  3:47
-03.  Полина Гагарина - Драмы больше нет  3:14
-04.  Lx24 и Мари Краймбрери - Через 10 лет  4:09    Читать дальше...    Жанр: PopПродолжительность: 02:38:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B9E9074D223B20EC7FDFAB29BE8E6BCA365198CB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1120162.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 120 156
-
-VA - Зажигательный Eurodance Vol.3  2017  [MP3|256-320 Kbps] <Eurodance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Fun Factory - Take Your Chance  Dennis Moskvin 2k16 M.Bounce Remix   6:23
-02.  Barcode Brothers & Broken Heard - Dooh Dooh  DrBeat Perfect Mix   4:16
-03.  Игорь Силевёрстов - Санта Лючия  Remix   3:49
-04.  Maxx - Get-A-Way  Alexsey Style Remix   3:29    Читать дальше...    Жанр: EurodanceПродолжительность: 06:49:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B434AFA5C4E0B07188690FF6CD3FE37CDF452381
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1120156.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

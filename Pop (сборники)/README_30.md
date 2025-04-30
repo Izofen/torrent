@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 507 667
+
+ABBA - Voyage  2021  [FLAC|Lossless|tracks + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. I Still Have Faith In You  05:09 
+ 02. When You Danced With Me  02:50 
+ 03. Little Things  03:08 
+ 04. Don t Shut Me Down  03:56     Читать дальше...    Жанр: PopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EF0C460E3FF37E2D1F9E306F5C17893EE7E19BE5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507667.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 507 650
+
+Fancy - Hit Party  1998  Compilation [FLAC|Lossless|image + .cue] <Euro-disco, Synthpop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Flames of Love  bass up version 
+02. Blue Eyes and a Broken Heart
+03. Fools Cry
+04. Slice Me Nice    Читать дальше...    Жанр: Euro-disco, SynthpopПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507650.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 507 598
+
+ABBA - Voyage  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. I Still Have Faith In You  5:09 
+02. When You Danced With Me  2:50 
+03. Little Things  3:08 
+04. Don t Shut Me Down  3:56     Читать дальше...    Жанр: PopПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A954D8FCA97188C542DEFEBF21AF8C315A4F4704
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507598.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 507 447
 
 ABBA - Voyage  2021  [MP3|320 Kbps] <Pop>
@@ -1913,81 +1988,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1498585.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 498 493
-
-Papaya -  Pink  1999  [FLAC|Lossless|tracks + .cue] <Bubblegum>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Operator 3:42
-02. Hero 3:34
-03. Pink Dinosaur 3:10
-04. Supergirl  Original Single Version  3:38    Читать дальше...    Жанр: BubblegumПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0CE72DC4C6A4FE797986DAA34196DDA07E94EEC3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1498493.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 497 932
-
-Adolescent s Orquestra - Millenium Hits  1999  [FLAC|Lossless|image + .cue] <Salsa>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Anhelo
-02. Hoy Aprendi
-03. Persona Ideal
-04. Arrepentida    Читать дальше...    Жанр: SalsaПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA1717408DC43C8DF257310AF68812DDD227BC3B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497932.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 497 812
-
-Promises - Real To Real  1979  LP [MP3|320 Kbps] <Disco, Europop, Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Caught In A Web  3:32 
-02. Ooh Baby I Like It  4:22 
-03. Lucky In Love  3:04 
-04. Leslie s Song  4:15     Читать дальше...    Жанр: Disco, Europop, Pop RockПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:883F904205F2E4503F67F40C0408786E8594B293
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1497812.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

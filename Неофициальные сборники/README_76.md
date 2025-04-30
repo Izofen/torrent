@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 319 069
+
+VA - Grape Joe: Soul Rap Collection  2019  [MP3|320 Kbps] <Rap, Hip Hop>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+001. Precyce Politix - Circles
+002. Alemбn - Waves
+003. Orphanboy - Andretti
+004. Graveyard Shifter - Power Armor Gladiator    Читать дальше...    Жанр: Rap, Hip HopПродолжительность: 11:02:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:117D9376AF737DD01D8198FE162E78E6370997FE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1319069.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 319 016
+
+VA - New Wave Disco Roller  2019  [MP3|320 Kbps] <Disco, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Space - Running In The City
+002. Victor Haynes - Destiny
+003. Jam Funk - Halfway Loving
+004. Savage - Don t Cry Tonight    Читать дальше...    Жанр: Disco, DanceПродолжительность: 08:31:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:625E209A12687FA31C2B178C0C27C35D4F9DCDC8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1319016.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 319 014
+
+VA - International Riddim: Summer dancehall  2019  [MP3|320 Kbps] <Dancehall, Reggae, Reggaeton,
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+001. Orijinal Fox - Ou Mwen Lè
+002. Woodboy - Enmen Zion
+003. Rvshwill - Law & Order
+004. Compass - Life Nice    Читать дальше...    Жанр: Dancehall, Reggae, Reggaeton, LatinПродолжительность: 08:02:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5F3A0BB556EBA42E57889F3601FF08814418C141
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1319014.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 319 012
+
+VA - Beach Dance House Classic Radio  2019  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Tough Love Feat Reigns - Hideaway
+002. Nemora - My Life My Rules
+003. Bastian Sander - Side By Side
+004. The Sloppy 5th s - Flygirl Got Dissed    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 10:12:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E14BCD069421D72398C980D92C861D5FE88730F8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1319012.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 319 011
 
 VA - The Lucid Dream: Indie Pop Rock  2019  [MP3|320 Kbps] <Indie>
@@ -1893,106 +1993,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315703.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 315 695
-
-VA - Popular Hitzone Music  2019  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Goldfrapp - Twist  Dimitri Tikovoi Remix 
-002. Anouk - Lente
-003. Cher - The Name Of The Game
-004. Clara Ysé - Fées Magnétiques    Читать дальше...    Жанр: PopПродолжительность: 11:03:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:79D4CD1D92A548CEE939F6211DAB9EE8A161B7D2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315695.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 315 687
-
-VA - Frozen Angel: Metal Owerview  2019  [MP3|320 Kbps] <Heavy, Black Metal>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Fates Warning - Monument
-002. Primal Fear - Apocalypse
-003. Godsmack - When Legends Rise
-004. Harvest Their Bodies - Revelation    Читать дальше...    Жанр: Heavy, Black MetalПродолжительность: 09:04:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:141B7203A40895D93D7ED8ECD3C82BAB1697011A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315687.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 315 533
-
-VA - Blues Forever, Vol.91  2019  [MP3|320 Kbps] <Blues>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Jim Kahr - Big City Struggle  3:54 
-02. Simon Kinny-Lewis - Goodbye Baby  3:54 
-03. Robbert Fossen Band - Still Called The Blues  3:36 
-04. Midnight Johny - Spy Boy  5:22     Читать дальше...    Жанр: BluesПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B90E4EB58EE07BD500FF1D80F8D135C283770C64
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315533.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 315 453
-
-VA - ЕвроХит Топ 40 Europa Plus 19.07.2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Daddy Yankee feat. Katy Perry & Snow - Con Calma  Remix  3:01
-02. Ed Sheeran & Justin Bieber - I Don t Care 3:40
-03. Drenchill feat. Indiiana - Freed From Desire 3:40
-04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road  Remix  2:37    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E1E57F2857670C3B69AB73641D7ECEF63B50C02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315453.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 031 320
+
+VA - Relax to House Vol.1  2016  [MP3|320 Kbps] <House, Deep House, Club House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. 3SE - Adio  Pascal Junior Remix 
+02. Abraham Ruiz & Tewax - Fuck Du Follow  Original Mix 
+03. Affkt feat. Haptic - Fixate  Original Mix 
+04. Alan Walker - Sing Me To Sleep  PARKX Extended Mix     Читать дальше...    Жанр: House, Deep House, Club HouseПродолжительность: 11:55:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:686A2DB97FDA4948C3084E4C57E6EE278E9807B8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031320.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 031 301
+
+VA - Summer Club Music Promo - Bestfriend Party  2016  [MP3|234-320 Kbps] <Dance, Eurodance, Clu
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. ATB - Sun Goes Down  Savi x Lema Remix  05:20
+02. SAINT WKND feat. INGLSH - Lost  Runaway   Fabich Remix  04:01
+03. Italobrothers - Kings. Queens  Video Edit  03:22
+04. Kago Pengchi - Yeowoobii  Radio Edit  03:38    Читать дальше...    Жанр: Dance, Eurodance, ClubПродолжительность: 15:53:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7228830CA9A02BC82CB652E0C41B63365450BB91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031301.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 031 295
+
+VA - Ibiza Beach Answer Commission [Gravitation Sound]  2016  [MP3|245-320 Kbps] <House, Funky,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Uberjak d - Portland  Original Mix  04:39
+02. Vicetone - United We Dance  Club Mix  04:37
+03. Passenger 10 - Give Me Joy  Original Mix  03:26
+04. Nicole Kollmann - L amour Toujours  Instrumental Version  02:44    Читать дальше...    Жанр: House, Funky, ProgressiveПродолжительность: 07:55:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:73B86E120BB39064D716219C300516EF7D2C46C4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031295.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 031 279
+
+VA - TOP 100 Club  June   2016  [MP3|320 Kbps] <House, Electro House, Club House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Calvin Harris & Rihanna -  This Is What You Came For  Nejtrino & Baur Remix  3:32
+002. Armand Van Helden -  I Want Your Soul  Underground Dude Remix  3:11
+003. Ummet Ozcan -  Spacecats  SilverBlack Remix  5:02
+004. Francesco Diaz & Jay Frog -  Arabian Nights  Melsen Edit  4:57    Читать дальше...    Жанр: House, Electro House, Club HouseПродолжительность: 07:33:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90D950EDE7D57CAF339623FBC557EFF647CF663F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031279.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 031 257
 
 Dj ruS - Radioshow summer june 2016 Vol.1  2016  [MP3|192 Kbps] <House, Dance Pop>
@@ -1890,103 +1990,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1029723.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 029 722
-
-VA - Nude Mix #4  2016  [MP3|320 Kbps] <Drum & Bass, Dubstep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Insomna - Memories  4:28 
-02. Sonicblast - Perfect Match  4:47 
-03. Voicians - Survival League  4:42 
-04. Echos - Tomorrow  3:21     Читать дальше...    Жанр: Drum & Bass, DubstepПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0934B339F826E98CA2FC1C9204CCAC551573D38B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1029722.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 029 707
-
-Enigma - The Collection  2016  2 CD [MP3|320 Kbps] <New age, Enigmatic>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Angles Weep
-02. Just For the Day
-03. Dream On
-04. Snowin  Under My Skin    Читать дальше...    Жанр: New age, EnigmaticПродолжительность: 02:56:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:12605FD8317E11182B3E2654C12CD01527F5B524
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1029707.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 029 689
-
-VA - Club Dance Ambience vol.75  2016  [MP3|320 Kbps] <House, Electro House, Club>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Daniel Moss & Gandalf Bosch Feat. Francy -  Mi Alma  Instrumental Edit  3:17
-002. KSHMR & Felix Snow feat. Madi -  Touch  Runway Remix  4:56
-003. Hardwell feat. W&W -  Jumper  Madd Dave Bootleg  4:53
-004. Robin Schulz feat. Akon -  Heatwave  Muzzaik Remix  4:17    Читать дальше...    Жанр: House, Electro House, ClubПродолжительность: 07:43:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:511301DAC97601D4003016B1BE0F9AA95330C9A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1029689.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 029 687
-
-DJ Nurlanus - Summer Dance Mix 5  2016  [MP3|320 Kbps] <House, Dance Pop>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-СборникЖанр: House, Dance PopПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B058F1D4B5B34E4829C0C5548AF403127C650D71
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1029687.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

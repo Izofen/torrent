@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 082 836
+
+VA - Glitterbox: For Your Disco Pleasure  2016   2016  [MP3|320 Kbps] <Disco, Nu Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Simon Dunmore - Glitterbox - For Your Disco Pleasure  Continuous Mix 1  78:01
+02. Simon Dunmore - Glitterbox - For Your Disco Pleasure  Continuous Mix 2  77:25
+03. The Salsoul Orchestra - Ooh I Love It  Love Break   Original Mix  07:46
+04. Loleatta Holloway - Love Sensation  Dimitri From Paris Dj Friendly Classic Re-Edit  07:32    Читать дальше...    Жанр: Disco, Nu DiscoПродолжительность: 06:34:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DDB88E9838D74966A4A897AA78DECCE8C8AF6E14
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082836.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 082 530
+
+LP - Lost On You  2016  [MP3|320 Kbps] <Alternative Rock, Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Muddy Waters  03:48 
+02. No Witness  03:28 
+03. Lost On You  04:29 
+04. Up Against Me  03:02     Читать дальше...    Жанр: Alternative Rock, Indie PopПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EAF3AE94D68D5A0877E43066B4464FFABBC3BB13
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082530.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 082 392
+
+Supermax - Terminal 2002  2001  [FLAC|Lossless|image + .cue] <Pop, Funk, Soul>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Cuckoo-Nation  5:00 
+ 02. Voodoo Asses  4:47 
+ 03. Vision  5:30 
+ 04. Push Me Up  6:01     Читать дальше...    Жанр: Pop, Funk, SoulПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:98FD599AC47CAB58AF5E109ADBA28C3FFBD81FB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082392.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 082 050
 
 Ritual  Jillian Ann  - The Code Album  2015  [MP3|320 Kbps] <Alternative Pop, Ethereal, Symp
@@ -1914,78 +1989,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1072608.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 072 538
-
-The Mike Theodore Orchestra - 2 Albums  1977,1979  Reissue, 1998, Westbound Records [MP3|320 Kbp
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Два альбома  Cosmic Wind + High On Mad Mountain  от американского продюсера, аранжировщика и писателя - Майкла Ричарда Теодора - на одном CD.1977 - Cosmic Wind:
-01. Belly Boogie  6:31 
-02. The Bull  6:40 
-03. Cosmic Wind  7:03     Читать дальше...    Жанр: Electronic, Disco, Funk-SoulПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E3C0BC82623862A8F764B6344588D034ED4E6329
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1072538.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 072 512
-
-VA - Танцевальный рай: Best DJ s, Vol. 3  2016  [MP3|320 Kbps] <Dance, Disco, Pop>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. Major Lazer & Showtek - Believer
-02. Dimitri Vegas - Stay a While  Radio Edit 
-03. Hardwell - Eclipse
-04. Lost Frequencies - What Is Love 2016    Читать дальше...    Жанр: Dance, Disco, PopПродолжительность: 01:23:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F509B417C268E5AABB6AD0FD05EDA111D07F5C33
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1072512.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 072 293
-
-Пётр Лещенко - Задушевный голос Родины 2010  2CD [MP3|320 Kbps] <Ретро>
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-CD1Жанр: РетроПродолжительность: 02:36:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:12ED8BDB4400147DEB371CC67371FE305154A548
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1072293.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

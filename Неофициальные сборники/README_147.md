@@ -1,4 +1,101 @@
 ﻿
+###  Публикация: 1 062 402
+
+VA - Lucid Moments Vol 7  2016  [MP3|320 Kbps] <Chillout, Downtempo, Trip-Hop>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Klartraum & Thalstroem - Flight To BerlinЖанр: Chillout, Downtempo, Trip-HopПродолжительность: 05:00:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:62B2C818B2F552C7A1402F401B844D6E3822D2C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1062402.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 062 322
+
+VA - Its Ibiza Dance Hits Earth  2016  [MP3|160~320 Kbps] <House, Tech House,  Electronica, Trop
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Smash - Electrobeach  3:49
+02. Tiesto & Matthew Koma - Wasted  TsT Remix   4:36
+03. Dimitri Vegas & Like Mike VS GTA Ft Wolfpack - Turn It Up  Pelari TRAP Remix   3:17
+04. Pulsedriver - Cambodia  Short Mix   3:44    Читать дальше...    Жанр: House, Tech House,  Electronica, Tropical, UK Garage, Club, DanceПродолжительность: 07:48:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5858C554254492B632F24E1A6B52DE831FB4C3DE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1062322.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 062 317
+
+VA - Ultimate More Urban Dance Hits  2016  [MP3|222~320 Kbps] <House, Eurodance, Hands Up, Comme
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Bingo Players - Knock You Out  Mr. FijiWiji Remix Radio Edit   3:11
+002. tyDi Feat. Dia Frampton - Stay  Radio Edit   3:18
+003. Area feat. Sam Darris - Like a Devil  Radio Edit   3:40
+004. Mr.Black - Rise  4:28    Читать дальше...    Жанр: House, Eurodance, Hands Up, Commercial, Disco, Club, DanceПродолжительность: 06:55:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE4E6202B26905CC04D72B920FB999400C6739E0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1062317.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 062 259
+
+VA - Billboard Hot 100 Singles Chart 22.10.  2016  [MP3|128-320 Kbps] <Pop, Dance, Euro>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. The Chainsmokers Feat Halsey - Closer
+002. Twenty One Pilots - Heathens
+003. The Weeknd Feat Daft Punk - Starboy
+004. Major Lazer Feat Justin Bieber And Mo - Cold Water    Читать дальше...    Жанр: Pop, Dance, EuroПродолжительность: 06:22:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CF9CA255BE875A936DE174BEEFFE035E1530C8BF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1062259.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 062 244
 
 VA - Хит атака 9  2016  [MP3|256 Kbps] <Pop>
@@ -1895,105 +1992,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1060090.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 060 077
-
-VA - Top 100 Зайцев.Нет Сентябрь  2016  [MP3|160~320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Burak Yeter - Tuesday Ft.Danelle Sandoval  4:06
-002. Баста - Выпускной  Медлячок   5:35
-003. Тимати & Егор Крид - Где ты, где я  4:43
-004. Calvin Harris - This Is What You Came For  feat. Rihanna   3:42    Читать дальше...    Жанр: PopПродолжительность: 06:09:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3169A8CE00E7051ECE3E1654301C6754F5D1F832
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1060077.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 060 036
-
-VA - Dance Spends Discoplaza  2016  [MP3|320 Kbps] <House, Bigroom, Funky, Nu Disco, Hands Up, C
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Provenzano - Gorbaciov  5:17
-02. Brooklyn Bounce & Rainy - Can You Feel The Bass  Old School Radio Mix   3:35
-03. Alex H & DJ Massymo Tn - Beyond The Blue Horizon  Original Mix   7:34
-04. Max K. Feat. Gerald G! - Get Loose  Radio Edit   3:20    Читать дальше...    Жанр: House, Bigroom, Funky, Nu Disco, Hands Up, Club, DanceПродолжительность: 07:34:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:305A2AC0DE433EF4D37C002A61B83C8002CD2F7A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1060036.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 059 984
-
-VA - Record Super Chart #456  2016  [MP3|320 Kbps] <House, Electro House, Future House, Club, Da
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. DBSTF & Maurice West - Temple  Extended Mix   4:01
-02. KSHMR & Tigerlily - Invisible Children  Extended Mix   3:45
-03. Bassjackers feat. Luciana - Fireflies  Extended Mix   3:36
-04. Jax Jones feat. Mike Dunn & MNEK - House Work  2:37    Читать дальше...    Жанр: House, Electro House, Future House, Club, DanceПродолжительность: 02:09:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:71CF2197CB257564A1AFDF4A242815B0C77499C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059984.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 059 960
-
-VA - Дискотека Dance Affective  2016  [MP3|224~320 Kbps] <House, Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Sean Finn Feat. Amanda Wilson - All Or Nothing  Original Radio Edit   3:33
-02. Robin Schulz & Jasmine Thompson - Sun Goes Down  Tocadisco Remix   5:54
-03. Dimitri Vegas ft Moguai & Like Mike - Body Talk  Extended Mix Жанр: House, Club, DanceПродолжительность: 07:12:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F141C252C4157FD32F81B797E8639508B5DB355D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059960.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

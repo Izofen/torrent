@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 278 722
+
+Шан-Хай - Звездная коллекция  2000  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Солнечный зайчик [04:20]
+02. Ничего такого [04:59]
+03. Незнакомка [03:36]
+04. Пленник [04:50]    Читать дальше...    Жанр: PopПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3DE951B677FA4578969B978A09B7627200F5AFBA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1278722.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 278 671
+
+VA - 2019 Grammy Nominees  2019  [FLAC|Lossless|tracks] <Pop, rock, dance>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+25-е ежегодное издание компакт-диска с номинантами очередной 61-й по счету премии Grammy предлагается вашему вниманию. Все эти треки уже в той или иной степени были в релизах на нашем трекере, но, думаю, будет не лишне ещё раз пробежаться по лучшим  по мнению организаторов Grammy  темам уходящего года.01. Janelle Monae - Make Me Feel   3:15 
+02. Cardi B, Bad Bunny & J Balvin - I Like It   4:13 
+03. Kendrick Lamar & SZA - All The Stars   3:54 
+04. Drake - God s Plan   3:20     Читать дальше...    Релиз состоялся: 25 января 2019 г.Жанр: Pop, rock, danceПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BDF31DD9805678B05E7B74E95F0BCC6B6ACDD09A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1278671.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 278 665
+
+Boney M. - The Best Of 10 Years. Non Stop-Digital Remix  2002  Mixed, Reissue, Unofficial Releas
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Daddy Cool
+02. Sunny
+03. Ma Baker
+04. Belfast    Читать дальше...    Жанр: DiscoПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7C32A732D12C7E99C4ACE082A2DE287D5BF7FFC6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1278665.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 278 491
 
 Bananarama - Viva  2009  Deluxe Expanded Edition [MP3|320 Kbps] <Europop, Synthpop, Remixes>
@@ -1912,80 +1987,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271714.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 560
-
-Neoton Familia - Marathon  1980  1998, Remastered, Gong [FLAC|Lossless|tracks + .cue] <Pop, Disc
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Don Quijote  4:06 
- 02. Egy Huszas Eleg  3:37 
- 03. Marathon  5:27 
- 04. Korben-jaras  3:45     Читать дальше...    Жанр: Pop, Disco, 70s, 80sПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E35C485AB971956E9A0E2DB4649910B20BE4E01
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271560.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 522
-
-Velvet - 2 Альбома  2006, 2009  [FLAC|Lossless|tracks + .cue] <Pop, Eurodance, Euro-House>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-Альбомы:
-Finally - 2006
-The Queen - 2009Жанр: Pop, Eurodance, Euro-House |Продолжительность: 01:32:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:62D51E111FB534771097BD86372F5B8938B066C4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271522.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 439
-
-Jessie J - This Christmas Day  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Santa Claus Is Comin’ to Town
-02. Man With The Bag
-03. Rockin’ Around the Christmas Tree
-04. Jingle Bell Rock    Читать дальше...    Жанр: PopПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6273FEC8D63DB1F9D5723E91AA104324D0B37DC4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271439.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

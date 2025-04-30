@@ -1,4 +1,91 @@
 ﻿
+###  Публикация: 711 047
+
+Ruslan Tagirov - Standing On A Bridge  2011  [Limited Edition] [FLAC|Lossless]<Electropop, Instr
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Intro  Railway Station  [3:54]
+02. Standing On A Bridge [3:50]
+03. Natalie [5:29]
+04. Can t Wait For The Night [5:12]
+05. Love s Morning [4:08]
+06. Obsession [5:03]
+07. Fly Away [5:14]
+08. Spring Mood [5:28]
+09. My Love [5:22]
+10. Session One [4:57]    Читать дальше...    Жанр: Electropop, InstrumentalПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD53C7127BE8210D357BE2C4357AD874E412362A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 710 890
+
+VA - Pure... Legends  2013  Box Set, 4 CD [FLAC|Lossless]<Retro, Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Рыбачка Sony как то в мае...выпустила замечательный сборник легенд рор и рок музыки. В треклисте специально привожу годы выпуска соответствующих композиций, чтоб вы ощутили широту охвата этого сборника. Просто уверен, что даже большие ценители музыки найдут в нем для себя несколько незнакомых исполнителей и насладятся этой не стареющей музыкой.01. Sade - Smooth Operator [1984]  4:20 
+02. Journey - Who s Crying Now [1981]  5:02 
+03. Patti Smith Group - Because The Night [1978]  3:23 
+04. Meat Loaf - Two Out Of Three Ain t Bad [1977]  4:47     Читать дальше...    Жанр: Retro, Pop, RockПродолжительность: 01:01:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:97F281764E12B421EA52C3C6C4C63840C5D404A4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_710890.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 710 881
+
+VA - Super Eurobeat Vol.225  2013  [MP3|320 кб с]<Eurodance, Italo-Disco, Hi NRG>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Manuel - Never Say Never  4:25 
+02. Ace - Adrenaline  4:23 
+03. Karen - Maybe One Day  4:04 
+04. Dave Rodgers feat. Futura - Magic Sunday  4:03 
+05. Tipsy & Tipsy - Baby Tonight  5:30 
+06. Dream Fighters - I Just Wanna Stay With You  5:00 
+07. Cherry - Fairy Tale  5:23 
+08. Franz Tornado - Kool Kitten  5:15 
+09. Tora - You Got Me Boom! Boom!  4:49 
+10. Paul Harris - Don t Forget  5:04     Читать дальше...    Жанр: Eurodance, Italo-Disco, Hi NRGПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B98298F84D34E89E126989B1B6D96DC61FDC081
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 710 819
 
 Helene Fischer - Farbenspiel  Special Edition   2013  [MP3|320 кб с]<Pop>
@@ -2308,108 +2395,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:572593054885CDDABA835F1FF8A522C8C3542932
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 697 989
-
-Milli Vanilli - Girl You Know It’s True: The Best Of Milli Vanilli  2013  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Girl You Know It s True  03:19 
-02. All Or Nothing  03:21 
-03. Baby Don t Forget My Number  04:09 
-04. I m Gonna Miss You  03:59 
-05. Ma Baker  04:24 
-06. Boy In The Tree  03:11 
-07. Can t You Feel My Love  03:33 
-08. Dance With A Devil  03:12 
-09. Is It Love  03:22 
-10. Money  04:10     Читать дальше...    Жанр: PopПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:68934D8A12505F03AC4852E11C6078188375A4D3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_697989.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 697 835
-
-VA - Nova Tunes 2.8  2013  [FLAC|Lossless]<Electronic, Lo-Fi, Funk, Soul, Pop, Reggae>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Skarra Mucci Ft Delroy Wilson - Movie Star [4:17]
-02. Lady - Get Ready [4:04]
-03. Nu - Man O To  Daniel s Edit  [3:40]
-04. James Blake - Life Round Here [3:32]
-05. La Femme - La Femme [3:01]
-06. Major Lazer - Jessica  Featuring Ezra Koenig  [4:12]
-07. Jabberwocky Ft Elodie Wildstars - Photomaton [4:36]
-08. Winston McAnuff & Fixi - Garden Of Love [3:32]
-09. Husbands - Dream [3:33]
-10. Ezechiel Pailhes - Matin [3:00]    Читать дальше...    Жанр: Electronic, Lo-Fi, Funk, Soul, Pop, ReggaeПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C574F36D27222125C1D4E4FF11728B0B3B198090
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 697 692
-
-Madonna - MDNA World Tour  Live   2013  [MP3|320 кб с]<Dance, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1
-Продолжительность: 00:59:35
-    01. Virgin Mary  Intro   05:46 
-    02. Girl Gone Wild  03:57 
-    03. Revolver  03:52 
-    04. Gang Bang  05:54 
-    05. Papa Don t Preach  01:50 
-    06. Hung Up  03:47 
-    07. I Don t Give A  05:27 
-    08. Best Friend  Video Interlude   03:19     Читать дальше...    Жанр: Dance, PopПродолжительность: 00:55:14
-    01. Justify My Love  Video Interlude   03:34 
-    02. Vogue  04:08 
-    03. Erotic Candy Shop  04:40 
-    04. Human Nature  04:08 
-    05. Like a Virgin Waltz  05:15 
-    06. Love Spent  04:47 
-    07. Nobody Knows Me  Video Interlude   03:36 
-    08. I m Addicted  04:42 
-    09. I m a Sinner  06:45     Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B56D4C98D2800D10177E827168FCD2B91CDD2AC4
 ```
 
 <div id="header" align="center">

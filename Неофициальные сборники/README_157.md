@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 035 204
+
+VA - Чартова дюжина: Итоги 2015   Наше радио  - результаты хит-парада   2015  [MP3|320 K
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Brainstorm - Эпоха
+02. ДДТ - Жизнь красивая
+03. Сплин - Танцуй !
+04. Ночные Снайперы - Этонемне    Читать дальше...    Жанр: Руский рок, поп-рокПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:536C0B5A5968687281A423367CA941759B135A63
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035204.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 035 188
+
+VA - Endless Motion - Only Trance  episode3   2016  [MP3|320 Kbps] <Trance, Uplifting Trance
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Armin Van Buuren & Rising Star Ft. Betsie Larkin -  Again  Armin Van Buuren Remix  3:11
+002. Gareth Emery feat. Janet Devlin -  Lost  Super8 & Tab Remix  3:21
+003. NoMosk & Roman Messer feat. Christina Novelli -  Lost Soul  Aleksey Sladkov Remix  5:06
+004. Talla 2XLC & Jilliana Danise -  What Could Be Better  Original Mix  6:23    Читать дальше...    Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:53:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:973686ADB2A89E58646AA8C6A0EE27F378F0E205
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035188.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 035 141
+
+VA - Наше радио: Летняя 100-ка - 2016  2016  [MP3|320 Kbps] <Русский рок, поп-рок>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Ночные Снайперы - История
+002. BrainStorm - Пропуск
+003. Борис Гребенщиков - Бурлак
+004. Мураками - 364    Читать дальше...    Жанр: Русский рок, поп-рок.Продолжительность: 06:30:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7BBA79B0895DE8E8AAB598445647830305671FC3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035141.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 035 136
+
+VA - RnB Really: Soul Mix  2016  [MP3|320 Kbps] <RnB, Soul, Funky>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Ja Rule - Livin  It Up  Feat. Case 
+002. Beyonce - Sorry  Funkymix 
+003. Jackie Moore - Precious Precious
+004. Montell Jordan - This Is How We Do It    Читать дальше...    Жанр: RnB, Soul, FunkyПродолжительность: 07:21:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:78E622998CFD88A0F487D6B87A7D568CADA9ACB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1035136.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 035 090
 
 VA - American Road Blues  2016  [MP3|192-320 Kbps] <Blues Rock>
@@ -1896,106 +1996,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032231.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 032 228
-
-VA - Зарубежная Дискотека ХХ Века - 76  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. London Boys - My Love   Extended Remix 1989  
-02. Kylie Minogue - Got To Be Certain   1988  
-03. Blue System - Deja Vu   1991  
-04. Ace Of Base - Don t Turn Around   U.S. Version 1993      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B58983F750AB8A924F8C443C9AEF7B445EBBE527
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032228.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 032 219
-
-VA - Зарубежная Дискотека ХХ Века - 75  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Kelly Brown - Only You Can   You Make Me Feel     1985  
-02. Alan Cook - Do You Want To Stay   1986  
-03. Mouzon s Electric Band - All My Loving   1979  
-04. 49ers - Touch Me   Sexual Version 1989      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A2DAD6AE33C6103281E23A042744ED748189A6FB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032219.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 032 217
-
-VA - Зарубежная Дискотека ХХ Века - 74  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Swan - Don t Talk About It   1986  
-02. 2 Brothers On The 4th Floor - Come Take My Hand   1995  
-03. Macho Gang - Naughty Boy   Long Version 1988  
-04. Shanghai - Flight 69   1986      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D8BD0F9A42B533128718C06BDBA1686A055FDB46
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032217.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 032 214
-
-VA - Best of Lounge, Ambient and Chill Out, Vol. 4  2016  [MP3|320 Kbps] <Downtempo, Chillout, L
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Anthya - Voice of Desert
-02. Michael E. - Infinite Beauty
-03. Greg Walker - Caffи Gio
-04. Lemongrass - Deep River - Mirage Of Deep Remix    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:10:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DB6A2350D5111A55A70C9C9FCA8C32DEEAE60183
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032214.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

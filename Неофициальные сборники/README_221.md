@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 725 985
+
+VA - Новая Зарубежная Дискотека  2013  [MP3|256 кб с]<Pop, dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Alex Ferrari - Gatinha Assanhada  Official Remix 2013 
+002. Sean Kingston - Ordinary Girl
+003. Marc Anthony - Vivir Mi Vida
+004. Sidney Samson Feat. Will.I.Am - Better Than Yesterday  Radio Edit 
+005. Taylor Swift feat. Ed Shreeran - Everything Has Changed
+006. Avicii feat. Adam Lambert & Nile Rodgers - Lay Me Down
+007. Cassie feat. Ester Dean - Bad Bitches
+008. Madcon feat. Kelly Rowland - One Life  Radio Edit 
+009. Essonita & K.I.R.A. - Tonight  Original Mix 
+010. Lyum er - Fly    Читать дальше...    Жанр: Pop, danceПродолжительность: 06:15:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C468E972E26C583F5208D4A7845FD50BF908AD11
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_725985.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 725 661
+
+VA - Русский хит-парад 80х !!!  2012  [MP3|128 кб с]<Поп>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001 Владимир Маркин - Я готов целовать песок
+002 Верасы - Малиновки заслыша голосок
+003 Юрий Лоза - Плот
+004 Веселые ребята - Розовые Розы
+005 Алла Пугачева и Владимир Кузьмин - Две звезды
+006 Санкт-Петербург - Очарована, околдована
+007 Игорь Николаев - Старая мельница
+008 Электроклуб и Ирина Аллегрова - Темная лошадка
+009 Виктор Резников - Спасибо, родная
+010 Владимир Маркин - Сиреневый туман    Читать дальше...    Жанр: ПопПродолжительность: 12:22:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1DA5847BF6BCCBF89FA7D18AF51EE58B86B6D806
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 725 592
+
+VA - Популярные песни года  2013  [MP3|256 кб с]<Pop,Dance>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. NikitA - Полет Над Землей
+02. Время и Стекло - Harmonica
+03. ВИА Гра - Не Ведая Преград
+04. МакSим - Кошка
+05. Дима Билан - Улетаю
+06. Нюша - Наедине  DJ Stylezz Official Remix 
+07. Ежевика - Не Покидай Меня  Dj Fisun Remix 
+08. Полина Гагарина - Навек
+09. Ева Польна - Молчание
+10. Евгения Власова - Киев-ОдессаЖанр: Pop,DanceПродолжительность: 06:02:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F6AF33200C761F9053BC064A1074A40CCDF016A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 725 535
+
+VA - More Christmas 2013  3CD   2013  [MP3|177-287 кб с]<Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. George Michael - December Song  I Dreamed Of Christmas   03:32 
+02. TV-2 - Fra Alle Os Til Alle Jer  04:22 
+03. Bossen Og Bumsen - Op Til Jul  04:16 
+04. Gnags - Gnags  Julesang  03:34 
+05. Anne Linnet - Nu Det Jul  03:18 
+06. Sren Sko - Have Yourself A Merry Little Christmas  04:16 
+07. Stewart Stardust - Jule P Vesterbro  04:23 
+08. Shakin  Stevens - Merry Christmas Everyone  03:39 
+09. Otto Brandenburg - Sren Banjomus  02:52 
+10. Shu-Bi-Dua - Rap Jul  04:01     Читать дальше...    Жанр: PopПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:34FAB4FE96BA91A0C457549D3D3B84195B6DAA11
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 725 484
 
 VA - Наш Шансон. Лучшие Блатные Песни  2013  [MP3|256 кб с]<Шансон>
@@ -2289,130 +2413,6 @@ VA - Музыкальные новинки интернета. Третий ос
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:3B57EB9E741AC3C4702E4DB06540B78E096CDBDA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 718 752
-
-VA - 80s vs 90s Megamix  mixed by DJ scooby   2013  [MP3|320 кб с]<Teckno, Dance, Synthpop
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001 Queen – We Will Rock You
-002 Beastie Boys - Pass the Mic
-003 Genesis – Mama
-004 Duran Duran – Wild Boys Sample 
-005 Laid Back – Sunshine Reggae
-006 Sweetbox – Everything s Gonna Be Alright Sample 
-007 Beck – Loser
-008 John Farnham - youre the voice  Sample 
-009 Shabba Ranks – Mr. Loverman  Sample 
-010 Cindy Lauper – True Colours  Sample     Читать дальше...    Жанр: Teckno, Dance, Synthpop, EuroMixПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC15292C5A96C51D12BD82357CFE0B86BEB1999B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 718 743
-
-VA - Italo Disco Hits Vol. 89  2013  [MP3|198 - 320 кб с]<Italodisco, Eurodisco>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Albert One - Hopes And Dreams  The Love Mix 
-02. Casarano feat Elise Dean- Fairy Tale  In My Heart   Extended 
-03. Decadance - On And On  Flemming Dalum Remix 2013 
-04. Cliff Wedge - By Surprise
-05. Katz- Visions Of You
-06. Animotion - I Engineer  Extended Version 
-07. Bobby Farrell - I See You  MSainz Extended Mix 
-08. FM Attack - Memorex 1989  Remix 
-09. Capital Sound - Desire  Club Mix 
-10. Kano-Its a Way-{Re-Edit     Читать дальше...    Жанр: Italodisco, EurodiscoПродолжительность: 02:29:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D020277A68D2E3336A1EF11E4626223ADE02B5A6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 718 279
-
-VA - Dubstep, Breaks and Trap. Vol 12  2013  [MP3|320 кб с]<Dubstep, Breaks, Trap, Glitch Hop>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. As Beat - Bussa Move  Feat Bbk - Beatsmack Remix  [4:23]
-02. Austin, Rachel Wallace, Vinyl Junkie - Can t Go Back  Strange Rollers Remix  [5:32]
-03. Avril Lavigne - Hello Kitty [3:17]
-04. Bring Me the Horizon - Can You Feel My Heart  Jakwob Remix  [4:33]
-05. Carvar & Clock - Racket [3:31]
-06. Casket, Kure - American Nightmare  feat. Messinian, Splitbreed   Original Mix  [3:21]
-07. Celldweller - Unshakeable  BT & Seamless Remix  [4:00]
-08. Centron - Hey Charlie [4:32]
-09. Cory Enemy - The Drop by Bro Safari  Cory Enemy Remix  [5:11]
-10. Dave London, Shade k - White Noise  Grimey Breaks Mix  [4:17]    Читать дальше...    Жанр: DubStep, Breaks, Trap, Glitch HopПродолжительность: 06:02:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EEEB78E9B3EB8AB84433249D54332652C5E44938
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 718 275
-
-VA - Эйфория. Vol7  2013  [MP3|320 кб с]<Chillout, Chillstep, Ambient, Downtempo, Deep House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Joris Voorn - Ringo  Tommy Trash Sunrise MM Edit  [6:50]
-02. A.N.O. vs. Shadowx - Paragon [4:27]
-03. Bastille - Things We Lost In The Fire  SaneBeats Remix  [4:05]
-04. Costta - Space Bluze  Original Mix  [4:41]
-05. Fawn, Digital Sixable - Where Has Your Love Gone  Original Mix  [7:57]
-06. Inchange - Morning [5:09]
-07. Inchange - Not Alone [5:32]
-08. Inchange - Silent Days [4:57]
-09. Inchange - Within [7:12]
-10. Inkarv - Midnight [6:22]    Читать дальше...    Жанр: Chillout, Chillstep, Ambient, Downtempo, Deep HouseПродолжительность: 02:43:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CDB2F835BAAC18FF2B44F81ECC906E2E5A2DD337
 ```
 
 <div id="header" align="center">

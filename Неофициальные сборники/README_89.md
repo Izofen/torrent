@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 270 322
+
+VA - Club 2019-Hottest New Tracks  2018  [MP3|320 Kbps] <House, Handsup, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Jason Parker feat. Elaine Winter - Dancing on My Own  Radio Version 
+02. Housefly - Be with You  Markus D Ambrosi Remix 
+03. Felicia Uwaje - Strike It Up  Chris Excess Remix 
+04. G-Lati and Mellons feat. Damian Pipes - Hero  Adam Brown and Armand Van Henegouwen Mix     Читать дальше...    Жанр: House, Handsup, DanceПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F4AFA24E2BDF071FA8807F2116C477F346827E0B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1270322.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 270 306
+
+VA - Самые скачиваемые треки ВКонтакте Зима 7  2018  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Тима Белорусских - Мокрые кроссы  Lapin & Dzoz Radio Edit  3:44
+002. Dynoro & Gigi D Agostino - In My Mind  G-Love & Igor Frank RMX  4:34
+003. Леша Свик - Малиновый свет  Mikis Remix  3:41
+004. Сергей Лазарев - Пьяным, чем обманутым 3:37    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:50:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C65DDE487899CFBF4638EF3423815CE0A25529CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1270306.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 270 179
+
+VA - Новый Год вдвоём  2018  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Tom Odell - Real Love
+02. Why Don t We - You and Me at Christmas
+03. Ed Sheeran - Perfect Duet  with Beyonce 
+04. The Guess Who - Love Is All Around    Читать дальше...    Жанр: PopПродолжительность: 01:47:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5077AF325F83627F2225F189228CDADDE9467D15
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1270179.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 270 178
+
+VA - German Top 50 Party Schlager Charts 17.12.2018  2018  [MP3|320 Kbps] <Pop, Schlager>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich  feat. Florian Silbereisen 
+02. Maite Kelly - Die Liebe Siegt Sowieso
+03. Andrea Berg - Ja Ich Will
+04. De Lancaster - Rosenzeit  feat. Kay Dörfel     Читать дальше...    Жанр: Pop, SchlagerПродолжительность: 02:56:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9E72306227100739DFC04072B1A73EF608C9CC3C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1270178.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 270 168
 
 VA - German Top 50 Official Dance Charts 14.12.2018  2018  [MP3|320 Kbps] <Dance>
@@ -1889,103 +1989,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265368.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 265 353
-
-Unknown Brain - Superhero  2017  feat Chris Linton [MP3|320 Kbps] <Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-1. Unknown Brain - Superhero ★ feat Chris LintonЖанр: ElectronicПродолжительность: 00:02:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8CE80BA7871C3D4A18CCC6736D1331268DC5A5F4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265353.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 265 323
-
-VA - THIS is the 60 s  2018  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Shirley Bassey - Goldfinger
-02. Matt Monro - Born Free
-03. Noel Harrison - Windmills of Your Mind
-04. Frankie Vaughan - There Must Be a Way    Читать дальше...    Жанр: PopПродолжительность: 05:09:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2BE09C0408E17D85BBE90604B82D6EC2D48C8E99
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265323.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 265 321
-
-VA - New Releases of the 24th Week of 2018  2018  [MP3|320 Kbps] <Pop, Tropical, Hip Hop, Reggae
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Luis Fonsi, Stefflon Don - Calypso
-002. Tofer Dolan - Baby Daddy
-003. Rudimental, Major Lazer, Anne-Marie, Mr Eazi - Let Me Live
-004. Mau Y Ricky, Becky G - Mal De La Cabeza    Читать дальше...    Жанр: Pop, Tropical, Hip Hop, ReggaeПродолжительность: 08:45:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A54AF428921A63DCB4348A8C2EF9FA97B0277899
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265321.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 265 315
-
-VA - Mixtape Electro House For Morning Awakeining  2018  [MP3|320 Kbps] <Club, Dance, House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Benny Benassi - Everybody Needs A Kiss
-002. Aky - All For One
-003. Andrey Plavinskiy - 5Th Avenue
-004. Faulhaber Ft. Jake Reese - Savannah    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 10:23:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F1A32CB853C4DFBE7EC299071F2913AA76237F6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265315.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

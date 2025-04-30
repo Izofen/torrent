@@ -1,4 +1,105 @@
 ﻿
+###  Публикация: 946 893
+
+VA - Billboard Hot 100 Singles Chart  17-10-2015  [MP3|320 кб с]<Pop, Rap, Euro, Indie, Folk,
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+В последнее время  американский журнал Billboard стал публиковать свои  HOT 100 всё раньше и раньше, поэтому не удивляйтесь, что сегодня у них на календаре 17 октября. Billboard Hot 100 фактически является официальным хит-парадом США — самого крупного национального музыкального рынка в мире.
+За долгие годы после Битлз практически весь новый альбом What a Time To Be     Читать дальше...    01. The Weeknd - The Hills   4:02 
+02. Justin Bieber - What Do You Mean ?   3:28 
+03. Drake - Hotline Bling   4:27 
+04. The Weeknd - Can t Feel My Face   3:36     Читать дальше...    Жанр: Pop, Rap, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:05:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA389DCB69C6F641CF056F80ECC30325AB0F67B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_946893.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 946 747
+
+Alex Neo  DJ Alex-Mar  - Remixes and covers  2008-2016  [MP3|320 кб с]<Italo Disco, Euroda
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Экsтаz - Скорость  Maxx - Get Away Cover Alex Neo Remix 2015   3:46 
+02. Enigma - Return To Innocence  Alex Neo Remix 2014   4:23 
+03. Vocal Circus - Peace Etc  Alex Neo Remix   4:18 
+04. Mo-Do - Eins Zwei Polizei  Alex Neo Remix 2013   4:27     Читать дальше...    Жанр: Italo Disco, Eurodance, Synth-PopПродолжительность: 11:39:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3B466E069FBB69BF7C0029BA6E4AD0E086C06DD4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_946747.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 946 598
+
+VA - Creative Music Box 26  2015  [MP3|320 кб с]<Dubstep, Glitch Hop, Trapstep, Drumstep, Drum
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. A Day To Remember- If It Means A Lot To You  Sullivan King Remix 
+02. Aquilo - Losing You  Vanic Remix 
+03. Barely Alive, Astronaut - Bad Fellas
+04. Borgore, Half Empty, Pouya  - Goddes    Читать дальше...    Жанр: Dubstep, Glitch Hop, Trapstep, Drumstep, Drum n BassПродолжительность: 02:07:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F42592CA43B9FE665ED05BBEC07576C9207BC65
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_946598.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 946 461
+
+Barry White - Good Songs  2015  [MP3|320 кб с]<Blues, Jazz, Soul>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Staying Power
+02. Midnight And You
+03. I m Qualified To Satisfy You
+04. Practice What You Preach    Читать дальше...    Жанр: Blues, Jazz, SoulПродолжительность: 05:00:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4EB486E03DA52C217F0A7845E05BA8C7770954C7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_946461.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 946 440
 
 VA - Дискотека забытых хитов  зарубежная  - 16  2015  [MP3|128 - 320 кб с]<Pop, Disco>
@@ -1890,106 +1991,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942577.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 942 522
-
-Sexy Summer Cafe Ibiza - Summer Hits 2015 30 Lounge Chill Out Music and Songs of Summer  2015  [
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Summer Music Lounge
-02. My Sexy Summer
-03. Deep in da House - Dance Music
-04. Ibiza Hot Summer - Sexy Lounge Music    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:35:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D482CF447E15A7C8F88E9A649F8E4AD24D094D6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942522.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 942 382
-
-VA - Total Big Room Anthems  2015  [MP3|320 кб с]<Trance,House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Vinylgroover - Unfinished Sympathy  House Mix  [06:58]
-02. Black Russian - Playing With Knives  Original Mix  [06:13]
-03. Max Mozart - Military Zone  Ajax EDM Remix  [05:34]
-04. Rob Tissera - Freefalling  Bobby Tee & Darren Pearshouse Remix  [06:00]    Читать дальше...    Жанр: Trance,HouseПродолжительность: 06:55:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7B7ED36F9B70DD52D8D0FB57A7C6244BFC3531C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942382.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 942 312
-
-Whitney Houston - Good Songs  2015  [MP3|224 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. You Give Good Love  1985 
-002. Thinking About You  1985 
-003. Someone For Me  1985 
-004. Saving All My Love For You  1985     Читать дальше...    Жанр: PopПродолжительность: 07:19:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:673B48600F18C1ACA042A5C3D416D0E44C5E9464
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942312.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 942 181
-
-VA - Acoustic Chill Music  2015  [MP3|320 кб с]<Downtempo, Chillout, Acoustic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Zara James - Just Can t Get Enough
-02. Karizma Duo - Wake Me Up
-03. Anjali Joseph - May It Be
-04. Alice Lamb - Gravity    Читать дальше...    Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A1E047635B7BA5664C72F9280C3B0AABAB8E0CBC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942181.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

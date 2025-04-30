@@ -1,4 +1,80 @@
 ﻿
+###  Публикация: 1 468 896
+
+Los Havtanos - Иди ко мне  2020  [MP3|320 Kbps] <Latino, Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Los Havtanos - музыкальная группа, совместный авторский проект Евгения Хавтана, лидера группы «Браво», московской певицы Яны Блиндер и профессиональных кубинских музыкантов — исполняет авторскую музыку в стиле латино.1. Интро
+2. Иди ко мне
+3. Города
+4. Чудесная страна    Читать дальше...    Жанр: Latino, PopПродолжительность: 00:23:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E66FBAB7908F44743CEA812A3158CA871DD0DE2D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468896.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 818
+
+Paul Mauriat & His Orchestra, Duke Ellington & His Orchestra - Songs That Define a City; Paris, Volu
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Sous Le Ciel De Paris, Padam Padam  Medley Remastered  [00:02:47]
+02. La Vie En Rose  Remastered  [00:02:32]
+03. C est Si Bon  Remastered  [00:01:47]
+04. I Love Paris, Paname  Medley Remastered  [00:03:17]    Читать дальше...    Жанр: Soul-Jazz, Big Band, Soul, Easy ListeningПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C7999405C20FA0475812FC5A84A7F42B8E418C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468818.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 468 783
+
+Paul Mauriat & His Orchestra - Paul Mauriat plays the Beatles & Mamy Blue  2014  Compilation, Re
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Paul Julien André Mauriat  4.03.1925 – 3.11.2006  был руководителем и дирижером французского эстрадного оркестра Le Grand Orchestre de Paul Mauriat, который исполнял легкие эстрадные мелодии. Каталог звукозаписи Paul Mauriat насчитывает более 1000 названий, а его альбомы разошлись по всему миру в количестве более 40 млн копий.
+Английский лейбл Vocalion представляет     Читать дальше...    01. Eleanor Rigby  2:15 
+02. My Sweet Lord  3:01 
+03. Yesterday  2:34 
+04. Hey Jude  3:10     Читать дальше...    Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8BF164839EB341E118B1717F6473C38438FF2087
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468783.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 468 718
 
 B.B. Jackson - Disco March  1977  LP [MP3|320 Kbps] <Electronic, Disco>
@@ -1916,81 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461749.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 461 666
-
-VA - ZYX Italo Disco New Generation Vol. 16  2020  2CD, Compilation [FLAC|Lossless|tracks + .cue
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Italove - Burn This City  Flashback Ri-Mix   6:22 
-02. Savage - Magic Carillon  Also Playable Mono Remix   5:30 
-03. Carino Cat feat. Fred Ventura - The Carino Crew  4:58 
-04. Romantic Gladiators feat. Joey Mauro and Remo Zito - Hero  Warrior Version   5:24     Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:28:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CD6036D7C55E2FFE21800FC38C738106E13B77A2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461666.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 461 528
-
-Заплатки - Завтра выходной  1998  [FLAC|Lossless|tracks + .cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Колечко
-02. Пряничек Медовый
-03. Завтра-Выходной
-04. Кузнечик    Читать дальше...    Жанр: PopПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:48D5749F46261698D166B6E3B8B1D1DF937A4692
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461528.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 461 409
-
-Various Artists - Supermix - [El Primer Megamix... Ilustrado] Cap. #1  2019  [WavPack|Lossless|i
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Supermix  The Custer Megamix        -    Megamix By Tony Postigo   15:37  **
-02. Swan                                              -    General Custer      7:08 
-03. Roy                                                 -    Destiny Time    6:28 
-04. Check Up Twins                                -    Sexy Teacher    7:16     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:457E74DDAE86A8DC17EF9CA5490035E3BBAEFF29
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1461409.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

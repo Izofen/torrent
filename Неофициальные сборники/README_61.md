@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 383 070
+
+VA - Classic Latin  2020  [MP3|320 Kbps] <Latin, Salsa, Rumba>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. 3ballmty - Quisiera Tenerte
+002. Morenito De Fuego - Amigos Con Derecho
+003. El Trono De Mйxico - Te Ves Fatal
+004. Gerardo Ortнz - El Omega    Читать дальше...    Жанр: Latin, Salsa, RumbaПродолжительность: 06:21:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8CCE5D340061D9F9171AD9D99C42462B81E9B515
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383070.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 382 988
+
+VA - Kraftsport Mix  2020  [MP3|320 Kbps] <Rock,  Hip Hop, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1.Sum 41 - Still Waiting  2:38 
+2.Hilltop Hoods - Cosby Sweater  3:37 
+3.Papa Roach - Last Resort  3:19 
+4.Machine Gun Kelly - why are you here  2:55     Читать дальше...    Жанр: Rock,  Hip Hop, OtherПродолжительность: 05:30:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B16779F8EEC608BF369822F889955A45566DD1D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382988.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 382 892
+
+VA - Best Funk Of All Time  2020  [MP3|320 Kbps] <R&B, Soul & Funk>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+1.Sly & The Family Stone - Remember Who You Are  3:17 
+2.Fat Larry s Band - Act Like You Know  6:30 
+3.Prince - Kiss  3:46 
+4.Wild Cherry - Play That Funky Music  5:00     Читать дальше...    Жанр: R&B, Soul & FunkПродолжительность: 05:30:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:28B909D183BCD8454C2B7F11594A229F3EBD240A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382892.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 382 886
+
+VA - Feel Good Dance  2020  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Klaas - Mr. Saxobeat 2:31
+02. Dayvi, Victor Cardenas, Kelly Ruiz - Baila Conmigo 3:10
+03. Sevenn - Loco Papi 2:59
+04. Jax Jones, Martin Solveig & Dragonette, Madison Beer, Europa - All Day And Night 2:49    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 03:07:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EDC16D6E00441E8B01013BF0AF3641A729489A09
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382886.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 382 878
 
 VA - Romantic Soul Music  2020  [MP3|320 Kbps] <Soul & Funk, R&B>
@@ -1891,103 +1991,6 @@ Rap, Hip-hop, RnB, Reggae  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1380184.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 380 142
-
-VA - ЕвроХит Топ 40 Europa Plus 01.05.2020 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights 3:22
-02. Little Big - UNO 2:41
-03. Trevor Daniel - Falling 2:39
-04. Doja Cat - Say So 3:58    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:10:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5024185D2DEC4619661517A3F6CA3DDD97201A02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1380142.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 380 100
-
-VA - Classic Pop & Rock Songs Hits Of The 80 s  2020  [MP3|320 Kbps] <Rock, Pop>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Queen - Bohemian Rhapsody  2011 Mix  5:54
-002. Europe - The Final Countdown 5:10
-003. Michael Jackson - Billie Jean 4:54
-004. a-ha - Take On Me 3:48    Читать дальше...    Жанр: Rock, PopПродолжительность: 20:45:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C2DDFC0584E076A9ECB76FCFAEFB7C407E3AF54
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1380100.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 380 061
-
-aQuaLuna - Best of Destination Paradise  2020  [MP3|320 Kbps] <Progressive, Vocal, Tech, Uplifti
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Жанр: Progressive, Vocal, Tech, Uplifting TranceПродолжительность: 55:08:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF25BC9995D05D374E910BDAA5DEF5713E288B8B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1380061.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 380 045
-
-VA - The #1 Dad Album  3 CD   2020  [MP3|320 Kbps] <Pop, Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-CD1
-01. Meat Loaf - Bat Out of Hell
-02. Thin Lizzy - The Boys Are Back In Town
-03. Status Quo - Down Down    Читать дальше...    Жанр: Pop, RockПродолжительность: 03:47:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EA83BD3F3E03B83C1BD7518192FBF344DC5BA932
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1380045.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

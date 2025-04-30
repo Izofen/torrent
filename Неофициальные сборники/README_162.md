@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 024 363
+
+VA - Neuro House Version Driver  2016  [MP3|264-320 кб с] <Electronic, House, Progressive, Fun
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Tom And Collins - Obsessed  Vijay And Sofia Remix  05:42
+02. Zir Rool - Belii  Original Mix  07:31
+03. Vic Flairs - Algebraic Expression  Original Mix  09:18
+04. WeRWolvz - When I See You  Original Mix  04:45    Читать дальше...    Жанр: Electronic, House, Progressive, FunkyПродолжительность: 08:36:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5EE875299283CF27F083115061F1B518466C2E90
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1024363.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 024 340
+
+VA - Pure Instrumental Music  2016  [MP3|320 кб с] <Electronic,Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Ac G - Summer Lawns  03:53 
+02. BGPONE - Introspektiv  04:33 
+03. Da Jungle - Mystical Fever  05:01 
+04. Christian Loeser - Sternenlied  03:07     Читать дальше...    Жанр: Electronic,InstrumentalПродолжительность: 01:51:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9A964E716F2FCDBC1735E7F1BF298734334B5518
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1024340.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 024 201
+
+VA - Love Therapy: Romantic Piano and Instrumental  2016  [MP3|320 кб с] <Downtempo, Chillout,
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Toni Verde - Heroes of Galaxy - Main Theme
+02. LifeBlood - Essence
+03. Toni Verde - Piano Moods
+04. Josh Freeman - A Cup of Tea    Читать дальше...    Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:970BFB6077868C91A98931D42DE89EBCF31BB7B6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1024201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 024 196
+
+VA - Жаркое Хитовое Лето  2016  [MP3|256 кб с] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. АГОНЬ - Лето
+02. Влад Топалов - Я Помню
+03. НеАнгелы - С Днём Рождения
+04. Afrojack - Unstoppable    Читать дальше...    Жанр: PopПродолжительность: 06:18:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B3181E46769E33998060392DF8BBC31BE418853
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1024196.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 024 152
 
 VA - Позитивный заряд Шансона.  Часть 3   2016  [MP3|256 кб с] <Chanson>
@@ -1891,106 +1991,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020891.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 020 883
-
-VA - Зарубежная Дискотека ХХ Века - 21  2016  [MP3|320 кб с] <Pop, Disco, Italo disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. The Big Brother - Red Fire   1991  
-02. Fancy - Come Inside   1984  
-03. Vanessa - Just a Game   1989  
-04. Macho Gang - When Somebody Loves Me   1989      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F3AC499072878207A29F038091DF35CC1FFAC95
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020883.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 020 874
-
-VA - Зарубежная Дискотека ХХ Века - 20  2016  [MP3|320 кб с] <Pop, Disco, Italo disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Flo Astaire - Monkey Monkey   1986  
-02. Alan Cook - Bad Dreams   1986  
-03. Queen Of Times - Holiday   1999  
-04. Mike Mareen - Here I Am   1985      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:15:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B6734F0269787CEEA74AB4639C4AE932B0761AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020874.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 020 867
-
-VA - Зарубежная Дискотека ХХ Века - 19  2016  [MP3|320 кб с] <Pop, Disco, Italo disco>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Lou Sern - Swiss Boy   1986  
-02. New Romantique - Shy Like An Angel   1985  
-03. Blue System - She s A Lady   Maxi Version 1987  
-04. A La Carte - Radio   1983      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CAC005868F0697C088D467E2FE05D846E8D9F73E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020867.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 020 859
-
-VA - Зарубежная Дискотека ХХ Века - 18  2016  [MP3|320 кб с] <Pop, Disco, Italo disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Flirts - Helpless   1984  
-02. Camaro`s - Companero   1985  
-03. Secret Service - Hey Johnny   1979  
-04. Patto - Black And White   1984      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:261B1542955404CA8D5229C3E121915C8D19CEF0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020859.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

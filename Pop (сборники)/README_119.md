@@ -1,4 +1,92 @@
 ﻿
+###  Публикация: 737 263
+
+VA - Танцевальный Рай: Disco Remix 2014  2013  [MP3|320 кб с]<Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Новый сборник популярной музыки «Танцевальный рай: Disco Remix 2014″! Самые лучшие треки от мировых диджеев: Alex Ferrari, Movetown, Guru Josh, Michael Mind Project, Global Deejays, Scotty, Bryce и многих других. Танцуй в ритме диско с новым сборником Disco Remix 2014!01. Yolanda Be Cool - All That She Wants  Human Life Remix Edit   04:20 
+ 02. Otto Le Blanc - Loco  Radio Edit   04:13 
+ 03. DJ Antoine - Margarita  Dj Antoine vs Mad Mark Radio Edit   03:20 
+ 04. HouseMaxx - Because the Night  Scotty Remix Edit   03:43 
+ 05. Mish - How We Do  Dj Nejtrino & DJ Baur Radio Cut Жанр: Pop, DanceПродолжительность: 02:58:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:35F9B92815584A8867E3CC332D413293B2316700
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 737 024
+
+Надежда Кадышева и Золотое кольцо - Светят звёзды  2013  [FLAC|Lossless]<Pop-Folk>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Светят звёзды
+02. Ты меня ждёшь
+03. Полночь
+04. Солнце в небе
+05. Эх, зима…
+06. Небо пополам
+07. Красивая
+08. Я останусь с тобой
+09. Лети
+10. Фантазии    Читать дальше...    Жанр: Pop-FolkПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:98FFDC9903157C802E6F76A9FD1E60D045DD7F82
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 736 843
+
+Robbie Williams - Swings Both Ways  2013   Deluxe Edition  [FLAC|Lossless]<Pop, Swing>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Shine My Shoes 			 03:24 
+02. Go Gentle 				 04:31 
+03. I Wan na Be Like You		 03:31 
+04. Swing Supreme 			 03:17 
+05. Swings Both Ways 			 03:59 
+06. Dream A Little Dream 		 03:34 
+07. Soda Pop 				 03:19 
+08. Snowblind 				 03:19 
+09. Puttin  On The Ritz 		 02:32 
+10. Little Green Apples 		 03:17     Читать дальше...    Жанр: Pop, SwingПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3EBB5F11D4FE32FECB43ED8FD97E9A65B9EBB02A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 736 508
 
 Mylene Farmer - Timeless  2013   Live In Lyon  [FLAC|Lossless]<Pop>
@@ -2314,99 +2402,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:49E0CD47542724105D8ACD0799CDA925F931B3EB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 722 834
-
-VA - Now That’s What I Call Music! Vol. 48  Target Exclusive   2013  [FLAC  tracks+.cue 
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Katy Perry - Roar  03:42 
-02. Robin Thicke feat. T.I. and Pharrell - Blurred Lines  04:21 
-03. Justin Timberlake - Take Back the Night  05:53 
-04. Lana Del Rey - Summertime Sadness  Cedric Gervais Remix Edit   03:33 
-05. Daft Punk - Get Lucky  04:07 
-06. Bruno Mars - Treasure  02:54 
-07. Maroon 5 - Love Somebody  03:47 
-08. Avicii - Wake Me Up  04:04 
-09. Miley Cyrus - We Can t Stop  03:49 
-10. Lady Gaga - Applause  03:30     Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14D975BEC158F88195CB74EA4DA0246229DC81EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 722 787
-
-VA - Greatest Hits Of The Millennium 36CD  1999  [MP3|320 kbps]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.Wes - Alane  03:40 
-02.Spice Girls - 2 Become 1  03:59 
-03.Backstreet Boys - As Long As You Love Me  03:30 
-04.Robbie Williams - Angel  04:24 
-05.Natalie Imbruglia - Torn  04:05 
-06.KCi & Jojo - All My Life  03:41 
-07.Lighthouse Family - High  04:35 
-08.Eagle-Eye Cherry - Save tonight  03:54 
-09.Another Level - Freak Me  03:35 
-10.Romeo - Coming Home  03:30     Читать дальше...    Жанр: PopПродолжительность: 44:31:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8527228371A9E2F34CB56FB2CF54CE1FB5066B64
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 722 459
-
-Dido - Greatest Hits  2013  [MP3|320 кб с]<Pop, Chill Out>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Here With Me
-02. Thank You
-03. Hunter
-04. White Flag
-05. Life For Rent
-06. Don’t Leave Home
-07. Sand In My Shoes
-08. Don’t Believe in Love
-09. Quiet Times
-10. Grafton Street    Читать дальше...    Жанр: Pop, Chill OutПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0A2393A10E67C9850115040FDE4780E6C7C57BC6
 ```
 
 <div id="header" align="center">

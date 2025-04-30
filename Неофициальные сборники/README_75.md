@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 323 232
+
+VA - Rock Amber Class  2019  [MP3|320 Kbps] <Alternative, Hard Rock, Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Oasis - D you Know What
+002. Riverkinn - Kenophobic
+003. Plan B - Sepia
+004. Peter Hall - Andante Manefestations    Читать дальше...    Жанр: Alternative, Hard Rock, RockПродолжительность: 10:42:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:12367929E514CB7CA3C6BA90772FB0B9E1079263
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1323232.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 323 117
+
+VA - Ambrosium  2019  [MP3|320 Kbps] <R&B, Soul>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Katbrownsugar - Turn It Up
+002. Becky G - Dollar
+003. Lethal Lipps - Wrong Nigga
+004. Michael Kiwanuka - Money    Читать дальше...    Жанр: R&B, SoulПродолжительность: 11:45:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:39C9811BCA7A84B9CD3BD0D49D1220B1E8A0E8AC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1323117.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 323 095
+
+VA - Global Dance Party: August 2019  2019  [MP3|320 Kbps] <Dance, Pop, House, Club>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Robert Db - Women Of America  Original Mix 
+002. Mepo - Message  Original Mix 
+003. Gorkiz - Dust  Original Mix 
+004. Harmoníe - Elegua    Читать дальше...    Жанр: Dance, Pop, House, ClubПродолжительность: 08:34:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE03F1515EA97FEF873BD942D131242F7C5F8CC2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1323095.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 323 049
+
+VA - Самые Скачиваемые Треки Интернета Осень 2019 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+1.Макс Корж - 2 типа людей  4:15 
+2.Тима Белорусских - Найду тебя  3:24 
+3.HammAli & Navai - Прятки  3:13 
+4.Billie Eilish - bad guy  3:14     Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:28:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BDB2D96CA05687DBDD823B76BF314125D7B40E3B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1323049.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 323 011
 
 VA - Новинки С Разных Популярных мп3 Сайтов ver.87  2019  [MP3|320 Kbps] <Pop, Dance, Other>
@@ -1894,106 +1994,6 @@ VA - не Громкие новинки недели 29  2019  [MP3|320 Kbps] <P
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1319124.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 319 069
-
-VA - Grape Joe: Soul Rap Collection  2019  [MP3|320 Kbps] <Rap, Hip Hop>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. Precyce Politix - Circles
-002. Alemбn - Waves
-003. Orphanboy - Andretti
-004. Graveyard Shifter - Power Armor Gladiator    Читать дальше...    Жанр: Rap, Hip HopПродолжительность: 11:02:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:117D9376AF737DD01D8198FE162E78E6370997FE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1319069.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 319 016
-
-VA - New Wave Disco Roller  2019  [MP3|320 Kbps] <Disco, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Space - Running In The City
-002. Victor Haynes - Destiny
-003. Jam Funk - Halfway Loving
-004. Savage - Don t Cry Tonight    Читать дальше...    Жанр: Disco, DanceПродолжительность: 08:31:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:625E209A12687FA31C2B178C0C27C35D4F9DCDC8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1319016.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 319 014
-
-VA - International Riddim: Summer dancehall  2019  [MP3|320 Kbps] <Dancehall, Reggae, Reggaeton,
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. Orijinal Fox - Ou Mwen Lè
-002. Woodboy - Enmen Zion
-003. Rvshwill - Law & Order
-004. Compass - Life Nice    Читать дальше...    Жанр: Dancehall, Reggae, Reggaeton, LatinПродолжительность: 08:02:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5F3A0BB556EBA42E57889F3601FF08814418C141
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1319014.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 319 012
-
-VA - Beach Dance House Classic Radio  2019  [MP3|320 Kbps] <House, Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Tough Love Feat Reigns - Hideaway
-002. Nemora - My Life My Rules
-003. Bastian Sander - Side By Side
-004. The Sloppy 5th s - Flygirl Got Dissed    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 10:12:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E14BCD069421D72398C980D92C861D5FE88730F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1319012.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 156 228
+
+Bronski Beat - The Age Of Reason  2017  2CD [FLAC|Lossless|image + .cue] <Synth pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Stars  Radio Edit   3:26 
+02. Stars  Extended Mix   5:11 
+03. Stars  Sordid Soundz Remix   6:32 
+04. Stars  QUBIQ Cosmic Energy Extended Mix   8:45     Читать дальше...    Жанр: Synth popПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ECB20AB952D90506FD9FABEE2BC5E0C5407E129D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156228.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 156 190
+
+VA - New Italo Disco Top 25: Compilation Vol.7  2017  [MP3|320 Kbps] <Italo Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01.  Miko Vanilla - Change Your Mind  Radio Remix   4:11
+02.  Rynar Glow - Deep In Love  Last Vocal   5:36
+03.  Mimosa - In Love  Short Love Mix   4:31
+04.  Ken Martina - Another Melody  Another Radio Remix   5:52    Читать дальше...    Жанр: Italo DiscoПродолжительность: 01:59:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CC21F98F2961E7C22A006C9C78FF573189661B77
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156190.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 156 145
+
+Eighth Wonder - 2 Albums  1987, 1988  CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Британская поп-группа 80-х годов. Образовались в 1983 году и пользовались большим успехом в Японии и Италии между 1985 и 1987 годом, до того как серия хит-синглов не прокатилась по Великобритании и далее по всей Европе в 1988 году. Безусловно  изюминкой  группы стала актриса Пэтси Кенсит  Patsy Kensit .01. When The Phone Stops Ringing  3:41 
+02. Loser In Love  3:23 
+03. Open Your Mind  3:58 
+04. Stay With Me  3:19     Читать дальше...    Жанр: Electronic, Pop, Synth-popПродолжительность: 01:38:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:997F71EE3DB5CB6C215A7B0538816DD099C77F3C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156145.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 156 100
 
 D. White - One Wish  2017  [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
@@ -1918,81 +1993,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1147822.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 147 633
-
-Шао? Бао! Проект - Хочется русского  2001  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Хочется русского [02:53]
-02. Игра в любовь [03:57]
-03. Ламбада Бао [03:17]
-04. Я хочу гулять [03:16]    Читать дальше...    Жанр: PopПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DCF5976589A9BD310544711E3EB6A65861A6F7C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1147633.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 147 228
-
-Belinda Carlisle - The Anthology  2014  Compilation, 3CD [FLAC|Lossless|tracks + .cue] <Pop-Rock
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Dancing In The City  3:58 
-02. Bless The Beasts And The Children  4:18 
-03. Christmas Lullaby  3:53 
-04. I Won t Say  I m In Love   3:18     Читать дальше...    Жанр: Pop-Rock |Продолжительность: 01:19:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7CC8F9EC068D794C8608DE294A1FFA133B18E8CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 147 159
-
-VA - A Touch Of Italo Disco  2017  [MP3|320 Kbps] <Disco, Nu-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Layla Mystic Funkenhooker - Ibiza Needs You  Nu Disco Bitches edit mix   03:44 
-02. Jason Rivas Class Of  88 - E Salsa  Club edit   03:23 
-03. Nu Disco Bitches Jason Rivas - Song Five  vocal Club edit   03:45 
-04. Acid Klowns From Outer Space Jason Rivas - Golden Years  03:32     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:952908F5369A6E445EF336B2AA8AB586CFC358FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1147159.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

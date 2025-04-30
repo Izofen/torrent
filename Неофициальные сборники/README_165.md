@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 014 831
+
+VA - Умная Электроника  Музыка Поднимающая Настроение  Часть 2  Compiled by Zebyte   2016<
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01 Carrot Green - Ponto Gira  07:11 
+02 Mauro Telefunksoul E Lurdez Da Luz - Bassdaue  03:53 
+03 Nixtamal - Maria Theresa  03:55 
+04 Shazalakazoo - Chocheque  03:48     Читать дальше...    Жанр: Electro Swing, Deep House, Techno SwingПродолжительность: 02:42:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:653B9541B35DA19E36E31527863E37ECAA7D0244
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1014831.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 014 818
+
+VA - Популярная соточка. Русская версия  2016  [MP3|256 кб с] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Din-Go - Я Скучал По Тебе
+002. Mseven - Листья
+003. Дмитрий Прасковьин - Между Нами
+004. Ionel Istrati - Быть С Тобой    Читать дальше...    Жанр: PopПродолжительность: 06:11:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04D2876A6F5AAF2B678980D2E2D55F045ED0AD3A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1014818.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 014 813
+
+VA - Top Club Music World Hits 2516  2016  [MP3|320 кб с] <House, Future House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Jolyon Petch & Andy Murphy - Sweet Dreams  Mobin Master and Massivedrum Remix  4:37
+02. Jochen Miller & Cuebrick - In The Dark  Extended Mix  4:36
+03. Vinyl Junkie And Rachael EC - Cut It Loose  Original Mix  5:42
+04. Heart Saver & Anton Orf Feat. Nina - Fame  No Hopes Remix  5:30    Читать дальше...    Жанр: House, Future HouseПродолжительность: 03:37:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8518767DCBFABDF31946FD56EF98D9059BA24507
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1014813.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 014 761
+
+VA - Dance Hits Vol.337  2016  [MP3|320 кб с] <Club, Dance, Hand Up>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Klubbingman & Beatrix Delgado - Love Message 2K16  DJ Gollum & DJ Cap Remix  4:28
+02. Ray Knox - Reach Out  Ray Knox And Melodypark Mix  4:28
+03. Shogga - My Heart Is Beating  Danny R. Remix  4:50
+04. Atmozfears - Release  The Hitmen Bootleg  3:45    Читать дальше...    Жанр: Club, Dance, Hand UpПродолжительность: 01:47:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0EAEBEC0C7CDC0376151D7A31B92B91ECE52956C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1014761.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 014 706
 
 VA - Beatport Top 100 Tech House April  2016  [MP3|320 кб с] <Tech House>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012346.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 012 321
-
-VA - Running Hits  Workout, Fitness, Jogging, Spinning, Gym & Cardio   2016  [MP3|320 кб с
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Pete Sheppibone & SashMan - hello happiness  extended mix 
-02. DJ Oskar - She Knows Me  Original Mix 
-03. Ferry feat. Ashley Jana - Don t Ever Quit On Me Babe  Original Mix 
-04. Noisy Bears - Hold You  Feat SevenEver   Original Mix     Читать дальше...    Жанр: HouseПродолжительность: 07:22:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:45DDCF9966B7D927A8434D8F82658F1342C2BCB0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012321.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 012 319
-
-VA - Вспомним 90-2000 от Виталия 72 - 5  2016  [MP3|320 кб с] <Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01 Подъём - Девчонка На Свадьбе  03:29 
-02 Бархат - Сердцеедки  03:11 
-03 Кристина Орса - Я Буду Рядом  03:45 
-04 Влад Соколовский - До Небес  02:27     Читать дальше...    Жанр: ПопПродолжительность: 05:12:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC52D75F43AECA892E71FEEDA64DC185F11A372C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012319.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 012 299
-
-VA - Party Time  mixed by Dj V   2016  [MP3|320 кб с] <Club House, Disco House, Deep House
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01-Mr Da-Nos Feat. Zoe Xenia - Party Time  Full Vocal Remix 
-02-Antoine Clamaran, Gary Caos, Lizzie Curious, Agua Sin Gas - Do Watcha Doin   Original Mix 
-03-Kokiri & Versechi - So Long  Original Mix 
-04-Stefan Rio - Cry  Club Mix     Читать дальше...    Жанр: Club House, Disco House, Deep HouseПродолжительность: 01:02:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D09C8B7899E52C4C947A7EF4F1BA85FE6A6F779F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012299.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 012 285
-
-VA - Finding Around Happiness  Energy Tech Trance  004  2016  [MP3|320 кб с] <Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Michael Dow -  Wave After Wave  Kheiro & Medi Remix   6:42
-02. Tranzlift Ft. Imperfect Hope -  Para Siempre  BTSR100 Anthem   Original Mix   8:14
-03. Simon Lee And Alvin -  Xcelerate  Extended Mix   5:24
-04. Liuck And Neev Kennedy -  Let This Go  Extended Mix   6:13    Читать дальше...    Жанр: TranceПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:655FC764998AA74AB83C417FAB8D51676180D2EA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012285.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

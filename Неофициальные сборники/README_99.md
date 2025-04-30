@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 226 499
+
+VA - Blue Note Jazz Martini Bar  2018  [MP3|320 Kbps] <Jazz, Blues, Soul>
+Неофициальные сборники
+Jazz, Blues, Soul (сборники)
+
+###  Подробнее
+
+001. Derek Ryan Edwards - Night Sky
+002. Rosa Passos & Ron Carter - Insensatez
+003. The Rippingtons - Wild Tales
+004. Renata Ghiso - I m a Stranger Here Myself    Читать дальше...    Жанр: Jazz, Blues, SoulПродолжительность: 07:17:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B447B0FA1B138D1357BC71B2F8A2051C6941947
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226499.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 226 486
+
+VA - 100 Хитов Русского Рока  2018  [MP3|256-320 Kbps] <Рок>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Сплин - Волк
+02. Ночные Снайперы - Инстаграм
+03. ЧайФ - Аргентина-Ямайка - 5:0
+04. Сплин - Выхода нет    Читать дальше...    Жанр: РокПродолжительность: 06:26:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D19B1694FD315D6F07A103BB5AA4C9946517AEA4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226486.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 226 475
+
+VA - Club Dance Ambience Vol.147  2018  [MP3|320 Kbps] <Dance, Club House, Electro House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Adriana Johnson - Deep In The Night  Club Mix 
+002. AL-B & Kam Delight - Free  feat. Kam Delight   Original Mix 
+003. Aldi Be Cool - All I Want   Extended Mix 
+004. Aldi Be Cool - All I Want   Radio Mix     Читать дальше...    Жанр: Dance, Club House, Electro HouseПродолжительность: 07:27:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4C7D866C2ACE02E587E7CAB4E733B853799E39B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226475.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 226 469
+
+VA - Club Dance Ambience Vol.148  2018  [MP3|320 Kbps] <Dance, Club House, Electro House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. #2Маши - Красное Белое  Rakurs & Ramirez Radio Edit 
+002. Addal vs. Mida feat. KiFi - 405  Ramirez & Mike Prado Radio Edit 
+003. Afterman - Runnin   Sunshine Mix 
+004. Alok, Bhaskar, Jetlag Music - Bella Ciao  Extended Mix     Читать дальше...    Жанр: Dance, Club House, Electro HouseПродолжительность: 07:12:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:736FC9A96C6C318908550D5916D0198D4CAC5FCE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226469.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 226 423
 
 VA - Unique Disco  2018  vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, Disco>
@@ -1885,106 +1985,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223493.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 223 492
-
-VA - The Official UK Top 40 Singles Chart 04.05.2018  2018  [MP3|320 Kbps] <Pop, Dance, Euro>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Calvin Harris, Dua Lipa - One Kiss
-02. Ariana Grande - No Tears Left to Cry
-03. Drake, Big Freedia, 5thward Weebie - Nice For What
-04. Lil Dicky - Freaky Friday  feat. Chris Brown     Читать дальше...    Жанр: Pop, Dance, EuroПродолжительность: 02:18:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF6A46B0BCD95D4EC3955EEF8038672C1D88A911
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223492.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 223 347
-
-VA - Cocktail new music №33  2018  [MP3|320 Kbps] <Dance, Club, R&B>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Akcent feat. Reea - Stole My_Heart
-002. Burak Yeter - French Kiss
-003. Camila Cabello feat. Kane Brown - Never Be The Same
-004. Dan Balan feat. Matteo - Allegro Ventigo    Читать дальше...    Жанр: Dance, Club, R&BПродолжительность: 06:45:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:30415CE7A0EAF8090F1D7F8F611431414AFEB088
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223347.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 223 188
-
-VA - Billboard Hot 100 Singles Chart  05.05.2018   2018  [MP3|320 Kbps] <Pop, Dance, Euro>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Drake, Big Freedia, 5thward Weebie - Nice For What
-002. Drake - God s Plan
-003. Ariana Grande - No Tears Left to Cry
-004. Bebe Rexha - Meant to Be    Читать дальше...    Жанр: Pop, Dance, EuroПродолжительность: 05:52:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1A37EA34E6CCA3AD6DDC76270409AFB4155A40AE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223188.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 223 149
-
-VA - Danced Our May Day  2018  [MP3|320 Kbps] <Tropical, House, Future Bass>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Charming Horses ft. Karlyn - Freak On  Extended Mix 
-02. Sigrid - Strangers  R3hab Remix 
-03. MAUII - This Ain t Wrong  feat. Adana 
-04. Rock Stalone - Rockstar  BBop & Rocksteadi Radio Edit     Читать дальше...    Жанр: Tropical, House, Future BassПродолжительность: 03:32:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E3CDA30CFE359316A7BF2CE60E9BC029721BECF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223149.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

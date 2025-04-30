@@ -1,4 +1,123 @@
 ﻿
+###  Публикация: 858 551
+
+VA - Voices in my Head Volume 76  2015  [MP3|320 кб с]<Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Aaron Camz & Alana Aldea - Lead To You  Original Mix  [08:26]
+002. Andrew Cash & Starchaser feat. Danny Claire - All Mine  Luigi Lusini Edit  [09:26]
+003. Stonevalley feat. Shannon Hurley - Something To Say  Original Mix  [06:31]
+004. The Thrillseekers feat. Stine Grove - Anywhere With You  Club Mix  [06:37]
+005. Tritonal & Kaeno - Azuca  Club Mix  [06:08]
+006. Aeris feat. Jess Morgan - What Do You Feel?  Re:Locate vs. Robert Nickson Banging Remix  [08:09]
+007. Yahel & Liya - Creatures  Paul     Читать дальше...    Жанр: Vocal TranceПродолжительность: 02:58:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:070EB33BAA300C7B82B7E986D7D56371D344D6E1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 858 549
+
+VA - Distant Hunter 100 Hits Remixed  2015  [MP3|239-320 кб с]<Bigroom, Progressive, Electro,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Dj Nell & Dj Kam Ft. Musa - Keep On Falling  Original Mix  06:26
+002. Lost Witness ft. Three Faces - Eternal  Mino Safy Remix  06:48
+003. Jetride - Set Free  Original Mix  07:51
+004. Audiocells & Eskova - Breathing  Rene Ablaze Remix Remix  07:17
+005. Feel & Elles de Graaf - Shadows  The Sound Of Without You   Original Mix  05:23
+006. Botnek & 3LAU - Vikings  Audio  04:30
+007. Disco Fries - Ramuh  Original Mix  05:58
+008. Aazar - Rundat  Original Mix  03:32
+009. Thomas Newson & Jaz Von     Читать дальше...    Жанр: Bigroom, Progressive, Electro, Trance, DutchПродолжительность: 09:13:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:626F841E37888974E1EB6B1BCD43C10FE588564C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 858 543
+
+VA - Любимые зимние хиты  2015  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Movetown Feat. Ray Horton - Here Comes The Sun
+002. Тина Кароль - Я Не Беру Трубку
+003. Bahh Tee - Снежинки
+004. Nikita - Химия
+005. И.Маликова - Новогодний снег
+006. Дискотека Авария - Новогодняя  A-One & T-Paul Remix 
+007. Zip92 feat. Archi - M - Не Забуду
+008. Джиган - #НадоПодкачаться
+009. Дима Билан - Малыш
+010. Mad Mark - Bella Vita    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:15:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5FD72C929EB2B4B0026B4336D2ED2220D513B36B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 858 541
+
+VA - Новые Клубные Хиты 5  2015  [MP3|320 кб с]<Club, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Droptek Feat. Isabel Higuero - Killing Time  Original Mix  04:23
+02. Craiv - Enter The Dark  Original Mix  04:39
+03. Chay Ell & The Jay - Colossal  Original Mix  04:43
+04. Senda - Very Bad  Original Mix  04:45
+05. Jason Derulo - Wiggle  Dj Nejtrino & Dj Stranger Remix  04:38
+06. Notixx - Off The Wall  Original Mix  04:27
+07. Dekon Vs. Mars2mars - Analogue  Original Mix  04:41
+08. Deadmau5 - Ghosts  n  Stuff  Feat. Rob Swire  Chuckie Remix 06:03
+09. Deadmau5 - Sofi Needs A Ladder  Pig&dan Remix      Читать дальше...    Жанр: Club, DanceПродолжительность: 04:53:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:257FA73848661C68BADAB1EF0D4177EFFA1F518F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 858 538
 
 VA - Lux music. Dance Hits  2015  [MP3|320 кб с]<Dance, Club>
@@ -2261,130 +2380,6 @@ VA - Billboard Top 25 Hot Rock Songs  03-01-2015  [MP3|320 кб с]<Rock, Pop, D
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_854946.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 854 836
-
-VA - Дискотека 2015 - Танцуют Все!  2014  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Александр Шоуа  ex. Непара  - Я и Ты
-02. Enrique Iglesias & Gente De Zona & Descemer Bueno - Bailando
-03. Ёлка - Нарисуй Мне Небо
-04. Clubhunter - Together Again  Turbotronic Radio Edit 
-05. Coldplay - A Sky Full Of Stars
-06. Mark Sixma - Adagio For Strings
-07. Монако Project - Давай Влюбимся В Следующий Раз
-08. Turbotronic - Big Dada
-09. Инфинити - Крылья
-10. The Script - Superheroes    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:09:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0294586519CFAC6AA99778425FC4B527CB774458
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_854836.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 854 773
-
-VA - Русские Новинки Vol.161  2014  [MP3|320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Марсель - Как Жаль  DJ Balashov Remix 
-002. Даша Суворова - Пеналы
-003. DJ Nejtrino & DJ Yonce feat. Elia - Moscow Night
-004. Карандаш feat. Пицца - Отражение
-005. Лена Катина - Just A Day
-006. Xuman - K.O.
-007. Alien24 - Fantom
-008. Александр Панайотов - Ванильное Небо
-009. Трио S-Klass - Леди Вамп
-010. Тимати - Где Ты    Читать дальше...    Жанр: PopПродолжительность: 06:02:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F60E6AA43F6FB477FB7B4839DE51385326E4AB4A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_854773.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 854 771
-
-VA - Русские Новинки Vol.160  2014  [MP3|320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Тимати feat. Павел Мурашов - Приём-приём
-002. K.Melody - Образ Твой
-003. Лерика и Александр Ревва - Мир Танцует С Нами
-004. Alien24 - Hypnosis
-005. Баста и Смоки Мо - Старая Школа
-006. Сосо Павлиашвили и Леонид Агутин - Больше Нет Слез
-007. Alex Kafer & Lera feat. Ural DJs - Алешка
-008. A-Sen feat. DJ Nejtrino & DJ Baur - Я Рисую  Extended Mix 
-009. Блокбастер - Девушка-печаль
-010. Александр Лир - Дневник Памяти    Читать дальше...    Жанр: PopПродолжительность: 06:02:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C108F338BCF0E6D0FD7CC68CCB0E9CEFA986F0E6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_854771.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 854 769
-
-VA - Зарубежные Новинки Vol.175  2014  [MP3|320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Faith Evans feat. Keke Wyatt - Make Love
-002. Ed Sheeran - Make It Rain
-003. Griz feat. Orlando Napier - A Fine Way To Die
-004. Eli & Fur - Turn The Lights Down
-005. Fabolous feat. French Montana - Ball Drop
-006. Camila feat. Ricky Martin - Perdon
-007. Marilyn Manson - Deep Six
-008. Nicki Minaj - I Lied
-009. Jodeci feat. B.o.B. - Nobody Wins
-010. Mark Ronson feat. Kevin Parker - Daffodils    Читать дальше...    Жанр: PopПродолжительность: 06:23:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F8CF7DE6D413FA0DDA1671EB6C328E25FA632B7E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_854769.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

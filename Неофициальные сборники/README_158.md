@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 032 228
+
+VA - Зарубежная Дискотека ХХ Века - 76  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. London Boys - My Love   Extended Remix 1989  
+02. Kylie Minogue - Got To Be Certain   1988  
+03. Blue System - Deja Vu   1991  
+04. Ace Of Base - Don t Turn Around   U.S. Version 1993      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B58983F750AB8A924F8C443C9AEF7B445EBBE527
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032228.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 219
+
+VA - Зарубежная Дискотека ХХ Века - 75  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Kelly Brown - Only You Can   You Make Me Feel     1985  
+02. Alan Cook - Do You Want To Stay   1986  
+03. Mouzon s Electric Band - All My Loving   1979  
+04. 49ers - Touch Me   Sexual Version 1989      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A2DAD6AE33C6103281E23A042744ED748189A6FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032219.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 217
+
+VA - Зарубежная Дискотека ХХ Века - 74  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Swan - Don t Talk About It   1986  
+02. 2 Brothers On The 4th Floor - Come Take My Hand   1995  
+03. Macho Gang - Naughty Boy   Long Version 1988  
+04. Shanghai - Flight 69   1986      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D8BD0F9A42B533128718C06BDBA1686A055FDB46
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 032 214
+
+VA - Best of Lounge, Ambient and Chill Out, Vol. 4  2016  [MP3|320 Kbps] <Downtempo, Chillout, L
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Anthya - Voice of Desert
+02. Michael E. - Infinite Beauty
+03. Greg Walker - Caffи Gio
+04. Lemongrass - Deep River - Mirage Of Deep Remix    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:10:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DB6A2350D5111A55A70C9C9FCA8C32DEEAE60183
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1032214.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 032 212
 
 VA - Зарубежная Дискотека ХХ Века - 73  2016  [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -1883,106 +1983,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031323.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 031 320
-
-VA - Relax to House Vol.1  2016  [MP3|320 Kbps] <House, Deep House, Club House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. 3SE - Adio  Pascal Junior Remix 
-02. Abraham Ruiz & Tewax - Fuck Du Follow  Original Mix 
-03. Affkt feat. Haptic - Fixate  Original Mix 
-04. Alan Walker - Sing Me To Sleep  PARKX Extended Mix     Читать дальше...    Жанр: House, Deep House, Club HouseПродолжительность: 11:55:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:686A2DB97FDA4948C3084E4C57E6EE278E9807B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031320.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 031 301
-
-VA - Summer Club Music Promo - Bestfriend Party  2016  [MP3|234-320 Kbps] <Dance, Eurodance, Clu
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. ATB - Sun Goes Down  Savi x Lema Remix  05:20
-02. SAINT WKND feat. INGLSH - Lost  Runaway   Fabich Remix  04:01
-03. Italobrothers - Kings. Queens  Video Edit  03:22
-04. Kago Pengchi - Yeowoobii  Radio Edit  03:38    Читать дальше...    Жанр: Dance, Eurodance, ClubПродолжительность: 15:53:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7228830CA9A02BC82CB652E0C41B63365450BB91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031301.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 031 295
-
-VA - Ibiza Beach Answer Commission [Gravitation Sound]  2016  [MP3|245-320 Kbps] <House, Funky,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Uberjak d - Portland  Original Mix  04:39
-02. Vicetone - United We Dance  Club Mix  04:37
-03. Passenger 10 - Give Me Joy  Original Mix  03:26
-04. Nicole Kollmann - L amour Toujours  Instrumental Version  02:44    Читать дальше...    Жанр: House, Funky, ProgressiveПродолжительность: 07:55:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73B86E120BB39064D716219C300516EF7D2C46C4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031295.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 031 279
-
-VA - TOP 100 Club  June   2016  [MP3|320 Kbps] <House, Electro House, Club House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. Calvin Harris & Rihanna -  This Is What You Came For  Nejtrino & Baur Remix  3:32
-002. Armand Van Helden -  I Want Your Soul  Underground Dude Remix  3:11
-003. Ummet Ozcan -  Spacecats  SilverBlack Remix  5:02
-004. Francesco Diaz & Jay Frog -  Arabian Nights  Melsen Edit  4:57    Читать дальше...    Жанр: House, Electro House, Club HouseПродолжительность: 07:33:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90D950EDE7D57CAF339623FBC557EFF647CF663F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1031279.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

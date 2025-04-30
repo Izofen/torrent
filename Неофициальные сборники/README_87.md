@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 276 168
+
+VA - German Top 100 Single Charts 21.01.2019 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Ava Max - Sweet but Psycho
+002. Capital Bra - Benzema
+003. 187 Strassenbande - HaifischNikez Allstars
+004. Sido - Tausend Tattoos    Читать дальше...    Жанр: PopПродолжительность: 05:37:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06B402F7C003646445664D3FAF6BFD3F2DD4A5A5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1276168.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 275 997
+
+VA - The Sacrifice: Techno Folk Party  2019  [MP3|320 Kbps] <Techno, Minimal, Electronic>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Sirch And William Kiss - Delhi
+002. Dimor - Dark Story  Original Mix 
+003. Headhunterz - The Sacrifice  Max Enforcer Remix 
+004. Jnxd - Fuck Shit Up  Extended Mix     Читать дальше...    Жанр: Techno, Minimal, ElectronicПродолжительность: 10:29:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B2333B176CEB516F11DF1FF65939258C718EA64
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1275997.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 275 955
+
+Сборник миксов от DJ Jack Ben  Евгений Баленко   2013-2019   [MP3|320 Kbps] <Eurodance, Club
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Jack Ben - Disco Paradise Vol.41  OCTOBER 2014 MEGAMIX 
+002. Jack Ben - Disco Paradise Vol.43  NOVEMBER 2014 MEGAMIX 
+003. Jack Ben - Disco Paradise Vol.44  DECEMBER 2014 MEGAMIX 
+004. Jack Ben - Disco Paradise Vol.45  HAPPY NEW YEAR 2015 MEGAMIX     Читать дальше...    Жанр: Eurodance, Club House, Deep House, Future House, OLDSCHOOL,Продолжительность: 122:27:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:79D7BE4DC4E43A0E47B3D82AACB34C4AEEA8488F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1275955.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 275 885
+
+VA - Music for Car 11  2019  [MP3|320 Kbps] <Electronic, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. MiyaGi & Эндшпиль, Kadi - In Love  3:15 
+02. Alec Benjamin - Swim  2:24 
+03. Bea Miller - Outside  3:21 
+04. 3LAU - You Want More  feat. Max   3:00     Читать дальше...    Жанр: Electronic, Dance, HouseПродолжительность: 03:56:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90F415A6FAC7756F5C7DBF37ADFF1554AD308EB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1275885.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 275 851
 
 VA - Options Remake Of Tracks January -A-  2019  [MP3|320 Kbps] <House>
@@ -1882,106 +1982,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273525.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 273 502
-
-VA - German Top 100 Single Charts 07.01.2019 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Capital Bra - Benzema
-002. Mariah Carey - All I Want for Christmas Is You
-003. Wham! - Last Christmas
-004. Ava Max - Sweet but Psycho    Читать дальше...    Жанр: PopПродолжительность: 05:31:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BB41AF1DD2B1ADCC58C74F0D2F626415A05FB994
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273502.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 273 495
-
-VA - Новогодний шансон от Zaycev.fm  2019  [MP3|320 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Федя Карманов - Под Новый Год
-02. Владимир Бажиновский - Зима
-03. Манго манго  - Новый Год и Белка
-04. Тишинская Таня - Угостите Даму Сигаретой    Читать дальше...    Жанр: ШансонПродолжительность: 02:26:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F617AD716FAF8D4D421D984EC242F999F5CA15EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273495.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 273 402
-
-VA - Club Night Cream Moon  2018  [MP3|320 Kbps] <Club, Dance, House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Deep Fog, Cream - Moon
-002. Dj Aroze - I See You
-003. Eddie Niguel - 4 The People
-004. Interaxxis - I Don t Understand The Machine    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 10:04:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6832DA15E1D9E2EA4AA78D51C3F8E8ECDB19DC95
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273402.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 273 389
-
-Deep Purple - Love Conquers All  Greatest Ballads   2019  [MP3|320 Kbps] <Hard Rock, Classic
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Love Conquers All
-02. When A Blind Man Cries
-03. Fortuneteller
-04. Lalena    Читать дальше...    Жанр: Hard Rock, Classic Rock, RockПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DC4317ED698AF5B25D13FF44F3A0907AD7F380A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273389.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

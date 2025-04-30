@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 117 249
+
+VA - Acoustic: The Collection  2017  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Alanis Morissette - Ironic  Acoustic Version   3:56 
+02. Coldplay - The Scientist  5:10 
+03. Bruno Mars - Grenade  Acoustic   4:07 
+04. James Blunt - 1973  Acoustic   3:30     Читать дальше...    Жанр: PopПродолжительность: 03:16:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D91BA5E68B9D9B9EF0703A4F8C1CAFA5D82ABAF9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117249.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 117 234
+
+Arabesque - The HQ Vinil Collection  1978-1984  All Studio Albums [MP3|320 Kbps] <Electronic, Po
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Немецкая поп-группа, работавшая в жанре диско с элементами хай-энерджи, получившая мировую славу. Основная вокалистка группы Сандра, после распада группы продолжила успешную сольную карьеру  в 1990-х годах также принимала участие в проекте Enigma . Раздача представляет полную дискографию группы, состоящую из студийных альбомов, выходивших на фирменных виниловых дисках,     Читать дальше...    Список альбомов:
+1978 - Friday Night
+1979 - City Cats
+1980 -  Marigot Bay    Читать дальше...    Жанр: Electronic, Pop, DiscoПродолжительность: 05:34:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DEE24CC92368844CEAE1A9601B9D554E6D4CFD39
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117234.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 117 102
+
+VA - Just Mix Eurodisco  2009  [FLAC|Lossless|WEB|tracks + .cue] <Disco, Synth-pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+London Boys - My Love
+Den Harrow - Tell Me Why
+Madonna vs DJ Fifty - Into The Groove
+Sandra - Secret Land  Reverse Mix     Читать дальше...    Жанр: Disco, Synth-popПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A3FEAA014EE784510C931CAE22D9F3CD3A15B085
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117102.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 117 099
 
 НеИгрушки - На Луну  2000  [FLAC|Lossless|image + .cue] <Pop>
@@ -1909,81 +1984,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1106164.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 105 957
-
-Иван Дорн - Jazzy Funky Dorn  2017  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Лимонадный  feat. Каста 
-02. Тем более
-03. Уезжать
-04. Безмато    Читать дальше...    Жанр: PopПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:128FD013BA0FD0144B955B27E78CBFC2657847F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105957.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 105 644
-
-Peter Wilson - Overdrive  2017  2CD [MP3|320 Kbps] <Italo-Disco, Hi NRG, Synth-pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Hold You Tight  03:52 
-02. Brokenhearted  03:55 
-03. Take A Chance On Loving You  03:56 
-04. Overdrive  04:02     Читать дальше...    Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C0EB96DA826F2F8514ACC4AEE75428BB4CD0298
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 105 617
-
-VA - BRAVO Hits 96  2017  [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Sean Paul feat. Dua Lipa - No Lie  3:43 
-02. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye  4:10 
-03. Alan Walker - Alone  2:39 
-04. Nevada feat. Mark Morrison & Fetty Wap - The Mack  2:46     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36AD1AD45936FE439BCDC0196C4CB0514F9DBA4A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105617.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

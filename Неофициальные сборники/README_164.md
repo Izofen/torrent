@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 018 342
+
+VA - Русский Популярный Хит Формат  2016  [MP3|256-320 кб с] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Елена Темникова - Ревность
+002. Блокбастер - Девушка-Печаль
+003. N.A.O.M.I.  Наоми  - Надо Бы
+004. Tiger Family - Доза Витамина    Читать дальше...    Жанр: PopПродолжительность: 11:07:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:40FA99678CC1FF0B716E0B6A59F9A0A45FFED797
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018342.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 018 295
+
+VA - Piano and Chill: Piano for Chillout  2016  [MP3|320 кб с] <Downtempo, Chillout, Instrumen
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Ludovico Einaudi - Ora
+02. Luke Woodapple - The Awakening - Piano Solo
+03. Roland Orzabal - Mad World
+04. Max Richter - H in New England    Читать дальше...    Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:02:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:12DB7E4BA3E8925793C3C93FE3316C7051A74536
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018295.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 018 255
+
+VA - В Ремиксах. Disco 90-х 100 hits  2016  [MP3|192-320 кб с] <Club, House, Trance, Remix>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Ace of Base - All She Wants  SNBRNxKLATCH Remix 
+ 02. Ace of Base - Cruel Summer  Mr.Nu & Deepjack Remix 
+ 03. Adele feat. Capella - Move On Baby  DJ MiR Mush Up Mix Edit 
+ 04. Adriatique - Modern Talking  Original Mix     Читать дальше...    Жанр: Club, House, Trance, RemixПродолжительность: 08:50:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9A21D20D981369DF1F1A26EA09D66B4E78FA3C56
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018255.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 018 172
+
+VA - Summer Chillout  2016  [MP3|320 кб с] <Downtempo, Chillout, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Dr. Diver - Selfishness
+02. Don Gorda Project - Hand In Hand
+03. Zero Feedback - Deep In The Rain Forest
+04. Don Gorda Project - Dreamscape    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6473D4813FBC48A6882A26C09C12D7DE1DE9DADA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018172.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 018 117
 
 VA - Jazzy Instrumentals  Instrumental Tracks Contaminated by Jazz   2016  [MP3|320 кб с]
@@ -1889,106 +1989,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1014841.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 014 831
-
-VA - Умная Электроника  Музыка Поднимающая Настроение  Часть 2  Compiled by Zebyte   2016<
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01 Carrot Green - Ponto Gira  07:11 
-02 Mauro Telefunksoul E Lurdez Da Luz - Bassdaue  03:53 
-03 Nixtamal - Maria Theresa  03:55 
-04 Shazalakazoo - Chocheque  03:48     Читать дальше...    Жанр: Electro Swing, Deep House, Techno SwingПродолжительность: 02:42:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:653B9541B35DA19E36E31527863E37ECAA7D0244
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1014831.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 014 818
-
-VA - Популярная соточка. Русская версия  2016  [MP3|256 кб с] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Din-Go - Я Скучал По Тебе
-002. Mseven - Листья
-003. Дмитрий Прасковьин - Между Нами
-004. Ionel Istrati - Быть С Тобой    Читать дальше...    Жанр: PopПродолжительность: 06:11:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:04D2876A6F5AAF2B678980D2E2D55F045ED0AD3A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1014818.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 014 813
-
-VA - Top Club Music World Hits 2516  2016  [MP3|320 кб с] <House, Future House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Jolyon Petch & Andy Murphy - Sweet Dreams  Mobin Master and Massivedrum Remix  4:37
-02. Jochen Miller & Cuebrick - In The Dark  Extended Mix  4:36
-03. Vinyl Junkie And Rachael EC - Cut It Loose  Original Mix  5:42
-04. Heart Saver & Anton Orf Feat. Nina - Fame  No Hopes Remix  5:30    Читать дальше...    Жанр: House, Future HouseПродолжительность: 03:37:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8518767DCBFABDF31946FD56EF98D9059BA24507
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1014813.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 014 761
-
-VA - Dance Hits Vol.337  2016  [MP3|320 кб с] <Club, Dance, Hand Up>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Klubbingman & Beatrix Delgado - Love Message 2K16  DJ Gollum & DJ Cap Remix  4:28
-02. Ray Knox - Reach Out  Ray Knox And Melodypark Mix  4:28
-03. Shogga - My Heart Is Beating  Danny R. Remix  4:50
-04. Atmozfears - Release  The Hitmen Bootleg  3:45    Читать дальше...    Жанр: Club, Dance, Hand UpПродолжительность: 01:47:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0EAEBEC0C7CDC0376151D7A31B92B91ECE52956C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1014761.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

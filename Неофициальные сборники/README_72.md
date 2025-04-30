@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 336 177
+
+VA - Громкие новинки Ноября  2019  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1.#2Маши - Всем нашим  3:24 
+2.Alan Walker - Avem  The Aviation Theme   3:19 
+3.HUGEL, Alok, Amber van Day - I Don t Wanna Talk  2:24 
+4.Animal ДжаZ - Чувства  3:40     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 04:29:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D504D5D0993F5D6A2993E749B4EBE87B3228423
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1336177.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 336 096
+
+VA - Beach Dance Classics Radio  2   2019  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Kerri Chandler - Something Deeper
+002. Spiro Catalano - Work
+003. Moody F - Shattle
+004. Guna Nada Das - Heartbeat    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 12:15:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E8C72A364165FED707B9188E01F1711E6CFB6E8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1336096.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 336 092
+
+VA - Electric Cloud  2019  [MP3|320 Kbps] <Synthwave, Synthetic, Electronic>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Level Groove - Get Back
+002. Pixelrust - Caffeine Dreams
+003. Monococ - The Hills
+004. Squaerecat - Hope To See You Later    Читать дальше...    Жанр: Synthwave, Synthetic, ElectronicПродолжительность: 13:01:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:308DDA0FE0944293B0AD5A96669DF409AB0ED0CB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1336092.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 336 089
+
+VA - Neon Party: Electro House November Mix  2019  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Snake Blood Seance - Tempest
+002. James Alexander - Tango
+003. Cyber Monday - To Have & Have Not  Original Mix 
+004. Lego Boy, Beat Ride - The King Is Down    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 09:18:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:238B85D969BCB4628B784B7EC66624B569196515
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1336089.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 336 030
 
 VA - Music Rocket Launcher: Hardstyle Anthems  2019  [MP3|320 Kbps] <Hardstyle, Hardcore, Hard D
@@ -1896,106 +1996,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1331449.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 331 413
-
-VA - Groove Techno Tools  2019  [MP3|320 Kbps] <Techno, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Volunteer - Levitating Stones
-002. Greyhead - Llantos Del Desierto
-003. B-Front - Undiscovered
-004. Devin Wild - Mind Bending    Читать дальше...    Жанр: Techno, ElectroПродолжительность: 09:38:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:122522658401E7A71598A110C0B8F9B167692CF1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1331413.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 331 412
-
-VA - Rap Mix Off: Gold Collection  2019  [MP3|320 Kbps] <Rap>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. Sencere Tucker - Stars
-002. Suigeneris - Rise
-003. Moma Gabbana - Black Queen
-004. Freaky Flash - Lowkey    Читать дальше...    Жанр: RapПродолжительность: 10:36:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E5242CDF73CB17F826C1C09F458CA6EC677F668
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1331412.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 331 390
-
-VA - Жизнь и немного любви из русского рока-2  2019  [MP3|320 Kbps] <Русский рок>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. ДВУРЕЧЬЕ - Ветер в облаках.
-002. Квартет им. Достоевского - Наши глаза.
-003. Fort Royal - Не впускай зверя в дверь.
-004. Мегаполис и Ёлка - Посвящение Деннису Силку.    Читать дальше...    Жанр: Русский рокПродолжительность: 09:13:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:15E8E8A329CB8DF961B0B231092D684E719C9A3C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1331390.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 331 362
-
-VA - 100 Rock Ballads Vol.2  2019  [MP3|320 Kbps] <Rock, Ballads>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Gary Moore - Nothing s The Same 5:07
-002. Whitesnake - Is This Love 4:41
-003. Lita Ford with Ozzy Osbourne - Close My Eyes Forever 4:46
-004. Skid Row - In A Darkened Room 3:55    Читать дальше...    Жанр: Rock, BalladsПродолжительность: 08:10:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:47A165BB419FB1383769CE3C0333A8096CC27F55
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1331362.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 627 405
+
+VA - Bravo Hits Vol. 120 (2023) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Hip Hop, Ballad>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1
+01. Central Cee - LET GO
+02. SZA - Kill Bill
+03. Alok & James Arthur - Work With My Love(   Читать дальше...   )Жанр: Synthpop, Dance, Hip Hop, BalladПродолжительность: 01:07:28 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6465E226C89B13045813E01CCB9D6AD53A4F0E23
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627405.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 627 398
+
+VA - Bravo Hits Vol. 121 (2023) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Hip Hop, Ballad>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1
+01. Metro Boomin, The Weeknd & 21 Savage - Creepin'
+02. Raye & 070 Shake - Escapism.
+03. Coi Leray - Players(   Читать дальше...   )Жанр: Synthpop, Dance, Hip Hop, BalladПродолжительность: 01:13:19 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:53A76F90E7DFE898CC38B63D7D17C480BEC32180
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627398.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 627 365
+
+Menderes - Sieger der Herzen  Das Beste aus 20 Jahren   2023  [MP3|320 Kbps] <Dance Pop, Eur
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Er liebt dich nicht [00:03:11]
+02 - Nimm Anlauf [00:03:38]
+03 - Der hellste Stern der Welt [00:02:56]
+04 - Sieger der Herzen [00:03:04]    Читать дальше...    Жанр: Dance Pop, EuropopПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E691DD5D36E7C93DA54DEED4D7EE26B6F55F017
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627365.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 627 245
 
 VA - ZYX Italo Disco New Generation Vol. 2  2013  2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-
@@ -1909,81 +1984,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1622073.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 621 910
-
-Romano - Vulkano Romano (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Schrei der Wildnis [00:03:31]
-02. Magical [00:02:21]
-03. Samurai (feat. Alexander Marcus) [00:02:05]
-04. Fetisch [00:02:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:294FB572208F05E6E18E129D23916939995911B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621910.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 621 900
-
-VA - Mystera VI (2000) [OGG Vorbis|480 Kbps] <Electronic, Classical, Ambient>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Queen - Who Wants To Live Forever
-02. Enigma - Return To Innocence
-03. Rosenstolz - Amo Vitam
-04. Loreena Mckennitt - The Mummers' Dance(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A76310787E0051E155EF1537D674F96B5A01C599
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621900.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 621 837
-
-Lana Del Rey - Did you know that there's a tunnel under Ocean Blvd (2023) [FLAC|Lossless|tracks + .c
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. The Grants
-02. Did you know that there's a tunnel under Ocean Blvd
-03. Sweet
-04. A&W(   Читать дальше...   )Жанр: Alternative PopПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:363BCCE35E3F0D35B4A0B1006E07E3B577CD44AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621837.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

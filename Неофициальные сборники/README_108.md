@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 200 433
+
+VA - Record Super Chart #520  2018  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.  EKTONIX  -  Vuono Matyn  2:30
+02.  Holl & Rush  -  Don t Know  3:49
+03.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
+04.  Klingande  -  Pumped Up  Denis First Remix   3:29    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 02:00:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:495A8966A0A0D9F3C1E7FC576C5D2B4E3A590A96
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200433.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 200 227
+
+VA - TOP 100: лучших песен 2017 года на Love Radio  2018  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:48
+002.  Charlie Puth  -  Attention  3:32
+003.  Макс Барских  -  Моя любовь  3:40
+004.  Clean Bandit feat. Sean Paul & Anne-Marie  -  Rockabye  4:11    Читать дальше...    Жанр: PopПродолжительность: 05:51:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BF22FD68D5AC55551E7A1D016BABFE333AC50B9F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200227.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 200 177
+
+VA - Best of Tigerskin  Dub Taylor  2017  [MP3|192-320 Kbps] <Deep House, Tech House, Chill Hous
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Tigerskin - Carlos Thoughts [7:39]
+02. Tigerskin - Voodoo [7:38]
+03. Tigerskin - The Nite People [4:58]
+04. Ronald Christoph feat. Idvet - Say You Want Me Now  Tigerskin remix  [7:57]    Читать дальше...    Жанр: Deep House, Tech House, Chill HouseПродолжительность: 05:01:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:40DAE3ED01A9300558ED7368B1C6323F668497E2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200177.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 200 163
+
+VA - Best Hits 80s от ALEXnROCK часть 2  2017  [MP3|320 Kbps] <Pop, Disco>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  C.C. Catch  -  Soul Survivor  Long Version   5:13
+02.  Belinda Carlisle  -  Circle In The Sand  4:26
+03.  Modern Talking  -  Jet Airliner  4:22
+04.  Mauro  -  Buona Sera-Ciao Ciao  3:56    Читать дальше...    Жанр: Pop, DiscoПродолжительность: 03:32:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E536AF3971F5D74C1F8BBBF05C7E302D4F57CBF1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200163.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 200 156
 
 VA - The Best Of Progressive Trance  2018  [MP3|320 Kbps] <Progressive, Trance>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196221.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 196 110
-
-VA - Record Super Chart - Итоговый Суперчарт  2017  [MP3|320 Kbps] <House, Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001.  Tiesto & Sevenn  -  Boom  3:03
-002.  Don Diablo  -  Momentum  3:28
-003.  Malaa  -  Notorious  3:58
-004.  CamelPhat & Elderbrook  -  Cola Denis First Remix  4:16    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 06:15:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:69913D6D41AA65BE99B4F817C7539399D2C5967B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196110.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 196 025
-
-VA - Новогоднее Настроение: Русский Популярный Сборник  2017  [MP3|192-320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Инфинити - Увлечение
-002. Serebro - В Космосе
-003. Полина Гагарина - Обезоружена
-004. Настя Задорожная - Я Луна    Читать дальше...    Жанр: PopПродолжительность: 09:02:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:37E01CE621C1A360A03AA67E1C893D635B9ED0A2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196025.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 196 016
-
-VA - The Official UK Top 40 Singles Chart 29.12.2017 [MP3|192-320 Kbps] <Alternative, Indie, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Ed Sheeran - Perfect 4:23
-02. Wham! - Last Christmas 6:49
-03. Eminem - River  Feat. Ed Sheeran  3:41
-04. Mariah Carey - All I Want For Christmas Is You 3:58    Читать дальше...    Жанр: Alternative, Indie, OtherПродолжительность: 02:25:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:94F8AD78BCCA3863040F388236F896C0A7F013EC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196016.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 196 003
-
-VA - Electric Oxygen Workout Music  2017  [MP3|320 Kbps] <Club, Dance, House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Sagan - Tempus  Extended Mix 
-002. Ayin - Revive Me  Erick Kasell Remix 
-003. Martin Garrix, Matisse & Sadko - Forever  Extended Mix 
-004. Dave Till - Mistika  Original Mix     Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 10:05:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CCFC76CDF954861DCBB099460A64CBBF2C2E07A8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196003.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

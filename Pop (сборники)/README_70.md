@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 236 866
+
+Монеточка - Раскраски для взрослых  2018  [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Teen Po
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Русский ковчег  3:34 
+02. Каждый раз  3:28 
+03. Нимфоманка  2:41 
+04. Нет монет  4:38     Читать дальше...    Жанр: Pop, Indie Pop, Teen PopПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C761406FA493723998964B5F8F1C70E80B3004AF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1236866.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 236 651
+
+Black Sun - 2 Albums  1978, 1980  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Women  5:58 
+02. Look Again  6:16 
+03. Message From The Stars  6:15 
+04. Carnaval  7:09     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C618904DF8E9FF6AD8F4ECD0CC0E520271206B12
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1236651.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 236 426
+
+Tom Tom Club - 5 Studio Albums  1981-2000  CD [MP3|320 Kbps] <Electronic, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+1981 - Tom Tom Club
+1983 - Close To The Bone
+1988 - Boom Boom Chi Boom Boom    Читать дальше...    Жанр: Electronic, PopПродолжительность: 04:59:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69D08C6608CAEC0583A4D758F8C4413BC27EBB46
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1236426.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 236 319
 
 VA - Synthetic Memento  2009  LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disco>
@@ -1929,81 +2004,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230642.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 230 538
-
-Mystic - 4 Singles  1977  7  [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01.  Disco Love Affair  3:59 
-02.  Disco Symphony  3:52 
-03.  In The Year 2525  4:21 
-04.  Dance Tonight  2:56     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:15:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3C634BD4FAF7A6820FA38194EF046CFCAC5DBBD5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230538.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 230 465
-
-VA - Radio Italia: Summer Hits 2018  2018  2хCD [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. J-AX - Italiana  2:54 
-02. Jovanotti - Le Canzoni  4:09 
-03. Calcutta - Pesto  3:28 
-04. Francesca Michielin - Tropicale  3:26     Читать дальше...    Жанр: PopПродолжительность: 02:05:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C8FB3DE11A226221E145A9C9CBEE138232A5665
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230465.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 230 463
-
-VA - Radio Italia: Summer Hits 2017  2017  2CD [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Vasco Rossi - Come nelle favole  4:12 
-02. Giusy Ferreri - Partiti adesso  3:14 
-03. Brunori Sas - Lamezia Milano  3:52 
-04. Giorgia - Credo  2:57     Читать дальше...    Жанр: PopПродолжительность: 01:47:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0117F3F514E41DA5CE0D59348296E8FBEAF64034
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230463.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

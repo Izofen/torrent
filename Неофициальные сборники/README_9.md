@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 702 326
+
+Extreme - Collection (2024) [MP3|320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+Extreme - одна из любимых команд. Винил альбома Pornograffitti - 1990 года, с самой юности хранится у меня дома. Именно этот пласт был у многих в начале и середине 90х. На нём нет никаких данных об издателе. Скорее всего, кто то из барыг - делюганов, нашлёпал их огромную партию и распихал по Союзу. Сам альбом очень круто сделан. Мощная, напористая, немного хулиганская (   Читать дальше...   )01. Decadence Dance
+02. Li'l Jack Horny
+03. When I'm President
+04. Get The Funk Out(   Читать дальше...   )Жанр: RockПродолжительность: 06:04:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C780DD2CBE691B7430BC1A9A96D5031D4580F9B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702326.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 702 277
+
+VA - Ukrainian Songs  2024  [MP3|320 Kbps] <Pop, Folk Rock>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Квітка Цісик - Я піду в далекі гори  6:18 
+02. Іван Ганзера - Bella ciao.  2:03 
+03. Степан Гіга - Друзі мої  4:55 
+04. Гурт Made In Ukraine - Смуглянка  4:21     Читать дальше...    Жанр: Pop, Folk RockПродолжительность: 02:02:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29E837A22835E5691D1DBD9BEAC8D686604ABF75
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702277.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 702 265
+
+VA - Best  Instrumental Jazz and Bossa Nova  2024  [MP3|320 Kbps] <Smooth Jazz, Easy Listening,
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Bossa Jazz Instrumental - A Little Paper Umbrella [03:03]
+002. Cafe Jazz Deluxe - Jazz Lounge Bar Bossa Edition [03:55]
+003. Bossa Jazz Instrumental - Bossa in a Relaxing Room [03:27]
+004. Cafe Jazz Deluxe - Favourite Jazz Cafe [03:45]    Читать дальше...    Жанр: Smooth Jazz, Easy Listening, InstrumentalПродолжительность: 09:23:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:27FCB8C84649913F3C2CBC545A9D7186008F3EBB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702265.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 702 187
+
+DJ Artur - Compilation  2024  [MP3|320 Kbps] <Instrumental, Piano, Accordion, Electronic>
+Неофициальные сборники
+Instrumental/New Age/Meditative/Relax (сборники)
+
+###  Подробнее
+
+01.  Beautiful Dance
+ 02.  Earth
+ 03.  Urban Rhythm
+ 04.  Star in My Heart    Читать дальше...    Жанр: Instrumental, Piano, Accordion, ElectronicПродолжительность: 02:45:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0127D13A5FA8F47DEA3FD75FC0C5FD8DF56F735
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702187.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 701 926
 
 Micki Free - Warrior People  2024  Compilation [MP3|320 Kbps] <Blues, Blues Rock, Native America
@@ -1894,106 +1994,6 @@ Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1691457.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 691 389
-
-VA - Sonatas For The Soul  2024  [MP3|320 Kbps] <Neoclassic, Classic, New Age>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Volpe Dj Ago - Spring In Dresden01. Volpe Dj Ago - Spring In Dresden [01:05]
-02. Davez - Piano Melody [01:28]
-03. Otto A Totland - Letin [03:17]
-04. Charmolipi - Roads [03:53]    Читать дальше...    Жанр: Neoclassic, Classic, New AgeПродолжительность: 03:52:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5ACC941B654B3C30AB5D1D5EFAE93D010C888CDD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1691389.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 691 334
-
-VA - Mega Dance Hits Collection  1990-2001  [MP3|320 кб с] <Eurodance, Euro-House, Pop, Techno
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-0001. Mr. John - It s Not Too Late  Extended Club Version 
-0002. King Of Paradise - Give Me Your Love  My Desire Mix 
-0003. Space Master - World Of Confusion  Extended Mix 
-0004. DJ Bobo - Respect Yourself  B+B Remix     Читать дальше...    Жанр: Eurodance, euro-house, pop, technoПродолжительность: 465:02:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14329F610744D7CFA4E296740B526D00046D2B2C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1691334.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 690 826
-
-VA - Лучшие песни Радио DFM за 2023 год  2024  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Miley Cyrus - Flowers  3:20 
-002. David Guetta feat. Anne-Marie x Coi Leray - Baby Dont Hurt Me  2:20 
-003. Purple Disco Machine feat. Kungs - Substitution  3:01 
-004. Tiesto - Lay Low  2:33     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 05:11:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70FA2CFE3B6DF22C28FDBBD8DF7E5BAD42FBA2FB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1690826.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 690 573
-
-Muvi - Compilation  2024  [MP3|320 Kbps] <Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  Zara
- 02.  Paradise
- 03.  Kiss Me
- 04.  Need Help Me Friend    Читать дальше...    Жанр: ElectronicПродолжительность: 01:34:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:68E5B9FD9298EE8B6DA0C8B7A8900BDD3C4C036B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1690573.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

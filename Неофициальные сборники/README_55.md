@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 403 977
+
+VA - Beatport Funky House: Electro Sound Pack #150  2020  [MP3|320 Kbps] <Funky, Disco House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Evgeny Svalov - Discreet State
+002. Norberto Acrisio - Keep Boosting
+003. Joust Phillips - Gotta Be There
+004. Marinatone - Give Me More    Читать дальше...    Жанр: Funky, Disco HouseПродолжительность: 09:05:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:55062C397866AD736542AAA55036DA0ED5E310FF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403977.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 403 881
+
+VA - German Top 100 Single Charts 21.08.2020 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Jawsh 685 & Jason Derulo - Savage Love  Laxed - Siren Beat 
+02. KitschKrieg & Jamule - Unterwegs
+03. UFO361 & Sonus030 - Playlist
+04. Apache 207 - Bläulich    Читать дальше...    Жанр: PopПродолжительность: 05:03:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1656F0504A4C4ADEBE110EBD6E779DA70988955D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403881.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 403 869
+
+VA - Women in rock  Compilation   2020  [MP3|320 Kbps] <Rock, Hard Rock, Hard  N  Heavy>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Blondie - Atomic
+02. Gossip - Heavy Cross
+03. Lita Ford - Kiss Me Deadly
+04. Hole - Celebrity Skin    Читать дальше...    Жанр: Rock, Hard Rock, Hard  N  HeavyПродолжительность: 05:31:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0B5910EE842C1118C9F5A107905CCF357E48FC3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403869.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 403 813
+
+VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.28  2020  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Imagine Dragons - Believer
+002. Sean Paul feat. Dua Lipa - No Lie
+003. Dave Ramone feat. Minelli - Love on Repeat
+004. C-Bool - Never Go Away    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:39:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB3EDF673E04EE13AFD18FACFC26597E03408F49
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403813.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 403 791
 
 VA - Муть  не для старперов   2020  [MP3|320 Kbps] <Pop, Dance, Other>
@@ -1898,106 +1998,6 @@ VA - не Громкие новинки недели 76  2020  [MP3|320 Kbps] <P
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1399415.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 399 402
-
-VA - Radio DFM Top D-Chart Июль 2020 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-1. twocolors - Lovefool  3:10 
-2. Intelligency - August  Alex Shik & Alex One Remix   3:35 
-3. MARUV & Boosin - I Want You  2:55 
-4. Dua Lipa - Break My Heart  Leo Burn Remix   2:52     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:43:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C8FF5CF0BA6FDC32F6AD338175BC336F49874381
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1399402.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 399 331
-
-VA - Sound City: Urban Techno Party  2020  [MP3|320 Kbps] <Techno>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Nematic - Pecular
-002. Javago - Engine
-003. Hypnotrixx - No Confusion
-004. And - Screaming    Читать дальше...    Жанр: TechnoПродолжительность: 10:18:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E825267D899E93F11F2ADE76C7974E8C5F7E0A16
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1399331.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 399 309
-
-VA - SpaceSynth World 2  2020  [MP3|320 Kbps] <Synthpop, Spacesynth, Synthwave>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Atomic Space Project - 25 Billion Miles Of Space  5:17 
-02. Cyber Space - Danger From Space  5:47 
-03. Didier Marouani & Space - Voices Of Jupiter  By QSSMm and Qkj   4:21 
-04. Future Synth - Source Of Space  5:23     Читать дальше...    Жанр: Synthpop, Spacesynth, SynthwaveПродолжительность: 05:16:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7F9B87A17B43E44328B6CD5499E0DE4E314123B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1399309.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 399 254
-
-VA - Shazam Хит-парад Russia Top 100 Июль  2020  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. DaBro - Юность  3:39 
-002. Jvla - Such A Whore  Stellular Remix   2:28 
-003. Twocolors - Lovefool  3:10 
-004. JONY & Gafur - Lollipop  2:29     Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:22:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:632C6A6A371638C3711084B15BA9D86A6949EDAB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1399254.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

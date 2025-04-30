@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 232 634
+
+VA - De Top 100 Aller Tijden 1990  Radio Veronica   2017  [MP3|320 Kbps] <Pop, Rock, World>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+ De Top 100 Aller Tijden   Топ 100 на Все Времена  от голландской радиостанции  Radio-Veronica  .001.  Sinead O  Connor - Nothing Compares 2 U  5:10 
+002.  Londonbeat - I ve Been Thinking About You  5:18 
+003.  Corry Konings - Mooi Was Die Tijd  4:06 
+004.  Roxette - It Must Have Been Love  4:20     Читать дальше...    Жанр: Pop, Rock, WorldПродолжительность: 07:06:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04E5DB5EF5B6A34E8BD1DEFD1542CB5D804D74FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1232634.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 232 567
+
+VA - Record Super Chart 542  2018  [MP3|320 Kbps] <Dance, Club, House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. The Prodigy feat. Vicetone - Omen 3:43
+02. Bolier & Joe Stone - Keep This Fire Burning 4:23
+03. Don Diablo feat. Paije - People Say 3:09
+04. Lucas & Steve - Source 4:22    Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 01:59:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C18C866276BDD60D78F5153C3EDDB2F8528EC31C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1232567.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 232 546
+
+VA - ЕвроХит Топ 40 Europa Plus 22.06.2018 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Dynoro feat. Gigi D Agostino - In My Mind
+02. Tom Walker - Leave a Light
+03. MARUV & Boosin - Drunk Groove
+04. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:17:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F6A0FCD2A65F01D1B436840AD12EAD88BECB9740
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1232546.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 232 533
+
+VA - Deep House Collection Vol.176  2018  [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. 7even  GR  - Just a Fool  Original Mix 
+002. Ahmet Kilic & Stoto & Adeba - Stumblin  In  feat. Adeba   Original Mix 
+003. Ahmet Kilic, DJ Tarkan - We Still Alive   DJ Tarkan Remix 
+004. Aimo & Chaos feat. Pearl - Just Like Music   Tswex Malabola Remix     Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:59:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:35C189966DFA2254B892D9ABFAA1F6E604D16028
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1232533.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 232 411
 
 VA - Club Dance Ambience Vol.153  2018  [MP3|320 Kbps] <Dance, Club House, Electro House>
@@ -1902,106 +2002,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229304.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 229 300
-
-VA - German Top 50 Party Schlager Charts 04.06.2018  2018  [MP3|320 Kbps] <Pop, Schlager>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Anna-Maria Zimmermann - Scheiß egal
-02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
-03. Andreas Gabalier - Verdammt lang her
-04. Helene Fischer - Nur mit Dir    Читать дальше...    Жанр: Pop, SchlagerПродолжительность: 03:01:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:04BD6F9F7198E4A8D3D688232F72167BA75A3C28
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229300.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 229 299
-
-VA - Relax & Massage  2018  [MP3|256-320 Kbps] <Relax, Massage, New Age>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. The Wise Man, Traditional Song, The World Of Yoga - Om Asa Toma  Original Mix 
-02. Gomer Edwin Evans - Inner Beauty With ZEN
-03. Thors - Peaceful Island
-04. Marcus Viana - O Hoje e a Eternidade    Читать дальше...    Жанр: Relax, Massage, New AgeПродолжительность: 08:54:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:77437FC715D550B0ADDB83DAC20C1C814130BDDA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229299.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 229 284
-
-VA - Top 50 Production  2018  [MP3|320 Kbps] <Tech House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Andrew Meller - Born Slippy  Reincarnation Mix 
-02. Dennis Cruz, Martina Camargo - El Sueño
-03. Pax - Electric Feel  Extended Mix 
-04. Flashmob - The Lone Brazilian  Original Mix     Читать дальше...    Жанр: Tech HouseПродолжительность: 05:28:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:24896EAF80B7FC6341EBC3F6EE91A1D73C6F533F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229284.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 229 282
-
-VA - The World Of Trance  2018  [MP3|320 Kbps] <Trance, Electro, Club>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Timmy D & DJ Bullskull - Digital Presence  Original Mix 
-002. Tribal Temptation - The Lines Of Infinity  Original Mix 
-003. Above & Beyond feat. Justine Suissa - Cold Feet
-004. DJ Schillings - I Remember The 90s  Original Mix     Читать дальше...    Жанр: Trance, Electro, ClubПродолжительность: 11:17:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F77E513E96681341E51BBF03516BCD8490E80425
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229282.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

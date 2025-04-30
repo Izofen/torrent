@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 191 652
+
+VA - Absolute Music 83  2017  [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R&B, Soul>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Avicii feat. Sandro Cavazza - Without You  3:02 
+02. Justin Bieber + BloodPop® - Friends  3:10 
+03. DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I m The One  4:49 
+04. Portugal. The Man - Feel It Still  2:43     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Electronic, Soul, R&B, Dancepop, House, Electropop, Synthpop, Pop-Rock, FolkПродолжительность: 01:51:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0991553557C301A71239AC92AC5F19A983366B37
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191652.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 191 651
+
+Bottle Of Moonshine - Everybody Watches No One Knows  2014  [MP3|320 Kbps] <60 s-70 s Retro
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Horst
+02. Two Faced
+03. Frankly
+04. Medusa    Читать дальше...    Жанр: 60 s-70 s Retro Pop  Ska, Rocksteady, Reggae, Mambo , Female Vocal JazzПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:416AB227D0A3DA644D68E3F630FCB66A19F9CAC4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191651.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 191 641
+
+VA - Absolute Music 82  2017  [FLAC|Lossless|tracks] <Pop, Pop-Rock, Dancepop, House, R&B, Soul>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Wiktoria - As I Lay Me Down  3:11 
+02. Kygo with Selena Gomez - It Ain t Me  3:39 
+03. Julia Michaels - Issues  2:56 
+04. Calvin Harris - My Way  3:39     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Soul, Rock, R&B, Dancepop, House, Electropop, Pop-Rock, Country, FolkПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F39EAD16B3D9CAA4D9DA08FE99B125FAD5201464
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191641.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 191 623
 
 Alexandra Savior - Belladonna Of Sadness  2017  [FLAC|Lossless|tracks + .cue] <Alternative Pop,
@@ -1915,81 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185775.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 185 719
-
-VA - На Луну  2007  [FLAC|Lossless|image + .cue] <Retro, Jazz, Pop>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Анатолий Емельянов, ксилофон — Cumana  B.Allen, R.Hillman, H.Spina 
-02. Любовь Орлова — Песня из кинофильма «Весна»  И.Дунаевский — М.Вольпин 
-03. Квартет Б.Тихонова — Цветущий май  А.Полонский 
-04. Лев Яковлев — Зависть  Н.Иллютович — И.Кобзев     Читать дальше...    Жанр: Retro, Jazz, PopПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6B8D67D6BD8EE8FB79AF244A390500A8AC1F7B56
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185719.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 185 635
-
-VA - The Hit Factory: Ultimate Collection  2017  3CD [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01.  Kylie Minogue  - Better The Devil You Know  3:53
-02.  Rick Astley  - Never Gonna Give You Up  3:33
-03.  Bananarama  - Venus  3:37    Читать дальше...    Жанр: PopПродолжительность: 03:39:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6BA62730644570C831CFC7AD1E9AF0C0B3DA47C2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185635.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 185 519
-
-VA - Deep Disco Culture  2006, 2007  Underground Disco Rarities & Future Club Classics - 4CD [MP
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Acuna, Marta - Dance Dance Dance  Original 12 Inch Mix   6:15 
-02. The Anvil Band - I ll Be True  Original Album Version   3:15 
-03. Moment Of Truth - So Much For Love  Original Tom Moulton 12 Inch Instrumental Remix   5:42 
-04. Udell - Won t You Try  Original 12 Inch Mix   5:37     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 05:12:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D0DE531AE551D864E336EEF298FD2073347C6611
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185519.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

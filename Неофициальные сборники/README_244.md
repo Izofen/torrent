@@ -1,4 +1,122 @@
 ﻿
+###  Публикация: 470 264
+
+VA - Песни, Спетые Сердцем!  2012  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. А. Дюмин - Цветы Увяли
+02. Воровайки - Морячок И Стюардесса
+03. А. Андерс - Не Предавай  Дуэт С Г. Грач 
+04. А. Дюмин - Наша Жизнь
+05. С. Михайлов - Спаси Меня
+06. Артур - Забыть Нельзя
+07. Воровайки - Вертухай Андрюшка
+08. Г. Лепс И А. Розенбаум - Камикадзе
+09. С. Питерская - Проводница
+10. А. Дюмин - Так И Покатил Я2012Жанр: ШансонПродолжительность: 06:20:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA248FD68C8224C2E9FF79B013ECEC81F89A902E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_470264.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 469 886
+
+VA - Асса! Танцуют Все!  2012  [MP3|192-320 kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Азнаур - Танцуют все
+02. Marat - Адыгский перепляс  remix 
+03. Азамат Биштов - Голубая ночь
+04. Мурат Тхагалегов - Калым
+05. Анжелика Начесова - Нарушил все мои правила
+06. Амур Успаев - Хаза к1ант
+07. Эльдар Далгатов - Нет рая
+08. Шамхан - Только там  dance version 
+09. Марина Алиева - Горный край
+10. гр Домбай - Моя Теберда    Читать дальше...    2012Жанр: PopПродолжительность: 04:49:39
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 469 832
+
+VA - Seashore Desire #24  20.03.2012  [MP3|320 кб с]<Uplifting Trance, Dream Trance, Progressi
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Eximinds - Afterlight  Original Mix 
+002. Andy Woldman feat. Nicole Ambresi & DJ Leo D vs. Kuku Sky - Always  BluEye Uplifting Remix 
+003. Basil O Glue - Angular Momentum  Original 
+004. Realistic Brain - Art  Original Mix     Читать дальше...    Жанр: Uplifting Trance, Dream Trance, Progressive Trance, TranceПродолжительность: 05:42:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57B56FD3C5AC53CE74060273B6117A5412EC4BE5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_469832.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 469 684
+
+VA - Hot Break Dance 2CD  2012  [MP3|320 кб с]<Break Dance, Hip-Hop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Dazz Band - Joystick  Re-Recorded Remastered -Pbs
+02. A Tribe Called Quest - Can I Kick It
+03. Dizzee Rascal Feat. Calvin Harris & Chrome - Dance Wiv Me  Agent X Remix 
+04. DJ Jox - Code Darkness
+05. Homeboy Hippie & A Funky Dread - Total Confusion
+06. Sl2 - DJ s Take Control 2012
+07. Lazy L - Raider Maider-Pbs
+08. Flash Back Project - Ease The Pressure
+09. H - What s It Gonna Be  Jamie Duggan Meets Da Booda Refix 
+10. No Break - Factory Of Sensations2012Жанр: Break Dance, Hip-HopПродолжительность: 04:37:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0456EA8A89CDD2EB05E8612549B4A4977FCA79A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_469684.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 469 266
 
 VA - TOP 100 самые скачиваемые клубные треки by Dj Najim Hassas  18.03.2012   2012  [MP3|320
@@ -2213,130 +2331,6 @@ Pop  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:66469841255454892834E592F88DA97324CB8F6E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 384 240
-
-VA - Power Chill Lounge 2: The Best Of  09.2011  [MP3|320 kbps]<Сhillout, Lounge, Lo-Fi>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01 Cataldo - Do It All Night [03:21]
- 02 Intakt - Cosmic [04:46]
- 03 Planet Lounge - Sora [04:30]
- 04 Trinah - I Wish [05:12]
- 05 Bobby Brazil - Brahma vs Antarctica [05:14]
- 06 Bebo Best & Super Lounge Orchestra - Le fleur de la musique [05:03]
- 07 Decт - We Put This Together [04:15]
- 08 Les Gammas - All Of Me [03:25]
- 09 De-Phazz feat Pat Appleton - The Mambo Craze  Radio Edit  [03:15]
- 10 Moby - Porcelain [03:31]Жанр: Сhillout, Lounge, Lo-FiПродолжительность: 03:10:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FC7F321049B6EE620D40F152801417DDADE82F8C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 383 289
-
-VA - Best music of Summer 2011 from DjmcBiT  August   2011  [MP3|320 kbps]<Electrohouse>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Tommie Sunshine - Tonight s The Night Ft. Tiffany Roth  Nom De Strip Remix 
-002. Tomy Declerque - Lowin  Mass Digital Remix 
-003. Tony Romera, Jordan Viviant - Baby Work It Out  Original Mix 
-004. Trafik - The Difference  Miles Dyson Remix 
-005. Trash Yourself - Die  The Toxic Avenger 
-006. Twelve11 - Feathered  Original Mix 
-007. Utmost DJs - Love Me  Dj MriD Remix 
-008. Vengerov - Kazantip Intro  Swanky Tunes & Hard Rock Sofa Remix 
-009. Wolfgang Gartner - Menage A Trois  Original Mix 
-010. Yenn, Nam Nori, Rico Caruso - Call It What You Want  Fast Foot Remix     Читать дальше...    Жанр: ElectrohouseПродолжительность: 11:58:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2B9A84842C5D2376FDA6A1645AA2DC4A7294AB46
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_383289.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 382 817
-
-VA - Hit-Mix по осеннему  2011  [MP3|256 kbps]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Настя Ясная - Прячем руки от холода
-02. Ирина Билык - Девочка
-03. Размер Project - Россия Рулит
-04. Hi - Fi - Я там
-05. Вера Брежнева - Реальная жизнь
-06. Дэнэро - Родная
-07. Шахзода - Все Только Начинается
-08. Любовные Истории - Пена
-09. Катя Баженова - Спасибо Тебе, Лето  Vengerov & Fedoroff Remix 
-10. Music People Deejays - Выпускной    Читать дальше...    2011Жанр: PopПродолжительность: 06:10:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:67AE0081F3A96C18264FDCD86FFBBD107A7D9DA4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 381 945
-
-VA - Trance Maniacs Party: Euphoric Airlines  Special Edition   2011  [MP3|320 kbps]<Vocal T
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Iio feat. Nadia Ali - Rapture  Armin Van Buuren Remix Remastered 
-002. MaRLo feat. Jano - The Island
-003. Alex Kunnari feat. Emma Lock - You & Me  Original Mix 
-004. Allure feat. JES - Show Me The Way
-005. Dave202 - We Are One  Vocal Club Mix 
-006. First State - Skies On Fire  Original Mix 
-007. Jan Martin feat. Hysteria! - Save Me Now
-008. Kyau & Albert - Velvet Morning  Super8 & Tab Remix 
-009. Mark Otten - Libertine
-010. Orjan Nilsen feat. Neev Kennedy - Anywhere But Here    Читать дальше...    Жанр: Vocal TranceПродолжительность: 02:28:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9CBE53128E3BE59587D6865728ABF37C9C8D49E9
 ```
 
 <div id="header" align="center">

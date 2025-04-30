@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 374 031
+
+Комитет Охраны Тепла - Лучшее  1991-2001  [MP3|320 Kbps] <Рэгги>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+01. 48x50 Девочка давай  live Forpost 2001 
+02. 48x50 Девочка давай
+03. Jedem Das Seine  Каждому своё    live Forpost 2001 
+04. Африка  live Forpost 2001     Читать дальше...    Жанр: РэггиПродолжительность: 01:47:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:713A46C1354FE7FDDB71F771D0BA6BF0ACE117C2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1374031.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 373 970
+
+VA - Top 100 Greatest Songs of All Time  2020  [MP3|320 Kbps] <Pop, Rock, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Queen - Bohemian Rhapsody
+002. Red Hot Chili Peppers - Otherside
+003. Coldplay - Paradise
+004. Coldplay - Viva La Vida    Читать дальше...    Жанр: Pop, Rock, OtherПродолжительность: 07:12:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:81568ADFAC441616D10BE7551332E1D9C1574AB3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1373970.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 373 961
+
+Beth Hart - 100% Beth Hart  2020  [MP3|320 Kbps] <Blues, Blues Rock>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Sugar Shack
+02. Bad Woman Blues
+03. War In My Mind
+04. Caught Out In The Rain    Читать дальше...    Жанр: Rock, Blues, Blues RockПродолжительность: 02:26:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2EE0CE5AA597BDEB1FF87AF9589C37EEECFBEC03
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1373961.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 373 957
+
+Bob Marley - 100% Bob Marley  2020  [MP3|320 Kbps] <Reggae>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+01. Is This Love
+02. Buffalo Soldier
+03. One Love   People Get Ready
+04. Jamming    Читать дальше...    Жанр: ReggaeПродолжительность: 03:33:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C4DD2CE17A6A615843AFDAA77E3ACCBB9AA01C8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1373957.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 373 901
 
 VA - The Surfing Happiness  2020  [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
@@ -1894,106 +1994,6 @@ Jazz, Blues, Soul  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1370152.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 370 151
-
-VA - Hear My Soul: Deep House Fashion Mix  2020  [MP3|320 Kbps] <Deep House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Giuliano Rodrigues - Volta
-002. The Godfathers - Same Kind
-003. Shawanna - Turn Around
-004. Seaman - Hymalaya    Читать дальше...    Жанр: Deep HouseПродолжительность: 08:46:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BA6DEF14A56884343F471B2F09FF5E13A2A594AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1370151.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 370 149
-
-VA - Exotic Chill House  2020  [MP3|320 Kbps] <Chill House, Relax, Chillout>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Nazca - Unchained
-002. Lord Of The Flies - Ice Water
-003. Cool Jaques - About Us
-004. Archelix - By Night  Original Mix     Читать дальше...    Жанр: Chill House, Relax, ChilloutПродолжительность: 08:51:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D1A02F13CBA1A4E9920B2087044FC185A7E2B7C7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1370149.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 370 147
-
-VA - Native American & Lounge  2020  2CD [MP3|320 Kbps] <Native American, New age, World music>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Ashley Serena - Lakota Lullaby
-02. Robert Tree Cody - Spring Song
-03. Robert Tree Cody - Kokopelli s Journey
-04. Robert Tree Cody - Brother Eagle    Читать дальше...    Жанр: Native American, New age, World musicПродолжительность: 08:26:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3DC0EA4EBB7FB5A3489F72850C89704537A22E4F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1370147.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 370 107
-
-VA - Beatport Trance: Electro Sound Pack #37  2020  [MP3|320 Kbps] <Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Ugo Anzoino - Baba Yaga
-002. Saandro Delarock - Love Will Live
-003. Shogan - Vintage World
-004. Spencer Edwards - Fabulous    Читать дальше...    Жанр: TranceПродолжительность: 10:30:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:96E221AD417171690B0DC331B38870EB7C2A892F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1370107.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

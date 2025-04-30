@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 441 490
+
+VA - Beatport Electro House: Sound Pack #221  2021  [MP3|320 Kbps] <Electro House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Эта подборка современной танцевальной музыки поможет не уснуть на работе и отдохнуть после неё, а также неплохо скрасит вашу вечеринку у друзей или тусовку на даче. Ищите для себя новых звёзд с 221-м сборником Electro House от Beatport. Заводные хиты, клубная музыка, современные треки с популярных радиостанций – всё, мимо чего нельзя пройти мимо!001. Wireless - Robot Communication
+002. Andrea Ferri - Dangerous Stars
+003. Dani Corbalan - Nobody Like You
+004. A-Massive - Ain t No Stoppin  Us Now    Читать дальше...    Жанр: Electro HouseПродолжительность: 07:39:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:51E9C4FA67E28E2AA7C621B9D6033CC7812F96E9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1441490.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 441 488
+
+VA - Beatport Deep House: Sound Pack #222  2021  [MP3|320 Kbps] <Deep House, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Представляемый лонгплей без угрызения совести можно порекомендовать абсолютно всем. Легкий Deep House вместе с лирическими мотивами Funky делает музыку 222-го релиза от Beatport легкой, универсальной и запоминающейся. Приятного прослушивания!001. House Of Noise - Don t Look Any Further
+002. Anthony Maserati - Cat Paws
+003. Tell - I ll Pass Out But Something
+004. Francis Leone - In The Sky    Читать дальше...    Жанр: Deep House, ElectroПродолжительность: 08:18:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:60548044C052FFC729A7C5AF68AE0FFC446F830F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1441488.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 441 358
+
+VA - Music News vol.65  2021  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. To-ma - Карма  03:10 
+ 002. Akira - Помню  02:44 
+ 003. AlexNo & Lesha M - Забудь Меня  03:01 
+ 004. AliB - Захожу На Движ  03:17     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 04:53:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A9CC02A2043BE44D07BA186AB6EE839A595BFE47
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1441358.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 441 259
+
+VA - XV Years Of Doom & Solitude  2021  [MP3|320 Kbps] <Doom Metal,  Drone, Post-Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Elusive God - Silence Is Our Doom  04:52 
+ 002. Ekklesiast - Цветок Тревоги - Flower Of Dismay  15th Anniversary Remix   06:46 
+ 003. Restless Oblivion - Mistilteinn  06:49 
+ 004. Shattered Hope - In Cold Blood  13:09     Читать дальше...    Жанр: Doom Metal,  Drone, Post-MetalПродолжительность: 28:46:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B045314C4A2C6B1AC5AA725011DCE1CCAD6341A8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1441259.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 441 112
 
 Zepparella - 100% Zepparella  2021  [MP3|320 Kbps] <Rock, Hard Rock>
@@ -1894,106 +1994,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1435981.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 435 819
-
-VA - Громкие новинки Декабря 3  2020  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. 2517 - Предчувствие  feat. Саграда   2:58 
-02. 9 грамм - Ориджинал  3:47 
-03. Aloe Blacc, Steve Aoki - My Way  3:17 
-04. Andro - Спокойная ночь  Cover   1:55     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 03:58:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8A24B2016FE4124E0841BA4A0DD4FEBA79D570C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1435819.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 435 734
-
-VA - Зима на Love Radio vol2  2020  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Zivert - Многоточия  Radio Edit   2:52 
-02. Tiesto - The Business  2:44 
-03. Marshmello & Imanbek feat. Usher - Too Much  2:45 
-04. Meduza feat. Dermot Kennedy - Paradise  2:47     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:265CEB01548391CC7A59465587016B97D492BE89
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1435734.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 435 514
-
-VA - Deep Glow Electro House  2020  [MP3|320 Kbps] <Deep House, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Новинки и немного эксклюзива вы услышите в новых треках сборника  Deep Glow Electro House . Deep House и вправду можно слушать часами напролет, за чашкой ароматного кофе наблюдая из окна жизнь ночного мегаполиса в свете неоновой рекламы и ощущая переплетение звуков города в которые вливаются эмоций людей.001. Renoa - Two Beers
-002. Deep Couture - In The Music
-003. Scot & Millfield - Get The Beat
-004. Bruce Leroys - Cassette Tape    Читать дальше...    Жанр: Deep House, ElectroПродолжительность: 11:43:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE9F48BF0157C3E1D884F662EE3B335C5897D95F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1435514.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 435 513
-
-VA - Rose Bialo: Italiano Classico Vocale  2020  [MP3|320 Kbps] <Vocal, Pop, Classic Soul>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Это старая манера итальянского оперного пения, которая считается эталоном вокального искусства находит свое место и в современной итальянской песне. Она была оперной нормой целых 300 лет назад. И современники ещё тогда уже писали о том, что это было ангельское, божественное пение!001. Claudio Villa -   O Sole Mio
-002. Irene Grandi -  A Natural Woman
-003. Alice - A Cosa Pensano
-004. Fred Buccini - A Mano A Mano    Читать дальше...    Жанр: Vocal, Pop, Classic SoulПродолжительность: 07:14:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D6AA926E0673865101226E1EEBFB6A85A0CBB66B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1435513.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

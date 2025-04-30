@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 196 110
+
+VA - Record Super Chart - Итоговый Суперчарт  2017  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001.  Tiesto & Sevenn  -  Boom  3:03
+002.  Don Diablo  -  Momentum  3:28
+003.  Malaa  -  Notorious  3:58
+004.  CamelPhat & Elderbrook  -  Cola Denis First Remix  4:16    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 06:15:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69913D6D41AA65BE99B4F817C7539399D2C5967B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196110.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 196 025
+
+VA - Новогоднее Настроение: Русский Популярный Сборник  2017  [MP3|192-320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Инфинити - Увлечение
+002. Serebro - В Космосе
+003. Полина Гагарина - Обезоружена
+004. Настя Задорожная - Я Луна    Читать дальше...    Жанр: PopПродолжительность: 09:02:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:37E01CE621C1A360A03AA67E1C893D635B9ED0A2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196025.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 196 016
+
+VA - The Official UK Top 40 Singles Chart 29.12.2017 [MP3|192-320 Kbps] <Alternative, Indie, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect 4:23
+02. Wham! - Last Christmas 6:49
+03. Eminem - River  Feat. Ed Sheeran  3:41
+04. Mariah Carey - All I Want For Christmas Is You 3:58    Читать дальше...    Жанр: Alternative, Indie, OtherПродолжительность: 02:25:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:94F8AD78BCCA3863040F388236F896C0A7F013EC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196016.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 196 003
+
+VA - Electric Oxygen Workout Music  2017  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Sagan - Tempus  Extended Mix 
+002. Ayin - Revive Me  Erick Kasell Remix 
+003. Martin Garrix, Matisse & Sadko - Forever  Extended Mix 
+004. Dave Till - Mistika  Original Mix     Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 10:05:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CCFC76CDF954861DCBB099460A64CBBF2C2E07A8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196003.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 195 864
 
 VA - Spotify – Top Tracks of 2017 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -1897,106 +1997,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1193640.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 193 582
-
-VA - Hard Rock Division Vol.03  2017  [MP3|320 Kbps] <Hard Rock, Alterhative>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Cheap Trick - Outro
-002. Harman Frank - Roaring Thunder
-003. Rainbow - Snake Charmer
-004. Dream Evil - Blind Evil    Читать дальше...    Жанр: Hard Rock, AlterhativeПродолжительность: 09:03:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E1E66B4992AA614A7C5C096C09D2DEE17224C3D6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1193582.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 193 464
-
-VA - Remix Voyage Vol.2  2017  [MP3|320 Kbps] <Pop, House, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Sergey Sirotin & Golden Light Orchestra  -  Around The World  Johnny Beast Remix   5:41
-02.  ABBA Revival Band  -  Super Trouper  Dance Remixed Version   3:34
-03.  Alan Walker  -  Sing Me To Sleep  DJ Oneon Remix   3:46
-04.  Donna Summer  -  Nice To See You  Radio Club Version   3:27    Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 06:48:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2A34F1DDAFC720AF86DC9D514CCF58A3493B5620
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1193464.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 193 389
-
-VA - German Top 100 Single Charts 22.12.2017 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Camila Cabello - Havana  feat. Young Thug 
-004. Justin Bieber - Friends    Читать дальше...    Жанр: PopПродолжительность: 05:43:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B9E24DF8E433E6955301EA829B50BF78876EF5A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1193389.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 193 276
-
-VA - Remix Voyage Vol.1  2017  [MP3|320 Kbps] <Pop, House, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Hi-Fi  -  Седьмой Лепесток  DJ Golden Love Remix   3:21
-02.  Лариса Черникова  -  Да ты не смейся  Sergey Litvinov Reboot   3:27
-03.  B.G. The Prince Of Rap  -  Never Give Up  B.M. Project Eurodance Remix   4:26
-04.  Liz Project  -  Моя подруга  DJ Sergey Litvinov Remix   3:53    Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 06:27:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7FB765EF3A50FD2730F79B2DC89CC1432601BC0E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1193276.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

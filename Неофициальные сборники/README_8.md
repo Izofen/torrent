@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 715 971
+
+VA - House Beats Unlimited (2024) [MP3|320 Kbps] <Dance, Club, House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Ben Harris - Disco Breakdown (00:06:48)
+002. Vlad Jet - Rising After Darkness (00:06:26)
+003. Man2.0 - Gilead (00:06:15)
+004. Savin - Illusion (00:06:57)(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 09:33:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A8A1BF05AD55D60B198EDFB7C5051F195AA401DB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715971.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 715 957
+
+VA - Instrumental Jazz Variations  2024  [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
+Неофициальные сборники
+Jazz, Blues, Soul (сборники)
+
+###  Подробнее
+
+001. Xavier Richardeau - Linea Oceanica  00:03:35 
+002. Arnold Klos Trio - Whisper Not  00:05:07 
+003. Massimo Faraò - Blue And Blues  00:10:29 
+004. Mongo Santamaria - Song For You  00:07:30     Читать дальше...    Жанр: Jazz, Instrumental, ImprovisationПродолжительность: 09:41:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D20C97D9DC7DAEA7D33580844F62516FAAE70F02
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715957.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 715 946
+
+VA - Redemption  2024  [MP3|320 Kbps] <Metal, Death, Black>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+001. Steel Rhino - In Rhino We Trust  00:05:15 
+002. Draconicon - Drowned  00:04:09 
+003. Somewhere In Nowhere - Lake Of Sorrow  00:07:17 
+004. Ignition - Betrayal  00:05:33     Читать дальше...    Жанр: Metal, Death, Black, Heavy, TrashПродолжительность: 11:17:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5AFD61300362208B400EE2F355A261D504FD243F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715946.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 715 583
+
+VA - Music News vol.364 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Dua Lipa - Illusion (Extended) (04:24)
+ 002. Amirchik - Космос (03:08)
+ 003. AMOR - Lost On You (02:41)
+ 004. Anton Rudd feat. SDOB - Smoke (02:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:02:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2BDA07070E8EA4B48C1A3F8B028C920A159B8454
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1715583.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 715 558
 
 VA - Electronic compilation part 69 (2024) [MP3|320 Kbps] <Electronic>
@@ -1894,106 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702375.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 326
-
-Extreme - Collection (2024) [MP3|320 Kbps] <Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-Extreme - одна из любимых команд. Винил альбома Pornograffitti - 1990 года, с самой юности хранится у меня дома. Именно этот пласт был у многих в начале и середине 90х. На нём нет никаких данных об издателе. Скорее всего, кто то из барыг - делюганов, нашлёпал их огромную партию и распихал по Союзу. Сам альбом очень круто сделан. Мощная, напористая, немного хулиганская (   Читать дальше...   )01. Decadence Dance
-02. Li'l Jack Horny
-03. When I'm President
-04. Get The Funk Out(   Читать дальше...   )Жанр: RockПродолжительность: 06:04:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1C780DD2CBE691B7430BC1A9A96D5031D4580F9B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702326.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 277
-
-VA - Ukrainian Songs  2024  [MP3|320 Kbps] <Pop, Folk Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Квітка Цісик - Я піду в далекі гори  6:18 
-02. Іван Ганзера - Bella ciao.  2:03 
-03. Степан Гіга - Друзі мої  4:55 
-04. Гурт Made In Ukraine - Смуглянка  4:21     Читать дальше...    Жанр: Pop, Folk RockПродолжительность: 02:02:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:29E837A22835E5691D1DBD9BEAC8D686604ABF75
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702277.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 265
-
-VA - Best  Instrumental Jazz and Bossa Nova  2024  [MP3|320 Kbps] <Smooth Jazz, Easy Listening,
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Bossa Jazz Instrumental - A Little Paper Umbrella [03:03]
-002. Cafe Jazz Deluxe - Jazz Lounge Bar Bossa Edition [03:55]
-003. Bossa Jazz Instrumental - Bossa in a Relaxing Room [03:27]
-004. Cafe Jazz Deluxe - Favourite Jazz Cafe [03:45]    Читать дальше...    Жанр: Smooth Jazz, Easy Listening, InstrumentalПродолжительность: 09:23:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:27FCB8C84649913F3C2CBC545A9D7186008F3EBB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702265.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 187
-
-DJ Artur - Compilation  2024  [MP3|320 Kbps] <Instrumental, Piano, Accordion, Electronic>
-Неофициальные сборники
-Instrumental/New Age/Meditative/Relax (сборники)
-
-###  Подробнее
-
-01.  Beautiful Dance
- 02.  Earth
- 03.  Urban Rhythm
- 04.  Star in My Heart    Читать дальше...    Жанр: Instrumental, Piano, Accordion, ElectronicПродолжительность: 02:45:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A0127D13A5FA8F47DEA3FD75FC0C5FD8DF56F735
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702187.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 422 585
+
+VA - The Promise Land  2020  [MP3|320 Kbps] <Reggae, Ska, Soul>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+01. Difrenz - Reste Assis
+02. African Head Charge - God Willing
+03. Nick Manasseh - Babylon Outside
+04. Leadpipe - Some Time    Читать дальше...    Жанр: Reggae, Ska, SoulПродолжительность: 04:02:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:34F5C4A7F37E7DFBD4587D524DEDBE0B84B48259
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422585.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 422 583
+
+VA - Pop Dance Exclusive Megamixes  2020  [MP3|320 Kbps] <Pop, Dance, Electropop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Millie Turner - Jungle
+002. Pouring - Burn
+003. The Disco Boys - Around The World
+004. Deborah Cox - Easy Way    Читать дальше...    Жанр: Pop, Dance, ElectropopПродолжительность: 08:17:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B148452DB1EC76D2C511F2DE0A21AECB24F9A377
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422583.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 422 578
+
+VA - No Doubt: Music RnB Collection  2020  [MP3|320 Kbps] <Rnb, Soul>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+001. The Oral Cigarettes - Wagamama
+002. Jayy Malik - Committed
+003. Teddy Bryant - Autumn Love
+004. Tamalaneh - Once In A Lifetime    Читать дальше...    Жанр: Rnb, SoulПродолжительность: 07:41:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D7F37A09A239E1E039E8FFBC83FC87BA7F50FB7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422578.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 422 575
+
+VA - Beatport Psy Trance: Electro Sound Pack #197  2020  [MP3|320 Kbps] <Psy, Goa Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Solar Walker - Shapeshifter
+002. Lost & Found - Hands  Remix 
+003. Atomizers - Is There A Future
+004. Visua - Atomic Gathering    Читать дальше...    Жанр: Psy, Goa TranceПродолжительность: 12:28:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BFEADB62323CFE6E0427210B2724D7EEEBDE9A1C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422575.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 422 573
 
 VA - Beatport Drum And Bass: Electro Sound Pack #199  2020  [MP3|320 Kbps] <Drum & Bass, Basslin
@@ -1894,106 +1994,6 @@ VA - Fun for Halloween  2020  2CD [MP3|320 Kbps] <Pop, Rock, Alternative>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1417960.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 417 911
-
-VA - 100 Greatest 00s R&B Hits  2020  [MP3|320 Kbps] <R&B>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. Mario - Let Me Love You
-002. Ja Rule - Always On Time
-003. Nelly - Dilemma
-004. Usher - U Remind Me    Читать дальше...    Жанр: R&BПродолжительность: 06:49:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C558199B5D605673C53D99B140429067B361130F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1417911.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 417 626
-
-VA - Suntrip Uplifting Trance Session  2020  [MP3|320 Kbps] <Uplifting, Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Arty & Mat Zo - Rebound
-002. Rafael Osmo - Overdrive  Original Mix 
-003. New Horizons - Take Flight
-004. Brent Rix - Jericho  Original Mix     Читать дальше...    Жанр: Uplifting, Vocal TranceПродолжительность: 09:23:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B8067592E7CB321D1AC35BBB3DC677A7F497426D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1417626.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 417 625
-
-VA - EDC Funky House  2020  [MP3|320 Kbps] <Disco, Funky House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. 1950 - Sushi Slide
-002. Softmal & Llolita - Dance Machine  Original Mix 
-003. Daniel Steinberg - Why Do You Hate Me
-004. Llolita - Say Say  Extended Mix     Читать дальше...    Жанр: Disco, Funky HouseПродолжительность: 08:38:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FBB9F421724EF809A996DD63EB162AE29D54638C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1417625.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 417 515
-
-VA - Air Chilled Electro House  2020  [MP3|320 Kbps] <Chill, Deep House, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Addicted Boys - Addictive Motion
-02. L3idwen - Feel The Music
-03. Lounge Ibiza Cafè - Sunny
-04. China Charmeleon - Spoil My Night    Читать дальше...    Жанр: Chill, Deep House, ElectroПродолжительность: 07:57:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:71E8C285116ED47920C5A23372297998EEA16A49
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1417515.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

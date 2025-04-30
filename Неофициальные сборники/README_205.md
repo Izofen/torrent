@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 812 230
+
+VA - Disclosure Melodic Energy  2014  [MP3|320 кб с]<Trance, Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Danny Young - The Legend  Original Mix   07:15 
+02. STA ft. Nicole McKenna - I`ll Miss  Puma Scorz Remix   08:20 
+03. Davey Asprey - Anima  Original Mix   07:10 
+04. Andy Elliass & ARCZI - Letters To You  Original Mix   08:00 
+05. Fast Distance - Forever & Always  Original Mix   06:50 
+06. Marynus Revert - Scent Of My Dreams  Original Mix   05:50 
+07. Feel ft. Jan Johnston - Illuminate  First Effect Remix   07:36 
+08. CBM - Voltaic  Phil Parry Remix   07:02 Жанр: Trance, Vocal TranceПродолжительность: 06:48:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B2267EDFFB6374A24310A90421A87A28E594078
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 812 229
+
+VA - Hot Dance Summer Vol.9  2014  [MP3|320 кб с]<Dance, Club, House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Flow Reena - Give it to me now  Radio Edit  03:08
+02. The Chainsmokers - Selfie  Javi Torres Edit  04:03
+03. Demi Lovato - Really Don t Care  Cole Plante Radio Remix  03:37
+04. Tom Boxer & Morena - Balans  Extended  04:39
+05. Cahill - Sunshine  Original Mix  05:26
+06. R.I.O - Shine on  DMC Mikael Remix 04:48
+07. DJ Nikita Noskow - Party Don t Stop  Radio Mix  02:35
+08. French Playerz - Everyday  Extended Mix  04:52
+09. Hoxygen & The Trupers feat. Shiva - Take A Selfie  Stephan F Remix  05:38
+10.     Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 06:09:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:15ED94B76042AFD0110F0ACA0B3674F96AF8C474
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 812 132
+
+VA - The Official UK Top 40 Singles Chart  10-08-2014  [MP3|320 кб с]<Pop, Dance, Rock, R&B, O
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+После небольшого перерыва публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все новинки под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Nico & Vinz - Am I Wrong   4:08 
+02. MAGIC! - Rude   3:45 
+03. OneRepublic - Love Runs Out   3:45 
+04. Cheryl Cole Feat Tinie Tempah - Crazy Stupid Love   3:47 
+05. George Ezra - Budapest   3:21 
+06. Ella Henderson - Ghost   3:36 
+07. ZHU - Faded   3:44 
+08. Arina Grande Feat Iggy Azalea - Problem   3:14 
+09. Charli XCX - Boom Clap   2:49 
+10. Will.i.am Feat Cody Wise - It s My Birthday   4:13     Читать дальше...    Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:27:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9605ED6991F444E3980845616C713FE753C993E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 811 974
+
+VA - Дискотека RALLY vol.27  2014  [MP3|235-320 кб с]<Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Ganga Project - Clap Your Hands  Radio Edit   03:28 
+02. Turbotronic - Zook Zook  Radio Edit   03:36 
+03. Dj Cargo feat. Robson & Pati - It s On You  Club Version 2   03:39 
+04. Baby Alice - Pina Colada Boy 2014  BunHeaD Summer Remix   04:30 
+05. Johan K feat. Tony T & Alba Kras - Summer Summer  Club Edit   03:21 
+06. Shakira - La La La  BunHeaD Remix   05:06 
+07. Dj Sanny & Danny Suko ft. Orry Jackson - Dj Play This Song  Gordon & Doyle Radio Edit   03:39 
+08. Bodybangers feat. Victoria     Читать дальше...    Жанр: DanceПродолжительность: 03:34:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F0BC2B8EBCBD19ECABBCCEFAE36270993C912123
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 811 971
 
 VA - Новая летняя волна хитов 50+50  2014  [MP3|256 кб с]<Pop, Dance>
@@ -2241,124 +2363,6 @@ Electronic  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:BE81F38C29AFC3FE55EDAE22429A42E9BC476FFD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 807 634
-
-VA - Клубные Новинки Vol.470 от AGR  2014  [MP3|320 кб с]<Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Digitalism feat. Youngblood Hawke - Wolves  Booka Shade Remix 
- 02. NERVO & Marco Lys - Don t Break My Heart  Bass King Remix 
- 03. Julian Jeweil - Bubbles  Dion 2014 Feel Good Inc Edit 
- 04. MRVLZ - Music For The People  Original Mix 
- 05. DJ Rich-Art - You Got Me Rocking  Original Mix 
- 06. Wiwek - G.M.A.F.B.  Original Mix 
- 07. Vince Moogin - Steve  Original Mix 
- 08. Route 94 feat. Jess Glynne - My Love  Dion 2014 Shake Core Edit 
- 09. MASTIFF & BFAM - Tank  Original Mix 
- 10. Flatdisk - One More Chance     Читать дальше...    Жанр: Club, DanceПродолжительность: 04:22:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1A48F5AA7CB5ED5FA872C563F804AC26804F951F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 807 632
-
-VA - Клубные Новинки Vol.469 от AGR  2014  [MP3|320 кб с]<Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Jade Starling - Think About You  Mike Cruz Tribal Mix 
- 02. Krewella & Deniz Koyu & Danny Avila vs. Blasterjaxx & Badd Dimes - Live For The Titan  Timo$ Bootleg 
- 03. Guru Josh Project & Sean Finn & Saxifaction & Muzzaik - Infinity & Gravy  Hamvai P.G. Cutleg 
- 04. Dream Dance Alliance - God Is A DJ  Extended Mix 
- 05. Jerry Ropero & Stefan Gruenwald with Monica Moss - Canta  Oskar Zenkert Remix 
- 06. D-Wayne & Leon Bolier - Detonate  Original Mix 
- 07. Andy Jay Powell And Mike     Читать дальше...    Жанр: Club, DanceПродолжительность: 04:22:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2C49B02402A18B95B20EB26B92C408449F1761D4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 807 631
-
-VA - Клубные Новинки Vol.468 от AGR  2014  [MP3|320 кб с]<Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Mazza & Klaas - Ready  Club Mix 
- 02. Lex Martin & Andrea Raffa feat. Max C - Eternity  DJ Falk Remix 
- 03. Sander Van Doorn, Martin Garrix & DVBBS feat. Aleesia - Gold Skies  Original Mix 
- 04. Moxie Raia - Buffalo Bill  LA Riots Remix 
- 05. Spencer Tarring, Menegatti & Fatrix - The Cage  Original Mix 
- 06. Nyctophobia - Six Chambers  Original Mix 
- 07. Nari & Milani - Torba  Original Mix 
- 08. NERVO & Marco Lys - Don t Break My Heart  Kid Massive Remix 
- 09. Michael Jackson - Mama Say Mamakossa     Читать дальше...    Жанр: Club, DanceПродолжительность: 04:22:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E6F4017C466ACA253F7F216067171FDC10802F6A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 807 624
-
-VA - Клубные Новинки Vol.467 от AGR  2014  [MP3|320 кб с]<Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Steve Brian & Jason Ross - Good Love  Original Mix 
- 02. Sem Thomasson feat. Elisabeth Stone - Heart Attack  Original Mix 
- 03. Royal Crown Revue - Hey Pachuco!  Sergey Petrik Remix 
- 04. Simon De Jano & Bottai vs Fedde Le Grand - DELORAW  Ivan-Skicin Mashup 
- 05. Zombie Nation - Kernkraft 400 2k14  Waverider Bootleg 
- 06. Tristan Garner - Overdrive  Burgundys & Damien N-Drix Remix 
- 07. Stereo Palma vs. Malibu Breeze - Coracao 2014  Southland DJs Remix 
- 08. Sander van Doorn, Martin Garrix & DVBBS     Читать дальше...    Жанр: Club, DanceПродолжительность: 04:21:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:56F9355197AE5D3898338506F62E4B6E0FB06A34
 ```
 
 <div id="header" align="center">

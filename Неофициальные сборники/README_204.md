@@ -1,4 +1,127 @@
 ﻿
+###  Публикация: 816 579
+
+VA - Deep Dubstep, Dark Dubstep Vol.2  2014  [MP3|320 кб с]<Deep Dubstep, Dark Dubstep>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Enigma Dubz - Lights Out [04:38]
+02. AtYyA - Seeing Truly [05:03]
+03. Balam Acab - See Birds  Moon  [03:48]
+04. Darj - On The Move [05:18]
+05. Concealed Identity - Backwater [05:32]
+06. Artikal - Alone In The Darkness  DJ Madd Remix  [04:36]
+07. Submotion Orchestra - Blind Spot  Distance Remix  [04:37]
+08. Benton - Take Me Away [05:38]
+09. Visionz & Jodie - Let the Light  J Kenzo Remix  [06:02]
+10. Biome - Space [05:36]    Читать дальше...    Жанр: Deep Dubstep, Dark DubstepПродолжительность: 02:38:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9235583B9EB2CF6AFC55C1CF01674AF0FF1671F2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 816 578
+
+VA - Artist Portraits: 01 Roald Velden  2014  [MP3|320 кб с]<Progressive House, Breaks>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. For You  Original Mix   07:44 
+02. Time Stood Still  Original Mix   07:44 
+03. One Step Closer  Original Mix   07:54 
+04. Without Regret  Original Mix   08:49 
+05. She s Like a Sunset  Original Mix   08:21 
+06. On A Rainy Day  Original Mix   07:20 
+07. Moments  Original Mix   09:10 
+08. Deserted Places  Original Mix   08:39 
+09. Endless Summer  Original Mix   08:09 Жанр: Progressive House, BreaksПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0E8EF3A1C075035834E4007DF499C9F3D5BD0E82
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 816 575
+
+VA - Deep & Dark Dubstep Vol.1  2014  [MP3|320 кб с]<Deep Dubstep, Dark Dubstep>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Plastician - Japan [04:09]
+02. Cruel Culture - Future [05:42]
+03. Amit - Human Warfare [05:12]
+04. Mobthrow - Black Fluid [05:55]
+05. Lsn - Diyumi [04:11]
+06. Demon - Chronik [05:03]
+07. Evoke & Bijou - Bittersweet  Frequent Remix  [04:34]
+08. Above & Beyond Feat. Richard Bedford - Sun & Moon  Distance Remix  [04:28]
+09. Sukh Knight - Chronicle [04:13]
+10. Mala - Changes  Distance Remix  [05:35]    Читать дальше...    Жанр: Deep Dubstep, Dark DubstepПродолжительность: 02:34:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:749AFF54D6635CA9981AFA3E9D48A439FAFF2A1D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_816575.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 816 566
+
+VA - Ambient Relax Vol 2  2014  [MP3|320 кб с]<Chillout, Ambient, Electronic, Pop>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Dhamika - Illusions  05:55 
+02. Liquid Space - Copy Dreams Later  09:27 
+03. Synthetic Pulse - Password  08:07 
+04. MAX MILLION - Utter Oblivion  07:52 
+05. MikTek - Dear Universe  04:32 
+06. Perpetual Loop - The Ones We Love the Most  06:10 
+07. Olexa - Purification  07:08 
+08. Perpetual Loop - Where the Road Meets the Beach  07:54 
+09. SYGNALS - Anamnesia  08:47 
+10. Squazoid - Sarigama  06:18     Читать дальше...    Жанр: Chillout, Ambient, Electronic, PopПродолжительность: 01:32:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3BE1088546DA605DD2AB729F608662FA2098CCC8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_816566.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 816 565
 
 VA - Alternative Times Vol.1  2014  [MP3|320 кб с]<Alternative, Other Rock>
@@ -2284,128 +2407,6 @@ VA - 100 Dance 2014 Vol.6  2014  [MP3|320 кб с]<Dance, Club>
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:F5A67388C5B99F29B3F15985C309795542F37B51
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 230
-
-VA - Disclosure Melodic Energy  2014  [MP3|320 кб с]<Trance, Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Danny Young - The Legend  Original Mix   07:15 
-02. STA ft. Nicole McKenna - I`ll Miss  Puma Scorz Remix   08:20 
-03. Davey Asprey - Anima  Original Mix   07:10 
-04. Andy Elliass & ARCZI - Letters To You  Original Mix   08:00 
-05. Fast Distance - Forever & Always  Original Mix   06:50 
-06. Marynus Revert - Scent Of My Dreams  Original Mix   05:50 
-07. Feel ft. Jan Johnston - Illuminate  First Effect Remix   07:36 
-08. CBM - Voltaic  Phil Parry Remix   07:02 Жанр: Trance, Vocal TranceПродолжительность: 06:48:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B2267EDFFB6374A24310A90421A87A28E594078
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 229
-
-VA - Hot Dance Summer Vol.9  2014  [MP3|320 кб с]<Dance, Club, House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Flow Reena - Give it to me now  Radio Edit  03:08
-02. The Chainsmokers - Selfie  Javi Torres Edit  04:03
-03. Demi Lovato - Really Don t Care  Cole Plante Radio Remix  03:37
-04. Tom Boxer & Morena - Balans  Extended  04:39
-05. Cahill - Sunshine  Original Mix  05:26
-06. R.I.O - Shine on  DMC Mikael Remix 04:48
-07. DJ Nikita Noskow - Party Don t Stop  Radio Mix  02:35
-08. French Playerz - Everyday  Extended Mix  04:52
-09. Hoxygen & The Trupers feat. Shiva - Take A Selfie  Stephan F Remix  05:38
-10.     Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 06:09:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:15ED94B76042AFD0110F0ACA0B3674F96AF8C474
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 132
-
-VA - The Official UK Top 40 Singles Chart  10-08-2014  [MP3|320 кб с]<Pop, Dance, Rock, R&B, O
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-После небольшого перерыва публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-Все новинки под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Nico & Vinz - Am I Wrong   4:08 
-02. MAGIC! - Rude   3:45 
-03. OneRepublic - Love Runs Out   3:45 
-04. Cheryl Cole Feat Tinie Tempah - Crazy Stupid Love   3:47 
-05. George Ezra - Budapest   3:21 
-06. Ella Henderson - Ghost   3:36 
-07. ZHU - Faded   3:44 
-08. Arina Grande Feat Iggy Azalea - Problem   3:14 
-09. Charli XCX - Boom Clap   2:49 
-10. Will.i.am Feat Cody Wise - It s My Birthday   4:13     Читать дальше...    Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:27:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9605ED6991F444E3980845616C713FE753C993E7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 811 974
-
-VA - Дискотека RALLY vol.27  2014  [MP3|235-320 кб с]<Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Ganga Project - Clap Your Hands  Radio Edit   03:28 
-02. Turbotronic - Zook Zook  Radio Edit   03:36 
-03. Dj Cargo feat. Robson & Pati - It s On You  Club Version 2   03:39 
-04. Baby Alice - Pina Colada Boy 2014  BunHeaD Summer Remix   04:30 
-05. Johan K feat. Tony T & Alba Kras - Summer Summer  Club Edit   03:21 
-06. Shakira - La La La  BunHeaD Remix   05:06 
-07. Dj Sanny & Danny Suko ft. Orry Jackson - Dj Play This Song  Gordon & Doyle Radio Edit   03:39 
-08. Bodybangers feat. Victoria     Читать дальше...    Жанр: DanceПродолжительность: 03:34:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F0BC2B8EBCBD19ECABBCCEFAE36270993C912123
 ```
 
 <div id="header" align="center">

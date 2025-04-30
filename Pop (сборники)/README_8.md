@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 723 398
+
+VA - Dance: Made in Italy (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Shympulz - Bionic Brain (Short Cut) (5:15)
+02. Dj Sheep & Luici Galconi - Feel the Same (Nightcore Remix) (2:27)
+03. Fantasy Project - Don't Know Why (C.Y.T. Nightcore Edit) (3:09)
+04. A19 - Beijing (4:24)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:10:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C9D38C9B29DA13406752AC316B04868655E8D35
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1723398.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 723 396
+
+VA - The Disco Rock Years (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco. Pop, Rock>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Kiss - I Was Made For Lovin' You (4:29)
+02. Angel - 20th Century Foxes (5:26)
+03. Blondie - Heart Of Glass (Disco Version) (5:49)
+04. The Rolling Stones - Miss You (2009 Mix) (4:48)(   Читать дальше...   )Жанр: Disco. Pop, RockПродолжительность: 02:10:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:099CDE9098220209EA474F754B6A50ECB2DAE60B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1723396.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 723 194
+
+VA - The Best of Italo Disco, Vol. 3 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Patty Johnson - I'm In Love (Europe Version) (6:03)
+02. Jimmy Ross - First True Love Affair (Larry Levan Remix) (7:09)
+03. International Music System - Dancing Therapy (128 Bpm) (6:05)
+04. Tom Hooker - Love Attack (Extended Mix) (5:25)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:58:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0E2938F1514B387EC76DE7352D3FFFFBC41C5B51
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1723194.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 723 193
 
 VA - The Best of Italo Disco, Vol. 1 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
@@ -1908,81 +1983,6 @@ Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1711055.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 710 967
-
-Beyonce - Cowboy Carter (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Country>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - AmerIIcan Requiem
-02 - BlackbIIrd
-03 - 16 Carriages
-04 - Protector(   Читать дальше...   )Жанр: Pop, Soul, CountryПродолжительность: 01:18:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7398DF616D2D57A104C1A16243A640B5AFAC5C7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1710967.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 710 506
-
-Various - Stars On 45 - Let's Dance! (2003) [FLAC|Lossless|image + .cue] <Disco, Italo-Disco, Euro-D
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-Disco 70’s Medley.
-01. Stars On 45– Stars On 45 (Part One) 0:58
-02. Eruption (4)– Runaway 1:43
-03. Cashmere– Hey Baby 3:27(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:89D22D371CA437FB24EE01F65310CF1C4FBF55DA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1710506.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 710 379
-
-Modern Heroes - Magic-The 1st Album  2024  [MP3|320 Kbps] <Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. You re My Heart  5:50 
-02. Romance In Paris  3:08 
-03. The City Of Blue Angels  3:52 
-04. Moment Of Love  3:16     Читать дальше...    Жанр: Euro-DiscoПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BE89A2BF932140218662AA7AC7C3EDF98D7E4A3A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1710379.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

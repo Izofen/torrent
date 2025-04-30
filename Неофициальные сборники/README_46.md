@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 451 525
+
+VA - Melodic Synthpop Release  2021  [MP3|320 Kbps] <Synthpop, Electropop, Pop Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Это музыкальное направление, ежегодно дарящее миру новых звезд, без которых невозможно представить себе современную эстраду. Особенность этой музыки это эксперимент и отсутствие строгих рамок и шаблонов. Порой это чувственные и трепетные композиции, порой ритмичные и танцевальные.001. Golin - Play Odds
+002. Elektrotechnika - Olivia
+003. Mondtraeume - Free
+004. Stephen Paul Taylor - Gdmf    Читать дальше...    Жанр: Synthpop, Electropop, Pop DanceПродолжительность: 11:16:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0A6CD5BE6D5C182A23BF96BAB04FE4E9D0C675B8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1451525.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 451 524
+
+VA - House Garden Music: Deep Session  2021  [MP3|320 Kbps] <Deep House, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Лучшее средство от депрессии и подавленного настроения - музыка сборника от House Garden Music! Композиции могут похвастаться великолепной атмосферой позитива и тонким чувством стиля. Альбом буквально полностью пропитан легкими нотками романтики и танцевального духа. Хорошая работа во всех смыслах. Приятного прослушивания!01. Jt Donaldson - Untied
+02. Sharam - Do Ya
+03. Gerah - Iris  Original Mix 
+04. Wolf Story - Peak    Читать дальше...    Жанр: Deep House, ElectroПродолжительность: 08:08:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F228C322313BDE296D87988BDE16AF951A07754B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1451524.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 451 523
+
+VA - EDM Neon Hypnotic  2021  [MP3|320 Kbps] <EDM, House, Techno, Electro, Club>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Неоновые люди, неоновые предметы, неоновые танцы. Флуоресцирующие лица, летающие неоны всех цветов радуги, полумрак и манящий клубный саунд! А главное, стойкое ощущение чего-то совершенно инопланетного, загадочного и фантастического.001. Alex Dolby - White River
+002. Al Mar - Eleven Seconds
+003. Space Afrika - Untitled
+004. Ed Bronx - Dark Matter    Читать дальше...    Жанр: EDM, House, Techno, Electro, ClubПродолжительность: 11:41:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:356B5799DC88079996B71484EBCD56E9847D5C6E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1451523.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 451 522
+
+VA - Beatport Electro House: Sound Pack #250  2021  [MP3|320 Kbps] <Electro House, Club>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+250-й релиз от Beatport является ярким образцом современной электронно-танцевальной музыки. Зарубежные треки в стилях Electro House порадуют всех любителей танцевать или просто слушать музыку в данном формате. Треки сборника не только подарят Вам хорошее настроение, но и позволят быть в курсе последних горячих музыкальных новинок. Раз Вы заинтересовались лонгплеем     Читать дальше...    001. Shadow Child - Mars
+002. Einmusik - Geyser
+003. Worakls Ft Eivor - Red Dressed
+004. Joe Stone - Feeling Dynamite    Читать дальше...    Жанр: Electro House, ClubПродолжительность: 10:37:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0CECAE3E2427327B0ECD277BA68FEF310590B46
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1451522.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 451 516
 
 VA - Shazam Хит-парад World Top 200 Февраль  2021  [MP3|320 Kbps] <Pop, Dance, Other>
@@ -1895,106 +1995,6 @@ VA - 30 2  Новые Песни  2021  [MP3|320 Kbps] <Pop, Dance, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1446785.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 446 571
-
-VA - Tik Tok Треки выстрелили зимой 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Justin Timberlake - Mirrors  8:04 
-002. Kendrick Lamar, Jay Rock - Money Trees  6:26 
-003. 1096Gang, Guddhist, youngwise, Polo Pi, Ghetto Gecko, Luci J - Pajama Party  5:23 
-004. Nirvana - Smells Like Teen Spirit  5:01     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 08:07:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C430763F1F8193BFE1CD2AFCDEF62C9D7520302
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1446571.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 446 326
-
-VA - Sexy Dreams 2021 [MP3|320 Kbps] <Pop, House, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Kehlani - Gangsta  2:59 
-002. Cautious Clay - Cold War  3:24 
-003. Rihanna - Sex With Me  3:26 
-004. Bryson Tiller - Right My Wrongs  4:09     Читать дальше...    Жанр: Pop, House, OtherПродолжительность: 07:07:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EFABA63A6EE99F607DF93C7A50146211E942C91B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1446326.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 446 231
-
-VA - Dancefloor Electro House: The Glamour Party  2021  [MP3|320 Kbps] <Electro House, Dance, Cl
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Если хотя бы на мгновенье закрыть глаза и прислушаться к этой музыке, то в глубине сознания непроизвольно возникнут яркие, образы движения запечатленное в звуках. Одни треки сборника зовут в танец, а другие заставят снизить темп быстротечного времени и задуматься. Талантливый композитор может своей музыкой донести до слушателя все что угодно и разбудить его мироощущения.001. Bvrnout - Higher
-002. Turbotronic - So Good
-003. Diskoo - Get Up Tonight
-004. DJ Buster - Trouble    Читать дальше...    Жанр: Electro House, Dance, ClubПродолжительность: 08:43:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:74AA94B0FE929DD18C2B86A8CE903775FA8AAF69
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1446231.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 446 230
-
-VA - Future Melodic Techno: Urban Party  2021  [MP3|320 Kbps] <Techno, Minimal, Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Гармония в каждом треке. Мелодии, нацеленные прямо в сердце и растворяющиеся в разуме. Мы живем в век техно музыки. Нам излишне слова, чтобы понять друг друга. Мы довольствуемся мелодией, которая выразит наши чувства! Мы знаем, что гармония существует! И знаем где она существует.001. Armand Tee - Take My Hand
-002. Dawn Razor - Fatherhood
-003. Stereo Kill - Chandu
-004. David Porto - The Rimmer    Читать дальше...    Жанр: Techno, Minimal, ElectronicПродолжительность: 11:23:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:519CC0601839FF72F7EF2B6571EDAE1280BBF480
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1446230.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

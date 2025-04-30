@@ -1,4 +1,101 @@
 ﻿
+###  Публикация: 1 290 799
+
+VA - не Громкие новинки недели 6  2019  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Alan Walker feat. Sabrina Carpenter & Farruko - On My Way
+02. Alena Grand - Потанцуй Со Мной
+03. Armin Van Buuren feat. Bonnie McKee - Lonely For You  Zack Martino Remix 
+04. Audax & Pri Pach - Wildfire    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:56:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7C89CD06333BA1A04D4D4DA1BCD3C6C8646646CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1290799.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 290 751
+
+Heiko And Maiko - Techno Rock  2018  Radio Remix [MP3|320 Kbps] <Club, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. Heiko And Maiko - Techno Rock  DJ Savin Alex Pushkarev Remix  Radio VersionЖанр: Club, DanceПродолжительность: 00:03:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:10CD1512635B4B0B67ABADB24A73C7E958297943
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1290751.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 290 596
+
+VA - Running Workout 2019 [MP3|320 Kbps] <House, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Flo Rida - GDFR  feat. Sage The Gemini & Lookas 
+02. Galantis - Peanut Butter Jelly
+03. Clean Bandit - Solo  feat. Demi Lovato 
+04. Anne-Marie - 2002    Читать дальше...    Жанр: House, DanceПродолжительность: 02:29:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F5A9CB36CC58C5F5437B23B1BB66BFF931C8D1EE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1290596.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 290 496
+
+VA - YR Best Chillout Vol.38  2018  [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. ATB - Feel Like Me  R.I.B & Soty Chillout Version  1:35
+02. FATE - Black Magic  Original Mix  3:00
+03. Katy Perry - Rise  Acoustic Version   Ali Brustofski Сover  3:16
+04. Ana Criado - Vulnerable  Nowhere To Hide   Mark Otten Downtempo Remix  5:02    Читать дальше...    Жанр: Chillout, Downtempo, Lounge, Trap, AmbientПродолжительность: 06:35:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:323DA300B372035F1942E7ADFC8715397C37696B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1290496.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 290 489
 
 VA - YR Best Chillout Vol.41  2018  [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -1880,106 +1977,6 @@ VA - не Громкие новинки недели 3  2019  [MP3|320 Kbps] <Po
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287060.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 287 051
-
-VA - Partybreaks and Remixes - All In One November 001  2019  [MP3|320 Kbps] <Disco, Funk, Soul,
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Jeff92 & Sumania  Alan Cook - Do You Want To Stay  Jeff92 & Sumania Redrum 
-002. Collini  Basslovers United - A+ Superstar  C - Baumann Remix 
-003. Jeff92 & Sumania  Company B - Fascinated  Jeff92 & Sumania Redrum 
-004. Frankie Steel   Clean Bandit,  Julia Michaels - I Miss You  Trp Remix     Читать дальше...    Жанр: Disco, Funk, Soul, Electronic, ErasПродолжительность: 10:04:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB6E71039288104E47D0977DBBE81D17BAACF9DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287051.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 287 026
-
-VA - Brooklyn Bounce  2019  [MP3|320 Kbps] <Electro House, Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. 22Bullets - Konichiwa
-002. Max Grade - Emotion  Original Mix 
-003. Albatros 67 - Play pen
-004. Zafer Atabey - A Sad Song  Original Mix     Читать дальше...    Жанр: Electro House, Dance, ClubПродолжительность: 10:15:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A3D8013C99A3003D3E896EF7DDA1B81534B97387
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287026.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 287 024
-
-VA - Я в глазах твоих тону  2019  [MP3|320 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Алексей Ром - Я люблю эту женщину очень  3:21 
-002. Виктор Дорин - Если нет тебя  3:33 
-003. Александр Курган - Оттенки печали  3:54 
-004. Александр Вестов - Бог и она  3:57     Читать дальше...    Жанр: ШансонПродолжительность: 06:24:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:29390D378ED3DE2A0817103F3E1960FBDBC2B295
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287024.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 287 023
-
-VA - Beach Sound: The Velvet Jungle  2019  [MP3|320 Kbps] <Drum And Bass, Jungle, Bass>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Fishy - Enchanted
-002. Invadhertz - Deep In The Jungle
-003. Sappo - Survival
-004. Calibre - Zee Tone    Читать дальше...    Жанр: Drum And Bass, Jungle, BassПродолжительность: 07:58:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0DC6EE2D0A03EE71623AAC48F5040C4C4A2D6B6F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287023.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

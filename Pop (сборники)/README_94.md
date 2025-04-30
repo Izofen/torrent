@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 049 058
+
+VA - 12 Inch Dance: 80s Pop  2016  [FLAC|Lossless|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 Spandau Ballet - Gold  12   Mix  [07:15]
+02 Duran Duran - The Reflex   [06:34]
+03 Soft Cell - Torch   [08:27]
+04 Tears For Fears - Shout   [08:01]    Читать дальше...    Жанр: PopПродолжительность: 03:31:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B4A08045A00E694BDEBAC76A9C34690534A331D7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1049058.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 049 041
+
+Plazma - Take My Love  2000  Reissue, 2004, CD Land [FLAC|Lossless|image + .cue] <Pop, Euro Hous
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Take My Love
+02. The Sweetest Surrender
+03. Memories
+04. Jump In My Car    Читать дальше...    Жанр: Pop, Euro HouseПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:09FA04AC97039566E881DF2677F4E697E8A8B931
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1049041.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 048 942
+
+Plazma - Black & White  2006  [FLAC|Lossless|image + .cue] <Pop, Euro House>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Save
+02. Round The Corner
+03. Black Would Be White
+04. Darkness Steals The Light    Читать дальше...    Жанр: Pop, Euro HouseПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89EB4949DA3EE36BAFDE0C898B6DDAE06428F0D9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1048942.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 048 927
 
 Plazma - Six | Zero | Seven  New Version   2004  [FLAC|Lossless|image + .cue] <Pop, Euro Hou
@@ -1918,81 +1993,6 @@ Bruce & Bongo  Брюс энд Бо́нго  — базировавшийся в
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1036732.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 036 621
-
-ВИА Пламя - Золотые шлягеры  2003  [FLAC|Lossless|image + .cue] <Retro>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01.  Не надо печалиться   
-02.  На дальней станции сойду   
-03.  Снег кружится   
-04.  Детства последний звонок       Читать дальше...    Жанр: RetroПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A62DCE893DA76A4AC7A04249A604C913603D24F3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1036621.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 036 607
-
-ВИА Коробейники - Коробейники  2004  [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01.  Золотые купола   
-02.  Ой полным полна моя коробушка   
-03.  Калинушка   
-04.  Огромный мир       Читать дальше...    Жанр: Советская эстрада, РетроПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F648F70EE2309ABF99BF644EB75CADCE378BC1BD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1036607.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 036 589
-
-Savage Garden - Savage Garden  1997  2CD, Mixed [APE|Lossless|image + .cue] <Synth-Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. I Want You  Xenomania Funky mix 
-02. Break Me Shake Me  Broken mix 
-03. Santa Monica  Bittersweet mix 
-04. Tears of Pearls  Tears on the Dancefloor mix     Читать дальше...    Жанр: Synth-PopПродолжительность: 01:56:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:215EA7CA71DC9F16EB2462780D8596EE2AA36C02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1036589.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

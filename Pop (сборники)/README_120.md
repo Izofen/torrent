@@ -1,4 +1,97 @@
 ﻿
+###  Публикация: 722 834
+
+VA - Now That’s What I Call Music! Vol. 48  Target Exclusive   2013  [FLAC  tracks+.cue 
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Katy Perry - Roar  03:42 
+02. Robin Thicke feat. T.I. and Pharrell - Blurred Lines  04:21 
+03. Justin Timberlake - Take Back the Night  05:53 
+04. Lana Del Rey - Summertime Sadness  Cedric Gervais Remix Edit   03:33 
+05. Daft Punk - Get Lucky  04:07 
+06. Bruno Mars - Treasure  02:54 
+07. Maroon 5 - Love Somebody  03:47 
+08. Avicii - Wake Me Up  04:04 
+09. Miley Cyrus - We Can t Stop  03:49 
+10. Lady Gaga - Applause  03:30     Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:14D975BEC158F88195CB74EA4DA0246229DC81EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 722 787
+
+VA - Greatest Hits Of The Millennium 36CD  1999  [MP3|320 kbps]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01.Wes - Alane  03:40 
+02.Spice Girls - 2 Become 1  03:59 
+03.Backstreet Boys - As Long As You Love Me  03:30 
+04.Robbie Williams - Angel  04:24 
+05.Natalie Imbruglia - Torn  04:05 
+06.KCi & Jojo - All My Life  03:41 
+07.Lighthouse Family - High  04:35 
+08.Eagle-Eye Cherry - Save tonight  03:54 
+09.Another Level - Freak Me  03:35 
+10.Romeo - Coming Home  03:30     Читать дальше...    Жанр: PopПродолжительность: 44:31:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8527228371A9E2F34CB56FB2CF54CE1FB5066B64
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 722 459
+
+Dido - Greatest Hits  2013  [MP3|320 кб с]<Pop, Chill Out>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Here With Me
+02. Thank You
+03. Hunter
+04. White Flag
+05. Life For Rent
+06. Don’t Leave Home
+07. Sand In My Shoes
+08. Don’t Believe in Love
+09. Quiet Times
+10. Grafton Street    Читать дальше...    Жанр: Pop, Chill OutПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0A2393A10E67C9850115040FDE4780E6C7C57BC6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 722 397
 
 Claudia Mori & Adriano Celentano - Storia D amore  2002  [APE|Lossless|WEB-DL]<Pop>
@@ -2293,93 +2386,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:5BBED22259377AE457CE929175B0C0EB0A6AC48C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 711 047
-
-Ruslan Tagirov - Standing On A Bridge  2011  [Limited Edition] [FLAC|Lossless]<Electropop, Instr
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Intro  Railway Station  [3:54]
-02. Standing On A Bridge [3:50]
-03. Natalie [5:29]
-04. Can t Wait For The Night [5:12]
-05. Love s Morning [4:08]
-06. Obsession [5:03]
-07. Fly Away [5:14]
-08. Spring Mood [5:28]
-09. My Love [5:22]
-10. Session One [4:57]    Читать дальше...    Жанр: Electropop, InstrumentalПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AD53C7127BE8210D357BE2C4357AD874E412362A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 710 890
-
-VA - Pure... Legends  2013  Box Set, 4 CD [FLAC|Lossless]<Retro, Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Рыбачка Sony как то в мае...выпустила замечательный сборник легенд рор и рок музыки. В треклисте специально привожу годы выпуска соответствующих композиций, чтоб вы ощутили широту охвата этого сборника. Просто уверен, что даже большие ценители музыки найдут в нем для себя несколько незнакомых исполнителей и насладятся этой не стареющей музыкой.01. Sade - Smooth Operator [1984]  4:20 
-02. Journey - Who s Crying Now [1981]  5:02 
-03. Patti Smith Group - Because The Night [1978]  3:23 
-04. Meat Loaf - Two Out Of Three Ain t Bad [1977]  4:47     Читать дальше...    Жанр: Retro, Pop, RockПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97F281764E12B421EA52C3C6C4C63840C5D404A4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_710890.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 710 881
-
-VA - Super Eurobeat Vol.225  2013  [MP3|320 кб с]<Eurodance, Italo-Disco, Hi NRG>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Manuel - Never Say Never  4:25 
-02. Ace - Adrenaline  4:23 
-03. Karen - Maybe One Day  4:04 
-04. Dave Rodgers feat. Futura - Magic Sunday  4:03 
-05. Tipsy & Tipsy - Baby Tonight  5:30 
-06. Dream Fighters - I Just Wanna Stay With You  5:00 
-07. Cherry - Fairy Tale  5:23 
-08. Franz Tornado - Kool Kitten  5:15 
-09. Tora - You Got Me Boom! Boom!  4:49 
-10. Paul Harris - Don t Forget  5:04     Читать дальше...    Жанр: Eurodance, Italo-Disco, Hi NRGПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9B98298F84D34E89E126989B1B6D96DC61FDC081
 ```
 
 <div id="header" align="center">

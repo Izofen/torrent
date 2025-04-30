@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 186 139
+
+VA - По волне моей памяти 2: Том3  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретр
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Земляне  -  Каскадёры 3:34
+02.  Машина времени  -  Картонные крылья любви 4:29
+03.  Самоцветы  -  Налетели дожди 2:51
+04.  Группа Стаса Намина  -  Старый рояль 3:45    Читать дальше...    Жанр: Поп, Ретро, РокПродолжительность: 02:20:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D744A2B2D559C806401DED629F34BAE8A474D7D1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1186139.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 186 077
+
+VA - По волне моей памяти 2: Том2  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретр
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Лейся песня  -  Все не так 3:34
+02.  Машина времени  -  Скажи, мой друг 3:22
+03.  Ансамбль  Фестиваль   -  Городские цветы 4:28
+04.  Крис Кельми  -  Замыкая круг 5:05    Читать дальше...    Жанр: Поп, Ретро, РокПродолжительность: 02:22:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29189500C6839F43B999D6EB85FD30D7D44976D8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1186077.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 186 023
+
+VA - По волне моей памяти 2  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретро, Рок
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Владислав Андрианов  -  По волне моей памяти 3:44
+02.  Машина времени  -  За тех, кто в море 3:47
+03.  Пламя  -  Не надо печалиться 2:54
+04.  Синяя птица  -  Берегите женщин 4:31    Читать дальше...    Жанр: Поп, Ретро, РокПродолжительность: 02:35:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8996E4EAAD0A69B6C4381094DC36558A64650322
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1186023.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 185 949
+
+VA - Enigmatic Best  1990-2000  [MP3|224-320 Kbps] <New Age,Enigmatic>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01-Enigma - Sadness Part I  04:12 
+02-Deep Forest - Sweet Lullaby  03:54 
+03-Gregorian - So Sad  03:29 
+04-Kheops - Liberty In The Wind  04:35     Читать дальше...    Жанр: New Age,EnigmaticПродолжительность: 06:40:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99A38989D7BE117C2808EFC416F96E0E52405EF6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185949.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 185 937
 
 VA - German Top 100 Single Charts 24.11.2017 [MP3|320 Kbps] <Pop>
@@ -1891,106 +1991,6 @@ VA - Superordinate Electro House  2017  [MP3|320 Kbps] <Electro House, Dance, Cl
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1182485.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 182 330
-
-VA - Для Тех, Кто Помнит! Русский Рок Vol.7 от Ovvod7  2017  [MP3|320 Kbps] <Рок>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01.  7Б - Молодые ветра  4:25
-02.  Король и Шут - Кукла колдуна  3:24
-03.  Ляпис Трубецкой - Ау  3:54
-04.  Ночные Снайперы  Диана Арбенина  - Асфальт  3:19    Читать дальше...    Жанр: РокПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E97669591858B4E7ED8D5A513D82155346A20945
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1182330.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 182 267
-
-VA - Games At Sunset: Psy Goa Trance  2017  [MP3|320 Kbps] <Psy, Goa Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Aumni - Microscope
-002. Mono - Music is my Reality
-003. Raccoon - Lizard In The Sphere  Original Mix 
-004. Diadem - Trick it    Читать дальше...    Жанр: Psy, Goa TranceПродолжительность: 12:14:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E47A47C72AC63EFAFF59BA02E21165440058EC7C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1182267.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 182 225
-
-VA - Progressive House: Beach Dance Classic Radio  2017  [MP3|320 Kbps] <Progressive House, Danc
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Cristoph - Feel feat Jem Cooke  Original Mix 
-002. Victor Ruiz - Dying Of The Light
-003. Supacooks - Aftermath  Original Mix 
-004. Rolo Green - Napier    Читать дальше...    Жанр: Progressive House, Dance, ClubПродолжительность: 12:55:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F338AF27FB9328A6131639CB4536BA7AA9071F2B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1182225.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 182 140
-
-VA - German Top 100 Single Charts 10.11.2017 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Bausa - Was du Liebe nennst
-002. Camila Cabello - Havana  feat. Young Thug 
-003. Post Malone - rockstar  feat. 21 Savage 
-004. ZAYN - Dusk Till Dawn  feat. Sia     Читать дальше...    Жанр: PopПродолжительность: 05:38:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C0904924607255E3C6FE9BF01F81A2447FE2D38C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1182140.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

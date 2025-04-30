@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 333 408
+
+Cigarettes After Sex - Cry  2019  [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie-Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Don t Let Me Go  04:22 
+02. Kiss It Off Me  04:29 
+03. Heavenly  04:48 
+04. You re the Only Good Thing in My Life  04:35     Читать дальше...    Жанр: Dream Pop, Indie-PopПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F481A578CADDE397028D9256EDBB014C0C7D642F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1333408.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 333 278
+
+СашаЧ - СашаЧ  1999  MDM Studio [FLAC|Lossless|tracks + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Ты Сегодня Не Придешь
+02. Танцует Лето
+03. Белый Кораблик
+04. Музыка Дождя    Читать дальше...    Жанр: PopПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EC65A93A281C49D1E4064D87C79EB070D5889BB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1333278.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 333 134
+
+Andre Morgunoff & Keyorchestra - The Very Best Of  2007  [FLAC|Lossless|tracks + .cue] <Pop, Ele
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. North Land
+02. Bouquet Of Fantasies
+03. E-SoundTrack
+04. Duduk    Читать дальше...    Жанр: Pop, ElectronicaПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5CB0D9CB88FC4240CF005DA2BBACF6A7DEEEC029
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1333134.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 333 120
 
 Чёртово колесо инженера Ферриса - Partykiller  2019  [MP3|320 Kbps] <Power Pop, Dance Punk>
@@ -1914,81 +1989,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325760.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 325 625
-
-VA - I Love Success, Vol. 1  2017  [FLAC|Lossless|WEB-DL|tracks] <Hi-NRG, Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Riccardo Campa feat. Tuesday - The Future Is You  05:09 
-02. Male Room - You Are Not My Lover  Video Edit   03:43 
-03. Multiple Maniacs feat. Tuesday - The Fauxriental Jam  7   Mix   06:22 
-04. Multiple Maniacs feat. Tuesday - Bazooms  05:23     Читать дальше...    Жанр: Hi-NRG, Italo-DiscoПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BB40230C6CB8EE2FF95D7231F2C164A5DCDCF075
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325625.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 325 597
-
-Ирина Аллегрова - Неизданное…2019  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Жизнь-игра
-2. Ария Сильвы
-3. Книга жизни
-4. Нас друг для друга создал Бог    Читать дальше...    Жанр: PopПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A80AC9F163C784899FF9119E4B686B0F0A99A09A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325597.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 325 357
-
-Space Pilots - Space Music  1978  [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Magic Fly  3:11 
-02. Onyx  3:49 
-03. Space Computer  4:05 
-04. Future Woman  2:41     Читать дальше...    Жанр: Electronic, Disco, Synth-popПродолжительность: 00:32:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:338CDF37278F9DDE622B7C5F98D537A6B8009E5B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1325357.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

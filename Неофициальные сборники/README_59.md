@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 388 547
+
+VA - Авторадио: Золото дискотек Vol. 1  2020  [MP3|320 Kbps] <Euro Disco, Italo Disco, Euro Danc
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Bad Boys Blue - From Heaven To Heartache 3:33
+02. C.C. Catch - Stay  Maxi-Version  5:47
+03. Grant Miller - Colder Than Ice 5:35
+04. DJ s Project - Vision Of Love 6:40    Читать дальше...    Жанр: Euro Disco, Italo Disco, Euro DanceПродолжительность: 06:29:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E26576B916745F1D4E46FD946ACFB63CDA539F2C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388547.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 530
+
+VA - The Official UK Top 40 Singles Chart 05.06.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. DaBaby - ROCKSTAR
+02. Lady Gaga - Rain On Me
+03. S1mba - Rover  feat. DTG 
+04. Drake - Toosie Slide    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F119DA8A75FE1C499A4F3BEC28957EAF94AFE5B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388530.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 516
+
+VA - Music News vol.16  2020  [MP3|320 Kbps] <Pop, Soul, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Abee - Way Back  03:13 
+ 002. Aexcit feat. Hilla - High  Aexcit vs. Mande Remix   02:28 
+ 003. Armin Van Buuren & Brennan Heart feat. Andreas Moe - All On Me  MOTi Remix   03:06 
+ 004. Arno Cost & Norman Doray - One Night  02:59     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 07:14:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F991A6C18B347130D6038C8EDD6FA9C94FECE21
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388516.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 488
+
+VA - German Top 100 Single Charts 05.06.2020 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. AK Ausserkontrolle x Bonez MC - In meinem Benz
+02. Pashanim - Airwaves
+03. Apache 207 - Fame
+04. KC Rebell & Summer Cem - FLY    Читать дальше...    Жанр: PopПродолжительность: 04:56:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AF22E7EC3798B16083E0A415767127332FB81549
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388488.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 388 470
 
 VA - Beatport Psy Trance: Electro Sound Pack #99  2020  [MP3|320 Kbps] <Psychedelic, Goa Trance>
@@ -1894,106 +1994,6 @@ VA - Non stop Май  2020  [MP3|256 Kbps] <Pop, Shanson, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385766.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 385 765
-
-VA - Beatport Psychedelic Trance: Sound Pack #92  2020  [MP3|320 Kbps] <Psy, Goa Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Djcincinati - Psychestral
-002. DJ Mula - Voltage Drips
-003. Alaska - Ethnic Techno
-004. Uza Trance - Gayatri Mantra    Читать дальше...    Жанр: Psy, Goa TranceПродолжительность: 13:01:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E15DCB02C3D4B071EA530760FE15F8E6110572C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385765.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 385 615
-
-VA - Music News vol.8  2020  [MP3|320 Kbps] <Progressive Rock, Rock, Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Asammuell - Всем Для Тебя  03:03 
- 02. Asking Alexandria -  Lorazepam  04:02 
- 03. Asking Alexandria - All Due Respect  03:55 
- 04. Asking Alexandria - Antisocialist  03:36     Читать дальше...    Жанр: Progressive Rock, Rock, PopПродолжительность: 03:20:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C320B9F8734E8845E90CDD71C48B7754448ABF18
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385615.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 385 558
-
-VA - Beatport Drum & Bass: Electro Sound Pack #91  2020  [MP3|320 Kbps] <Drum & Bass, Bass, Bass
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Sullen - Can t Escape
-002. Hothead - Dark Side
-003. Shodan - Gobsmacked
-004. Drum Boss - Core  Original Mix     Читать дальше...    Жанр: Drum & Bass, Bass, BasslineПродолжительность: 10:33:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B93DB1CF9BAF63C2CEE32EE0942E74D95FDFFDD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385558.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 385 509
-
-VA - 100 Tracks Love Ballads Playlist Spotify  2020  [MP3|320 Kbps] <Rock, Pop, Alternative>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Bryan Adams -  Everything I Do  I Do It For You  6:33 
-2. Bon Jovi - Bed Of Roses  6:32 
-3. Bryan Adams - Please Forgive Me  5:55 
-4. Bon Jovi - Always  5:53     Читать дальше...    Жанр: Rock, Pop, AlternativeПродолжительность: 06:56:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:51C107EC038C6245605ADA771C26C6ABC8CB64BC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385509.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

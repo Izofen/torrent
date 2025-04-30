@@ -1,4 +1,76 @@
 ﻿
+###  Публикация: 1 292 480
+
+Sumeria - Golden Tears  1977  LP [MP3|320 Kbps] <Electronic, Downtempo, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Dance And Leave It All Behind You  4:47 
+02. The Encounter  5:27 
+03. Cosmic Traveller  2:58 
+04. Somewhere, Elsewhere  4:42     Читать дальше...    Жанр: Electronic, Downtempo, DiscoПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F6E55389E4B1B32A6B9C327FB93976A13D948B2F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1292480.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 292 458
+
+Amy Correia - Christmas in L.A.  2000  Single [FLAC|Lossless|tracks + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Christmas in L.A.  feat. The Tinseltown Tabernacle Choir   4:15 Жанр: PopПродолжительность: 00:04:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7AEFDE6CA5AFE1F41EFCD6BFC457C5CB071053B6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1292458.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 292 353
+
+Artik & Asti - 7  Part 1   2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Забудешь
+2. Грустный дэнс  feat. Артём Качер 
+3. Под гипнозом
+4. По проспектам    Читать дальше...    Жанр: PopПродолжительность: 00:24:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F919D76329266C3F709DDD8F368F4FC8FB58CCC8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1292353.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 292 308
 
 Heat Exchange - One Step Ahead  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -1915,81 +1987,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1289289.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 289 263
-
-Patrick Norman - Sweet Sweet Lady  1978  LP [MP3|320 Kbps] <Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Sweet Sweet Lady  4:59 
-02. Bring Back The Love  5:19 
-03. Paradise  6:08 
-04. Loving You  6:26     Читать дальше...    Жанр: DiscoПродолжительность: 00:33:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E797FE3C3C02B032CC14578BDA574B4B58FF456
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1289263.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 289 184
-
-Bonnie Tyler - Between The Earth And The Stars  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Hold On 3:18
-02. Battle Of The Sexes  with Rod Stewart  3:47
-03. Slow Walk 3:13
-04. Seven Waves Away 3:45    Читать дальше...    Жанр: PopПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D680196EF0D5809C1372D9DF017C5EE26229DA46
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1289184.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 289 170
-
-Леонид Агутин - 50  2018  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Я тебя не вижу
-02. Самба  feat. Willie Key 
-03. Две минуты жизни
-04. Она не вернётся    Читать дальше...    Жанр: PopПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36C5D02E15C992EA67CE6C6900F3AAEB2D971FDB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1289170.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

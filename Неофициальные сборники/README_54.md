@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 407 353
+
+VA - Новички в попсе Vol 5  2020  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Adelya - Верь и доверяй себе  2:41 
+02. ANDI - Воспоминания  2:36 
+03. DAASHA - Истерики  2:11 
+04. Emmanuil - Ча Ча Ча  1:54     Читать дальше...    Жанр: PopПродолжительность: 02:24:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DEF90E856D9A3808EF86107415D6759DE9531FDC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1407353.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 407 222
+
+VA - Tears Of The Dragon  2020  [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. March - Challenger
+002. Ockra - In A Dream
+003. Backwater - Sweet Little Passion
+004. Crow Killer - Castigate    Читать дальше...    Жанр: Metal, Hard Rock, HardcoreПродолжительность: 09:00:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2302E88340A010A9A7932D90BC57F0ECEB808CDC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1407222.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 407 217
+
+VA - Ibiza Summer Trance Session  2020  [MP3|320 Kbps] <Trance, Progressive, Uplifting, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Joonas Hahmo - Glittersweet
+002. Aimoon & Audiocells - Aurora
+003. Sunmote - Sonata
+004. Sholan - Forbidden World    Читать дальше...    Жанр: Trance, Progressive, Uplifting, ElectroПродолжительность: 11:45:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6691CB6986331B048E0157E57B1170865B56CBDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1407217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 407 214
+
+VA - Beatport Drum And Bass: Electro Sound Pack #173  2020  [MP3|320 Kbps] <Drum & Bass, Electro
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Rumrolla - Whistle  Original Mix 
+002. Cutworx - Zen Champ
+003. Fruitful - Dark Arts
+004. Liveon - Basso Ostinato    Читать дальше...    Жанр: Drum & Bass, ElectroПродолжительность: 10:04:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2351DD5151573160C23E0741DD1A5AF1E667E9EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1407214.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 407 213
 
 VA - Beatport Deep House: Electro Sound Pack #166  2020  [MP3|320 Kbps] <Deep House, Electro>
@@ -1894,106 +1994,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403981.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 403 977
-
-VA - Beatport Funky House: Electro Sound Pack #150  2020  [MP3|320 Kbps] <Funky, Disco House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Evgeny Svalov - Discreet State
-002. Norberto Acrisio - Keep Boosting
-003. Joust Phillips - Gotta Be There
-004. Marinatone - Give Me More    Читать дальше...    Жанр: Funky, Disco HouseПродолжительность: 09:05:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:55062C397866AD736542AAA55036DA0ED5E310FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403977.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 403 881
-
-VA - German Top 100 Single Charts 21.08.2020 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Jawsh 685 & Jason Derulo - Savage Love  Laxed - Siren Beat 
-02. KitschKrieg & Jamule - Unterwegs
-03. UFO361 & Sonus030 - Playlist
-04. Apache 207 - Bläulich    Читать дальше...    Жанр: PopПродолжительность: 05:03:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1656F0504A4C4ADEBE110EBD6E779DA70988955D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403881.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 403 869
-
-VA - Women in rock  Compilation   2020  [MP3|320 Kbps] <Rock, Hard Rock, Hard  N  Heavy>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Blondie - Atomic
-02. Gossip - Heavy Cross
-03. Lita Ford - Kiss Me Deadly
-04. Hole - Celebrity Skin    Читать дальше...    Жанр: Rock, Hard Rock, Hard  N  HeavyПродолжительность: 05:31:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E0B5910EE842C1118C9F5A107905CCF357E48FC3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403869.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 403 813
-
-VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.28  2020  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Imagine Dragons - Believer
-002. Sean Paul feat. Dua Lipa - No Lie
-003. Dave Ramone feat. Minelli - Love on Repeat
-004. C-Bool - Never Go Away    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:39:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB3EDF673E04EE13AFD18FACFC26597E03408F49
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403813.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

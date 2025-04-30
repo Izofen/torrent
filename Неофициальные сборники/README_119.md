@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 154 596
+
+VA - Русский Рок - Эта музыка будет вечной  2017  [MP3|320 Kbps] <Рок>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+01.  Константин Никольский - Мой друг художник и поэт  6:08
+02.  Альфа - Гуляка  3:18
+03.  Аракс - Дороги  3:28
+04.  В.Кузьмин и Динамик - Мама я попал в беду  5:31    Читать дальше...    Жанр: РокПродолжительность: 02:12:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:36947EEDE0F5EB82A0A07E854C102FF845588DBF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154596.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 154 384
+
+VA - Progressive House Vol.4  Compiled by ZeByte   2017  [MP3|320 Kbps] <Progressive House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01.  Subconscious Tales - Dopa Mine  8:45
+02.  Robert R Hardy - Last Indos  Nicolas Rada Remix   8:14
+03.  Criss Source - Trancentral  7:56
+04.  Julian Rodriguez - Ulinpit Disconnection  Nicolas Rada Remix   9:03    Читать дальше...    Жанр: Progressive HouseПродолжительность: 02:46:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6BA5A0138030C8D59A7DDC32029CF6E86240DB16
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154384.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 154 318
+
+VA - Record Super Chart #496  2017  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01.  Yellow Claw - Open  3:31
+02.  Abel Ramos & Albert Neve - Flat Beat  4:30
+03.  Hardwell feat. Jolin Tsai - We Are One  4:23
+04.  Fedde Le Grand vs. Ian Carey - Keep On Rising  Extended Mix   4:48    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 02:07:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:01230E981126015E5839D7BABDE34430B2588E15
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154318.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 154 291
+
+VA - Top 100 Energy European Trance  2017  [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001.  Alan Morris - Wherever We Fly  Original Mix   3:32
+002.  Kaimo K - Avalanche  Original Mix   6:14
+003.  Elite Electronic & John Swanson - Polaris  Original Mix   3:56
+004.  Frainbreeze & Cari - Stronger  Radio Edit   4:11    Читать дальше...    Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 09:02:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9DB49833668F7DCE938D8985BC00D56E5C83985B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1154291.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 154 267
 
 VA - Blues Collection 11  2017  [MP3|320 Kbps] <Blues, Blues Rock>
@@ -1891,106 +1991,6 @@ VA - The 90’s  2017  [MP3|320 Kbps] <Pop, Rock, Alternative>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1149223.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 149 219
-
-VA - Beatport Top 100 House June  2017  [MP3|320 Kbps] <House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. Route 94 - House & Pressure 05:10
-002. CamelPhat, Elderbrook - Cola  Original Mix  06:53
-003. Andy Toth, Billy Love - Thrillseekers  Chuck Daniels Remix  07:07
-004. Illyus & Barrientos - Takin  Over  Original Mix  06:28    Читать дальше...    Жанр: HouseПродолжительность: 10:47:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2AF567E0D5A2363A25C6793F8DA37B8E1DE8BA43
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1149219.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 149 215
-
-VA - Deep In My Soul: Deep House Mix July  2017  [MP3|320 Kbps] <Deep House, Dance, Electro>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. Stube - Spinning Around 06:20
-002. al l bo - Deep In My Soul  DJ Magnum Remix  04:43
-003. Performative Mode - Egged On 06:16
-004. Alex Kenji & Luca Guerrieri Ft. Tito - You & I  Original Mix  06:00    Читать дальше...    Жанр: Deep House, Dance, ElectroПродолжительность: 10:34:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D431CBE4FE6185B131FCF73BF714CB1EFBFA27E4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1149215.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 149 210
-
-VA - Beatport Top 100 Downloads June  2017  [MP3|320 Kbps] <Electro, Indie, Nu Disco и другие>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Route 94 - House & Pressure  Original Mix  05:10
-002. CamelPhat, Elderbrook - Cola  Original Mix  06:56
-003. Gene Farris, Riva Starr, Dennis Cruz - Play  Original Mix  06:36
-004. Solardo - On The Corner  Original Mix  07:11    Читать дальше...    Жанр: Electro, Indie, Nu Disco и другиеПродолжительность: 10:51:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AFCD308029D26736B6558BD516403DBCE7D7FE8D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1149210.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 149 204
-
-VA - Rock Republic: Solid Album Of Rock  2017  [MP3|192-320 Kbps] <Rock, Hard Rock, Alternative>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-001. Kiss - Forever
-002. Survive This! - Down
-003. The Vision Bleak - Spirits of the Dead
-004. Emerson, Lake & Palmer - I Believe In Father Christmas    Читать дальше...    Жанр: Rock, Hard Rock, AlternativeПродолжительность: 10:04:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:92F2953F52EA05FC6BC46513283F445CF002639D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1149204.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

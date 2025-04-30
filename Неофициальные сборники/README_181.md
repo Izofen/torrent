@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 950 698
+
+VA - Breathing Earth  2015  [MP3|320 кб с]<Chillout, Lounge, Ambient>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+001. DJ Quincy Ortiz - Shady Nights
+002. Bencenzi - Vista
+003. Indian Merchant - Freedom Sufis
+004. Jive Ass Sleepers - Fashionista    Читать дальше...    Жанр: Chillout, Lounge, AmbientПродолжительность: 07:26:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2D5DD66AE97A21930DC44ECB649D74C2FF4E7E6D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950698.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 950 693
+
+VA - Relaxed Waves Party  2015  [MP3|320 кб с]<Chillout, Longe, Ambient>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. So Phistry - My Little Love
+002. Rosemary Olson - Far Away
+003. Eva McFly - Rhythm - Sunset and Downbeat Mix
+004. Roy Bennett - Our Time    Читать дальше...    Жанр: Chillout, Longe, AmbientПродолжительность: 08:06:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6EFBD6FAB6E52ED4EE4A7D95A4A0E16DBC0187DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950693.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 950 669
+
+September - Dancing In Orbit  2008  [MP3|~225 кб с  V1 ]<Pop, Dance, Eurodance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Cry For You
+02. Looking For Love
+03. Can t Get Over
+04. Midnight Heartache    Читать дальше...    Жанр: Pop, Dance, EurodanceПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E1E6DCCDCBB87BEE0047AA8E746B93AAA64C527B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950669.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 950 642
+
+VA - 50 Tracks Piano Background Music  2015  [MP3|320 кб с]<Instrumental,Easy Listening,New Ag
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Brunch Piano Music Zone - Ambient Sounds  03:56 
+02. Brunch Piano Music Zone - Lounge Music  02:48 
+03. Good Mood Music Academy - Cafe Paris  03:52 
+04. Erotic Jazz Music Ensemble - Romantic Night  02:55     Читать дальше...    Жанр: Instrumental,Easy Listening,New Age,PianoПродолжительность: 02:51:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6184B07F69F9A35B9A9D74B8F2872F9B4348F25C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950642.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 950 549
 
 VA - Всё сразу 200 хитов Выпуск 10  from Valik   2015  [MP3|112-320 кб с]<Pop, Dance, Rock
@@ -1889,107 +1989,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_946977.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 946 893
-
-VA - Billboard Hot 100 Singles Chart  17-10-2015  [MP3|320 кб с]<Pop, Rap, Euro, Indie, Folk,
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-В последнее время  американский журнал Billboard стал публиковать свои  HOT 100 всё раньше и раньше, поэтому не удивляйтесь, что сегодня у них на календаре 17 октября. Billboard Hot 100 фактически является официальным хит-парадом США — самого крупного национального музыкального рынка в мире.
-За долгие годы после Битлз практически весь новый альбом What a Time To Be     Читать дальше...    01. The Weeknd - The Hills   4:02 
-02. Justin Bieber - What Do You Mean ?   3:28 
-03. Drake - Hotline Bling   4:27 
-04. The Weeknd - Can t Feel My Face   3:36     Читать дальше...    Жанр: Pop, Rap, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:05:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA389DCB69C6F641CF056F80ECC30325AB0F67B4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_946893.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 946 747
-
-Alex Neo  DJ Alex-Mar  - Remixes and covers  2008-2016  [MP3|320 кб с]<Italo Disco, Euroda
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Экsтаz - Скорость  Maxx - Get Away Cover Alex Neo Remix 2015   3:46 
-02. Enigma - Return To Innocence  Alex Neo Remix 2014   4:23 
-03. Vocal Circus - Peace Etc  Alex Neo Remix   4:18 
-04. Mo-Do - Eins Zwei Polizei  Alex Neo Remix 2013   4:27     Читать дальше...    Жанр: Italo Disco, Eurodance, Synth-PopПродолжительность: 11:39:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3B466E069FBB69BF7C0029BA6E4AD0E086C06DD4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_946747.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 946 598
-
-VA - Creative Music Box 26  2015  [MP3|320 кб с]<Dubstep, Glitch Hop, Trapstep, Drumstep, Drum
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. A Day To Remember- If It Means A Lot To You  Sullivan King Remix 
-02. Aquilo - Losing You  Vanic Remix 
-03. Barely Alive, Astronaut - Bad Fellas
-04. Borgore, Half Empty, Pouya  - Goddes    Читать дальше...    Жанр: Dubstep, Glitch Hop, Trapstep, Drumstep, Drum n BassПродолжительность: 02:07:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F42592CA43B9FE665ED05BBEC07576C9207BC65
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_946598.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 946 461
-
-Barry White - Good Songs  2015  [MP3|320 кб с]<Blues, Jazz, Soul>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Staying Power
-02. Midnight And You
-03. I m Qualified To Satisfy You
-04. Practice What You Preach    Читать дальше...    Жанр: Blues, Jazz, SoulПродолжительность: 05:00:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4EB486E03DA52C217F0A7845E05BA8C7770954C7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_946461.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

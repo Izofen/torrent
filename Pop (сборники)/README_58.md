@@ -1,4 +1,77 @@
 ﻿
+###  Публикация: 1 301 658
+
+VA - Pop Giganten Urlaubs-Hits  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01. Luis Fonsi - Despacito 3:49
+02. Shakira - Hips Don t Lie 3:41
+03. Pedro Capo & Farruko - Calma  Remix  4:01    Читать дальше...    Жанр: PopПродолжительность: 02:37:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C542AA92A7BC04CA3A3E629A0EA37E812A18C9B2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1301658.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 301 611
+
+VA - House Summerlove  2019  [MP3|320 Kbps] <Dance, Electronic>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01. The Prince Karma - Later Bitches
+02. Robin Schulz - Speechless  feat. Erika Sirola 
+03. Hugel - WTF  feat. Amber Van Day     Читать дальше...    Жанр: Dance, ElectronicПродолжительность: 02:06:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:84E43515DF7BACB90C7162C9533F9DEF62B48919
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1301611.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 301 330
+
+Tight Fit - Back To The 60 s  1981  LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Mixed - Back To The 60s - Side One  18:32 
+02. Mixed - Back To The 60s - Side Two  18:03 Жанр: Pop, Disco, Rock & RollПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5FB8DDAD6367556C42E791D7EEE10570F6EB854A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1301330.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 301 192
 
 Music Sun Love - Mo  Horizons  2019  [FLAC|Lossless|WEB-DL|tracks] <Groove, Jazz, World, Latin
@@ -1915,81 +1988,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295692.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 688
-
-Лолита - Лучшее  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Шпилька-каблучок
-2. Пошлю его на
-3. Ориентация Север
-4. Я    Читать дальше...    Жанр: PopПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE3F11C16E5B217627A152F1487F78CF9B161BDA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295688.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 663
-
-VA - 100 Greatest Number Ones  2019  [MP3|320 Kbps] <Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-001. Clean Bandit - Solo  feat. Demi Lovato   3:42 
-002. Rudimental - These Days  feat. Jess Glynne, Macklemore & Dan Caplen   3:31 
-003. Lukas Graham - 7 Years  3:57 
-004. Charlie Puth - Marvin Gaye  feat. Meghan Trainor   3:10     Читать дальше...    Жанр: Pop, RockПродолжительность: 06:16:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0D04D46B248934E84592E570E03FCC48A8BD599
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295663.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 295 618
-
-Анжелика - Над Облаками  2003  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Над Облаками
-02. Я Люблю
-03. Запрещу Тишину
-04. Дождь    Читать дальше...    Жанр: PopПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AEE90612EED2ABCF2625738E1F8EE6C48F66A440
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295618.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

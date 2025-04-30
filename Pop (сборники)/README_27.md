@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 542 443
+
+Atmosfear - Dancing In Outer Space  2000  Compilation [MP3|320 Kbps] <Electronic, Funk Soul, Jaz
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Dancing In Outer Space  9:36 
+02. Outer Space  6:07 
+03. Motivation  8:50 
+04. Extract  5:21     Читать дальше...    Жанр: Electronic, Funk Soul, Jazzdance, DiscoПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FF74FFEB181A433FA2A8BB4908641944902D0BEB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542443.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 408
+
+Natasha Morozova  Наташа Морозова  - The Mystery of the Russian Soul  2013  2021, Russian En
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Fly Away on the Wings of the Wind  4:30 
+02. Steppe  4:17 
+03. Seachange  3:53 
+04. You re Far Away  4:16     Читать дальше...    Жанр: Pop, New Age, ClassicalПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A4145ABCA359610DB4CCAEE36391C7FAF3CAAE71
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542408.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 542 406
+
+Natasha Morozova  Наташа Морозова  - Перелётные птицы  2014  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Улетай на крыльях ветра  4:30 
+02. Перелётные птицы  4:10 
+03. Колокольчик  3:47 
+04. Сердцем в сердце  3:59     Читать дальше...    Жанр: PopПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FFCF81C5FA1C36EF00E762BF22B44FD58E88727E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542406.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 542 399
 
 SEVENROSE - Нам не забыть  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1918,81 +1993,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534245.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 199
-
-Dido - Still On My Mind  2019  [FLAC|Lossless|image + .cue] <Synth-pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Hurricanes [0:05:14.69]
-02. Give You Up [0:03:21.40]
-03. Hell After This [0:03:27.54]
-04. You Don t Need A God [0:03:31.47]    Читать дальше...    Жанр: Synth-popПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F49AAD4BF889A133529EA3F1F60F4E75A56DA1BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534199.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 533 952
-
-VA - ZYX Italo Disco: Flemming Dalum Remixes  2021  [MP3|320 Kbps] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01.  Lectric Workers - Robot Is Systematic  Flemming Dalum Edit   6:33 
-02. Duke Lake - Do You  Flemming Dalum Short Edit   6:21 
-03. Mono Band - Ghost Town  Flemming Dalum Edit   7:46 
-04. Wish Key - Orient Express  Flemming Dalum Edit   5:41     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E6371754FB990FB1AADEF3937519C789EB7DE9B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533952.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 533 948
-
-VA - Italo Disco Classics  2013  2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Europop, Synthpop
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. P. Lion - Happy Children  Vocal Version   6:01 
-02. Brian Ice - Talking To The Night  Extended Version   5:53 
-03. Styloo - Pretty Face  6:06 
-04. Grant Miller - Colder Than Ice  Maxi Version   5:37     Читать дальше...    Жанр: Italo-Disco, Europop, SynthpopПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BA262BD73890D1C91EEFEBA5D1C8BE51A92CC1F1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1533948.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

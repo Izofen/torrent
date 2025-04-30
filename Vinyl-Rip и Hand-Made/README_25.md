@@ -1,4 +1,526 @@
 ﻿
+###  Публикация: 1 061 148
+
+Эмиль Гилельс - Л. Бетховен  Сонаты  Патетическая  и  Лунная    1979  [WavPack 2.0|1
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+Соната №8 до минор  Патетическая , соч. 13
+1. Grave. Allegro Molto E Con Brio  8:22
+2. Adagio Cantabile  5:42    Читать дальше...    Жанр: ClassicalПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D66340AFB8ECE3EEBBF8E2625F9AF15A40949EA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1061148.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 061 105
+
+Enigma Club - Амазония  2002  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <World Music, Ethnic>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. The Ancestor
+02. Black Elk
+03. Raben s Light
+04. Craftsman s Prelude    Читать дальше...    Жанр: World Music, Ethnic
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1061105.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 060 819
+
+Leo Sayer - Поёт Лео Сейер  1980  [WavPack 2.0|192 32|tracks|Vinyl-Rip] <Pop Rock, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+01. When I Need You - Когда ты нужна мне  04:08
+02. You Make Me Feel Like Dancing - Я чувствую, что не могу с тобой не танцевать  03:40
+03. Raining In My Heart - Дождь в моем сердце  03:12    Читать дальше...    Жанр: Pop Rock, DiscoПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:54F97FEDC591B55F5EA7CC68F2E26BDA3E2E8761
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1060819.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 060 814
+
+Nazareth - Malice in Wonderland  1980  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Holiday  3:38 
+A2. Showdown At The Border  4:12 
+A3. Talkin  To One Of The Boys  4:14 
+A4. Heart s Grown Cold  4:15     Читать дальше...    Производство: Vertigo - 6370 432Жанр: Hard RockПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63C6F44FF58D39BCDEEF57E41650180BF44B7744
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1060814.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 060 136
+
+Richard Clayderman - 7 Albums  1978-1984  [FLAC 2.0|24 192|image + .cue|Vinyl-Rip]<Easy Listen
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Ballade Pour Adeline  piano et orchestre 
+02. Secret Of My Life  one 
+03. L Enfant Et La Mer
+04. Lys River    Читать дальше...    Жанр: Easy Listening, Instrumental, PianoПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4F00D51FEE3F07827505FF8324B11EA85C66953D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1060136.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 832
+
+Трио Леонида Чижика - Джордж Гершвин: Популярные Мелодии  1978  [FLAC 2.0|96 24|image+.cue|Vin
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Лебедь
+02. Не Для Меня
+03. Присмотри За Мной, Мой Пастушок
+04. Будьте Добры    Читать дальше...    Жанр: Jazz, Post BopПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F8FD220B73130F0574CC2BD6F4AE5083DEE0A4B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059832.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 823
+
+Sy Oliver Сай Оливер - Только Для Танцоров  1990  Переписи с пластинок 1940-х годов [FLAC 1.0|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Только Для Танцоров
+02. Четыре Или Пять Раз
+03. Ничего, Кроме Любви
+04. Шарманщик    Читать дальше...    Жанр: Jazz, Big Band, SwingПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E54A5A8CB9938DBFD862DCBF68C914F74853E951
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059823.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 810
+
+Пикник - Иероглиф  1987  Repress 1988 [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Goth Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Остров
+02. Иероглиф
+03. Праздник
+04. Ты вся Из огня    Читать дальше...    Жанр: Goth RockПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FDF8CAFA6CD121221CCDD1C4DF82D6354C657EF4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059810.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 782
+
+Олег Газманов, Родион Газманов - Эскадрон  1991  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Эскадрон
+A2 Свежий Ветер
+A3 Есаул
+A4 Путана    Читать дальше...    Жанр: PopПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E58CD0C02A4F4A8AECE95C3A27EBE9158D999559
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059782.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 776
+
+Надежда Чепрага - Только Ты  1984  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Человеческий Голос
+02. Симфония Чувств
+03. Только Ты
+04. В Краю Родном    Читать дальше...    Жанр: PopПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B272478996D8909E21DC36B088F507449B86998
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059776.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 775
+
+Д. Тухманов и группа Москва - Н.Л.О.  1982  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. НЛО • UFO
+02. Игра В Любовь • A Game Of Love
+03. Миллион Лет До Нашей Эры • A Million Years B. C.
+04. Грибной Дождь • Rain    Читать дальше...    Жанр: Pop RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:39ABB586A6CD416EEAFB16A0CA3C67C5FA59DAFF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059775.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 770
+
+Вилли Токарев - Над Гудзоном  1990  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Chanson>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. С Днем Рождения, Милая Мама
+02. Мама, Я Сын Твой
+03. Нью-Йоркский Таксист
+04. В Шумном Балагане    Читать дальше...    Жанр: ChansonПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:347EE62C1E788F55075A5CF9E06FCFABE28D9ED5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059770.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 562
+
+Вальдо де лос Риос  Waldo De Los Rios  - Волшебная Музыка  1980  [FLAC 2.0|96 24|image+.cu
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Все Говорят · Everybody s Talkin 
+A2 Жан · Jean
+A3 Капли Дождя Продолжают Падать На Мою Голову · Unas Gotas De Lluvia Sobre Mi Cabeza
+A4 Химена · Jimena    Читать дальше...    Жанр: Easy Listening,  RomanticПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0498125CF5859DAA37F01F967D1187657E18F26C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059562.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 556
+
+Александр Зацепин - Песни из телефильма  31 Июня   1980  [FLAC 2.0|96 24|image+.cue|Vinyl-
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Яак Йоала - Любовь Нас Выбирает
+02. Татьяна Анциферова - Мир Без Любимого
+03. Ксения Георгиади - Ищу Тебя
+04. Татьяна Анциферова - Он Пришел, Этот Добрый День    Читать дальше...    Жанр: Rock, Pop, SoundtrackПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C362099927ED51311524B347F4721708445F1501
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059556.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 544
+
+VA - Hits Of BBC And Alaska Records 1 & 2  1977  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Funk,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Funk,  Europop, DiscoПродолжительность: 01:19:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B78BC52F3E8C73FC99C4F6238D2A72A9E6DCA86
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059544.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 534
+
+Скальды  Skaldowie  - Скальды  1973  [FLAC 1.0|96 24|image+.cue|Vinyl-Rip] <Jazz-Rock, Pop
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Размышления Деревенского Почтальона
+A2 Прелестная Виолончелистка
+A3 Если Ты Любим
+A4 Горец    Читать дальше...    Жанр: Jazz-Rock, Pop RockПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BB9FDF00701CB8D5AF66EE63E12BBDA1C7A9A6C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059534.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 526
+
+Savage - Tonight  1984  Ultimate Edition, Remastered, 2014, Мирумир [FLAC 2.0|192 24|image + .
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Radio  6:01 
+A2. A Love Again  5:26 
+A3. Fugitive  5:00 
+A4. Tonight  3:40     Читать дальше...    Производство: Мирумир - MIR 100715Жанр: Italo-DiscoПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E200C30D544F3F807D2EDBB1474285307C00418B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059526.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 522
+
+Roxy Music - Flesh + Blood  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip]  <Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 In The Midnight Hour
+A2 Oh Yeah
+A3 Same Old Scene
+A4 Flesh And Blood    Читать дальше...    Жанр: Pop RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B83BAB6E66B9436BADA4446EFB99F23D9659D80
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059522.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 513
+
+Jack Bruce - Songs For A Tailor  1969  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Art Rock, Prog R
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Never Tell Your Mother She s Out Of Tune
+A2 Theme For An Imaginary Western
+A3 Tickets To Water Falls
+A4 Weird Of Hermiston    Читать дальше...    Жанр: Art Rock, Prog RockПродолжительность: 00:32:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:031AC6E8CA59882F1C8ED132CF6C5FF5BACC5B91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059513.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 507
+
+George Benson - Tell It Like It Is  1984  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Jazz, Funk,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Soul Limbo
+A2 Are You Happy?
+A3 Tell It Like It Is
+A4 Land Of 1000 Dances    Читать дальше...    Жанр: Jazz, Funk, SoulПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F901F4E26586C0E9AA9BDB3AA95AC0BAEC1D2340
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059507.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 059 501
+
+Car-Man  Кар-Мэн  - Кармания  Carmania   1992  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Bad Russians
+02. В Багдаде всё спокойно
+03. Бомбей буги
+04. Coribian Girl    Читать дальше...    Жанр: Hip-House, EuropopПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE146ED843CC42F0767552426FD7ACAE57B11BCF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1059501.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 059 498
 
 Car-Man  Кар-Мэн  - Вокруг Света  1991  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Hip-House,
@@ -1467,534 +1989,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1029332.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 028 883
-
-Наутилус Помпилиус - Лучшие песни  2014  [PPCM 5.1|96 24|DVD-Audio] [upmix] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Я хочу быть с тобой
-02. Дыхание
-03. Прогулки по воде
-04. Шар цвета хаки    Читать дальше...    Жанр: RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:756E627B77A5DCF1A1F3910EFECFA100F9E39747
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1028883.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 027 018
-
-VA - Архив Популярной Музыки 1-12  1988-1990  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Rock-n-Ro
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Она Мило Улыбнулась · She Smiled Sweetly
-02. Соединение · Connection
-03. Вчерашние Газеты · Yesterday s Papers
-04. Серьезная, Спокойная И Собранная · Cool, Calm And Collected    Читать дальше...    Жанр: Rock-n-Roll, Hard Rock, Pop Rock, SoulПродолжительность: 08:03:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F1B9A12060A1FA9D892B95D145EAE4122F73D695
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1027018.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 025 204
-
-Spirit Nation - Spirit Nation  1998  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Electronic, Breaks,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01	Wankatakiya
-02	Celebration
-03	Earth Walk
-04	Spirit Path    Читать дальше...    Жанр: Electronic, Breaks, Trip Hop, TribalПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1CFF7A380E435B36C5D54008BC8E2BFAEFB79097
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1025204.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 022 492
-
-Benny Goodman   Бенни Гудмен - Как Глубок Океан  1940-1950  1987 [FLAC 2.0|96 24|image+.cue|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Каприс
-A2	Как Глубок Океан
-A3	Граф
-A4	Я Здесь    Читать дальше...    Жанр: Jazz, SwingПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:286D1278B5E58FA18EAE110F4DA4CD4C1B74DEE4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022492.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 021 696
-
-Арсенал – Пульс 3  1986  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Jazz, Fusion,  Electronic>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Эстафета · Relay Race
-A2	Рондо · Rondo
-A3	Праздник · Festival
-A4	Пульс Улицы · Street Pulse    Читать дальше...    Жанр: Jazz, Fusion,  ElectronicПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E295BB7B92C3A78D4E87E192A11EAE1C9E1FB22D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021696.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 021 076
-
-Bobbysocks   Боббисокс  1986  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop Rock, Synth-pop, Sc
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Свинг • Let It Swing
-A2	Рок-Н-Ролл • Midnight Rocks
-A3	Радио • Radio
-A4	Хочу Танцевать С Тобой • Don t Bring Lulu    Читать дальше...    Жанр: Pop Rock, Synth-pop, SchlagerПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:173C2045E881510204BD5DC50DB237D0C76BB8B5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021076.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 018 245
-
-Mando Diao - Aelita  2014  [LPCM 2.0 96 24|DTS 5.1 96 24|Audio-DVD5|BD-Audio] <Electronic, R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Black Saturday 03:22
-02. Rooftop 04:57
-03. Money Doesn t Make You A Man 05:06
-04. Sweet Wet Dreams 04:41    Читать дальше...    Жанр: Electronic, Rock, PopПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AE1C38E4E59F242F14A156FC0D194763CD734471
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018245.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 017 177
-
-Раймондс Паулс - Мой Путь  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Instrumental, Ragtime,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Увеселитель · The Entertainer
-A2	Как Велика Твоя Любовь · How Deep Is Your Love
-A3	Здравствуй! · Salut!
-A4	Мой Путь · My Way    Читать дальше...    Жанр: Instrumental, Ragtime, Disco, Easy ListeningПродолжительность: 00:34:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:283E20E2AD4C0C598BE7D96DAC5AF35F018B2241
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1017177.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 017 131
-
-Herrey s  Херриз  - Diggi Loo, Diggi Ley  Дигги Лу, Дигги Лей   1985  [FLAC 2.0|96 2
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Дигги Лу, Дигги Лей • Diggi Loo, Diggi Ley
-A2	Освободись • Kom Loss
-A3	Мне Ничто Не Помешает • Ingenting Som Hindrar Mej
-A4	Если Это Любовь • If It s Love    Читать дальше...    Жанр: EuropopПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1017131.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 016 861
-
-Deodato  Деодато  - Best Of Deodato  Лучшие произведения Деодато   1985  [FLAC 2.0|96 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Так Говорил Заратустра  Also Sprach Zarathustra 
-A2 Прелюдия к Послеполуденному Отдыху Фавна  Prelude To Afternoon Of A Faun 
-A3 Ночи в Белом Атласе  Nights In White Satin 
-B1 Голубая Распсодия  Rhapsody In Blue     Читать дальше...    Жанр: Jazz, FusionПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1016861.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 015 595
-
-Мирей Матье  Mireille Mathieu  – Французская коллекция  1986  [FLAC 2.0|192 24|tracks|Viny
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-1. Браво, ты выиграл  Bravo Tu As Gagne   4:40
-2. Влюбленная женщина  Une Femme Amoureuse - Woman In Love   4:10
-3. У голубой реки  A Blue Bayou   3:58    Читать дальше...    Жанр: PopПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4B170818E4BB94D80B712BDFC4BE6C5DB9DDD178
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1015595.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 015 340
-
-Imagination - Imagination  1985  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Synth-Pop, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Shoo Be Da Dabba Doobee
-A2	Wrong In Love
-A3	Looking At Midnight
-A4	The Need To Be Free    Читать дальше...    Жанр: Synth-Pop, DiscoПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E5FC48365F8397BBF2513419B15EC380E6218D5D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1015340.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 012 354
-
-Peter Lipa - Moanin   1984  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Jazz>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Here Comes The Nights
-02. Got To Get You Into My Life
-03. Rain
-04. Tell All The World About You    Читать дальше...    Жанр: JazzПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012354.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 740
-
-Smokie - The Montreux Album, The Other Side Of The Road  1978, 1979  [PCM 2.0|96 24|Audio-DVD|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-• The Montreux Album •
-
-01. The Girl Can t Help It  3:48
-02. Power of Love  1:58    Читать дальше...    Жанр: Rock
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:67992160EA2E9783A7BD32C0A985BA50F6B2D98B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008740.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 007 249
-
-Louis Armstrong - Louis Armstrong In Prague  live at the Lucerna Hall 1965  1983 [FLAC 2.0|96 
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01	When It s Sleepy Time Down South
-02	The Bucket s Got A Hole In It	2:30
-03	Tiger Rag	1:10
-04	Indiana	4:05    Читать дальше...    Жанр: JazzПродолжительность: 00:47:46
-Издатель  лейбл : Panton  Czechoslovakia 
-Номер по каталогу: 8015 0075
-Кодек: FLAC  image + .cue     Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B25F4519AE89CB7FB61F29A1E98178D96B090DAB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1007249.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 005 102
-
-Puhdys   Пудис  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Classic Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Когда Умирают Мечты · Wenn Träume Sterben
-A2	Ловцы Жемчуга · Perlenfischer
-A3	Буревестник · Sturmvogel
- A4	Время Жизни · Lebenszeit    Читать дальше...    Жанр: Classic RockПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA2D5BE717D6373C7BB06333885474E005AA24AD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1005102.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 004 752
-
-Aretha Franklin - Aretha   Арета Фрэнклин - Арета  1988  [FLAC 2.0|96 24|image+cue|Vinyl-Rip
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Джимми Ли  Jimmy Lee 
-02. Я Знала, Что Ты Ждешь  I Knew You Were Waiting 
-03. А Ты Помнишь Ли!  Do You Still Remember 
-04. Вспышка Огней  Jumpin  Jack Flash     Читать дальше...    Жанр: SoulПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:55B0F34970B6CC45F4FA38687A23E7EF0F07565B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004752.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 004 105
-
-Nini Rosso and His Orchestra Нини Россо И Его Оркестр - Napoli Неаполь  1983  [FLAC 2.0|96<3
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1	Душа И Сердце  Anema E Core 
-A2	Идёт Дождь  Chiove 
-A3	Неблагодарное Сердце  Core  Ngrato 
-A4	Страсть  Passione     Читать дальше...    Жанр: Jazz, LatinПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5D91344BE128BA4E7707AAFAA8C1B1B48739E07A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004105.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 003 224
-
-Аспид - Кровоизлияние  1992  2016, Metal Race [FLAC 2.0|192 24|image+cue|Vinyl-Rip] <Thrash Me
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01 - Интро
-02 - Он пришел  Аспид 
-03 - К цели одной
-04 - Дай мне    Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9A98F8D0099E1C56F5E4432BE9CD04DE618D9F5E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1003224.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 002 332
-
-Группа Стаса Намина - Гимн Солнцу  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Вступление и  Гимн Солнцу 
-02. После Дождя
-03. Где Живет Ветер
-04. Ты Только Слушай    Читать дальше...    Жанр: Pop RockПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1A286BC7EC7C1FC1FF6F538F985372B748D34FA1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1002332.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 001 585
-
-VA - The Great Singers Of The Jazz Големите Вокалисти На Джаза  1977  [FLAC 2.0|96 24|tracks
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Ella Fitzgerald - A Tisket, A Tasket
-02. Ella Fitzgerald - Undecided
-03. Ella Fitzgerald - Flying Home
-04. Ella Fitzgerald - Smooth Sailing    Читать дальше...    Жанр: JazzПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001585.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

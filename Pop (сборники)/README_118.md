@@ -1,4 +1,97 @@
 ﻿
+###  Публикация: 754 684
+
+VA - Radio 538: Hitzone 68  2014  2CD[MP3|320 кб с]<Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Avicii - Hey Brother  04:16 
+ 02. Miss Montreal - Say Heaven Say Hell  03:47 
+ 03. Katy Perry - Roar  03:45 
+ 04. Maitre Gims - J me Tire  04:11 
+ 05. Marco Borsato ft. Jada Borsato, Day Ewbank & John Ewbank - Samen Voor Altijd  04:10 
+ 06. Drake ft. Majid Jordan - Hold On, We re Going Home  03:46 
+ 07. Ilse DeLange - Blue Bittersweet  04:29 
+ 08. Parra For Cuva ft. Anna Naklab - Wicked Games  03:17 
+ 09. Imagine Dragons - It s Time  04:00 
+ 10. Tiesto - Red Lights  03:22     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE34A8201B0942F59BA4E4F4FA9EE6025F026B18
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 754 080
+
+Стас Пьеха - 10  2013  [FLAC  image+.cue |Lossless]<Рор>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+Третий по счету альбом Стаса Пьехи носит название «10». Выход альбома приурочен к 10-летию творческой жизни певца.01. Я лист  03:19 
+ 02. Я и ты  feat. Слава   03:48 
+ 03. Девочка на шаре  03:14 
+ 04. Крылья  04:27 
+ 05. Старая история  03:27 
+ 06. Моя прекрасная Леди  03:44 
+ 07. На ладони линия  03:48 
+ 08. Зелёный омут  03:19 
+ 09. Только с тобой  04:09 
+ 10. Зима  feat. А.Кочнев   03:45     Читать дальше...    Жанр: РорПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B4EE38725DD6445351A676806D9BD6131C911CF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 753 936
+
+Suzanne Vega - Tales From The Realm Of The Queen Of Pentacles  2014  [FLAC  tracks |Lossless
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Crack In The Wall
+02. Fool s Complaint
+03. I Never Wear White
+04. Portrait Of The Knight Of Wands
+05. Don t Uncork What You Can t Contain
+06. Jacob And The Angel
+07. Silver Bridge
+08. Song Of The Stoic
+09. Laying On Of Hands   Stoic 2
+10. Horizon  There Is A Road Жанр: Pop, FolkПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:214553E1D9DD20135206FF91A1504961C479C50C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_753936.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 753 847
 
 Desireless - Francois  1989  [FLAC|Lossless]<Pop>
@@ -2334,94 +2427,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:5FA283577FA7BC32C7CDC3AF79BB2AA39C120B51
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 737 263
-
-VA - Танцевальный Рай: Disco Remix 2014  2013  [MP3|320 кб с]<Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Новый сборник популярной музыки «Танцевальный рай: Disco Remix 2014″! Самые лучшие треки от мировых диджеев: Alex Ferrari, Movetown, Guru Josh, Michael Mind Project, Global Deejays, Scotty, Bryce и многих других. Танцуй в ритме диско с новым сборником Disco Remix 2014!01. Yolanda Be Cool - All That She Wants  Human Life Remix Edit   04:20 
- 02. Otto Le Blanc - Loco  Radio Edit   04:13 
- 03. DJ Antoine - Margarita  Dj Antoine vs Mad Mark Radio Edit   03:20 
- 04. HouseMaxx - Because the Night  Scotty Remix Edit   03:43 
- 05. Mish - How We Do  Dj Nejtrino & DJ Baur Radio Cut Жанр: Pop, DanceПродолжительность: 02:58:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:35F9B92815584A8867E3CC332D413293B2316700
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 737 024
-
-Надежда Кадышева и Золотое кольцо - Светят звёзды  2013  [FLAC|Lossless]<Pop-Folk>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Светят звёзды
-02. Ты меня ждёшь
-03. Полночь
-04. Солнце в небе
-05. Эх, зима…
-06. Небо пополам
-07. Красивая
-08. Я останусь с тобой
-09. Лети
-10. Фантазии    Читать дальше...    Жанр: Pop-FolkПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:98FFDC9903157C802E6F76A9FD1E60D045DD7F82
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 736 843
-
-Robbie Williams - Swings Both Ways  2013   Deluxe Edition  [FLAC|Lossless]<Pop, Swing>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Shine My Shoes 			 03:24 
-02. Go Gentle 				 04:31 
-03. I Wan na Be Like You		 03:31 
-04. Swing Supreme 			 03:17 
-05. Swings Both Ways 			 03:59 
-06. Dream A Little Dream 		 03:34 
-07. Soda Pop 				 03:19 
-08. Snowblind 				 03:19 
-09. Puttin  On The Ritz 		 02:32 
-10. Little Green Apples 		 03:17     Читать дальше...    Жанр: Pop, SwingПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3EBB5F11D4FE32FECB43ED8FD97E9A65B9EBB02A
 ```
 
 <div id="header" align="center">

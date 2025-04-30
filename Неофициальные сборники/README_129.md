@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 120 542
+
+VA - The Best - In Music We Trust Vol.14  2017  [MP3|320 Kbps] <House, Electro, Dutch, Trance, D
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.  Blasterjaxx & Marnik - Heart Starts To Beat  Extended Mix   4:09
+02.  Teknova - E  Radio Edit   3:24
+03.  Paul Gannon - Braveheart  Original Mix   4:05
+04.  Paul van Dyk - Touched by Heaven  Extended   7:30    Читать дальше...    Жанр: House, Electro, Dutch, Trance, Dance, ClubПродолжительность: 06:41:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3800BE30AD7DDD0ED1F315760232F55ABCB3BF89
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1120542.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 120 466
+
+VA - Pacific Relax Zone  2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Don Gorda - Festa Do Sol
+002. Ignat Shamko - Ice City
+003. Arnold T - Summertime Sadness
+004. Cafe  ibiza - Love Hurts    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:51:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:40B9E7602F6C4FB8EAF123FBC1E4CBF4C591DEE0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1120466.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 120 162
+
+VA - Dинамик. Весна  2017  [MP3|256-320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01.  Loboda - Случайная  3:53
+02.  Макс Барских - Неверная  3:47
+03.  Полина Гагарина - Драмы больше нет  3:14
+04.  Lx24 и Мари Краймбрери - Через 10 лет  4:09    Читать дальше...    Жанр: PopПродолжительность: 02:38:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B9E9074D223B20EC7FDFAB29BE8E6BCA365198CB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1120162.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 120 156
+
+VA - Зажигательный Eurodance Vol.3  2017  [MP3|256-320 Kbps] <Eurodance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Fun Factory - Take Your Chance  Dennis Moskvin 2k16 M.Bounce Remix   6:23
+02.  Barcode Brothers & Broken Heard - Dooh Dooh  DrBeat Perfect Mix   4:16
+03.  Игорь Силевёрстов - Санта Лючия  Remix   3:49
+04.  Maxx - Get-A-Way  Alexsey Style Remix   3:29    Читать дальше...    Жанр: EurodanceПродолжительность: 06:49:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B434AFA5C4E0B07188690FF6CD3FE37CDF452381
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1120156.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 120 118
 
 VA - Опасные Связи 20: Сборник Русского Шансона  2017  [MP3|256 Kbps] <Шансон>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117253.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 117 252
-
-VA - Весенние заводные хиты  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Сандра Круглова - Сверху 3:06
-002. Dato - Если Это Не Любовь 4:27
-003. Bazhen Sysoev Feat. Dj Seat - Наркотик 3:07
-004. Милан Савич - Так И Скажи 3:10    Читать дальше...    Жанр: PopПродолжительность: 06:03:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:10AE26D7D1D6CB089BF860FA0005693DD0B4B3E8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117252.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 117 250
-
-VA - Музыкальный подарок на радио Europa Plus выпуск № 2  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Alina Tan - Зажигай 3:27
-002. Алексей Кабанов - Странные 4:05
-003. Глаза - Это Он Мама 3:29
-004. Алекса Пол - Запах От Dior 3:11    Читать дальше...    Жанр: PopПродолжительность: 06:06:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9900654CA811424AE3F546C4017DED18D200628F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117250.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 117 247
-
-VA - 100-ка популярных весенних хитов на Europa Plus  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Миша Майер - Вспоминай 3:29
-002. Сергей Бузин - За Тобой 3:37
-003. Гейдар Багиров - На Глубинах 3:38
-004. Алсу - Я Пойду Чуть-Чуть Поплачу 3:37    Читать дальше...    Жанр: PopПродолжительность: 06:03:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:185F879C53B0C266866033F45A1FBB52D22698CB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117247.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 117 244
-
-VA - Весенняя танцевальная вечеринка. Версия № 8  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Глюкоза - Без Тебя 3:44
-002. Яков Самодуров - Стану Первым 3:42
-003. Emin - Ты Же Не Знаешь 3:42
-004. Никита Ломакин - 3000 Карат 3:44    Читать дальше...    Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2304DAD5E223E23944A16A76167666F09D98E221
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117244.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

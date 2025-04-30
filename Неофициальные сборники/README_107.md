@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 203 519
+
+VA - Progressive Psychodelic Trance Vol.2  Exlusive Tracks   2018  [MP3|320 Kbps] <Psy Tranc
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.  Cosmic Tone  -  Spirit Technology  Original Mix   7:28
+02.  Static Movement & Mindwave  -  Sources  Original Mix   8:14
+03.  Arunarush  -  Reactivate  Original Mix   7:28
+04.  Juiced  -  Under The Rain  Original Mix   5:20    Читать дальше...    Жанр: Psy Trance, PsychodelicПродолжительность: 03:43:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:95AE25AEC2000311EFFD72F7D465726EEBAF3A98
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203519.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 203 419
+
+VA - Top 100 Январь. Зайцев.Нет  2018  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. DJ SLON & KATYA ft. Роман Василенко - LIFE IS GOOD
+02. J. Balvin & Willy William - Mi Gente
+03. Время и Стекло - Тролль
+04. T-Fest - Улети    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 06:52:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A9AD1EB6DC4A5F70AD63E96CB1CABB333E8CB8EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203419.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 203 349
+
+VA - 120 Progressive Trance Selections  2018  [MP3|320 Kbps] <Trance, Progressive, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Cosmic Gate & Sarah Lynn - Folded Wings
+002. Kaimo K, Cold Rush & Sarah Russell - Angel Fly
+003. Steve Bengaln - Broken Heart Phase 2  Radio Cut 
+004. Aadagio feat. Anya - Elements  John Aidan Remix     Читать дальше...    Жанр: Trance, Progressive, ElectroПродолжительность: 10:14:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:921EA9C7214C9E1BBFED4E73967C32091705E3F2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203349.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 203 268
+
+VA - Italo & Space Vol.50 Ultimate Party  2018  [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobea
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  DJ KramniK  -  Disco Magic 3  4:11
+02.  Alex Rasov  -  I Have A Dream  4:46
+03.  Michael Rimini  -  Stranger In My Heart  5:28
+04.  Hypnotix  -  Star Gates  4:20    Читать дальше...    Жанр: Italo Disco, Spacesynth, EurobeatПродолжительность: 03:35:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:737C1553A42D8E231481F52F94BC619EDD35D60A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203268.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 203 257
 
 Queen - The Show Must Go On  2018  Hot Dance Remix [MP3|320 Kbps] <Electropop>
@@ -1893,106 +1993,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200468.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 200 433
-
-VA - Record Super Chart #520  2018  [MP3|320 Kbps] <House, Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  EKTONIX  -  Vuono Matyn  2:30
-02.  Holl & Rush  -  Don t Know  3:49
-03.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-04.  Klingande  -  Pumped Up  Denis First Remix   3:29    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 02:00:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:495A8966A0A0D9F3C1E7FC576C5D2B4E3A590A96
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200433.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 200 227
-
-VA - TOP 100: лучших песен 2017 года на Love Radio  2018  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:48
-002.  Charlie Puth  -  Attention  3:32
-003.  Макс Барских  -  Моя любовь  3:40
-004.  Clean Bandit feat. Sean Paul & Anne-Marie  -  Rockabye  4:11    Читать дальше...    Жанр: PopПродолжительность: 05:51:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BF22FD68D5AC55551E7A1D016BABFE333AC50B9F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200227.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 200 177
-
-VA - Best of Tigerskin  Dub Taylor  2017  [MP3|192-320 Kbps] <Deep House, Tech House, Chill Hous
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Tigerskin - Carlos Thoughts [7:39]
-02. Tigerskin - Voodoo [7:38]
-03. Tigerskin - The Nite People [4:58]
-04. Ronald Christoph feat. Idvet - Say You Want Me Now  Tigerskin remix  [7:57]    Читать дальше...    Жанр: Deep House, Tech House, Chill HouseПродолжительность: 05:01:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40DAE3ED01A9300558ED7368B1C6323F668497E2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200177.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 200 163
-
-VA - Best Hits 80s от ALEXnROCK часть 2  2017  [MP3|320 Kbps] <Pop, Disco>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  C.C. Catch  -  Soul Survivor  Long Version   5:13
-02.  Belinda Carlisle  -  Circle In The Sand  4:26
-03.  Modern Talking  -  Jet Airliner  4:22
-04.  Mauro  -  Buona Sera-Ciao Ciao  3:56    Читать дальше...    Жанр: Pop, DiscoПродолжительность: 03:32:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E536AF3971F5D74C1F8BBBF05C7E302D4F57CBF1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1200163.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

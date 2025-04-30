@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 147 633
+
+Шао? Бао! Проект - Хочется русского  2001  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Хочется русского [02:53]
+02. Игра в любовь [03:57]
+03. Ламбада Бао [03:17]
+04. Я хочу гулять [03:16]    Читать дальше...    Жанр: PopПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DCF5976589A9BD310544711E3EB6A65861A6F7C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1147633.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 147 228
+
+Belinda Carlisle - The Anthology  2014  Compilation, 3CD [FLAC|Lossless|tracks + .cue] <Pop-Rock
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Dancing In The City  3:58 
+02. Bless The Beasts And The Children  4:18 
+03. Christmas Lullaby  3:53 
+04. I Won t Say  I m In Love   3:18     Читать дальше...    Жанр: Pop-Rock |Продолжительность: 01:19:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7CC8F9EC068D794C8608DE294A1FFA133B18E8CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 147 159
+
+VA - A Touch Of Italo Disco  2017  [MP3|320 Kbps] <Disco, Nu-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Layla Mystic Funkenhooker - Ibiza Needs You  Nu Disco Bitches edit mix   03:44 
+02. Jason Rivas Class Of  88 - E Salsa  Club edit   03:23 
+03. Nu Disco Bitches Jason Rivas - Song Five  vocal Club edit   03:45 
+04. Acid Klowns From Outer Space Jason Rivas - Golden Years  03:32     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:952908F5369A6E445EF336B2AA8AB586CFC358FF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1147159.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 147 107
 
 Calvin Harris - Funk Wav Bounces Vol.1  2017  [MP3|320 Kbps] <Pop, Dance, Funk>
@@ -1914,82 +1989,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1141745.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 141 594
-
-London Grammar - Truth Is A Beautiful Thing  2017  Deluxe [FLAC|Lossless|tracks] <Indie-Pop, Alt
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Rooting for You [04:29]
-02. Big Picture [04:41]
-03. Wild Eyed [04:28]
-04. Oh Woman Oh Man [04:37]    Читать дальше...    Жанр: Indie-Pop, AlternativeПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:50507A91EC85B22AE476ED62EB2C4499B111B9CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1141594.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 141 545
-
-Ottawan & Pam N  Pat - 2 Albums, 2 Single  1980, 1981  LP [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-“17 миллионов дисков продано за 3 года... ” - так начинается биография одной из наиболее популярных дискогрупп. “OTTAWAN”, всегда находился под большим влиянием лидер-вокалиста по имени PAT, полное имя которого - Jean-Baptiste Patrick.
-В общей сложности группа провела 45 недель с 4-мя синглами в чартах Великобритании и 126 недель с 5-ю синглами в чартах Германии.     Читать дальше...    Список альбомов:
-1980 - Ottawan - D.I.S.C.O.
-1981 - Ottawan - Ottawan 2
-1981 - Pam n  Pat  ex Ottawan  - To Be Superman - It s All Music    Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3180F6A6045ADFCEF14020ED96017D2DD8A3837F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1141545.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 141 366
-
-Shaw - DISCOver Me  1976  LP [MP3|320 Kbps] <Funk-Soul, Soul-Jazz, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. More  4:37 
-02. Our Day Will Come  4:13 
-03. I Walk Alone  5:40 
-04. Surrey with the Fringe On Top  4:47     Читать дальше...    Жанр: Funk-Soul, Soul-Jazz, DiscoПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:50EB19B995A4220740B5195774E420A9F9A80651
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1141366.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

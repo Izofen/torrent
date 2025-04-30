@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 012 321
+
+VA - Running Hits  Workout, Fitness, Jogging, Spinning, Gym & Cardio   2016  [MP3|320 кб с
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Pete Sheppibone & SashMan - hello happiness  extended mix 
+02. DJ Oskar - She Knows Me  Original Mix 
+03. Ferry feat. Ashley Jana - Don t Ever Quit On Me Babe  Original Mix 
+04. Noisy Bears - Hold You  Feat SevenEver   Original Mix     Читать дальше...    Жанр: HouseПродолжительность: 07:22:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45DDCF9966B7D927A8434D8F82658F1342C2BCB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012321.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 012 319
+
+VA - Вспомним 90-2000 от Виталия 72 - 5  2016  [MP3|320 кб с] <Поп>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01 Подъём - Девчонка На Свадьбе  03:29 
+02 Бархат - Сердцеедки  03:11 
+03 Кристина Орса - Я Буду Рядом  03:45 
+04 Влад Соколовский - До Небес  02:27     Читать дальше...    Жанр: ПопПродолжительность: 05:12:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EC52D75F43AECA892E71FEEDA64DC185F11A372C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012319.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 012 299
+
+VA - Party Time  mixed by Dj V   2016  [MP3|320 кб с] <Club House, Disco House, Deep House
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01-Mr Da-Nos Feat. Zoe Xenia - Party Time  Full Vocal Remix 
+02-Antoine Clamaran, Gary Caos, Lizzie Curious, Agua Sin Gas - Do Watcha Doin   Original Mix 
+03-Kokiri & Versechi - So Long  Original Mix 
+04-Stefan Rio - Cry  Club Mix     Читать дальше...    Жанр: Club House, Disco House, Deep HouseПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D09C8B7899E52C4C947A7EF4F1BA85FE6A6F779F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012299.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 012 285
+
+VA - Finding Around Happiness  Energy Tech Trance  004  2016  [MP3|320 кб с] <Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Michael Dow -  Wave After Wave  Kheiro & Medi Remix   6:42
+02. Tranzlift Ft. Imperfect Hope -  Para Siempre  BTSR100 Anthem   Original Mix   8:14
+03. Simon Lee And Alvin -  Xcelerate  Extended Mix   5:24
+04. Liuck And Neev Kennedy -  Let This Go  Extended Mix   6:13    Читать дальше...    Жанр: TranceПродолжительность: 01:11:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:655FC764998AA74AB83C417FAB8D51676180D2EA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012285.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 012 235
 
 VA - The 90s Sweet Chart  2016  [MP3|320 кб с] <Dance, Euro, Disco, Pop, Rock>
@@ -1895,106 +1995,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008932.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 916
-
-VA - KissFM top 40 Апрель  2016  [MP3|320 кб с] <Electro House, Dance, Trance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Duke Dumont - Ocean Drive  3:26 
- 02. Alan Walker - Faded  3:32 
- 03. DJ Smash ft. Stephen Ridley - Lovers 2 Lovers  3:52 
- 04. Ben Delay - The Boy Is Mine Feat. Alexandra Prince  Alternative Mix   6:32     Читать дальше...    Жанр: Electro House, Dance, TranceПродолжительность: 02:51:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D5DF6109FF897A20B64325103B9ED0A578FFCB0E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008916.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 880
-
-VA - Lounge Royale: Exclusive Music Selection  2016  [MP3|320 кб с] <Downtempo, Chillout, Loun
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Francesco Demegni – A New Love
- 02. Luna Lounge – Luna Serenade
- 03. Andrea Cardillo Project – Buona vita
- 04. Vincenzo Ricca – Chill Thrill    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05E18C1571FFC16014557428FCB8BB9BFED146D8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008880.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 864
-
-VA - Elite Lounge: April Relax  2016  [MP3|320 кб с] <Lounge, Chillout, Relax>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-001. Ajad Samskara - Byron Bay
-002. Don Gorda Project - Disambiguation
-003. Vedo - Beautiful Monster
-004. Blank & Jones - Nuits Blanches    Читать дальше...    Жанр: Lounge, Chillout, RelaxПродолжительность: 08:34:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E0AD0B5250C2EEEDC05371BB1A7A11B86BADF1DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008864.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 008 850
-
-VA - Whatpeopleplay Top 100 Topseller March  2016  [MP3|320 кб с] <House, Deep House, Tech Hou
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Mr. Fingers - Qwazars [06:17]
-002. Frank Wiedemann - Moorthon II  Original Mix  [08:56]
-003. Borrowed Identity - Mary Jane [07:12]
-004. Soulphiction - Make it Burn [05:25]    Читать дальше...    Жанр: House, Deep House, Tech HouseПродолжительность: 11:41:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF293D329CC28C621937B88C4B056948CC267542
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008850.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

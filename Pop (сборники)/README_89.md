@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 092 420
+
+VA - NRJ Winter Hits  2017  3CD [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - зимний сборник     Читать дальше...    CD1:
+01. Maitre Gims - Tout donner  pilule violette    3:23 
+02. Rag n Bone Man - Human   3:19 
+03. DJ Snake feat. Justin Bieber - Let Me Love You   3:27     Читать дальше...    Жанр: PopПродолжительность: 03:04:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:02B68C455F788AB2F719507BB467F19142F1D950
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1092420.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 092 347
+
+The Ritchie Family - The Best Disco in Town  1994  [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+The Rithie Family  USA  Состав: Cheryl Jaks, Cassandra Wooten, Gwen Oliver - vocals. Группа The Rithie Family была сформирована в Philadelphia, PA, USA. Названная по имени их продюсера Pitchie Rome, группа была создана Jacques Morali  также создал Village People  чтобы произвести фурор в disco и dance музыке. Их главный хит - «The Best Disco in Town».01. Brazil   5:14 
+02. Dance With Me   3:55 
+03. Best Disco in Town   6:45 
+04. Arabian Nights   7:27     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CFC55467AE32B7DC1DA60ECA1525689DC0DAD0C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1092347.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 092 156
+
+ABC - Skyscraping  1997  [FLAC|Lossless|tracks + .cue] <Pop, Rock, New Romantic>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Stranger Things 5:18
+02. Ask A Thousand Times 5:13
+03. Skyscraping 4:20
+04. Who Can I Turn To? 3:48    Читать дальше...    Жанр: Pop, Rock, New RomanticПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6D7B97977F64010B4DFA32925E1BE4BFB769D304
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1092156.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 091 835
 
 Rinder & Lewis - 2 Albums  1977, 1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -1914,81 +1989,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082904.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 082 836
-
-VA - Glitterbox: For Your Disco Pleasure  2016   2016  [MP3|320 Kbps] <Disco, Nu Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Simon Dunmore - Glitterbox - For Your Disco Pleasure  Continuous Mix 1  78:01
-02. Simon Dunmore - Glitterbox - For Your Disco Pleasure  Continuous Mix 2  77:25
-03. The Salsoul Orchestra - Ooh I Love It  Love Break   Original Mix  07:46
-04. Loleatta Holloway - Love Sensation  Dimitri From Paris Dj Friendly Classic Re-Edit  07:32    Читать дальше...    Жанр: Disco, Nu DiscoПродолжительность: 06:34:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DDB88E9838D74966A4A897AA78DECCE8C8AF6E14
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082836.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 082 530
-
-LP - Lost On You  2016  [MP3|320 Kbps] <Alternative Rock, Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Muddy Waters  03:48 
-02. No Witness  03:28 
-03. Lost On You  04:29 
-04. Up Against Me  03:02     Читать дальше...    Жанр: Alternative Rock, Indie PopПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EAF3AE94D68D5A0877E43066B4464FFABBC3BB13
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082530.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 082 392
-
-Supermax - Terminal 2002  2001  [FLAC|Lossless|image + .cue] <Pop, Funk, Soul>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Cuckoo-Nation  5:00 
- 02. Voodoo Asses  4:47 
- 03. Vision  5:30 
- 04. Push Me Up  6:01     Читать дальше...    Жанр: Pop, Funk, SoulПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:98FD599AC47CAB58AF5E109ADBA28C3FFBD81FB0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082392.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

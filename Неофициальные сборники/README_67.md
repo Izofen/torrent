@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 361 301
+
+VA - Дискотека 2020 Deep House - The Best Vol.7 от NNNB  2020  [MP3|320 Kbps] <Deep House, Nu Di
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Diego Power - Don t Look at Me  Original Mix   5:08 
+02. Serge Legran - Love me like crazy  4:19 
+03. TRITICUM - Waiting For  Original Mix   3:06 
+04. A. Rassevich, Susie Johnson - The Dice  5:13     Читать дальше...    Жанр: Deep House, Nu Disco, OtherПродолжительность: 38:50:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:67076521951D0D0F6C9FECDA807B75355E192AA8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1361301.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 361 176
+
+VA - 100 Greatest Dance Anthems  2020  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Stardust - Music Sounds Better With You  Radio Edit  4:21
+002. Donna Summer - I Feel Love 3:45
+003. Daft Punk - One More Time 5:20
+004. Inner City - Good Life  Original 12  Mix  4:05    Читать дальше...    Жанр: Pop, DanceПродолжительность: 08:36:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7CAF170D6AABDC9DC8B9259E886DB29CB190168
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1361176.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 360 935
+
+VA - Romantic Souls: Popular Lyric Collection  2020  [MP3|320 Kbps] <Pop, Lyric>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Neron - Decomposing
+02. Hilaa - Naked
+03. Cassidy Janson - Fairytale
+04. 1Team - Not Afraid    Читать дальше...    Жанр: Pop, LyricПродолжительность: 04:26:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F22459538E085772FF8FAB7D0E9598CCFF29C413
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1360935.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 360 932
+
+VA - Sentimental Blues  2020  [MP3|204-320 Kbps] <Blues, Lyric>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Lost Soules - Can t Get Enough Of Her Sweet Stuff
+002. Erja Lyytinen - Stolen Hearts
+003. Sue Foley - Come To Me  Featuring Charlie Sexton 
+004. Gracie Curran & Friends - Ernestine    Читать дальше...    Жанр: Blues, LyricПродолжительность: 08:00:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE7DEE3793D57CC210CC8F682F9804C40BA19B77
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1360932.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 360 849
 
 VA - Зимняя свежая 30-тка Vol.4  2020  [MP3|320 Kbps] <Pop, Dance, Other>
@@ -1897,106 +1997,6 @@ VA - не Громкие новинки недели 53  2020  [MP3|320 Kbps] <P
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1355772.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 355 760
-
-VA - Полтинник самых - самых  2020  [MP3|320 Kbps] <Pop, Dance, RnB>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Артур Пирожков - Она решила сдаться
-02. Arizona Zervas - Roxanne
-03. HRVY - Million Ways
-04. DaBro - Мой путь    Читать дальше...    Жанр: Pop, Dance, RnBПродолжительность: 02:43:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:638C175D38D0B93F07D0C3B27C5554A4F1510BED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1355760.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 355 725
-
-VA - Where the Blues live  2020  2CD [MP3|320 Kbps] <Blues>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Dalannah Gail Bowen - Looking back
-02. Aretha Franklin - Honest I Do
-03. Danny Bryant s RedeyeBand - Girl from the North Country
-04. Blues Ball - Her Memory    Читать дальше...    Жанр: BluesПродолжительность: 08:13:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE2DEC03AE98E559622784767DD92D2611A220F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1355725.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 355 510
-
-Gary Moore - As The Years Go Passing By...  2020   2CD Compilation  [MP3|320 Kbps] <Blues, B
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Hiroshima
-02. Picture Of The Moon
-03. Cold Day In Hell
-04. Enough Of The Blues    Читать дальше...    Жанр: Blues, Blues RockПродолжительность: 01:50:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:574C398A7889D5BDE68CFF14F7FF942FD985A3A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1355510.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 355 387
-
-VA - Radio DFM Top D-Chart Январь 2020 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey  DJ Noiz Remix  4:00
-02. The Black Eyed Peas & J Balvin - RITMO  Vadim Adamov & Hardphol Remix  2:38
-03. Dua Lipa - Don t Start Now  Sergey Raf & ARROY Remix  3:00
-04. SAINt JHN - Roses  Imanbek Remix  3:58    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:33:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9D1B15E552DD7BAD5B8C349D4D2EB817AEEFD8AF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1355387.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

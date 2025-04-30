@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 395 703
+
+VA - Шансон Музыкальный хит-парад  2020  [MP3|320 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+1. Сергей Клушин - Мои Друзья  5:37 
+2. Владимир Ждамиров - А я несу тебе цветы  3:43 
+3. Андрей Курбатов & Лера Огонёк - Тишину Хочу  4:37 
+4. Михаил Шуфутинский - Поздняя любовь  3:58     Читать дальше...    Жанр: ШансонПродолжительность: 04:13:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBEBE14705C20979F0742BBEF5CA8F57A8F8523F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395703.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 395 602
+
+VA - German Top 100 Single Charts 10.07.2020 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Apache 207 - Bläulich
+02. Jawsh 685, Jason Derulo - Savage Love  Laxed - Siren Beat 
+03. UFO361 - Emotions
+04. DaBaby - ROCKSTAR  feat. Roddy Ricch     Читать дальше...    Жанр: PopПродолжительность: 04:59:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FFF34847F492424F1412C4BA56ADEA08C80CD899
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395602.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 395 596
+
+VA - The Official UK Top 40 Singles Chart 10.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Jawsh 685 - Savage Love  Laxed - Siren Beat 
+02. DaBaby - ROCKSTAR
+03. Lady Gaga - Rain On Me
+04. Topic - Breaking Me    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:04:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0745EB902A71D6B8EC9198727069B209172FA9E1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395596.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 395 587
+
+VA - ЕвроХит Топ 40 Europa Plus 10.07.2020 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. Ya Rick - Lost My Mind  2:53 
+2. Ava Max - Salt  3:00 
+3. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead  2:32 
+4. Filatov & Karas feat. Deepest Blue - Give It Away  3:27     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:08:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7FBD82DA9F78020CCE2AC9209608026DE24FB36E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395587.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 395 566
 
 Ted Nugent - 100% Ted Nugent  2020  [MP3|320 Kbps] <Rock, Hard Rock, Metal>
@@ -1894,106 +1994,6 @@ Rap, Hip-hop, RnB, Reggae  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1392428.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 392 332
-
-VA - Music for You vol.8  2020  [MP3|320 Kbps] <Rock, Metal, Other>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Anthem - Pain  04:17 
- 02. Anika Nilles - Mister  06:00 
- 03. The Omnific - Erin  03:21 
- 04. Circles - Blueprints for a Great Escape  04:48     Читать дальше...    Жанр: Rock, Metal, OtherПродолжительность: 04:04:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D401F1092BEBFF41FB948ED0CD4DD8FE2A971417
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1392332.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 392 229
-
-VA - 00s Rock  2020  [MP3|320 Kbps] <Rock, Alternative, Other>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-1. Linkin Park - In the End  3:36 
-2. Red Hot Chili Peppers - Can t Stop  4:29 
-3. The White Stripes - Seven Nation Army  3:51 
-4. System of a Down - Lonely Day  2:47     Читать дальше...    Жанр: Rock, Alternative, OtherПродолжительность: 03:45:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3EBD3776173CA234232225900C9525CD9E831B64
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1392229.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 392 187
-
-VA - Old Alabama Blues  2020  [MP3|320 Kbps] <Blues, Soul, Country>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Richie Milton - Temporarily Blue Bt
-002. Rosie Flores - That s What You Gotta Do
-003. Betty Lavette - Here I Am
-004. Buddy & Julie Miller - Unused Heart    Читать дальше...    Жанр: Blues, Soul, CountryПродолжительность: 06:25:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9EC815F4C84265B734CA792B972A4BAA40DBB162
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1392187.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 392 186
-
-VA - EDM Foam Party  2020  [MP3|320 Kbps] <EDM, Dance, Club, House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. The Freestyle Academy - Inside Your Heart
-002. Bing Lee - Por Que No
-003. That Melon Guy - Starry
-004. Agebeat & Kovary - Come Together    Читать дальше...    Жанр: EDM, Dance, Club, HouseПродолжительность: 09:50:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36465087A427A17A66E90DFC0826ABE18E08BBA0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1392186.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

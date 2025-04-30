@@ -1,4 +1,122 @@
 ﻿
+###  Публикация: 765 127
+
+VA - Streicheleinheiten Vol.1. Melodien Zum Traumen & Wohlfuhlen. Musik fur die Seele  1997  [MP
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+ 4:20  01. Ginkgo Garden - Secret Call
+ 3:25  02. Christopher Dean - Window To Heaven
+ 4:09  03. Christopher Dean - Japanese Affair
+ 3:42  04. Aschera - Sleep Well
+ 3:51  05. Aschera - Whales Of Atlantis
+ 4:00  06. Paul Heinermann - Eternay City
+ 4:48  07. Ginkgo Garden - Step From The Treetop
+ 3:40  08. Aschera - Sentimental
+ 2:55  09. Peter Grant - Phoenix
+ 4:11  10. Peter Grant - Dawn    Читать дальше...    Жанр: New age, InstrumentalПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70F446869528A253EFEEE24A3403B1CE9E7366A4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 765 116
+
+VA - House Music Pause Vol 9  2014  [MP3|320 кб с]<House, Progressive House, Deep House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Dunkan - Relive  Original Mix 
+002. Rebus Project - Falling Leaves  Original Mix 
+003. Abity - Afternoon
+004. Nhlokzin - Space Jammed  Souful Drum Mix 
+005. Rebus Project - Infinity  Original Mix 
+006. Junior Sary Hudz - Vanity  Original Mix 
+007. J-Fader - Out To All Dem
+008. Lian July feat. Eli - Surrender  Digital Sixable Dub Remix 
+009. Mary G. feat. Ricardo Munoz - You & I  Lazard vs. Crystal Rock Remix 
+010. Alex H & DJ Massymo Tn - Beyond The Blue Horizon  Original Mix     Читать дальше...    Жанр: House, Progressive House, Deep HouseПродолжительность: 01:46:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E4E94ACF4499BBE3CC71BE43CBB9800481D901B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 764 983
+
+Виталий Аксенов - Лучшие песни  3CD   1998-2013   2014  [MP3|320 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+27. Мост  2011 
+28. Золотые врата  2011 
+29. Листопад  2011 
+30. Я очень жду  2011     Читать дальше...    Жанр: ШансонПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3401A664187B78B5EC1B2E84716BCD4C100AB3F8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_764983.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 764 948
+
+VA - Русский рок-Баллады  vol. 5   2014  [MP3|320 кб с]<Рок, Хард-рок, Хеви-метал>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Токио - Сломанные цветы
+02. Abyssphere - О ней...
+03. Angel Da Rock - Не Спи
+04. Forgive Me Not - Опуститься В Рай
+05. Александр Иванов - Это был я
+06. Бекхан - Слушай
+07. Би-2 и Юлия Чичерина - Забытый Всеми
+08. Андрей Смирнов - Листья
+09. Евгений Гришковец, группа Бигуди и Ренарс Кауперс - На заре
+10. Курара - Надо больше хорошего  Смысловые галлюцинации версия     Читать дальше...    Жанр: Рок, Хард-рок, Хеви-металПродолжительность: 02:13:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3609E6F161F14A1C6FFCD1E6BE19C67B31AD95C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 764 936
 
 VA - Рок в Авто  vol. 17   2014  [MP3|~256 кб с]<Heavy Metal, Metalcore, Post-Hardcore, Al
@@ -2313,130 +2431,6 @@ Instrumental New Age Meditative Relax  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_760008.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 759 866
-
-VA - Dubstep Planet 5 by Xilent  2014  [MP3|320 kbps]<Dubstep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Krewella - Live For The Night  Xilent Remix 
-02. AU5 & I.Y.F.F.E - Flower Of Life  Original Mix 
-03. Xilent - Infinity  Original Mix 
-04. Ellie Goulding - Figure 8  Xilent Remix 
-05. Xilent - Touch Sound  Original Mix 
-06. Hadouken! - Bad Signal  Xilent Remix 
-07. Mediks - Come Back Down  Xilent Remix 
-08. Savant - Red Claw  Original Mix 
-09. Virtual Riot - Sugar Rush  Barely Alive Remix 
-10. Xilent - Boss Wavea  Original Mix      Читать дальше...    Жанр: DubstepПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:65CC4695FBB1552948DD6722657D64A01F80DBFE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 759 639
-
-VA - 100 Hits Romance  2014  [MP3|256 кб с]<Romance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Стас Михайлов - Оставь
-02. Стас Пьеха - Старая история
-03. Слава - Крик души моей
-04. Анжелика Варум - Давай забудем
-05. Дима Билан - Часы
-06. Леонид Агутин - Последний день в году
-07. Денис Майданов - Вечная любовь
-08. Владимир Пресняков - Ты Со Мной   Дуэт С Н.Подольской 
-09. Григорий Лепс и Ани Лорак - Зеркала
-10. Денис Клявер - Подари    Читать дальше...    Жанр: RomanceПродолжительность: 06:27:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:026D5869EFC6AB77C218DD16173B3A3B9B749F7E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 759 607
-
-VA - 100 Лирических Хитов в Машину  2014  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Тина Кароль - Любила
-002. Мали - Исповедь
-003. Refex - Let it Go
-004. Эльбрус Джанмирзоев - Тишина
-005. Medina - Jalousi
-006. Eldo - Признание
-007. Il Divo feat. Nicole Scherzinger - Memory
-008. Евгений Анегин - Песня о любви
-009. Tim Bendzko Feat. Cassandra Steen - Unter Die Haut
-010. Татьяна Решетняк - Знаю и верю    Читать дальше...    Жанр: PopПродолжительность: 06:23:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F3095EB0C8FFAB00A0DDF98E86A4C14DEA51A40
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 759 603
-
-VA - Горячая Музыкальная Подборка в Машину  2014  [MP3|128-320 кб с]<Alternative, Chanson, Clu
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Girl Nation - Turn Around  3:31 
-2. Asher Monroe - Hush Hush  3:00 
-3. Afrojack feat. Wrabel - Ten Feet Tall  3:48 
-4. ak9 - When You Come Home  7:20 
-5. Akon Ft. Keri Hilson - Killin It  3:41 
-6. Albert Glimma Feat. Kyle Monroe - Move  Rmx   3:11 
-7. Alek Sandar - Say That You Love Me  3:26 
-8. Alex Hide - Get Away  Original Mix  - superbomb.ru  6:37 
-9. Alexander Brown feat. Siff - Something Beautiful  Radio Edit   3:38 
-10. Alexei & Carlos Kinn - Free  feat J Lynn - original mix   6:15 Жанр: Alternative, Chanson, Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 25:32:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7FE55D2DA3ACA60471864F0F152096D04997416
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

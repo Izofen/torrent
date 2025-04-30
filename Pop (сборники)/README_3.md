@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 759 386
+
+Настя Задорожная - Ничего нет сильнее любви (2024) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Гоу-гоу
+2. На газ
+3. Небо
+4. Ничего нет сильнее любви(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CF6C7AE73C6EB8359D53D44B673DB77DE25C3877
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759386.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 759 381
+
+Артур Пирожков - Это игра (2024) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Alarm
+2. Делай всё
+3. Мёд
+4. Охота(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A617EDABB47D00E978B45E3AA4B8DA37B3273263
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759381.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 759 380
+
+INSTASAMKA & Ленинград - Бумеры и зумеры (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Хорошо
+2. За деньги нет
+3. Имба
+4. Ай лав ю(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F1409F5EB44EA89BBEE387D9D4BC6B78D3FE5090
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759380.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 759 378
 
 INSTASAMKA & Ленинград - Бумеры и зумеры (2024) [MP3|320 Kbps] <Pop>
@@ -1909,81 +1984,6 @@ Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1752091.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 752 071
-
-Mylene Farmer - Nevermore (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Prologue
-02. Du temps
-03. Peut-être toi
-04. Libertine(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2768C3395C25DC545B4361E884B85017F7884D71
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1752071.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 752 065
-
-E-Rotic - Level Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. Maxxx (Radio Edit Remastered)
-02. You Hooked Me Up (Radio Edit)
-03. Out Of My Life (Radio Edit)
-04. My Heart Is Ticking Like A Bomb (Radio Edit Remastered)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C992FC5167A5551BE172596E6B6E4CFC097E58E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1752065.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 752 031
-
-Michael Buble - The Best of Buble (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Feeling Good (3:56)
-02. Haven't Met You Yet (4:05)
-03. Sway (3:08)
-04. Everything (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:51FD3E903D399F4B823E8F3EDA9023621FED4ABD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1752031.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

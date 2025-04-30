@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 428 981
+
+VA - ЕвроХит Топ 40 Europa Plus 04.12.2020 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Pascal Letoublon & Leony - Friendships  3:02 
+02. Jason Derulo - Take You Dancing  3:10 
+03. Michael Patrick Kelly - Beautiful Madness  2:55 
+04. Foushee - Deep End  2:21     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:08:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4DDD16F322056D48D282A919C8812D35788E76C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428981.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 428 686
+
+VA - Громкие новинки Декабря  2020  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Thomas Mraz, The Ghosts - Noir  5:08 
+02. БАСТА, Скриптонит - Молодость  4:50 
+03. Сюзанна - MAGRITT  4:44 
+04. M Dee - До завтра  4:33     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 04:00:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29153A9843C8D51C1199CE272506EC70840674BA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428686.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 428 669
+
+VA - TOP Non-Stop 2000-2009 - Dance House Music. Part 2  2020  [MP3|192-320 Kbps] <Funky House,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+От 5 до 12 треков в каждом альбоме, при помощи MP3Gain, были доведены до уровня громкости 95 dB, а остальные не трогал  те что около 95 dB и все что выше этого - оставил как есть . Большая часть композиций были обрезаны в начале и  или  в конце для большего комфорта при прослушивании и для более удобной склейки их между собой. Данный сборник составил сам. Его лучше     Читать дальше...    01. DJ Gregory - Block Party  4:22 
+02. Mr. V feat. Miss Patty - Da Bump  Masters at Work remix   5:03 
+03. Roy Ayers - Tarzan  4:10 
+04. Louie Vega - Mozalounge  Jazz-N-Groove dub   5:48     Читать дальше...    Жанр: Funky House, Techno House, Progressive HouseПродолжительность: 09:01:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:816C3F5E400A1A4C6311E066116028B1EAD1A5CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428669.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 428 638
+
+VA - The Rock Album  2020  [MP3|320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Lynyrd Skynyrd - Free Bird  9:18 
+002. Guns N  Roses - November Rain  8:57 
+003. Joe Walsh - Life s Been Good  8:56 
+004. Led Zeppelin - Kashmir - Remaster  8:37     Читать дальше...    Жанр: RockПродолжительность: 10:31:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57512E7C26E2E9FE1F993A7E541826F379999BCA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428638.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 428 334
 
 VA - Shazam Хит-парад Russia Top 200 Ноябрь  2020  [MP3|320 Kbps] <Pop, Dance>
@@ -1894,106 +1994,6 @@ Jazz, Blues, Soul  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422587.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 422 585
-
-VA - The Promise Land  2020  [MP3|320 Kbps] <Reggae, Ska, Soul>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-01. Difrenz - Reste Assis
-02. African Head Charge - God Willing
-03. Nick Manasseh - Babylon Outside
-04. Leadpipe - Some Time    Читать дальше...    Жанр: Reggae, Ska, SoulПродолжительность: 04:02:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:34F5C4A7F37E7DFBD4587D524DEDBE0B84B48259
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422585.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 422 583
-
-VA - Pop Dance Exclusive Megamixes  2020  [MP3|320 Kbps] <Pop, Dance, Electropop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Millie Turner - Jungle
-002. Pouring - Burn
-003. The Disco Boys - Around The World
-004. Deborah Cox - Easy Way    Читать дальше...    Жанр: Pop, Dance, ElectropopПродолжительность: 08:17:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B148452DB1EC76D2C511F2DE0A21AECB24F9A377
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422583.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 422 578
-
-VA - No Doubt: Music RnB Collection  2020  [MP3|320 Kbps] <Rnb, Soul>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. The Oral Cigarettes - Wagamama
-002. Jayy Malik - Committed
-003. Teddy Bryant - Autumn Love
-004. Tamalaneh - Once In A Lifetime    Читать дальше...    Жанр: Rnb, SoulПродолжительность: 07:41:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D7F37A09A239E1E039E8FFBC83FC87BA7F50FB7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422578.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 422 575
-
-VA - Beatport Psy Trance: Electro Sound Pack #197  2020  [MP3|320 Kbps] <Psy, Goa Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Solar Walker - Shapeshifter
-002. Lost & Found - Hands  Remix 
-003. Atomizers - Is There A Future
-004. Visua - Atomic Gathering    Читать дальше...    Жанр: Psy, Goa TranceПродолжительность: 12:28:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFEADB62323CFE6E0427210B2724D7EEEBDE9A1C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422575.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

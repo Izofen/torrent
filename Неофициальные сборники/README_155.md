@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 039 549
+
+VA - Русский хит отрыв №3  2016  [MP3|256 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Виа Гра - Так Сильно
+02. Reflex - Говори Со Мной
+03. Andy Rey - Любви Ноль
+04. Алексей Завьялов Feat. Анна Дуванова - Моя Любовь    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:73BA093182316F658E8D8DA904AB4E9DCFFB62BA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1039549.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 039 538
+
+VA - Best Hits Hot Eternal Sound  2016  [MP3|320 Kbps] <House, Dance, Club>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Bad Boys Blue -  You re a Woman  Reloaded Album Version  3:05
+002. DJ Smash & DJ Miller feat. Anya -  Angels  Radio Edit  3:36
+003. Global Deejays & Frontload -  Get Up!  Radio Edit  3:07
+004. Pullbaxx & C.R. Easy -  Waves of Time  Bigroom Edit  3:54    Читать дальше...    Жанр: House, Dance, ClubПродолжительность: 12:48:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:18074F3436D8B1F48BAF1B3EC9ABADBEDF011A4B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1039538.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 039 537
+
+VA - Top 100 Зайцев Нет Июнь 2016  [MP3|160-320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. Потап и Настя – Умамы
+2. Ханна – Омар Хайям
+3. Светлана Лобода – К Чёрту Любовь!
+4. Quest Pistols – Непохожие    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:02:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E60CD428733AD5C5B3121E0F7401B331C0241219
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1039537.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 039 478
+
+VA - LUXEmusic - Топ Июль  2016  [MP3|320 Kbps] <Club House, House Music, Mash Up>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.	Alekseev - Снов осколки  Astero Club Remix 
+02.	Andrey Keyton & Sharapov feat. Tinaya - I Want You Soul  Original Mix 
+03.	Andry B & JJ - Fallen  DJ Favorite Official Remix 
+04.	Artik & Asti - Я твоя  DJ Zarubin Remix     Читать дальше...    Жанр: Club House, House Music, Mash UpПродолжительность: 03:15:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A0935E37EDD6C48EEFAD25560D37C0C467C87B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1039478.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 039 472
 
 VA - Летний Maximum Mix 50 50  2016  [MP3|256 Kbps] <Pop>
@@ -1896,106 +1996,6 @@ VA - Дорожный шансон с любимой музыкой. Часть 
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1037585.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 037 544
-
-VA - 45 Suntracks Sunday Music  2016  [MP3|320 Kbps] <House, Progressive, Club>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Topmodelz -  Your Love  CJ Stone Edit  3:36
-02. Jasper Forks -  Paradise  Video Edit  3:02
-03. Armin Van Buuren Feat. Mr Probz -  Another You  CID Remix  4:36
-04. Cosmo & Skoro feat. Nathan Brumley -  Feel So Deep  Alexey Lexx Remix  4:15    Читать дальше...    Жанр: House, Progressive, ClubПродолжительность: 02:41:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DD0F33E8FA5218C7644BE39B5EAB87FF4F1A9A02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1037544.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 037 527
-
-VA - Club Dance Ambience Vol.79  2016  [MP3|320 Kbps] <House, Electro House, Progressive House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Nicky Romero -  Ready 2 Rumble  Original Mix  2:59
-002. Tiesto & Jauz -  Infected  Original Mix  3:45
-003. Benny Benassi -  Danceaholic  Original Mix  3:35
-004. Calvin Harris & Disciples -  How Deep Is Your Love   Sound Delicious Remix  3:52    Читать дальше...    Жанр: House, Electro House, Progressive HouseПродолжительность: 07:44:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E50C7DEA8039071BCF6E2A9F764151A69C6EE5DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1037527.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 037 504
-
-VA - Guitar Collection 6  2016  [MP3|320 Kbps] <Instrumental, Acoustic, Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Tomoyasu Hotei - Dark Wind    02:48
-002. Nick Johnston - Ghost of the Robot Graveyard    05:14
-003. Chequerboard - Like A Bell To A Southerly Wind    04:26
-004. Mike Howe - Summer Road    03:12    Читать дальше...    Жанр: Instrumental, Acoustic, RockПродолжительность: 07:22:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BD56B0A79B2BB39974C2FB64288F7588C448741B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1037504.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 037 436
-
-VA - Ballads for Lovers Vol.1  2016  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Frankie Goes To Hollywood - The Power Of Love
-02. Stevie B. - Because I Love You  The Postman Song 
-03. Chris Rea - Ace Of Hearts
-04. Commodores - Nightshift    Читать дальше...    Жанр: PopПродолжительность: 02:18:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1037436.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

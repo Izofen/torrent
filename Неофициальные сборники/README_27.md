@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 543 450
+
+VA - National Pop Dance Music  Vol.33   2022  [MP3|320 Kbps] <Pop, Dance, Shlager>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+Представляем Вам очередной 33-й релиз проекта  National Pop Dance Music , в котором вы сможете найти для себя самые лучшие и самые признанные хиты европейской популярной национальной музыки уходящего месяца. Только самая качественная танцевальная музыка весеннего сезона ждет Вас на треках позитивного лонгплея!001. Freya - Du Hast Mich Tausendmal Belogen
+002. Everglow - Don t Speak
+003. Faren - Sors De Ma Vue
+004. A.Takalo & Takavalot - Tabula Rasa    Читать дальше...    Жанр: Pop, Dance, ShlagerПродолжительность: 08:54:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:72A04557B85978A4A5379BA9F34A34FAA7AEE796
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543450.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 449
+
+VA - Fest Rebel Rock Radio, Vol.02  2022  [MP3|320 Kbps] <Rock, Alternative, Indie>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+Эпическая мощь и красота - основные характеристики альбома и всего творчества групп представленных на его треках. Дух новаторства в музыке, когда даже в рамках давно использованного вдоль и поперек стиля, музыкантам удается найти свой путь. Их композиторское богатство основывается на фэнтезийной лирике, что привносит в музыку и стилистику песен определенное настроение     Читать дальше...    001. El Pistolero - Fear The Reaper
+002. Naked Giants - Better Not Waste My Time
+003. Holy Ship - Schrödingers Cat
+004. Royal Blood - Boilermaker    Читать дальше...    Жанр: Rock, Alternative, IndieПродолжительность: 08:32:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:409FD184B8EA64C48A5616D7517F55BCC8E3BEBF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543449.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 446
+
+VA - Beatport Hardstyle: Sound Pack #510  2022  [MP3|320 Kbps] <Hardstyle, Core Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Будьте готовы к ударному Hardstyle! Beatport в 510-м релизе представляет вашему вниманию отличную подборку. Благодаря успешным продюсерам в сфере EDM, эта музыка остается на вершине новейших технологий звукового дизайна, чтобы гарантировать, что вы получите самые потрясающие впечатления.001. Adrian Zgz - This Is My Music
+002. Shadowcore - Deadman Walking
+003. Rubens Hard - Arpegio Noize
+004. Hyphen - Quantum Entanglement    Читать дальше...    Жанр: Hardstyle, Core DanceПродолжительность: 08:38:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C350B1AF58445C53359E9BF36ECF0E67C1646F7F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543446.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 543 443
+
+VA - Beatport Synth Electronic: Sound Pack #509  2022  [MP3|320 Kbps] <Electronic, Synthwave>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+В этом релизе от Beatport вас ждет полное погружение в загадочный мир синтетической электронной музыки. Слушайте с открытой душой и будьте готовы познать кульминацию электронного искусства и глубину открытого космоса!001. Red Axes - Little Prince
+002. The Wise Thinker - World Beyond
+003. Marco Berto - Solidarity
+004. Vindata - Skin    Читать дальше...    Жанр: Electronic, SynthwaveПродолжительность: 10:18:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4F70EBB401AA685581CF75658662B6242C6C2BFF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543443.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 543 441
 
 VA - Beatport Trance: Electro Sound Pack #508  2022  [MP3|320 Kbps] <Trance, Progressive>
@@ -1894,106 +1994,6 @@ VA - Русские Хиты 3 2022 [MP3|320 Kbps] <Pop, Dance, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537433.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 235
-
-VA - Smooth Jazz: Variations On A Melancholy Theme  2CD   2022  [MP3|320 Kbps] <Smooth Jazz,
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-Чувственность вокала, утонченность и элегантность саунда, соло клавишных, плавность и гармоничность мелодии - все это делает Smooth Jazz тем, каким мы его любим.CD 01:
-
-01. Mindi Abair - Home
-02. Marcin Wasilewski Trio - Vashkar    Читать дальше...    Жанр: Smooth Jazz, Relax RomanticПродолжительность: 09:51:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE9D870E8EEA9F206A398850A2335737A49B07CC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537235.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 229
-
-VA - The Lion Reggae  2022  [MP3|320 Kbps] <Reggae, Riddim, Reggaeton, Dub>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-Неспешный темп и размеренный ритм Регги создает особую атмосферу, способствующую умиротворению и благостному состоянию душевного настроения. Здесь четко прослеживается стремление к гармонии, духу мира, где основная идея это полное отсутствие негатива, стремление к примирению с собой и окружающими, полный релакс и успокоение.001. Chaka Demus - Build Bridges
-002. Gondwana - Volver A Sentir
-003. Press Kay - Live Your Lies
-004. Dreadlock Tales - Stop Meddling    Читать дальше...    Жанр: Reggae, Riddim, Reggaeton, DubПродолжительность: 08:04:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:374D3D2BDCA8E9D88E3D8CCAC329CF5C4DFFDF99
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537229.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 221
-
-VA - NME Essential Synthpop Hits  2022  [MP3|320 Kbps] <Synthpop, Electropop, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-В окно уже стучится весна, просыпается природа, проскальзывают тёплые, солнечные лучики. Первое пробуждение от всего спящего, немного заторможенного, новые краски жизни, новые эмоции и новые впечатления. Именно под это весеннее настроение прекрасно гармонирует музыка сборника под названием  NME Essential Synthpop Hits .001. Grape Milk - Jellyfish Murder Spree
-002. Flux Pavilion - Partial Fugue In B Minor
-003. Hot Chip - Hand Me Down Your Love
-004. Yello - Rush For Joe    Читать дальше...    Жанр: Synthpop, Electropop, DanceПродолжительность: 07:05:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F269518C78630292D9B3D80531026921BA3D39B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537221.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 218
-
-VA - My Soul And Song: Rock Blues Compilation  2022  [MP3|320 Kbps] <Blues, Rock Blues>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-Блюз баллады - это по настоящему та музыка, что всегда можно назвать откровенной, которую можно назвать простой и изысканной вместе с тем, которая является понятной всеми и любимой всеми. Представляем вам лонгплей из 110 отменных зарубежных рок блюз баллад. У Вас будет 110 разнообразных романтических треков, многие из которых вы, может даже, услышите впервые или     Читать дальше...    001. Shemekia Copeland - Uncivil War
-002. Vidar Busk - Goindown South
-003. Spirits Having Fun - Plastic Party Perfect
-004. Jaye Hammer - Shes My Baby Forever    Читать дальше...    Жанр: Blues, Rock BluesПродолжительность: 07:52:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38EE042D7F4807CDDFA65FFC5526263E326B934E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537218.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

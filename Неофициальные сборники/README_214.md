@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 773 251
+
+VA - Super Bomb Electro 41  2014  [MP3|320 кб с]<Electro>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Anderblast - Euphoria  Original Mix  [04:58]
+02. Apster - Photobomb  Original Mix  [05:01]
+03. Bad Boom Boys - Boom Boom  Original Mix  [05:17]
+04. Bart Claessen - Chimaera  ACTI Remix  [06:27]
+05. Benny Bubblez - Jump  Original Mix  [04:34]
+06. Benny Bubblez - Wayakii  Peachey Remix  [05:17]
+07. Candy Sandy - Living In A Box  Stereoliner Mix  [06:09]
+08. Cedric Gervais - The Look  Original Mix  [04:46]
+09. Christian F - Let s Go  Original Mix  [05:11]
+10. Cliffhanger & Lightnix - My Last Chance  Original Mix  [06:32]Жанр: ElectroПродолжительность: 04:18:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9EACE77D82102CCD827598EC7A608E64822496A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 773 030
+
+VA - Still Got the Blues vol.4  2014  [MP3|160-320 кб с]<Blues, Blues Rock>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Oscar Benton - Somebody s Love Will Do
+02. Pat Boyack & The Prowlers  - Cleanin  Out My Closet
+03. Meena  Austria  - I d Rather Go Blind  With Donna Grantis 
+04. Neal Black - I m Gonna Cry
+05. Mick Martin & The Blues Rockers - Your Lies
+06. Paul Personne - Loco Loco
+07. Paul Mark & The Van Dorens - Walking Home Alone In The Dark
+08. Midnight Blues - Crazy World
+09. Mark Medlock - Why Can t We Live Together
+10. Magic Slim & The Teardrops  -  Crazy Woman    Читать дальше...    Жанр: Blues, Blues RockПродолжительность: 13:03:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1562BD7CEE6D99909E6C2FA81F6F98B3D529B77C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_773030.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 772 990
+
+Tarja  Tarja Turunen  - Коллекция  2004 - 2011  [MP3l 155-320 kbps] <Symphonic Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Anssi Tikanmaen Yhtye feat. Tarja Turunen - Tuulikello
+02. Beto Vazquez Infinity feat. Tarja Turunen - Promises under the Rain  Instrumental 
+03. Beto Vazquez Infinity feat. Tarja Turunen - Until Dawn  Angels of Light 
+04. Beto Vazquez Infinity feat. Tarja Turunen - Wizard
+05. Beto Vazquez Infinity feat. Tarja Turunen - Sadness in the Night
+06. Beto Vazquez Infinity feat. Tarja Turunen - The Laws of the Future
+07. Beto Vazquez Infinity feat. Tarja Turunen - Promises under the Rain
+08. Schiller feat. Tarja Turunen - Tired of Being Alone
+09. Martin Kesici feat. Tarja Turunen - Leaving You for Me
+10. Nuclear Blast All-Stars feat. Tarja Turunen - In the Picture    Читать дальше...    Жанр: Symphonic Metal, Classical, Opera, GothicФормат: MP3Продолжительность: 00:19:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CEAB804614E34BE4DFB4008E97E7E41017D4343C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_772990.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 772 979
+
+New Age Style - Enigmatic 14  2014  [MP3|320 кб с]<New Age, Enigmatic, Chillout>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+1. Carma - Victoria  3:16 
+2. Venja - Sensing The Spheres  6:11 
+3. Ascension - On the Wings of an Angel  4:36 
+4. Oryx - Stars of the Orient  3:28 
+5. Flaer Smin - Endeery  5:24 
+6. Luc Baiwir - Opus Hiram  6:26 
+7. Kheops - Liberty in the wind  4:35 
+8. Ginkgo Garden - Journey Of The Clouds  3:40 
+9. Mandala Hindu - Free Tibet  Himalaya Meditation Enigma Mix   5:05 
+10. Twins In Mind - Eternal Fantasy  5:01     Читать дальше...    Жанр: New Age, Enigmatic, ChilloutПродолжительность: 02:27:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8620E63A40AA662659AEA5AE5BF8AC2F2B0721D3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 772 907
 
 VA - Vocal Trance Collection Vol.116  2014  [MP3|320 кб с]<Trance, Vocal Trance>
@@ -2295,124 +2419,6 @@ Instrumental New Age Meditative Relax  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:793706FE7C054E694EB2A4B06D3C21420013C4F5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 765 127
-
-VA - Streicheleinheiten Vol.1. Melodien Zum Traumen & Wohlfuhlen. Musik fur die Seele  1997  [MP
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
- 4:20  01. Ginkgo Garden - Secret Call
- 3:25  02. Christopher Dean - Window To Heaven
- 4:09  03. Christopher Dean - Japanese Affair
- 3:42  04. Aschera - Sleep Well
- 3:51  05. Aschera - Whales Of Atlantis
- 4:00  06. Paul Heinermann - Eternay City
- 4:48  07. Ginkgo Garden - Step From The Treetop
- 3:40  08. Aschera - Sentimental
- 2:55  09. Peter Grant - Phoenix
- 4:11  10. Peter Grant - Dawn    Читать дальше...    Жанр: New age, InstrumentalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70F446869528A253EFEEE24A3403B1CE9E7366A4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 765 116
-
-VA - House Music Pause Vol 9  2014  [MP3|320 кб с]<House, Progressive House, Deep House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Dunkan - Relive  Original Mix 
-002. Rebus Project - Falling Leaves  Original Mix 
-003. Abity - Afternoon
-004. Nhlokzin - Space Jammed  Souful Drum Mix 
-005. Rebus Project - Infinity  Original Mix 
-006. Junior Sary Hudz - Vanity  Original Mix 
-007. J-Fader - Out To All Dem
-008. Lian July feat. Eli - Surrender  Digital Sixable Dub Remix 
-009. Mary G. feat. Ricardo Munoz - You & I  Lazard vs. Crystal Rock Remix 
-010. Alex H & DJ Massymo Tn - Beyond The Blue Horizon  Original Mix     Читать дальше...    Жанр: House, Progressive House, Deep HouseПродолжительность: 01:46:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E4E94ACF4499BBE3CC71BE43CBB9800481D901B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 764 983
-
-Виталий Аксенов - Лучшие песни  3CD   1998-2013   2014  [MP3|320 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-27. Мост  2011 
-28. Золотые врата  2011 
-29. Листопад  2011 
-30. Я очень жду  2011     Читать дальше...    Жанр: ШансонПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3401A664187B78B5EC1B2E84716BCD4C100AB3F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_764983.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 764 948
-
-VA - Русский рок-Баллады  vol. 5   2014  [MP3|320 кб с]<Рок, Хард-рок, Хеви-метал>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Токио - Сломанные цветы
-02. Abyssphere - О ней...
-03. Angel Da Rock - Не Спи
-04. Forgive Me Not - Опуститься В Рай
-05. Александр Иванов - Это был я
-06. Бекхан - Слушай
-07. Би-2 и Юлия Чичерина - Забытый Всеми
-08. Андрей Смирнов - Листья
-09. Евгений Гришковец, группа Бигуди и Ренарс Кауперс - На заре
-10. Курара - Надо больше хорошего  Смысловые галлюцинации версия     Читать дальше...    Жанр: Рок, Хард-рок, Хеви-металПродолжительность: 02:13:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3609E6F161F14A1C6FFCD1E6BE19C67B31AD95C6
 ```
 
 <div id="header" align="center">

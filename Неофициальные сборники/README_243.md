@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 481 173
+
+VA - Музыка для хорошей компании  2012  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+1. 01. Андрей Калинин - А мы гуляем  3:14 
+2. 02. Валерий Курас - Давайте выпьем за здоровый образ жизни  3:35 
+3. Рождество - Молодость  4:18 
+4. Игорь Пермский - За Друзей  4:25 
+5. Александр Черкасов - Дочки  3:49 
+6. Евгений Алтайский - Женщина любимая  3:24 
+7. Пахомов - Девочка-Девченочка  2:53 
+8. Татьяна Тишинская и Эдуард Видный - Дым от сигарет  4:04 
+9. Лепа - Пластиночка  3:27 
+10. Белый орел - Теряй  3:50 2012Жанр: ШансонПродолжительность: 06:24:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B0EDC03CAB1C8FFD4E841413B16C4B1DAB7DC931
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_481173.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 480 997
+
+VA - Beatport Top 100 Download April  2012  [MP3|320 kbps]<House | Dance | Trance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Thomas Gold – Sing2Me  Original Mix 
+02. Swedish House Mafia - Greyhound  Original Mix 
+03. Sebastian Ingrosso,Alesso & Ryan Tedder – Calling  Lose My Mind   Extended Club Mix 
+04. TJR – Funky Vodka  Original Mix 
+05. Zedd – Shotgun  Original Mix 
+06. Fedde Le Grand, Deniz Koyu & Johan Wedel – Turn It  Original Mix 
+07. Mark Knight – Alright  Original Club Mix 
+08. Mark Knight – Together  Original Club Mix 
+09. Cicada, Third Party – Feel  Original Mix 
+10. Luigi Rocca & Manuel De La Mare – Opa-Locka  Original Club Mix     Читать дальше...    2012Жанр: House | Dance | TranceПродолжительность: 10:50:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:952FCFCDFDE2AF04C429403DA63C595A2F2990D3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 480 790
+
+VA - 100 Most Beautiful Love Songs  2006  [MP3|320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01.10CC - I m Not In Love - 6:02
+02.ABC - The Look Of Love  Part 1  - 3:30
+03.Level 42 - Lessons In Love - 4:06
+04.Joan Armatrading - Love Ans Affection - 4:25
+05.Cat Stevens - Wild World - 3:20
+06.Shanice - I Love Your Smile - 4:21
+07.Shelby Lynne - Your lies - 2:57
+08.All About Eve - Martha s Harbour - 3:04
+09.The LA s - There She Goes - 2:43
+10.The Osmonds - Love Me For A Reason - 4:02    Читать дальше...    2006 [03. Februar 2006]Жанр: PopПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A795B8226E1D3B074305FC8F3E3BC3678DD902F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_480790.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 480 285
+
+VA - The Best Of Lounge Music  2012  [MP3|320 kbps]<Chillout | Lounge>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Lily Wood & The Prick - This Is A Love Song
+002. The Do - Too Insistent
+003. Emilie Simon - Desert
+004. Cocoon - Cornets
+005. Brisa Roche - Breathe In Speak Out
+006. General Elektriks - Summer Is Here
+007. Applause - Black Sand
+008. The Herbaliser Feat. Seaming To - Something Wicked
+009. Beat Assailant - Hard Twelwe - The Ante
+010. Raashan Ahmad Feat. Aloe Blacc & Gift Of Gab - Falling    Читать дальше...    2012Жанр: Chillout | LoungeПродолжительность: 07:54:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6EEC6F23D3845AE38C1B84EB2BF5F40445321928
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 480 132
 
 VA - Disco Remix DJ  2012  [MP3|320 kbps]<Disco | Dance | Club>
@@ -2330,124 +2454,6 @@ VA - Душевная музыка  2012  [MP3|256 кб с]<Шансон>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_470273.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 470 264
-
-VA - Песни, Спетые Сердцем!  2012  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. А. Дюмин - Цветы Увяли
-02. Воровайки - Морячок И Стюардесса
-03. А. Андерс - Не Предавай  Дуэт С Г. Грач 
-04. А. Дюмин - Наша Жизнь
-05. С. Михайлов - Спаси Меня
-06. Артур - Забыть Нельзя
-07. Воровайки - Вертухай Андрюшка
-08. Г. Лепс И А. Розенбаум - Камикадзе
-09. С. Питерская - Проводница
-10. А. Дюмин - Так И Покатил Я2012Жанр: ШансонПродолжительность: 06:20:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA248FD68C8224C2E9FF79B013ECEC81F89A902E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_470264.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 469 886
-
-VA - Асса! Танцуют Все!  2012  [MP3|192-320 kbps]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Азнаур - Танцуют все
-02. Marat - Адыгский перепляс  remix 
-03. Азамат Биштов - Голубая ночь
-04. Мурат Тхагалегов - Калым
-05. Анжелика Начесова - Нарушил все мои правила
-06. Амур Успаев - Хаза к1ант
-07. Эльдар Далгатов - Нет рая
-08. Шамхан - Только там  dance version 
-09. Марина Алиева - Горный край
-10. гр Домбай - Моя Теберда    Читать дальше...    2012Жанр: PopПродолжительность: 04:49:39
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 469 832
-
-VA - Seashore Desire #24  20.03.2012  [MP3|320 кб с]<Uplifting Trance, Dream Trance, Progressi
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Eximinds - Afterlight  Original Mix 
-002. Andy Woldman feat. Nicole Ambresi & DJ Leo D vs. Kuku Sky - Always  BluEye Uplifting Remix 
-003. Basil O Glue - Angular Momentum  Original 
-004. Realistic Brain - Art  Original Mix     Читать дальше...    Жанр: Uplifting Trance, Dream Trance, Progressive Trance, TranceПродолжительность: 05:42:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:57B56FD3C5AC53CE74060273B6117A5412EC4BE5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_469832.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 469 684
-
-VA - Hot Break Dance 2CD  2012  [MP3|320 кб с]<Break Dance, Hip-Hop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Dazz Band - Joystick  Re-Recorded Remastered -Pbs
-02. A Tribe Called Quest - Can I Kick It
-03. Dizzee Rascal Feat. Calvin Harris & Chrome - Dance Wiv Me  Agent X Remix 
-04. DJ Jox - Code Darkness
-05. Homeboy Hippie & A Funky Dread - Total Confusion
-06. Sl2 - DJ s Take Control 2012
-07. Lazy L - Raider Maider-Pbs
-08. Flash Back Project - Ease The Pressure
-09. H - What s It Gonna Be  Jamie Duggan Meets Da Booda Refix 
-10. No Break - Factory Of Sensations2012Жанр: Break Dance, Hip-HopПродолжительность: 04:37:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0456EA8A89CDD2EB05E8612549B4A4977FCA79A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_469684.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

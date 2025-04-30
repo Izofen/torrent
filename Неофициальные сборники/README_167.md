@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 008 916
+
+VA - KissFM top 40 Апрель  2016  [MP3|320 кб с] <Electro House, Dance, Trance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Duke Dumont - Ocean Drive  3:26 
+ 02. Alan Walker - Faded  3:32 
+ 03. DJ Smash ft. Stephen Ridley - Lovers 2 Lovers  3:52 
+ 04. Ben Delay - The Boy Is Mine Feat. Alexandra Prince  Alternative Mix   6:32     Читать дальше...    Жанр: Electro House, Dance, TranceПродолжительность: 02:51:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5DF6109FF897A20B64325103B9ED0A578FFCB0E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008916.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 008 880
+
+VA - Lounge Royale: Exclusive Music Selection  2016  [MP3|320 кб с] <Downtempo, Chillout, Loun
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Francesco Demegni – A New Love
+ 02. Luna Lounge – Luna Serenade
+ 03. Andrea Cardillo Project – Buona vita
+ 04. Vincenzo Ricca – Chill Thrill    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:05E18C1571FFC16014557428FCB8BB9BFED146D8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008880.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 008 864
+
+VA - Elite Lounge: April Relax  2016  [MP3|320 кб с] <Lounge, Chillout, Relax>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+001. Ajad Samskara - Byron Bay
+002. Don Gorda Project - Disambiguation
+003. Vedo - Beautiful Monster
+004. Blank & Jones - Nuits Blanches    Читать дальше...    Жанр: Lounge, Chillout, RelaxПродолжительность: 08:34:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0AD0B5250C2EEEDC05371BB1A7A11B86BADF1DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008864.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 008 850
+
+VA - Whatpeopleplay Top 100 Topseller March  2016  [MP3|320 кб с] <House, Deep House, Tech Hou
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Mr. Fingers - Qwazars [06:17]
+002. Frank Wiedemann - Moorthon II  Original Mix  [08:56]
+003. Borrowed Identity - Mary Jane [07:12]
+004. Soulphiction - Make it Burn [05:25]    Читать дальше...    Жанр: House, Deep House, Tech HouseПродолжительность: 11:41:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF293D329CC28C621937B88C4B056948CC267542
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1008850.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 008 770
 
 VA - 50 оттенков музыки 18+  02.2016  [MP3|112-320 кб с] <Pop, Dance, Electronic, Dubstep, Oth
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004885.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 004 866
-
-VA - Вспомним 90-2000 от Виталия 72  2016  [MP3|320 кб с] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. И.К.С.Миссия - Ты первая
-02. DVD - Белый снег
-03. Андрей Губин - Облака
-04. Каролина - Русалка    Читать дальше...    Жанр: PopПродолжительность: 04:57:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0723CEC99633A312B78880156E7B5AC7DB221864
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004866.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 004 813
-
-Серебро - Сладко. Сборник лучших хитов  2016  [MP3|320 кб с] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Сладко  03:51 
-02. Я Хочу Слышать  03:33 
-03. Мама Люба, Давай  03:24 
-04. Гудбай Любовь  03:29     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:37:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90B140AC404AB89F79379489E7D1E55F18C15293
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004813.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 004 784
-
-Тату  t.A.T.u.  - Не верь, не бойся, не проси  2016  [MP3|320 кб с] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Тату - Не верь, не бойся, не проси  3:05 
-02. Тату - Ядовитая...разбитая...убитая...Я...  3:58 
-03. Тату .vs.Король и шут - В твоих руках  4:53 
-04. Тату .vs.Король и шут - Заведи  3:54     Читать дальше...    Жанр: PopПродолжительность: 03:54:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2361E7DBF6507B3A374481598013E1B84024298F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004784.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 004 672
-
-VA - Музыкальное ассорти хитов  50 50   2016  [MP3|256 кб с] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Dj Jedy Feat. Личи - Вахтеры
-02. Fedde Le Grand Feat. Erene - Immortal
-03. Григорий Лепс - Одиноко
-04. Dj Marcous Feat. Aria - Tourist    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:06:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ABB690F4A4719D7F25DEA34573B22583920600F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1004672.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

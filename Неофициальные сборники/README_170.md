@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 996 507
+
+VA - Sentimental Dialoguel: Rock Blues Classic  2016  [MP3|320 кб с] <Blues, Rock Blues>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Jimmy Witherspoon - Good Rocking Tonight
+002. Rush - Cold Fire
+003. B.B. King. Ruth Brown - You re the Boss
+004. Neil Young And Crazy Horse - Blue Eden    Читать дальше...    Жанр: Blues, Rock BluesПродолжительность: 10:12:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1795BDFD860B5FD2DAABB85649C36B4D045F5F08
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996507.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 996 496
+
+Андрей Вох - Чё дают?  1987  [MP3|320 кб с] <Шансон, Авторская и Военная песня  сборники >
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Вступление
+02. Письмо проститутки в журнал Огонек  Не ради шутки 
+03. Старый дом
+04. Банда самосовцев    Читать дальше...    Жанр: ШансонПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C52CFB49F0A252A615595F413C6476B192D34EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996496.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 996 492
+
+VA - Lounge Lux Smiel: Italian Set 80-90s  2016  [MP3|320 кб с] <Disco, Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Adriano Celentano - Il Tuo Bacio E  Come Un Rock
+002. Camaleonti - L Ora Dell Amore
+003. Cugini Di Campagna - Anima Mia
+004. Bobby Solo - Una Lacrima Sul Viso    Читать дальше...    Жанр: Disco, Pop, DanceПродолжительность: 05:54:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:05EA3F7C4547054C26BE5DE7C59DC91C644F57FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996492.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 996 474
+
+VA - За друзей. Легендарные хиты 90х  2016  [MP3|320 кб с] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Владимир Черняков - За друзей
+02. Михаил Круг - Владимирский Централ
+03. Иван Кучин - Человек В Телогрейке
+04. Геннадий Жаров и группа Амнистия 2 - Ушаночка    Читать дальше...    Жанр: ШансонПродолжительность: 03:59:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69B7A184A17B1E06F50DA188E5FEB6F1C317E10B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996474.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 996 454
 
 VA - Nashville Indie Spotlight  2015  [MP3|192 кб с] <Indie>
@@ -1893,106 +1993,6 @@ VA - Автозвук  2016  [MP3|320 кб с] <Club, Dance, Remix>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_993184.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 993 156
-
-VA - Tropical Beach: Ibiza Progressive Trance  2016  [MP3|320 кб с] <Progressive Trance, Club,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Myde - Castle In The Sand  Radio Edit  03:27
-002. 4 Strings - Illumina  Original Mix  05:17
-003. Aeden - Traveler  Radio Cut  03:45
-004. Addliss - Care For You  DJ Ives M & DJ T.H. Radio Cut  03:26    Читать дальше...    Жанр: Progressive Trance, Club, ElectroПродолжительность: 07:22:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:17F8EC7B98B1F467A21C782F8011B2566B82E53B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_993156.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 993 144
-
-Леонид Азбель и Катенька Дроздовская - Старая Одесса  2001  [MP3|320 кб с] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Интро
-02. Иволга
-03. Перебиты, поломаны крылья
-04. Однажды сценку я наблюдал    Читать дальше...    Жанр: ШансонПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E0FF58597676804597B2FA1B38D4EEE279F90FA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_993144.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 993 049
-
-VA - Dance Club Empire 100 hits  2016  [MP3|320 кб с] <Club, Dance, Remix>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Falency - In The Moonlight
-002. Frits Wentink - Blaise Montoya  Feat. Loes Jongerling 
-003. Dj Le-Roy - She s On Fire  Original Mix 
-004. Alfrenk - Big Up  Original Mix     Читать дальше...    Жанр: Club, Dance, RemixПродолжительность: 08:10:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B3479B389AB6D801E70F8A87B3FBC1089C066D21
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_993049.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 993 043
-
-Va - Top Eurodance Tunes  2016  MP3  2016  [MP3|320 кб с] <Pop, Dance, Eurodance, House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Red Garden - And She Said  Eurotrance Remix 
-02. Basement Three - Catch Your Wave
-03. Housecream - Still Not Sorry  Remix 
-04. Asya - Like a Dream    Читать дальше...    Жанр: Pop, Dance, Eurodance, HouseПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:50A0F2EC528F3E14FE1190386E5540DCEBC25578
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_993043.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

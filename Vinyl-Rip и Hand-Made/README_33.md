@@ -1,4 +1,544 @@
 ﻿
+###  Публикация: 483 502
+
+Red Hot Chili Peppers – Californication  1999  [FLAC 2.0 24 192 | image  VinylRip ] <Funk
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Funk Rock Alternative RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB63894A9936B5F9F40346F536EFE6F522B6EC9C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_483502.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 482 977
+
+Чайф - 25 лет выдержки  2009  [FLAC 2.0 24 96 | image  VinylRip ]<Рок-н-ролл, Рок>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Шаляй-валяй
+02. Кот
+03. Вольный ветер
+04. Белая ворона
+05. Оранжевое настроение
+06. Ой-йо
+07. Всему своё время
+08. Давай вернемся
+09. Поплачь о нём2009Жанр: Рок, Рок-н-РоллПродолжительность: 01:12:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:420BEC04286E9FAC5EB3CCA0CE1BD5DAF8614AF3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_482977.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 482 730
+
+Крематорий - Двойной альбом  1993  [APE 2.0 24 96 | tracks  VinylRip ]<Рок-н-ролл, Хард-ро
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Проходящие Мимо
+02. Реанимационная Машина
+03. Клаустрофобия
+04. Адольф
+05. Таня
+06. Кондратий1993Жанр: RockПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E14E85105F90560DED479EC47FD0AEE807526CF9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_482730.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 480 589
+
+Scorpions - 2 альбома  1974-1975   [FLAC 2.0 24 192 | tracks  VinylRip ]<hard-rock, heavy-
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: hard-rock, heavy-metalПродолжительность: 00:37:32
+
+01. Dark Lady
+02. In Trance
+03. Life s Like A River
+04. Top Of The Bill
+05. Living And Dying
+06. Robot Man
+07. Evening Wind
+08. Sun In My Hand    Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2CB315CD2F2FB1839040EE4CCCCAD22B83C2C343
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_480589.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 475 795
+
+Europe - The Final Countdown  1986   [APE 2.0 24 48 | tracks  VinylRip ]<hard rock,heavy m
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. The Final Countdown
+02. Rock the Night
+03. Carrie
+04. Danger on the Track
+05. Ninja
+06. Cherokee
+07. Time Has Come
+08. Heart of Stone
+09. On the Loose
+10. Love Chaser1986Жанр: hard rock,heavy metalПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9561E9AE966EAFF6D3C5534CE24DE9BBD1CBAF96
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 419 469
+
+AC/DC - Back In Black (1980) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side One:
+01.  Hells Bells [5:12]
+02.  Shoot To Thrill [5:18]
+03.  What You Do For Money Honey [3:36](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BCB283DA76F5A3448190ECFE562B1019388CF351
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_419469.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 416 481
+
+Led Zeppelin - IV  1971  [FLAC 2.0 24 96 | tracks  Reel-to-Reel Rip ]<Rock>
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Black Dog [00:04:56]
+02. Rock And Roll [00:03:41]
+03. The Battle Of Evermore [00:05:49]
+04. Stairway To Heaven [00:08:00]    Читать дальше...    Жанр: RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:201D0336BABEE1528F539A4F45741B61C5376482
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_416481.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 414 309
+
+Derek And The Dominos - Layla And Other Assorted Love Songs  1970  [FLAC 2.0 24 96|tracks  V
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Layla and Other Assorted Love Songs  Лэйла и другие песни о любви  — единственный студийный альбом группы Derek and the Dominos. Его нередко называют самым значительным музыкальным достижением Эрика Клэптона.
+Он был выпущен в декабре 1970; отзывы критиков тогда был различными; продавался альбом довольно успешно. Альбом достиг 16-й позиции в списках Billboard 200, в Британии он не попал в чарты вообще.[1]
+В 2003 году VH1 поставил альбом Layla and Other Assorted Love Songs на 89-ю позицию в спике величайших альбомов всех времён. В том же году журнал Rolling Stone поместил альбом на 115 место из 500 величайших альбомов всех времён.Жанр: Blues-rockПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:299EA93368AF0DE59A96ECA14C28623AA4BED657
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_414309.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 407 674
+
+Within Temptation - Black Symphony  2008  [FLAC 5.1 24 96|tracks  Blu-ray rip ]<Gothic Met
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. - Overture[07:36]
+ 02. - Jillian  I d Give My Heart [04:40]
+ 03. - The Howling[06:34]
+ 04. - Stand My Ground[04:31]    Читать дальше...    Жанр: Gothic Metal Symphonic MetalПродолжительность: 02:06:33
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_407674.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 385 952
+
+Elvis Presley - Collection 11 Альбомов 13 LP (1956-2007) [FLAC/APE 2.0 24/96|tracks/image (Vinyl-Rip
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Элвис Пресли остаётся одной из самых известных личностей мировой поп-культуры. В Америке он давно вошёл в повседневную жизнь обывателей, наравне с президентами и спортсменами. Снято множество кино- и телефильмов, как биографических, так и имеющих лишь косвенное отношение к самой жизни Пресли, издано ещё большее количество книг. Процветает обширная индустрия имитаторов (   Читать дальше...   )Жанр: Rock & Roll/Rockabilly/PopПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89756A37564880E170C3DA038AA4750728566609
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_385952.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 367 497
+
+The Beatles  The Collection  MFSL Box Set  1982  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<R
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Эта коллекция является подборкой альбомов Beatles, после повторного ремастеринга на половине нормальной скорости от оригинальной  стереозаписи, за исключением Magical Mystery Tour , в котором использован оригинальный мастеринг Capitol Records . Каждый альбом издан на virgin vinyl by the Victor Company of Japan , который гарантирует лучшее возможное качество звучания. Обложки альбомов были заменены фотографиями коробок лент и фото листа записи. Оригинальные обложки альбома были включены в буклет.Жанр: RockПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5E21EFBF4FD2943EBA157AC30485A9FE0795BD4E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_367497.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 363 443
+
+Enya - Watermark  1988  [APE 2.0 24 96|tracks  Vinyl-Rip ] <Electronic Ambient New Age
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1.  Watermark [02:23]
+ A2.  Cursum Perficio [04:07]
+ A3.  On Your Shore [03:57]
+ A4.  Storms In Africa [04:02]    Читать дальше...    Жанр: Electronic Ambient New Age CelticПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_363443.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 360 094
+
+Sandra - Into A Secret Land  1988  [APE 2.0 24 96|image  Vinyl-Rip ]<Synth-pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01.  Secret Land [04:42]
+ 02.  We ll Be Together [04:09]
+ 03.  Heaven Can Wait [04:02]
+ 04.  Just Like Diamonds [05:28]
+ 05.  Around My Heart [03:16]
+ 06.  Crazy Joliet [04:09]
+ 07.  La Vista De Luna [03:43]
+ 08.  Celebrate Your Life [03:26]
+ 09.  Children of England [03:51]Жанр: Synth-popПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_360094.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 359 638
+
+Billy Idol - Rebel Yell  1983  [APE 2.0 24 192|image  Vinyl-Rip ]<Pop Rock Synth-Рop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1
+A1 Rebel Yell [04:47]
+A2 Daytime Drama [04:04]
+A3 Eyes Without A Face [04:58]
+A4 Blue Highway [05:08]
+Side 2
+B1 Flesh For Fantasy [04:37]
+B2 Catch My Fall [03:43]
+B3 Crank Call [04:00]
+B4  Do Not  Stand In The Shadows [03:12]    Читать дальше...    1983Жанр: Pop Rock Synth-РopПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_359638.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 358 302
+
+The Rolling Stones - Get Yer Ya-Ya s Out!  1970  [FLAC 2.0 24 96|tracks  Vinyl-Rip ]<Roc
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Rock Rock  n  Roll BluesПродолжительность: 01:48:14
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_358302.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 358 192
+
+Sandra - Everlasting Love  1988  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synthpop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01.  Everlasting Love  PWL Remix  [03:58]
+ 02.   I ll Never Be  Maria Magdalena [03:58]
+ 03.  Secret Land [04:42]
+ 04.  Heaven Can Wait [04:03]
+ 05.  Hi! Hi! Hi! [04:10]
+ 06.  We ll Be Together [04:09]
+ 07.  In the Heat of the Night [05:19]
+ 08.  Around My Heart [03:18]
+ 09.  Little Girl [03:14]
+ 10.  Loreen [04:11]1988Жанр: SynthpopПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_358192.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 335 611
+
+Diana Krall - 10 альбомов  1996-2009  [FLAC APE 2.0 24 96 | tracks  VinylRip ]<Jazz>
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Дайана Кролл  Diana Krall  имеет такую внешность, какую называют  мечта продюсера  — по выражению одного западного журнала. Натуральная блондинка с зелеными глазами.Издали на обложках пластинок ее принимают за Селин Дион  Celine Dion . Дион, кстати, тоже из Канады. Именно в этом порядке: Дион тоже из Канады. Как и Дайана Кролл. А не наоборот. Потому что     Читать дальше...    Жанр: JazzПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7C390C9A8511FE61C78E55F93B4469D16DAA6F02
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_335611.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 317 289
+
+Suzi Quatro - Два альбома  1973, 1974  [LPCM 2.0 96 24 | Audio-DVD  Vinyl Rip ] <Pop Rock,
+След.
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Этот Audio-DVD  музыкальный DVD-Video  диск был сделан мною на основе материала, предоставленного уважаемым luckburz.
+Формат DVD-Video был выбран мною для авторинга из-за несомненных удобств, предоставляемых им: возможности использования несжатого высококачественного звука, навигации по трекам, и наибольшей совместимости с имеющимися у потенциальных слушателей проигрывателями.     Читать дальше...    Жанр: Pop Rock, Glam RockПродолжительность: 00:50:34, 00:42:40
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 278 739
+
+Frank Sinatra - 16LP Box Set Mobile Fidelity  Sinatra Silver Box  VinylRip 24 96  1983  [A
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1
+A1 The Nearness Of You
+A2 Hidden Persuasion
+A3 The Moon Was Yellow    Читать дальше...    Жанр: JazzПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4D4605F8647E9AC598F288E39D5D30C7B21CD795
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_278739.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 278 226
+
+George Harrison - My Sweet Lord   Isn’t It A Pity  1970  [FLAC 2.0 24 96|tracks  Vinyl-Rip
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1
+A - My Sweet Lord  04:35 
+Side 2
+B - Isn’t It A Pity  6:59 Жанр: RockПродолжительность: 00:11:38
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_278226.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 275 827
+
+Antonio Vivaldi - The Four Seasons  2008  [MLP 2.0, 4.0 96 24 |DVD-Audio  SACD-Rip ]<Class
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Classic Music , OrchestralПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F68931F50CC4CB096C1F0351624C2DE1B6AC9932
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_275827.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 269 645
 
 Pink Floyd - The Dark Side of the Moon  1973   Vinyl Rip 24 192  [FLAC|Lossless] <Rock>

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 556 384
+
+VA - Feelin  Good  2004  2xCD [FLAC|Lossless|image + .cue] <Pop, Rock, Disco>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+CD - 1:
+01. Billy Idol - Hot in the City
+02. Spice Girls - Say You ll Be There
+03. KC and The Sunshine Band - That s the Way  I Like It     Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 02:19:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:071754BBFA20739759F608C0A81AD71E713E487F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1556384.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 555 826
+
+Дора - MISS  2022  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Розовые волосы
+2. Автопилот
+3. Заставь
+4. La bohème    Читать дальше...    Жанр: PopПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:74CF23AFB6D8371C4F7EFD9CC3F1CC0576681EE8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555826.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 555 803
+
+Christina Aguilera - Aguilera  2022  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Ya Llegué [00:03:03]
+02 - Pa Mis Muchachas  feat. Nathy Peluso, Becky G, NICKI NICOLE  [00:03:36]
+03 - Somos Nada [00:03:01]
+04 - Santo  feat. Ozuna  [00:03:03]    Читать дальше...    Жанр: PopПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:10BBFBA1EC23459B07518708CBF16FFEDF4CA02A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555803.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 555 761
 
 Kiki Dee - 3 Albums  1977-1981  Reissue CD [MP3|320 Kbps] <Pop, Rock>
@@ -1918,81 +1993,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549323.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 549 310
-
-O.C.A - Ночной дожор  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Бездна
-2. Зайки
-3. 7 нот
-4. Море    Читать дальше...    Жанр: PopПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:65AE871AF500CED2047B0D0DF93BB15ED437D44F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549310.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 549 189
-
-VA - Summer Dance Party 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. ACRAZE - Do It To It  2:37 
-02. Elton John - Cold Heart  PNAU Remix   3:22 
-03. Jax Jones - Where Did You Go  2:57 
-04. Becky Hill - Remember  2:41     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:33:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FDE7DDDB1976F8886C80A24D99A65B2EF92FEC85
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549189.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 549 118
-
-VA - Disco Music  2021  [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Bee Gees - Stayin Alive  4:46 
-02. Kool & The Gang - Celebration  Single Version   4:57 
-03. Donna Summer - Hot Stuff  12   Version   6:41 
-04. Sylvester - You Make Me Feel  Mighty Real   6:35     Читать дальше...    Жанр: Dance, DiscoПродолжительность: 03:03:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6855E91651D9210D19845A5D7BDAE7F8E6708143
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549118.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,97 @@
 ﻿
+###  Публикация: 789 121
+
+Sam Smith - In the Lonely Hour  2014  Deluxe Edition [MP3|320 кб с]<Pop, R&B, Soul>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Money On My Mind  03:13 
+02. Good Thing  03:21 
+03. Stay With Me  02:53 
+04. Leave Your Lover  03:08 
+05. I m Not the Only One  03:59 
+06. I ve Told You Now  03:30 
+07. Like I Can  02:47 
+08. Life Support  02:53 
+09. Not In That Way  02:52 
+10. Lay Me Down  04:13     Читать дальше...    Жанр: Pop, R&B, SoulПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1A4A377230EB2F3DC1E612E5E26582D43FAD93C0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_789121.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 788 941
+
+Giuliano Palma - Old Boy  2014  [MP3|320 кб с]<Pop, Ska, Rocksteady>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ora Lo Sai  3:27 
+02. Cosi Lontano  3:03 
+03. Come Ieri  Feat. Marracash   3:27 
+04. Da Capo  3:59 
+05. Una Colpa  3:55 
+06. Un Bacio Crudele  3:23 
+07. 10 Passi  3:58 
+08. Il Cielo E Noi  3:49 
+09. Perfetti Sbagliati  3:39 
+10. L estate Arrivera  4:40     Читать дальше...    Жанр: Pop, Reggae, Ska, RocksteadyПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5C3180B4ED7D45C9F935BAE29FB38603A8D647A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 788 658
+
+Foxes - Glorious  2014  Deluxe Version [FLAC|Lossless]<Pop, Electronic, DancePop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Talking To Ghosts  4:22 
+02. Youth  4:19 
+03. Holding Onto Heaven  3:31 
+04. White Coats  4:06 
+05. Let Go For Tonight  3:58 
+06. Night Glo  4:25 
+07. Night Owls Early Birds  3:29 
+08. Glorious  4:21 
+09. Echo  4:04 
+10. Shaking Heads  4:47     Читать дальше...    Жанр: Pop, Electronic, DancePop, Adult Alternative, Pop-RockПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4EA4D352ECA93EA27DEA73B324D6A74529006551
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 788 504
 
 НЮША NYUSHA - Объединение  2014  [FLAC|Lossless]<Pop, Dancepop, R&B, Synthpop>
@@ -2294,99 +2387,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:3AF9E5CA46CAC812FBBA9DB4AABC2CB3CC7257C7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 771 686
-
-Tina Turner - Love Songs  2014  [FLAC|Lossless]<Pop, Soul>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. The Best
-02. I Dont Wanna Lose You
-03. Lets Stay Together
-04. Whats Love Got To Do With It
-05. Missing You
-06. Private Dancer
-07. Two People
-08. Look Me In The Heart
-09. Way Of The World
-10. Why Must We Wait Until Tonight    Читать дальше...    Жанр: Pop, SoulПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:37EF0821F89FEE0A87B8721CBC68EC3A676D48D4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 771 650
-
-Karmin - Pulses  2014  [FLAC|Lossless]<Pop, Dance, Electronic, Synthpop, Pop Rap, Disco>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Geronimo Intro  0:36 
-02. Pulses  3:24 
-03. Acapella  3:18 
-04. I Want it All  3:47 
-05. Night Like This  3:01 
-06. Neon Love  4:26 
-07. Drifter  3:14 
-08. Tidal Wave  3:48 
-09. Gasoline  3:38 
-10. Puppet  3:13     Читать дальше...    Жанр: Pop, Dance, Electronic, Synthpop, Pop Rap, DiscoПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B2323D03C11E18F431ED16DFDA05271EC9F9FE4E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 770 263
-
-One Direction - Up All Night  2011  [MP3|128 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. What Makes You Beautiful  3:18 
-2. Gotta Be You  4:04 
-3. One Thing  3:17 
-4. More Than This  3:48 
-5. Up All Night  3:12 
-6. I Wish  3:35 
-7. Tell Me A Lie  3:15 
-8. Taken  3:55 
-9. I Want  2:51 
-10. Everything About You  3:35     Читать дальше...    Жанр: PopПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80F6C2CE4B5CBB2A27D16FA6E22DF11D3D6BD300
 ```
 
 <div id="header" align="center">

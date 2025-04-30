@@ -1,4 +1,403 @@
 ﻿
+###  Публикация: 1 220 199
+
+Blackball Bandits - The Lost Mission  2018  [MP3|320 Kbps] <60 s Surf Rock, Instrumental>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Blackball Stomp
+02. The Lost Mission
+03. Great Sand Tune
+04. Slalom Under the Pier    Читать дальше...    Жанр: 60 s Surf Rock, InstrumentalПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:18E8ECC5361FBF6177E9C34873C789930F5DA98F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220199.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 164
+
+Tax The Heat - Change Your Position  2018  [FLAC|Lossless|tracks] <Classic Rock, Blues Rock, Har
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Money In The Bank
+02. Change Your Position
+03. Playing With Fire
+04. All That Medicine    Читать дальше...    Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E8A464446791AF31734B6F65DB8ED2185959BD70
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220164.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 130
+
+Большой Лебовски - Любовь  2018  [MP3|320 Kbps] <Grunge Blues Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Сестрички
+02. Летняя
+03. Футболист
+04. Зая    Читать дальше...    Жанр: Grunge Blues RockПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE91496022DB13371193AE8C4D82E3564E284B39
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220130.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 056
+
+Lacuna Coil - The Presence Of The Past  XX Years Of Lacuna Coil   2018  13CD Box Set [FLAC|L
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+Lacuna Coil — итальянская музыкальная группа, созданная в Милане в 1996 году и играющая музыку в стилях «готический» и «альтернативный метал». Прежние названия: Sleep of Right и Ethereal. По словам участников группы, на их творчество оказали сильное влияние такие команды как Paradise Lost, Tiamat, Septic Flesh и Type O Negative.Список альбомов:
+CD1 | The EPs - Lacuna Coil | Halflife
+CD2 | In A Reverie
+CD3 | Unlashed Memories    Читать дальше...    Жанр: Gothic Metal, Alternative Metal, Symphonic Metal |Продолжительность: 10:11:59 |
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C7946C6DCC23CA1A3F5ACB62B79F508EED1A226F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220056.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 009
+
+Becoming A Hero - Becoming A Hero  2018  [MP3|320 Kbps] <Alternative Rock, Female Vocal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Shame On You
+02. Checkmate
+03. We re Done
+04. War    Читать дальше...    Жанр: Alternative Rock, Female VocalПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:66AFE7AF41894553411BBDF9DD065196A77C6F4F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220009.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 003
+
+Ногу свело! - Материки моей планеты  2018  Live [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Идем на восток!
+2. Сибирская любовь
+3. Яйца фаберже
+4. Московский романс    Читать дальше...    Жанр: RockПродолжительность: 01:55:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:83C839AD33CA69A65BE4DA8F9E8A7194FBA54B8D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220003.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 979
+
+Blood Command - Cult Drugs  2017  [MP3|320 Kbps] <Alternative Rock, Deathpop, Hardcore>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Ctrl+Art+Delete
+02. Cult Drugs
+03. Quitters Don t Smoke
+04. Nervous Laughter    Читать дальше...    Жанр: Alternative Rock, Deathpop, Hardcore, Female VocalПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1652A2A2F9231F8BED84E6090ED6ECEFAD42F0A0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219979.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 896
+
+Stomper - Thrillers  2018  [MP3|320 Kbps] <Alternative Pop, Alternative Rock, Electronic>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Wishing Well  feat. Lucy Tops 
+02. Bag of Bones  feat. Grant Haua 
+03. Crazy
+04. Snake at the Window  feat. Lucy Tops     Читать дальше...    Жанр: Alternative Pop, Alternative Rock, ElectronicПродолжительность: 00:22:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F904E7B8210355D221C3C7099ECB38D75A8EA43D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219896.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 777
+
+Casino  Clive Nolan  - Casino  1992  Japan Press, 1994 [FLAC|Lossless|image + .cue] <Neo-Pro
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Prey  10:38 
+i  Prey
+ii  Overheard in Passing # 1  at the Bar 
+02. Crap Game  5:47     Читать дальше...    Жанр: Neo-Prog, Progressive Opera, Prog-RockПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9CB4A4BB0A30B21FAC40CB90764F6E71721D696D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219777.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 720
+
+Everly Brothers - The Very Best Of The Cadence Era  2005  [MP3|320 Kbps] <Rock & Roll, Pop Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Bye Bye Love  02:22 
+02. Wake Up Little Susie  02:03 
+03. Bird Dog  02:17 
+04. Claudette  02:15     Читать дальше...    Жанр: Rock & Roll, Pop RockПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B0EE16BFA7D3E651A36E8766DC5898684D8EB83
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219720.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 666
+
+Tamarisk - Breaking the Chains  2018  [FLAC|Lossless|tracks + .cue] <Neo-Prog>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. An Alien Heat  5:21 
+02. Royal Flush  4:08 
+03. M.O.J.O.  The Death of an American Prayer   6:42 
+04. No Room at the Top  6:50     Читать дальше...    Жанр: Neo-ProgПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E4872992B6FA3E85D975E085032B834CD991220D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219666.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 535
+
+Alcatrazz - 11 аlbums, 2 Box sets, 27 CD  1983-2023  Discography [FLAC|Lossless|image + .cue] <H
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+Alcatrazz - легендарная рок-группа, сольный проект бывшего вокалиста Rainbow Грэма Боннета. Группа была основана в 1983 году, в ее состав вошли, помимо Боннета, бас-гитарист Gary Shea, клавишник Jimmy Waldo, барабанщик Jan Uvena и молодой шведский гитарист-виртуоз Yngwie Malmsteen. За 3 года своего существования  1983-1986  Alcatrazz сумели завоевать немало поклонников     Читать дальше...    --------------------------
+
+01. Little Viper  4:40 
+02. Dont Get Mad...Get Even  3:57     Читать дальше...    Жанр: Hard Rock, Hard n Heavy |Продолжительность: 25:49:42 |
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:914036C197E3B2A88639C4D51257D56BE612E759
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219535.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 516
+
+Ted Nugent - 30 Albums  1975 - 2018   43 CD  [FLAC|Lossless|image + .cue|tracks + .cue] <Har
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+Ted Nugent  13.12.1948   - американский гитарист, вокалист, автор песен, продюсер. Его популярность пришлась на 70-е и начало 80-х годов прошлого века. Место его рождения - автомобильная столица США - Детройт или Motor City. Именно оттуда пошло сценическое прозвище музыканта - Motor City Madman - сумашедший из Детройта. Стиль игры музыканта определяется как агрессивный     Читать дальше...    1975 - Ted Nugent
+1976 - Free-For-All
+1977 - Cat Scratch FeverЖанр: Hard RockПродолжительность: 37:02:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F93CC243758DB4D1883D426719A44E65E613ACCC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219516.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 513
+
+Mike Score  of A Flock of Seagulls  - Zeebratta  2014  [MP3|320 Kbps] <Alternative Pop, Alte
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. All I Wanna Do
+02. Somebody Like You
+03. Angel
+04. Xtacy    Читать дальше...    Жанр: Alternative Pop, Alternative Rock, New Wave, ElectronicПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C0180BEEC3D58F62FF1B3DCAC22B3B69345114E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219513.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 453
+
+Bonfire - Temple of Lies  2018   [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+01. In The Beginning
+02. Temple Of Lies
+03. On The Wings Of An Angel
+04. Feed The Fire  Like The Bonfire     Читать дальше...    Жанр: Hard RockПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:928CCBC9668FA417B96C0D93A44128A2F9D979A5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219453.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 410
+
+F. Roses - The Prologue of Mythology  EP   2012  [FLAC|Lossless|image + .cue] <Melodic Power
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+1. The Prologue of Mythology 01:26
+2. Angels Are Calling 04:33
+3. Oceans of Sorrow 04:47
+4. Knights of Brave 04:18    Читать дальше...    Жанр: Melodic Power MetalПродолжительность: 00:31:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CE74241B0FE84FEACF8BFDE8B33B8BBA18861F3A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219410.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 219 301
 
 НОМ - Я тебя услышал  2018  [MP3|320 Kbps] <Rock>
@@ -1585,402 +1984,6 @@ Metal  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216833.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 826
-
-Alterbeast - Feast  2018  [FLAC|Lossless|image + .cue] <Technical Death Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01 - Welcome to Your Doom  3:09 
-02 - The Maggot s Ascension  3:41 
-03 - Black Flame Illumination  3:08 
-04 - Feast  4:12     Читать дальше...    Жанр: Technical Death MetalПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:53EBD50E3120DB1A128547FA66D313AD5AB24136
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216826.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 814
-
-Memoriam - The Silent Vigil  2018  [FLAC|Lossless|image + .cue] <Death Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Soulless Parasite
-02. Nothing Remains
-03. From the Flames
-04. The Silent Vigil    Читать дальше...    Жанр: Death MetalПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF0AB18A629911CB861B8F301B07A5A37DFB4912
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216814.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 800
-
-Primordial - 2 релиза  2018  [MP3|320 Kbps] <Folk Metal, Progressive Metal, Black Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2018 - Exile Amongst The Ruins
-2018 - Heathen Legacy  EP Жанр: Folk Metal, Progressive Metal, Black Metal|Продолжительность: 01:33:12 |
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E52CC9D9E47521FFAB0AB9078633587D21822BFD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216800.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 798
-
-Pitch Shifter - Submit  1992  [APE|Lossless|image + .cue] <Industrial Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Gritter
-02. Deconstruction
-03. New Flesh P.S.I.
-04. Bastardiser    Читать дальше...    Жанр: Industrial MetalПродолжительность: 00:57:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F4B9BA4BE797FF2C086B2E75627146D2FFA9A796
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216798.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 793
-
-Mortification - Hammer of God  1999  [APE|Lossless|image + .cue] <Death Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Metal Crusade
-02. Martyrs
-03. Lock Up The Night
-04. In The Woods    Читать дальше...    Жанр: Death MetalПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1A5700FBBE17E78DCAA43745D4BBF974EB1DF92A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216793.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 788
-
-Mortification - Blood World  1994  [APE|Lossless|image + .cue] <Death Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Clan Of The Light
-02. Blood World
-03. Starlight
-04. Your Life    Читать дальше...    Жанр: Death MetalПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80AAFCCAD89A1489257575D89DAEBF5BA244DEFC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216788.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 781
-
-Infestdead - JesuSatan  1999  [APE|Lossless|image + .cue] <Death Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Re-resurrection
-02. Christinsanity
-03. Born To Burn
-04. JesuSatan    Читать дальше...    Жанр: Death MetalПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DEF8BD9D1F89D53F66FC5C87B883E5FC7D30B31F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216781.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 780
-
-Derketa - In Death We Meet  2012  Not On Label [MP3|320 Kbps] <Metal, Doom Metal, Death Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-Derkéta - группа из города Питтсбурга, штат Пенсильвания, исполняющая музыку в стиле Doom Death Metal. Команда знаменита тем, что на протяжении всего ее существования большей частью состава были женщины, а также тем, что большинство своих релизов группа издает самостоятельно, без поддержки лейблов. Название команды взято из древнегреческой мифологии, где Деркето     Читать дальше...    01. Goddess of Death 10:11
-02. Obscurities of Darkness 6:28
-03. Rest in Peace 5:14
-04. Until Our Death 4:39    Читать дальше...    Жанр: Metal, Doom Metal, Death MetalПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DE1CC3E8F7CCFE2B3CDF7D737ACCDC18C96B5BA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216780.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 778
-
-Eidolon - Coma Nation  2002  [FLAC|Lossless|image + .cue] <Speed Metal, Power Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Nemesis	2:02
-02. Coma Nation	4:21
-03. Life Is Agony	4:41
-04. Scarred	7:12    Читать дальше...    Жанр: Speed Metal, Power MetalПродолжительность: 01:02:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A473B2AEA8A58EC69B5CDFDC51A1243143559C4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216778.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 777
-
-God Dethroned - Ravenous  2001  [APE|Lossless|image + .cue] <Blackened Death Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Swallow The Spikes
-02. The Poison Apple  Eve & Serpentio In The Garden Of Eden 
-03. Villa Vampiria
-04. Consumed By Darkness    Читать дальше...    Жанр: Blackened Death MetalПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BEC9867FCF06C578BEBC94D5A36E57A247653F6F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216777.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 756
-
-Realms Of Vision - Through All Unknown  2018  [MP3|320 кб с]<Stoner Metal, Progressive Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-[00:19] 01. Invoke
-[07:00] 02. State Of Silence
-[04:30] 03. Deception Mask
-[03:11] 04. Two Wolves    Читать дальше...    Жанр: Stoner Metal, Progressive MetalПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F5B5A355068900838926E7B14692EBE99EB63A25
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216756.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 737
-
-Myles Kennedy - Year Of The Tiger  2018  [MP3|320 Kbps] <Rock, Acoustic>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. Year of the Tiger  3:41 
- 02. The Great Beyond  4:50 
- 03. Blind Faith  4:29 
- 04. Devil on the Wall  3:44     Читать дальше...    Жанр: Rock, AcousticПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B216D70E0C195D960A1E81E21D500B939B73E2AB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216737.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 662
-
-Corruptedl - El Mundo Frio  2005  [FLAC|Lossless|image + .cue] <Sludge Doom Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. El mundo frioЖанр: Sludge Doom MetalПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4908CE11A37ED0817520F9F27C4977A746A129B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216662.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 642
-
-Ken Hensley - Rare and Timeless  2018  Compilation [FLAC|Lossless|WEB-DL|tracks] <Rock, Classic
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Free Me  *rare release*  4:10 
- 02. Send Me an Angel  previously unreleased  4:42 
- 03. If I Had the Time  5:14 
- 04. Guilty  2:58     Читать дальше...    Жанр: Rock, Classic Rock, Hard RockПродолжительность: 01:09:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EFA32357538849034AA0BCDB7FAFB8C38AF5C83D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216642.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 625
-
-Airborn - Lizаrd Secrets: Part Оne - Lаnd Оf The Living  2018  Japanese Edition [FLAC|Lossless|i
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Immortal Underdogs  Intro   1:26 
- 02. Who We Are  3:51 
- 03. Lizard Secret  4:38 
- 04. We Realize  4:26     Читать дальше...    Жанр: Heavy Metal, Power MetalПродолжительность: 01:02:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D21D8F41BBB75635FDF3E33B6B919E5F04EE8FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216625.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 216 602
-
-НАИВ - Make Naive Great Again  2018  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Предчувствие
-02. Сонет #7
-03. Трамп! Гоу эвей!
-04. Вовочка    Читать дальше...    Жанр: Punk RockПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36CF2C9A101EFE2DFD489D68B12631EA239FA96D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1216602.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

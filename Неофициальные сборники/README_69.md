@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 350 258
+
+VA - Лучшие из лучших: Top 100 хитов радиостанций за 2019  2020  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Tones and I - Dance Monkey 3:30
+002. Platon & Joolay - Over 4:20
+003. МЭВЛ - Патамушка 2:19
+004. The Black Eyed Peas & J Balvin - RITMO  Bad Boys For Life  3:42    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:29:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B3F979281D2F53404B8A712D1DE338518001D3D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350258.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 350 217
+
+VA - The Official UK Top 40 Singles Chart 03.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Stormzy - Own It  Feat. Ed Sheeran & Burna Boy  3:37
+02. Lewis Capaldi - Before You Go 3:36
+03. Dua Lipa - Don t Start Now 3:03
+04. Arizona Zervas - Roxanne 2:44    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:09:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B1B2C450548C34449B32C22A56ABDC0C23D3FA52
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 350 207
+
+Zarina Tilidze - Hit Collection  2019  [MP3|320 Kbps] <Pop, Lyric>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01 Leto Nad Dvoih
+02 Ya I Ti
+03 Amore
+04 Angel Moi    Читать дальше...    Жанр: Pop, LyricПродолжительность: 02:44:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F679D45489599D327216E461F08F7934D1C139EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350207.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 350 154
+
+VA - Record Super Chart 619  2020  [MP3|320 Kbps] <Pop, House, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+1.Tones and I - Dance Monkey  DJ Noiz Remix   4:00 
+2.SAINt JHN - Roses  Imanbek Remix   3:58 
+3.Audiosoulz - Dancefloor  3:13 
+4.Meduza feat. Becky Hill & GOODBOYS - Lose Control  2:48     Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7BAD55D0F9C9A7CC4DBCFCFFD2C94C1FBCE5753F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350154.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 350 018
 
 VA - German Top 100 Single Charts 03.01.2020 [MP3|320 Kbps] <Pop>
@@ -1897,106 +1997,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345224.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 345 223
-
-VA - Sphinx: Synth Electronica  2019  [MP3|320 Kbps] <Electronic, Syntheti>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Z · Axis - Voluptous
-002. Geomatic - Shadow World
-003. Asc - Scattered Mind
-004. Dmitry Molosh - Only U  Original Mix     Читать дальше...    Жанр: Electronic, SynthetiПродолжительность: 11:11:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E1ABFC0D02D32496F02462B611A753D21A6B14AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345223.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 345 222
-
-VA - Sweet Green Dreams: Natural Relaxed Mix  2019  [MP3|320 Kbps] <Chillout, Ambient, Downtempo
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Afterlife Feat. Cathy Battistessa - Speck Of Gold
-002. For The First Time - Jules Calmer
-003. Madhukar - When Love Rules
-004. Cream Lounge - Balearica Del Mar    Читать дальше...    Жанр: Chillout, Ambient, DowntempoПродолжительность: 08:35:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4FA003FC77448C120292047AA2313D5FAC6F2ECF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345222.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 345 209
-
-VA - ЕвроХит Топ 40 Europa Plus 13.12.2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1.SAINt JHN - Roses  Imanbek Remix   2:55 
-2.Regard - Ride It  2:37 
-3.FILV & Edmofo feat. Emma Peters - Clandestina  2:28 
-4.Tones And I - Dance Monkey  3:29     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:06:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA2D43681E16F10325ACCB40632B72CB743F356D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345209.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 345 185
-
-VA - Remixes 2020 NNM  2019  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Adam - Нелегальная  2:52 
-02. Anella feat Arash vs Struzhkin vs Tarantino & Dyxanin- Chori Chori  DJ ZIROV MASH   3:47 
-03. B.O.B Feat. Hayley Williams - Airplanes  Soul Beast Remix   2:39 
-04. Billy Ray Cyrus, Lil Nas X - Old Town Road  Remix   2:37     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 09:06:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9077CE7226C4E7D68E988B0C0EF331E87301D729
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345185.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

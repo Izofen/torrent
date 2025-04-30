@@ -1,4 +1,108 @@
 ﻿
+###  Публикация: 867 681
+
+VA - Дискотека С Размахом  Vol.7   2015  [MP3|~252 кб с]<Pop, Dance, Club, Electro>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Section 1 - Hard Stuff  Axel Coon Radio Edit   03:54 
+002. Comis - Turn Around  radio edit   03:41 
+003. Ansy & Night drive Project - But There Was A Time When You Feared To Tell Her “Hi”  03:48 
+004. Adam & Eva - Счастье в ладонях  04:00 
+005. Endrudark - I Want To Dream  06:09     Читать дальше...    Жанр: Pop, Dance, Club, ElectroПродолжительность: 04:04:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E057C0DEB09A13A732B714AA452F194B5726D7D8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 867 638
+
+VA - Дискотека С Размахом  Vol.6   2015  [MP3|~248 кб с]<Pop, Dance, Electro>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. DJ Divine Son feat. DJ Sector - King Of Energy  Original mix   03:30 
+002. Adam & Eva - Mono  03:47 
+003. Alex Alter-A - Crooked Mirrors  06:34 
+004. Deepmidi - With You  07:19 
+005. Eva Kade - Pushing Hands To The Heaven  Platinum Monkeys Remix   07:03     Читать дальше...    Жанр: Pop, Dance, ElectroПродолжительность: 04:25:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6BB7EDED7F0B5A568793E357443FE1805766823E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 867 564
+
+Hi-Fi - Greatest Hits  2006  [MP3|320 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01.Call Me Misha
+02.Don t give up
+03.Georgia
+04.Арабика
+05.Беда    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5C50AC638F17AE6ED0FEC3D9D4443BBB45E192E5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 867 559
+
+VA - Dr. Metal Presents: Vol.3  2015  [MP3|224 кб с]<Heavy, Speed, Power Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001-Sinner-A Question Of Honour
+002-Dragonforce-Chemical Interference
+003-Battle Beast-Speed and Danger
+004-Cryonic Temple-Heavy Metal Never Dies
+005-Crystal Eyes-Hail The Fallen    Читать дальше...    Жанр: Heavy, Speed, Power MetalПродолжительность: 07:17:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E68F220F21BFBC06E4EF47534E3344CA6D8B84C1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 867 551
 
 VA - Dr. Metal Presents: Vol.2  2015  [MP3|224 кб с]<Heavy, Speed, Power Metal>
@@ -2177,130 +2281,6 @@ Electronic  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:A4185DD3478676E07FC25759027AC809703E5A63
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 862 127
-
-VA - Best-of-ka Super-Hits  2015  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Lena Katina - Fed Up 03:17
-002. Би-2 Feat. Elizaveta And Валерий Гаина - Музыка Без Причин 04:35
-003. Meghan Trainor - Lips Are Movin 03:02
-004. Global Deejays - Kids 05:43
-005. Samoel Feat Tiana - Не Вспоминай Не Жди 04:06
-006. Keen  V - Ca Va Le Faire 03:09
-007. Tokio Hotel - The Heart Get No Sleep 03:50
-008. Alisa Geliss - Winter Is Here 03:08
-009. Jay Sean - Tears In The Ocean  Candle Light Version  03:23
-010. DJ Prostyle feat. Jay Sean - One Night 03:06    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:21:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0DC71CCBEF6DEEEADBC24BB7BC9C318E502F74D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 862 035
-
-VA - Любимая музыка для твоей тачки  2015  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Тина Кароль - Мы Не Останемся Друзьями
-002. Dami Im - Heart So Dry
-003. Iggy Azalea & Rita Ora - Black Widow
-004. Mikaela Coco - Used To Know
-005. B Robin - Sleep On It
-006. Би-2 Feat. Elizaveta And Валерий Гаина - Музыка Без Причин
-007. Jessica Mauboy - Can I Get A Moment
-008. St1m - Закон Стаи
-009. Professor Green Feat. James Craise - Dead Man s Shoes
-010. Иван Дорн - Номер 23    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:13:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F05DDB039B5BE68F3ADDF889850229C8D2CA2648
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 862 029
-
-VA - Популярные треки. Зимний Top 100 - 3  2015  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Юлия Беретта - С Новым Годом Друзья
-002. Peking Duk Feat. Safia - Take Me Over
-003. Инфинити - Мое Счастье
-004. Мері - Goodbye Russia
-005. Иракли - Не Любишь
-006. David Heartbreak Feat. Skylar Grey - Tonight
-007. Dj Noiz Feat. Asti - Зацелую
-008. Emin - Начистоту
-009. Magic! - I Would
-010. 140 Ударов В Минуту - А Я Иду По Осени    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:12:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:67D9FD9563584E015CF934EA16F2FA9773432B1E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 862 023
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72  Зарубежный выпуск - 6   2015  [MP3|320
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. C.C.Catch - Stay  Maxi Version 
-02. Monte Kristo - Lady Valentine  Extended Vocal 
-03. Fun Fun - Colour My Love  Club Mix 
-04. Culture Beat - Mr.Vain  Vain Mix 
-05. Level 42 - Lessons In Love  Remix 
-06. Joy - Japanese Girls  Sky Mix 
-07. Bad Boys Blue - Save Your Love  12   Mix 
-08. T.Ark - How Old Are You  12   Vinyl Maxi 
-09. Fancy - L.A.D.Y.O.  Extended Version 
-10. DJ s Project - Birthday Girl  DJ-Dance Mix     Читать дальше...    Жанр: Eurodance, Dance, DiscoПродолжительность: 04:39:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:47EB84B3DD38EB430C48AE9A8F5C153FEDEE1145
 ```
 
 <div id="header" align="center">

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 315 695
+
+VA - Popular Hitzone Music  2019  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Goldfrapp - Twist  Dimitri Tikovoi Remix 
+002. Anouk - Lente
+003. Cher - The Name Of The Game
+004. Clara Ysé - Fées Magnétiques    Читать дальше...    Жанр: PopПродолжительность: 11:03:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:79D4CD1D92A548CEE939F6211DAB9EE8A161B7D2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315695.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 687
+
+VA - Frozen Angel: Metal Owerview  2019  [MP3|320 Kbps] <Heavy, Black Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Fates Warning - Monument
+002. Primal Fear - Apocalypse
+003. Godsmack - When Legends Rise
+004. Harvest Their Bodies - Revelation    Читать дальше...    Жанр: Heavy, Black MetalПродолжительность: 09:04:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:141B7203A40895D93D7ED8ECD3C82BAB1697011A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315687.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 533
+
+VA - Blues Forever, Vol.91  2019  [MP3|320 Kbps] <Blues>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Jim Kahr - Big City Struggle  3:54 
+02. Simon Kinny-Lewis - Goodbye Baby  3:54 
+03. Robbert Fossen Band - Still Called The Blues  3:36 
+04. Midnight Johny - Spy Boy  5:22     Читать дальше...    Жанр: BluesПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B90E4EB58EE07BD500FF1D80F8D135C283770C64
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315533.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 453
+
+VA - ЕвроХит Топ 40 Europa Plus 19.07.2019 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Daddy Yankee feat. Katy Perry & Snow - Con Calma  Remix  3:01
+02. Ed Sheeran & Justin Bieber - I Don t Care 3:40
+03. Drenchill feat. Indiiana - Freed From Desire 3:40
+04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road  Remix  2:37    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7E1E57F2857670C3B69AB73641D7ECEF63B50C02
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315453.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 315 350
 
 VA - Sin Compromiso: Indie Punk Rock  2019  [MP3|320 Kbps] <Indi, Punk Rock, Alternative>
@@ -1894,105 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312234.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 312 188
-
-VA - Best Deal The General DJ Evolution  2019  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Shaun Frank ft. Lexy Panterra - Where Do You Go  Original Mix  Smassh Cut Clean
-002. SACHI - Sparking My Fire  Original Mix  Smassh Intro Clean
-003. Ozuna ft Dozi - Si No Te Quiere  DJ Nasa VIP Redrum   Clap In - Clean 
-004. Mark Knight - The General  Original Mix  Clean CK Cut    Читать дальше...    Жанр: Pop, DanceПродолжительность: 08:40:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F4E852BD291D27C75B4202ED4FF31ADEAEB96833
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312188.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 312 140
-
-VA - не Громкие новинки недели 23  2019  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1.Archi-M feat. Самира - Ты и Я  3:43 
-2.Arkay - Причал  2:35 
-3.Asammuell - Несправедливо  2:51 
-4.Doni feat. Джоззи - Люби Меня Люби  3:12     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:43:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C7FEA70DE24F4FFECB0115577F3A25579A21EF31
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312140.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 312 026
-
-VA - German Top 100 Single Charts 05.07.2019 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-1.Capital Bra x Samra - Tilidin  2:52 
-2.Shawn Mendes & Camila Cabello - Señorita  3:11 
-3.Lil Nas X - Old Town Road  feat. Billy Ray Cyrus Жанр: PopПродолжительность: 05:14:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:180455DD6F647C0072CD90691645FA98310715F3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312026.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 312 014
-
-VA - Vertigo: Premium Techno Set  2019  [MP3|320 Kbps] <Techno, Minimal, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. D. Deep - Tech or
-002. Alan Carter - Brain  Original Mix 
-003. Nik Feral - Propersition  Original Mix 
-004. R.V.O - Merlin 500    Читать дальше...    Жанр: Techno, Minimal, ElectroПродолжительность: 11:11:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:42B94F2EC0B4AC211411B8D27AF0D2E85BF2A819
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312014.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

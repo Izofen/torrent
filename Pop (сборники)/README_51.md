@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 343 207
+
+New Mexico - New Mexico  1980  LP [MP3|320 Kbps] <Funk, Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Take It To Your Limit  4:36 
+02. It s Love  4:00 
+03. Skate With Me  3:21 
+04. Get Up And Dance  3:13     Читать дальше...    Жанр: Funk, Soul, DiscoПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4CA4F55004E02BB994CB0655E970D04A0DEA0ADC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343207.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 192
+
+VA - Blow Up Disco Vol 6 : Nu-Disco & Italodisco Grooves From Blow Up Disco  2019  [FLAC|Lossles
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Barbara Billet – Babies Blue  mix version   6:50 
+02. Barbara Billet – Babies Blue  Babie version   4:25 
+03. Barbara Billet – Babies Blue  Help version   2:33 
+04. Iloveu – I Just Wanna Tell You Baby  Friends In Love mix   6:20     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F55DA780220E8659D491AC8A0150D6FEC142689
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343192.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 185
+
+VA - Blow Up Disco Vol 5: Italo Heaven  A Sexy Selection Of Italodisco!   2019  [FLAC|Lossle
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Mikron s – Vision  instrumental Italo version   7:06 
+02. Mikron s – Vision  Club mix   7:29 
+03. E.B. 87 – Song Of Love  Italo mix   4:54 
+04. E.B. 87 – Easy Love  4:20     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:207A1B3A2B4502E60EBDE29CDA7EF824FF009F57
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343185.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 343 180
 
 VA - Blow Up Disco Vol 4: A Taste Of Blow Up Disco & Italo Instrumentals  2019  [FLAC|Lossless|W
@@ -1915,81 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339451.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 444
-
-VA - Take On Me: 80s Anthems - The Ultimate Collection  2019  5CD [MP3|320 Kbps] <Pop, Disco, Ro
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD 01:
-
-01.A-Ha - Take On Me
-02.Nena -  99 Red Balloons    Читать дальше...    Жанр: Pop, Disco, RockПродолжительность: 06:18:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:22A65875B2588A5913C13DCEC7200C50D6A2AA2F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339444.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 269
-
-VA - Top 40 Latino Caliente  The Ultimate Top 40 Collection   2019  [FLAC|Lossless|tracks +
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD1:
-01. Luis Fonsi - Despacito
-02. Shakira feat. El Cata - Rabiosa
-03. Alvaro Soler - La Cintura    Читать дальше...    Жанр: Latin Pop, Electro, DanceПродолжительность: 02:22:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0263335B4E170A0FFE5560642EBAAB646693FD17
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339269.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 268
-
-Мохито - Refresh  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Разрывай танцпол
-2. Незаменимых нет
-3. Smoking My Life
-4. Жёлтое такси    Читать дальше...    Жанр: PopПродолжительность: 00:32:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AD799A64A536762FECED71765AC1D4EF87A67115
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339268.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 615 392
+
+VA - Romantic Collection: Лирика  1999  [OGG Vorbis|480 Kbps] <Pop, Folk, World, & Country>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Несчастный Случай-Генералы Песчаных Карьеров
+02 - Алсу-Зимний Сон
+03 - Моисеев Борис-Глухонемая Любовь
+04 - Пугачёва Алла-Не Отрекаются Любя    Читать дальше...    Жанр: Pop, Folk, World, & CountryПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0DB0C143EC757E40B39B97A2EF3C92EC56F5CFDC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1615392.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 615 279
+
+Adam Lambert - High Drama  2023  [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Holding Out for a Hero  03:50 
+02. Chandelier  03:44 
+03. Ordinary World  03:20 
+04. Getting Older  04:24     Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC6EB9698B2326DE5A727D114645F9BCF92CC762
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1615279.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 614 989
+
+Tommy Seebach - Instrumental  2010  CD, Compilation [MP3|320 Kbps] <Electronic, Synth-pop, Disco
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Walk Don t Run  2:43 
+02. El Bimbo  2:45 
+03. Wipe Out  2:25 
+04. I Will Return  3:20     Читать дальше...    Жанр: Electronic, Synth-pop, Disco, SchlagerПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E97BD1E4EBC2B839CC7A9FDF59DD1B77A0B4E07
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1614989.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 614 796
 
 Hortenzia - 4 Releases  2019-2023  [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1922,81 +1997,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608727.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 608 284
-
-Gabriella Laberge - Etrangere  2019  [MP3|320 Kbps] <French Pop, Synthpop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Etrangere
-02. Run Away
-03. On Cherche Encore  Never Get Enough 
-04. Je Reve    Читать дальше...    Жанр: French Pop, SynthpopПродолжительность: 00:49:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36A22A3258008059B3EA0070F528118F5C9BADD4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608284.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 608 194
-
-Ricchi E Poveri - Mamma Maria  1986  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Ciao Italy, Ciao Amore
-02. Sara  Perche  Ti Amo
-03. Made In Italy
-04. Ninni Nanna    Читать дальше...    Жанр: PopПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8746EC21512E8FB8C531B821AE84B317E1CBE342
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608194.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 608 133
-
-VA - soft pop 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Benson Boone - Before You  3:07 
-02. Ed Sheeran - Celestial  3:29 
-03. Omar Apollo - Evergreen  You Didn t Deserve Me at All   3:36 
-04. Zach Bryan - Something in the Orange  3:48     Читать дальше...    Жанр: PopПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:256B365434D9DE4038B0E9A85D3AEB1E74376F2A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1608133.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

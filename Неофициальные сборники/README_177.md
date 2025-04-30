@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 967 936
+
+VA - Sunlight Project: Vocal Trance Solar Mix  2015  [MP3|320 кб с] <Vocal, Progressive Trance
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. IRA Ft. Sarah Russell - Constant Invasions  Genesis Remix 
+02. Lange ft. Ilseviolin - Violin s Revenge  James Dymond Remix 
+03. Sunlight Project - I Keep Calling You  original mix 
+04. Tritonal feat. Cristina Soto - Piercing Quiet  Super8 & Tab Remix     Читать дальше...    Жанр: Vocal, Progressive TranceПродолжительность: 07:52:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A31DDD83E45475364E7ECD54D6FE211DDF426019
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967936.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 967 753
+
+VA - The Best Of Surf Rock & Spaghetti Western  2015  [MP3|224-320 кб с] <Country, Instrumenta
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Dick Dale - Miserlou [02:14]
+02. Merv Griffin With Charles Grean Orchestra - House Of Horrors [01:57]
+03. The Woodies - Diamonds [02:24]
+04. Barbacoa - Gorilla Monsoon [01:56]    Читать дальше...    Жанр: Country, Instrumental, Surf Rock, Spaghetti WesternПродолжительность: 02:37:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:59D11285A418DD48CA3CE3129D6EF8A5180F4166
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967753.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 967 736
+
+VA - Стая белых голубей. Академия хитов шансона  2015  [MP3|256 кб с] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Геннадий Ура - Эх босяцкая ты доля
+002. Александр Яременко - Хорошо
+003. Павел Яцюк - Электричество
+004. Виктор Петлюра - Мужские cлёзы    Читать дальше...    Жанр: ШансонПродолжительность: 06:38:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F5409201D5FDD07626D352F377F04D7022D2BAA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967736.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 967 684
+
+VA - Chill Out  2015  [MP3|320 кб с] <Downtempo, Chillout, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Sylvain Poge - Three Nights of Siddaharta [04:39]
+02. Fowler And Branca - Way Out West [04:45]
+03. Aung Win - Thi Lar Mjei Jan [03:10]
+04. Gioari - Progression Dance Between Earth and Sky [06:39]    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:49:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD310095D21FD336C22753AAB20BB72D3C10F1AC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967684.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 967 649
 
 VA - Levitation: Easy Listening And Chillout Party  2015  [MP3|320 кб с] <EasyListening, Chill
@@ -1887,105 +1987,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_962967.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 962 960
-
-VA - Top 100 Deep House  November   2015  [MP3|320 кб с]<Deep House,Club House, House, Ind
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Ace Of Base - All That She Wants  Abhishek Negi Remix 
-02. Ahmet Kilic, Stoto - Swept Away  Original Mix 
-03. Alekseev - Пьяное Солнце  Roma Pafos Extended 
-04. Alex Hill - Regen The Sky  Original Mix     Читать дальше...    Жанр: Deep House,Club House, House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech HouseПродолжительность: 09:54:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:21E1493AC8B10784E6320EFA3BBFD6A75943411E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_962960.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 962 952
-
-VA - Top 100 Club Tracks  November   2015  [MP3|320 кб с]<Club House, Vocal House, House,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Adele - Hello  Ryan Kenney Remix 
-02. Afrojack Ft. Pitbull & Mike Taylor & Gumanev & Shishkov - Summer Thing  ATOM MIX MASH UP 
-03. Agua Sin Gas By Antoine Clamaran - Oh Yeah  Original Mix 
-04. Alex Hill - Regen The Sky  Original Mix     Читать дальше...    Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 08:05:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7966CCC69461906C1EF2183906F258C25BC788C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_962952.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 962 947
-
-VA - 50 Shades of Jazz  2015  [MP3|320 кб с]<Jazz, Jazz Fusion, Smooth Jazz, Vocal Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Louis Armstrong - A Fine Romance  03:56 
-02. Diana Krall. Jeff Hamilton. John Clayton - Let s Fall In Love  04:19 
-03. Grant Green - Take These Chains from My Heart  Remastered   06:12 
-04. Stanley Turrentine - The Look of Love  Remastered   06:03     Читать дальше...    Жанр: Jazz, Jazz Fusion, Smooth Jazz, Vocal JazzПродолжительность: 03:58:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:812C5978D391B82543C8F9EDD001BE57A0DCF005
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_962947.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 962 944
-
-VA - In the Club 2016.1  2015  [MP3|256 кб с]<Dance, Club, House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Robin Schulz - Sugar  feat. Francesco Yates  03:40
-02. Deorro & Chris Brown - Five More Hours  Radio Edit  03:33
-03. Tiesto & KSHMR - Secrets  feat. Vassy Жанр: Dance, Club, HouseПродолжительность: 05:36:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E942FBDD50BE00AA22F9F7EDF5F4E4839704538B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_962944.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 768 741
+
+VA - Enigmatic World (2024) [MP3|320 Kbps] <Enigmatic, New Age, Electro>
+Неофициальные сборники
+Instrumental/New Age/Meditative/Relax (сборники)
+
+###  Подробнее
+
+001. Oliver Shanti & Friends - Sacral Nirvana (radio edit) [05:45]
+002. Lenny Mac Dowell - Red Buddha [12:35]
+003. Enya - May It Be [03:31]
+004. Era - Ameno (Remix) [03:50](   Читать дальше...   )Жанр: Enigmatic, New Age, ElectroПродолжительность: 06:00:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21C5C98E27E915C34DF64930893F9BAF0BD91039
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768741.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 768 699
+
+VA - SAW 2 ((2005-2024)) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+001. Alter Bridge - Blackbird
+002. Blue Stahli - Anti You
+003. Corroded - 6 Ft. Of Anger
+004. Deftones - Change(   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, Progressive RockПродолжительность: 07:05:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E4DD8DE945A6E655774CC58AAF79BEA3F0BE00C1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768699.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 768 559
+
+VA - Новогодняя ночь хитов (2024) [MP3|320 Kbps] <Pop, Christmas>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Александр Добронравов, Варвара - Белая зима [03:24]
+002. Альфия Тагирова - Полёт В Новый Год [02:09]
+003. Игорь Николаев, Юлия Проскурякова, Вероника Николаева - Я люблю эту зиму [03:05]
+004. Константин Кожевников - Девушка Хочет Дедушку (feat. МПВ Бэнд) [03:10](   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 05:20:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:25B7985585E924566B4C95FDAD7D0050532D7DA8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768559.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 768 301
+
+VA - Sensual Sexy Songs 2 (2024) [MP3|320 Kbps] <Pop, R&b, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. Dua Lipa - Love Again (4:18)
+02. Kept Secret - 2's Forever (2:50)
+03. Labrinth - Mount Everest (2:37)
+04. ZHU - Faded (3:43)(   Читать дальше...   )Жанр: Pop, R&b, OtherПродолжительность: 02:53:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4483E748E684D25A9F3FB47D28C7067451CD84ED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768301.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 768 139
 
 Eric Clapton - Compilation (1966-2024) [MP3|320 Kbps] <Rock, Blues>
@@ -1891,106 +1991,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760942.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 885
-
-Kasimoff - Compilation Cd 1 (2024) [MP3|320 Kbps] <Electronic>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01.  Midnight
- 02.  Enigma
- 03.  Like You
- 04.  Cosmic(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:53:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4F38E8075FB7869119D61E890DCC72AB10B73D55
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760885.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 875
-
-3 Doors Down - Collection (2000-2016) [MP3|320 Kbps] <Hard rock, Alternative rock, Post-grunge>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-01. Away From The Sun (Away From The Sun 2002)
-02. Back To Me (Time Of My Life 2011)
-03. Be Like That (The Better Life 2000)
-04. Be Somebody (Seventeen Days 2005)(   Читать дальше...   )Жанр: Hard rock, Alternative rock, Post-grungeПродолжительность: 02:29:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:268210A3627C787C03F3D3F8C025E2D22CF849B1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760875.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 790
-
-VA - Music News For Forum vol.043 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Nessa Barrett - Aftercare (01:34)
- 002. Akatsky - Свет и тень (02:02)
- 003. Akmal' - Где-то там (02:19)
- 004. Alex Menco - Memories (02:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:46:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF28A299E91FBBA261B4A45CF2324D5AF29DF9CA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760790.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 698
-
-VA - Melodic Techno 2 2024 [MP3|320 Kbps] <Melodic Techno>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Asher Swissa, Y do I - AMEN (4:30)
-02. Siks - Without You (2:44)
-03. John Summit, HAYLA, Cassian - Shiver (Cassian Remix) (4:05)
-04. Dada Life - 5 Notes From Paradise (3:32)(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 04:34:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C6EB001FF2872E21ADA9114B6F00C2F92EDD67E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760698.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

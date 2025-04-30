@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 041 571
+
+VA - Beatport Trance Pack  08.08.   2016  [MP3|320 Kbps] <Trance,  Progressive, Uplifting Tr
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Kaimo K, Sarah Russell  -  Why Can t You Love Me  Original Mix   6:50
+002. Amo R  -  Viracocha  False 9 Remix   4:44
+003. U-Mount  -  Guard  Original Mix   6:40
+004. Obi  -  Directions  Original Mix   7:05    Читать дальше...    Жанр: Trance,  Progressive, Uplifting TranceПродолжительность: 12:10:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:14CC99A08A5137361324F34E6B757B0ADF933653
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1041571.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 041 546
+
+VA - Sexy Deephouse Selection  2016  [MP3|320 Kbps] <Deep House, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. El Nicoya - Lo Que Mueves [00:06:56]
+02. Shivana Faction - Prime Position [00:07:38]
+03. Spiced Boogie - Upscale [00:05:59]
+04. Unexpected Marvel - Plug and Play [00:06:35]    Читать дальше...    Жанр: Deep House, HouseПродолжительность: 02:14:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B57D22D1B082E11DD46093C2CB3041F454D8F960
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1041546.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 041 541
+
+VA - Summer Hits 100 Empire  2016  [MP3|320 Kbps] <House, Progressive, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Jewelz & Sparks  -  Drip  2:34
+002. Jordi MB & Jason Rene  -  You  Extended Mix   4:16
+003. Dino Sor  -  Pump It Up  Original Mix   5:21
+004. John Legend  -  All Of Me  Tiesto s Birthday Treatment Remix   Radio Edit   4:12    Читать дальше...    Жанр: House, Progressive, DanceПродолжительность: 07:32:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A8517668D4C112BF828055CE7BCF62EB795414CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1041541.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 041 492
+
+VA - Running Hits Summer Edition  2016  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Mike Posner - I Took A Pill In Ibiza  Seeb Remix 
+02. Imany - Don t Be So Shy  Filatov & Karas Remix 
+03. Kygo feat. Parson James - Stole The Show
+04. Kungs & Cookin  On 3 Burners - This Girl    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:48:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CFF295C4439B42E60D04C5D0F9F5E747CCA09B78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1041492.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 041 490
 
 VA - We Love Summer  2016  [MP3|320 Kbps] <Pop>
@@ -1897,106 +1997,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1039564.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 039 549
-
-VA - Русский хит отрыв №3  2016  [MP3|256 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Виа Гра - Так Сильно
-02. Reflex - Говори Со Мной
-03. Andy Rey - Любви Ноль
-04. Алексей Завьялов Feat. Анна Дуванова - Моя Любовь    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73BA093182316F658E8D8DA904AB4E9DCFFB62BA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1039549.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 039 538
-
-VA - Best Hits Hot Eternal Sound  2016  [MP3|320 Kbps] <House, Dance, Club>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Bad Boys Blue -  You re a Woman  Reloaded Album Version  3:05
-002. DJ Smash & DJ Miller feat. Anya -  Angels  Radio Edit  3:36
-003. Global Deejays & Frontload -  Get Up!  Radio Edit  3:07
-004. Pullbaxx & C.R. Easy -  Waves of Time  Bigroom Edit  3:54    Читать дальше...    Жанр: House, Dance, ClubПродолжительность: 12:48:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18074F3436D8B1F48BAF1B3EC9ABADBEDF011A4B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1039538.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 039 537
-
-VA - Top 100 Зайцев Нет Июнь 2016  [MP3|160-320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Потап и Настя – Умамы
-2. Ханна – Омар Хайям
-3. Светлана Лобода – К Чёрту Любовь!
-4. Quest Pistols – Непохожие    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:02:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E60CD428733AD5C5B3121E0F7401B331C0241219
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1039537.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 039 478
-
-VA - LUXEmusic - Топ Июль  2016  [MP3|320 Kbps] <Club House, House Music, Mash Up>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.	Alekseev - Снов осколки  Astero Club Remix 
-02.	Andrey Keyton & Sharapov feat. Tinaya - I Want You Soul  Original Mix 
-03.	Andry B & JJ - Fallen  DJ Favorite Official Remix 
-04.	Artik & Asti - Я твоя  DJ Zarubin Remix     Читать дальше...    Жанр: Club House, House Music, Mash UpПродолжительность: 03:15:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A0935E37EDD6C48EEFAD25560D37C0C467C87B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1039478.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

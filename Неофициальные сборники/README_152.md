@@ -1,4 +1,103 @@
 ﻿
+###  Публикация: 1 045 014
+
+VA - The Latest Summer Hits  2016  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Lalla - Season Of Love  Astero Remix 
+02. Mia Martina vs Saxattack - Tu Me Manques  DJ Kapuzen & DJ Micky Rossa Mashup 
+03. DiscoVer vs Kirillich & Pride - Paradise Side  Markiza Mash Up 
+04. A-Ha - Take On Me  Yastreb Radio Edit     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:40:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBB0BDA32F07F02A5960F4ADF473AB7CE4370425
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1045014.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 045 002
+
+VA - The Italian Smooth Jazz All-Starz  2016  [MP3|320 Kbps] <Smooth Jazz>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Rocco Ventrella - Swagger  feat. Greg Manning, Michele Violante, Andre Berry & Gorden Campbell   04:11 
+02. Renato Falaschi - Following My Soul  feat. Claude Salmieri, Philippe Gonnand, Remy Roux-Probel & Pat West   05:05 
+03. Papik - S. Francisco Mood  feat. Nerio Poggi, Massimo Satta, Alessandro Sanna, Alessandro Pizzonia, Simone Talone & Fabio     Читать дальше...    Жанр: Smooth JazzПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41DC37339AE6CCFFB9D6276F0BDAB07F287095C8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1045002.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 044 993
+
+VA - Club Dance Ambience Vol.83  2016  [MP3|320 Kbps] <Dance, Club, Club House, House, Electro H
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001.ABBA - Gimme Gimme Gimme  Maurice West Bootleg 
+002.ADAGIO & ANIELLO - Just The Funk  Extended Mix 
+003.ADAGIO & ANIELLO - Just The Funk  Original Mix 
+004.Alekseev - Снов Осколки  Shnaps Remix     Читать дальше...    Жанр: Dance, Club, Club House, House, Electro House, ElectroПродолжительность: 07:17:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0463769933C8D350B4FF2F1F8824F9A4009D8A93
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044993.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 044 982
+
+VA - Авто Хит на радио Шансон 6  2016  [MP3|256 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Кест & Олег Безъязыков - Не Из Золота
+002. Макс Волга - Я Маленький Человек
+003. Михаил Бородин - Старый Альбом
+004. Стас Михайлов - Девочка Лето    Читать дальше...    Жанр: ШансонПродолжительность: 06:10:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5E48314162FD4BE16468BDD0D8C672E65C1437B9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044982.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 044 971
 
 VA - Disco Дача. Лучшее  2016  [MP3|128-320 Kbps] <Pop, Disco, Dance>
@@ -1894,106 +1993,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1043327.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 043 323
-
-VA - Зажги Под Летние Хиты 8  2016  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Аркадиас - Здравствуй Любовь Моя
-002. Slider & Magnit Feat. Penny Foster - Another Day In Paradise
-003. Агонь - Отпусти
-004. Karen Туз Feat. Gaya Khan - Сеньорита    Читать дальше...    Жанр: PopПродолжительность: 06:06:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AE5AA5FC35BCA0664A2A363C4FE6F1ACED119D32
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1043323.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 043 319
-
-VA - Муз обоз №5  2016  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Fifth Harmony - No Way
-002. Интонация - Давление
-003. The Dollyrots - Little Medusa
-004. Sasha - Всего Лишь Три Слова    Читать дальше...    Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B83038C055D5814F38F4467622AAD5B9FB23DBA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1043319.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 043 316
-
-VA - La Terraza The Magic Of Lounge & Chill House Vol. 1  2016  [MP3|320 Kbps] <Downtempo, Chill
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Love Pacific Industries - Thinking Of You  4:57 
-02. Sunburn In Cyprus - Change  4:00 
-03. Mariana Lucy - Raining  4:11 
-04. Latin League - Mind & Soul  5:05     Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:32:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F4C36D209574FEE41735EE2E070959961D46877
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1043316.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 043 315
-
-VA - 100 Хитов Любимой Музыки  2016  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Medina - Good Enough
-02. Константин Меладзе - Кораблики
-03. Parson James - Slow Dance With The Devil
-04. Rabih - Habibi Hayati    Читать дальше...    Жанр: PopПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:700CA6F401D12D34B64B9CE619F4A68B7A65201D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1043315.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

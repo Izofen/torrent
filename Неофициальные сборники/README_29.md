@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 532 588
+
+VA - Metal Playlist  2022  [MP3|320 Kbps] <Rock, Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Slipknot - Duality
+02. Satyricon - Commando
+03. Manowar - Kings of Metal
+04. Avenged Sevenfold - Nightmare    Читать дальше...    Жанр: Rock, MetalПродолжительность: 04:57:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:31C2B544B5DDA7F5469A192F7057A992F5FEB8A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532588.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 532 538
+
+VA - Зайцев.нет Лучшие новинки Февраля  2022  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. CAPTOWN - С любовью  2:05 
+02. INSAF, Альба Рябова - Пополам  3:32 
+03. KOTOIN - Raksha  Original Mix   3:15 
+04. NILETTO - Angels  2:43     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3F445573DBB12BAB5E474E2917DB3669A43FEF08
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532538.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 532 477
+
+VA - Country: New Folk Music  2022  [MP3|320 Kbps] <Country, Folk, Blues>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Это музыка является наследием творчества первых колонистов - переселенцев из Европы в Новый свет, представляя собой характерное смешение фольклора различных европейских народностей, которые были широко представлены в колониальной Америке. Впоследствии полюбившаяся музыка обрела широкую популярность и нашла себе применение в балладах американских ковбоев.001. Johnny Cash - The Caretaker
+002. Chris Janson - Beer Me
+003. Brothers Osborne - It Ain t My Fault
+004. Diplo - Hometown    Читать дальше...    Жанр: Country, Folk, BluesПродолжительность: 09:00:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B05FAE4CEE3B62695AFE81C946B4B80D31EFD5A0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532477.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 532 473
+
+VA - Formed Of Clay  2022  [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+:Если вам симпатизирует авторский креативный полет души, и вы без опасения приемлете чрезвычайно разную музыку и при том цените качество и профессионализм, то убедительно рекомендуем обратить внимание на релиз  Formed Of Clay  и вы не останетесь разочарованы.001. Urfaust - Vom Freien Tode
+002. K2 - Bad Luck Attitude
+003. Stormruler - Culling Of The Blood Moon
+004. Ishvara - Shape Of A Void To Come    Читать дальше...    Жанр: Hard Rock, Metal, HardcoreПродолжительность: 10:23:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C2228909EDB2FE36653C7CFF1C06C269E99409D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532473.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 532 470
 
 VA - Friday Funky House  2022  [MP3|320 Kbps] <Electro Disco, Nu Disco, Funky House>
@@ -1894,106 +1994,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528954.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 952
-
-VA - Dancing In Space: Future House Music  2022  [MP3|320 Kbps] <House, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Заглавной темой музыки сборника  Dancing In Space  является фантастика и космические путешествия, и многие треки этого лонгплея вполне подошли бы в качестве саундтрека для космических сиквелов кинематографа. Кибернетический разум, неизведанные просторы космоса, утопический мир будущего - всё это на треках представляемого Вам сборника.001. Mas Ricardo - Techtribe
-002. Oh, Hayir! - Ravens
-003. Staffan Lindberg - The Orbit
-004. Gianfranco Echandia - Two Cats    Читать дальше...    Жанр: House, ElectroПродолжительность: 11:46:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:73B555426BC473AE996746258C9097C8088096D2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528952.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 950
-
-VA - Dancing Beat: Fitness Funky Session  2022  [MP3|320 Kbps] <Funky House, Disco House, Electr
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Занятия спортом и музыка — для большинства вещи, друг от друга неразделимые. Особым образом это относится к фитнесу, где темп играет едва ли не основную роль. В предлагаемом сборнике предлагаем Вам высококачественную подборку плейлиста для занятий физическими тренировками и оздоровительными программами.001. Angel Moraes - Silicon Rain
-002. Franko Ferreri - Dancing Beat
-003. Mona Vale - You ve Got Me
-004. Gregor Botteghi - Better    Читать дальше...    Жанр: Funky House, Disco House, ElectroПродолжительность: 09:02:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C46B466EE731F4B219B7457F3959872B5A9E4CE1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528950.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 946
-
-VA - Ambient Aqua Form  2022  [MP3|320 Kbps] <Ambient, Downtempo, Relax, Meditation>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-Гипнотичный лонгплей наполнен неяркими миражами фанк-балеарики, интроспективным пинкфлойдовским грувом и романтичным эмбиент софт-эхом, словно идеальный саундтрек для несмелых бликов зимнего безмолвия. Одно мгновение — и вы уже по ту сторону стены, сидите на пляже с бутылкой прохладного пива и наблюдаете за целующими горные массивы приливами.001. Anders Brørby - Long Weekend
-002. Germind - Guaava
-003. Mind Over Midi - Waves And Intervals
-004. Troth - Forge Fabric    Читать дальше...    Жанр: Ambient, Downtempo, Relax, MeditationПродолжительность: 13:01:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:51EEBD4A61557F14F3502538CD2C5AE7E140E4CA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528946.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 528 885
-
-VA - Shazam & Apple Music Chart  Россия Топ 100 Январь   2022  [MP3|320 Kbps] <Pop, Dance, O
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. ANNA ASTI - Феникс  4:03 
-002. Artik & Asti - Гармония  4:04 
-003. Lusia Chebotina - СОЛНЦЕ МОНАКО  2:36 
-004. Lesha Svik - Плакала  2:29     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 05:13:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1164E0B35630A122F4C81ACCAB68F84D43293E46
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528885.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

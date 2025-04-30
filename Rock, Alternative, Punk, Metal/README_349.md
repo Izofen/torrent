@@ -1,4 +1,404 @@
 ﻿
+###  Публикация: 1 026 486
+
+Hellyeah - Undeniable  Unden!able   2016  [FLAC|Lossless|tracks] <Groove Metal, Hard Rock>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. !
+02. X
+03. Scratch a Lie
+04. Be Unden!able    Читать дальше...    Жанр: Groove Metal, Hard RockПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B94932BBDC017D9A1D44A99EB5308F4710C99F70
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026486.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 485
+
+Red Hot Chili Peppers - The Getaway  2016  [MP3|320 кб с] <Alternative Rock, Funk Rock>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. The Getaway
+02. Dark Necessities
+03. We Turn Red
+04. The Longest Wave    Читать дальше...    Жанр: Alternative Rock, Funk RockПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:248F8F0882146067CC198210301463780CAC8388
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026485.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 483
+
+Blood For Blood - Outlaw Anthems  2002  [FLAC|Lossless|tracks] <Rock, Hardcore>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. A Post Card From The Edge    03:13
+02. Mother Dear    01:49
+03. Ain t Like You  wasted Youth Ii     03:29
+04. Dead End Street    02:57    Читать дальше...    Жанр: Rock, HardcoreПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:51ECDEB5A18E8E35321496AC37F83E5FBBEC7EB3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026483.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 474
+
+Shotgun Revolution - All This Could Be Yours  2016  [FLAC|Lossless|tracks] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+01. Don’t Stop That Grind
+02. Rise To Power
+03. All This Could Be Yours
+04. Refugee    Читать дальше...    Жанр: Hard RockПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87A40A09720BE5829AEAB1B5295787004AFB7FF4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026474.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 462
+
+Great Master - Lion & Queen  2016  [MP3|320 кб с] <Power Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. Voices
+02. Another Story
+03. Oldest
+04. Prayer in the Wind    Читать дальше...    Жанр: Power MetalПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:700957FA7066A2F7AA838E4CA8D44DC3D3F90F66
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026462.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 460
+
+Rage - The Refuge Years  2015  EP, Compilation, Remastered [MP3|320 кб с] <Heavy Metal, Power
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. Firestorm    04:59
+02. Solitary Man    03:38
+03. Don t Fear The Winter    03:29
+04. Refuge  Live     05:24    Читать дальше...    Жанр: Heavy Metal, Power Metal, Speed MetalПродолжительность: 00:26:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:83E8B1E0EBD2B816EB8117B934815DD604F27EF1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026460.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 441
+
+Bonnie Tyler - The Best Of 20 Classic Tracks  1994  Compilation [FLAC|Lossless|tracks] <Pop Rock
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Lost In France    03:53
+02. Blame Me    04:03
+03. It s A Heartache    03:27
+04. Baby I Remember You    03:16    Читать дальше...    Жанр: Pop Rock, PopПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4AA7219FE0E71E870C23AB4403E809408D9DF125
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026441.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 429
+
+Epolets - Cult  2016  [MP3|320 кб с] <Alternative Rock, Indie Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01.  Intro   02:16 
+02.  Залиш мене   03:27 
+03.  Скажи   03:38 
+04.  Мелодія   04:48     Читать дальше...    Жанр: Alternative Rock, Indie RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:96358D398F71D008539C835FBACFB51E106E6F27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026429.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 411
+
+Arlett  ex-Леді Арлет  - Arlett  2016  [MP3|320 кб с] <Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01.  Завтра буде краще   03:06 
+02.  Хто я тобі   03:30 
+03.  Давай розкриватися   03:11 
+04.  На картах свiту   03:50     Читать дальше...    Жанр: RockПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BBBBE1A822C49E172C24F18AA4108BD03B391B8B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026411.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 341
+
+Catharsis - 20 первых лет. Полное собрание сочинений  2016  [MP3|320 кб с] <Power Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Том 1.  Proles Florum  &  Child Ot The Flowers 
+Том 2.  Febris Erotica  &  Dea 
+Том 3.  Имаго 
+Том 4.  Крылья     Читать дальше...    Жанр: Power MetalПродолжительность: 12:14:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0E2DEB4AB928FC098CCC8E63F40F9B681B0BD4FE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026341.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 326
+
+Talas - Talas  1979  [MP3|320 кб с] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+1. See Saw
+2. Stop! In The Name Of Love
+3. Most People
+4. She Don t Know    Читать дальше...    Жанр: Hard RockПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:23C4036F0B243A0BB81EA2A236FB780C44164906
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026326.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 281
+
+Rage - The Devil Strikes Again  2016  2CD [MP3|320 кб с] <Heavy Metal, Power Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. The Devil Strikes Again
+02. My Way
+03. Back On Track
+04. The Final Curtain    Читать дальше...    Жанр: Heavy Metal, Power MetalПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:58E3DDC4ABBFCFAE089DF90C964BE6FCA2918B50
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 279
+
+Trapeze - Medusa  1970  Remastered, 1994, Threshold Records [MP3|320 кб с] <Rock, Hard Rock, P
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+1. Black Cloud
+2. Jury
+3. Your Love Is Alright
+4. Touch My Life    Читать дальше...    Жанр: Rock, Hard Rock, Psych RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3932C231AD79DBF457C483C865BBC0C10B198395
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026279.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 180
+
+UFO - The Visitor  2009  [APE|Lossless|image + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Saving Me  5:08 
+02. On the Waterfront  3:50 
+03. Hell Driver  4:26 
+04. Stop Beaking Down  4:55     Читать дальше...    Жанр: RockПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A2909F40291821BE7D304273836F0CFF602D0FC7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026180.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 150
+
+Контрабанда.com.ua - Dreamer  2015  [MP3|320 кб с] <Pop-Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Good Boy  03:17 
+02. Marie  03:08 
+03. Heaven Can Wait  02:22 
+04. Angel  03:53     Читать дальше...    Жанр: Pop-RockПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B6AF6EF826EF7B58067470F926B3964A8338425
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026150.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 026 146
+
+The Spencer Davis Group - With Their New Face on   Funky 1968  2001  [FLAC|Lossless|image + .c
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. With His New Face On [0:02:58.38]
+02. Mr.Second Class [0:03:32.72]
+03. Alec In Transitland [0:03:53.40]
+04. Sanity Inspector [0:03:01.08]    Читать дальше...    Жанр: Rock, Blues RockПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA53C8C5E9192AE0D4ECBF87A3C68FBB25E72515
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1026146.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 026 142
 
 Земфира - Спасибо  2007  [FLAC|Lossless|tracks + .cue] <Alternative, Rock>
@@ -1594,404 +1994,6 @@ Hard Rock (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023787.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 682
-
-Рада и Терновник - Сёстры  2016  [MP3|320 кб с] <Folk-rock, Progressive Dark Folk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Сёстры — 11-й студийный альбом прогрессив-дарк-фолк группы «Рада и Терновник». На альбоме представлены как новые композиции, так и заново аранжированные старые. Также исполнена народная песня «Дороженька», сделанная по мотивам аранжировки Владимира Миклошича.01. Я расскажу тебе о том...
-02. Дороженька
-03. Когда будет тепло
-04. Ладная    Читать дальше...    Жанр: Folk-rock, Progressive Dark FolkПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:927560D2D402DECB72606B81B4292389C2FA11FD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023682.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 623
-
-Bryan Adams - The Best Of Me  1999  [FLAC|Lossless|image + .cue] <Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. The Best Of Me [03:34]
- 02. Can t Stop This Thing We Started [04:28]
- 03. I m Ready [04:25]
- 04. Summer Of  69 [03:33]    Читать дальше...    Жанр: RockПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97C18EDA01BF3FEAD82C1C3D1ACAF678E0BDBE74
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023623.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 523
-
-Rick Miller - 10 Albums  2004 - 2018 [FLAC|Lossless|image + .cue]<Progressive Rock>
-Rock, Alternative, Punk, Metal
-Rock (Lossless)
-
-###  Подробнее
-
-01. Serial Killer  Prelude  3:00
-02. The Garden of Forking Paths 12:18
-03. The Final Journey 3:18
-04. Serial Killer 10:55    Читать дальше...    Жанр: Progressive RockПродолжительность: 07:51:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5FD4916D5A816EF9F12C3D176E0C53A8DFF1AE58
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023523.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 492
-
-Led Zeppelin - BBC Sessions  1997  [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-Disc 01:
-
-01. You Shook Me  5:15 
-02. I Can t Quit You Baby  4:24     Читать дальше...    Жанр: Hard Rock, Blues RockПродолжительность: 02:18:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ECA61BEDC5FF8E809835AC2A9798D08E04315879
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023492.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 310
-
-Keane - Greatest Hits  2007  [FLAC|Lossless|tracks] <Rock, Pop Rock, Brit Pop>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Is It Any Wonder    03:08
-02. This Is The Last Time    03:31
-03. Crystal Ball    03:55
-04. Somewhere Only We Know    03:59    Читать дальше...    Жанр: Rock, Pop Rock, Brit PopПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2DA928171AD8EA644DCD3739E11E13A059530DF1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023310.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 305
-
-The Rolling Stones - Totally Stripped  2016  Live [MP3|320 кб с] <Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. Not Fade Away - Amsterdam  3:12 
-02. Honkey Tonk Woman - Paris  4:54 
-03. Dead Flowers - Amsterdam  4:00 
-04. Faraway Eyes - London  5:05     Читать дальше...    Жанр: RockПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A1C88B16FF340835FA1DA268BCF96C3B8EE0D4EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023305.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 211
-
-The Kelly Family - Almost Heaven  1996  [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. When The Boys Come Into Town
-02. Every Baby
-03. I Can t Help Myself
-04. Nanana    Читать дальше...    Жанр: Country Rock, Pop RockПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:083DAD1FBD0186DC0AA83902B1E97E387A243D62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023211.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 207
-
-The Rolling Stones - Totally Stripped  2016  Live [FLAC|Lossless|image + .cue] <Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Not Fade Away - Amsterdam  3:12 
-02. Honkey Tonk Woman - Paris  4:54 
-03. Dead Flowers - Amsterdam  4:00 
-04. Faraway Eyes - London  5:05     Читать дальше...    Жанр: RockПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A9D14D4D7A0F5B69ED66B6DBF3C1478EB12ABFB1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023207.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 203
-
-The Kelly Family - Over The Hump  1994  [FLAC|Lossless|image + .cue] <Folk Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Why Why Why
-02. Father s Nose
-03. First Time
-04. Baby Smile    Читать дальше...    Жанр: Folk RockПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9D948EFB477F9F0E4852530DDB8042F828EE971
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023203.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 045
-
-Running Wild - Riding The Storm - The Very Best Of The Noise Years 1983-1995  2016  2CD [FLAC|Lo
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Victim of States Power
-02. Genghis Khan  Remastered 
-03. Prisoner of Our Time
-04. Walpurgis Night    Читать дальше...    Жанр: Heavy MetalПродолжительность: 02:35:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7B0216490797AC792EDC0A9061CF0E31FFF2EA31
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023045.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 023 040
-
-Porn - 4 альбома  2004 - 2011  [FLAC|Lossless|image + .cue] <Industrial, Neo Classical>
-Rock, Alternative, Punk, Metal
-Alternative, Punk  Lossless 
-
-###  Подробнее
-
-01. All That Glitters ...  1:14
-02. Superfurry 2:17
-03. Call Me 3:48
-04. Recycle 4:10    Читать дальше...    Жанр: Industrial, Neo ClassicalПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36A4ABD7635920F6EFFBA62A79C0FD7735F80471
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1023040.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 022 979
-
-Stranded By Choice - Hellroaring  2016  [MP3|320 кб с] <Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. The Fire  3:34 
-02. Black Seed  5:26 
-03. Resisting  3:40 
-04. The Voice That Only I Hear  3:49     Читать дальше...    Жанр: Hard RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:746EC230BBE7D4AC622D5E8EEE39E33B8F4A996D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022979.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 022 973
-
-First Signal - One Step Over The Line  2016  [MP3|320 кб с] <Melodic Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. Love Run Free  4:29 
-02. Love Gets Through  4:53 
-03. Still Pretending  4:28 
-04. Broken  3:27     Читать дальше...    Жанр: Melodic Hard RockПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BD10A3BDEF42058CC9E3D595C2F8B280A133A95E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022973.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 022 953
-
-Ночные Снайперы - наотмашь  2016  Single [MP3|320 кб с] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-По словам Дианы Арбениной, песня «Наотмашь» — одна из её любимых композиций из альбома «Выживут только влюблённые». «По большому счёту, это чистая авантюра, потому что мы сделали очень борзую по аранжировке песню. Это движение вперед в музыкальном плане, это сочетание честности, ярости и отказ от рок-н-ролла в чистом виде», — говорит певица.1. наотмашь
-2. наотмашь  acoustic version Жанр: RockПродолжительность: 00:06:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6102FED048AC1C596FAD1CA1CA27166E4C25EBED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022953.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 022 912
-
-Elvis Presley, Jerry Lee Lewis, Fats Domino, Little Richard - Heroes Of Rock  N  Roll  1996 
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Lucille
-02. Long Tall Sally
-03. Whole Lotta Shakin  Goin  On
-04. Good Golly Miss Molly    Читать дальше...    Жанр: Rock n RollПродолжительность: 03:11:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F79D2A4B0CEB13562E016CC0DFBDCC75C038BEA1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022912.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 022 842
-
-Paul Simon - Stranger To Stranger  2016  Deluxe [FLAC|Lossless|image + .cue] <Folk-rock, Singer-
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. The Werewolf  3:26 
-02. Wristband  3:18 
-03. The Clock  1:03 
-04. Street Angel  2:11     Читать дальше...    Жанр: Folk-rock, Singer-songwriterПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0DE7E5F0730D952C62C19308D22FB318F11A3C72
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022842.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

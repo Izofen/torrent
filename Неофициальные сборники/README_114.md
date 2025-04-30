@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 178 996
+
+VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House и Trance от LORDEGRAF Vol.12  2017<4
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001.  Roger Sanchez feat. Lisa Pure - Lost  Artur Montecci Remix  4:52
+002.  Gucci Mane feat. Selena Gomez - Fetish 3:06
+003.  Snoop Dogg - Drop It Like It s Hot  Tim Gunter Remix  3:37
+004.  Midi Culture & Pascal Junior - New Rules  feat. Ben Woodward  5:23    Читать дальше...    Жанр: House, Deep House, ElectroПродолжительность: 07:14:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:901E4E482541368ADDB634FF5C77FA86483FD571
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178996.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 178 994
+
+VA - Synthetic  vol.7  2017  [MP3|243-320 Kbps] <Synthpop>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Heliophile - Tranen Van De Regen  04:09 
+02. Lay Your Ghost - The Flame  04:30 
+03. Torul - Further Skies  04:23 
+04. Loewenhertz - Wer sind Wir  03:40     Читать дальше...    Жанр: SynthpopПродолжительность: 01:48:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F61DE91438F30FA2190EC55AA101180BA0C57760
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178994.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 178 944
+
+VA - Reggae: The House Of Love  2017  [MP3|192-320 Kbps] <Reggae, Soul>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+001. Jimmy Cliff - Many Rivers To Cross
+002. Dennis Brown - Sitting and Watching
+003. Clinton Fearon - Waiting
+004. Dobby Dobson - Dobby Dobson - Loving Pauper    Читать дальше...    Жанр: Reggae, SoulПродолжительность: 05:53:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7AA2E03BC54644E8EC643B9A652F26F21F42BB34
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178944.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 178 918
+
+VA - По волне моей памяти: Том 27  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретр
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Игорь Тальков - Летний дождь 7:20
+02.  Олег Кацура - Большая Медведица 3:55
+03.  Юрий Лоза - Одиночество 3:33
+04.  Алла Пугачёва - А знаешь, все еще будет 3:18    Читать дальше...    Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:21:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7904183E8E034537FEBF8AD0B642442A486A6518
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178918.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 178 867
 
 VA - Jazz About Lounge  2017  [MP3|320 Kbps] <Chillout, Lounge>
@@ -1894,106 +1994,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1173569.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 173 512
-
-VA - HGM The Beach Party  2017  [MP3|320 Kbps] <House, Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Ambassadeurs - Looking At You  Moods Remix 
-002. Frankie - Feel What You Want  Original Mix 
-003. Pulsedriver, Chris Deelay - Geiles Gefuhl  Short mix 
-004. James Curd - Now I Believe  feat. Shaun J. Wright     Читать дальше...    Жанр: House, Dance, ClubПродолжительность: 09:24:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6922F727C47693BF4004ADFF4149CFD53CB6DB14
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1173512.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 173 499
-
-VA - Empire Records - House Clinic 2  2017  [MP3|320 Kbps] <House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. TJR - Time To Jack  Original Mix 
-02. Patrick Hofmann - Noon  Paul Vinx Edit 
-03. Integral - Custom
-04. Azurio - 4.1  Original Mix     Читать дальше...    Жанр: HouseПродолжительность: 02:43:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:41DF10F025F4B7B09A13514F7759EFEB2F85B47B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1173499.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 173 462
-
-VA - Vocal Electro Dance Music  2017  [MP3|320 Kbps] <EDM, Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Ace of Base - Beautiful Life  Scorpio & Scrooge Rework 
-002. Akade & Krimsonn ft. Bibiane Z - Life Goes On
-003. Alex Adair - Casual  Thomas Gold Remix 
-004. Fenry Hord - My Love  Fitness Mix     Читать дальше...    Жанр: EDM, Dance, ClubПродолжительность: 08:42:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B562C7F08064C98C1AC06F446F406BB68C4B2B94
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1173462.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 173 440
-
-VA - Workout Mix vol.10  mixed by Dj V   2017  [MP3|320 Kbps] <Club House, Electro House, Bi
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01-Sergey Kutsuev - Tribal Dance  Original Mix 
-02-Major Lazer Feat. Busy Signal - Jump  Shtopor & Mikis Remix 
-03-KRS-One - Sound of Da Police  DMC Mikael Remix 
-04-Tujamo - Boom  Starjack Party Starter     Читать дальше...    Жанр: Club House, Electro House, Big RoomПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:28344D6D0BA69787E4014F3685A900BAB846EF6C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1173440.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

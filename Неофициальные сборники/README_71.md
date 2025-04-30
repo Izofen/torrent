@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 341 553
+
+VA - The Taste Of Gold  2019  [MP3|320 Kbps] <Techno, Tech House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Jclarke1880 - Mekhong  Original Mix 
+002. Chiqito - Get Funky  Original Mix 
+003. Traumfabrik - Jack To Jack  Original Mix 
+004. Hokasa Toro - Build Up Drop  A.I. Beats Mix     Читать дальше...    Жанр: Techno, Tech HouseПродолжительность: 11:26:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1238EEE677112928ED473B2E20AD4E8982B89941
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341553.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 341 542
+
+VA - Creativity: Rap Playlist  2019  [MP3|320 Kbps] <Rap>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+001. Roc Marciano - 1,000 Deaths
+002. Young Dolph - Major
+003. Chucky Trill - Keisha
+004. Fat Trel - Too Much Drink    Читать дальше...    Жанр: RapПродолжительность: 08:49:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BB2D71CC7CD135717F9F66DE9A74E839F8923643
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341542.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 341 515
+
+VA - Shazam World Top 100 Ноябрь  2019  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Tones And I - Dance Monkey 3:30
+002. Maroon 5 - Memories 3:09
+003. The Black Eyed Peas & J Balvin - RITMO  Bad Boys For Life  3:42
+004. Regard - Ride It 2:38    Читать дальше...    Жанр: PopПродолжительность: 05:21:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90F21BA3AA87A90C589D6CF1656AADB6223780EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341515.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 341 473
+
+VA - Soul And Love Song  2019  [MP3|320 Kbps] <Soul, R&B, Other>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Allуshа Jоу - Fnfl
+002. Jеаn Dеаux - It’s Whаtеvеr
+003. Quеntin Mооrе - Swееt Sроt
+004. K nуа - Cоnstаnt    Читать дальше...    Жанр: Soul, R&B, OtherПродолжительность: 09:06:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:44E27A3ABAB293B47A12F351A3FF1111A86404BE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1341473.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 341 461
 
 VA - Green Rave Bass  2019  [MP3|320 Kbps] <Drum And Bass, Jungle>
@@ -1891,106 +1991,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1336236.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 336 177
-
-VA - Громкие новинки Ноября  2019  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1.#2Маши - Всем нашим  3:24 
-2.Alan Walker - Avem  The Aviation Theme   3:19 
-3.HUGEL, Alok, Amber van Day - I Don t Wanna Talk  2:24 
-4.Animal ДжаZ - Чувства  3:40     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 04:29:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D504D5D0993F5D6A2993E749B4EBE87B3228423
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1336177.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 336 096
-
-VA - Beach Dance Classics Radio  2   2019  [MP3|320 Kbps] <Club, Dance, House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Kerri Chandler - Something Deeper
-002. Spiro Catalano - Work
-003. Moody F - Shattle
-004. Guna Nada Das - Heartbeat    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 12:15:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E8C72A364165FED707B9188E01F1711E6CFB6E8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1336096.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 336 092
-
-VA - Electric Cloud  2019  [MP3|320 Kbps] <Synthwave, Synthetic, Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Level Groove - Get Back
-002. Pixelrust - Caffeine Dreams
-003. Monococ - The Hills
-004. Squaerecat - Hope To See You Later    Читать дальше...    Жанр: Synthwave, Synthetic, ElectronicПродолжительность: 13:01:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:308DDA0FE0944293B0AD5A96669DF409AB0ED0CB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1336092.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 336 089
-
-VA - Neon Party: Electro House November Mix  2019  [MP3|320 Kbps] <Club, Dance, House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Snake Blood Seance - Tempest
-002. James Alexander - Tango
-003. Cyber Monday - To Have & Have Not  Original Mix 
-004. Lego Boy, Beat Ride - The King Is Down    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 09:18:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:238B85D969BCB4628B784B7EC66624B569196515
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1336089.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

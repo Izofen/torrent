@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 358 268
+
+Savage - Love And Rain  2020  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Every Second of My Life  Ouverture 
+02. Don t Say You Leave Me
+03. I Love You  Radio Version 
+04. Italodisco    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1707C2FFCC84E3736C53753C7A145CE8E39C4576
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358268.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 358 262
+
+Натали - Новые 80-е  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Первый луч
+2. Вот так
+3. Я люблю тебя
+4. Грустные истории    Читать дальше...    Жанр: PopПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B0B9418E29F06AA5ADB24D753282B1E0BA5B8F5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358262.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 358 261
+
+Artik & Asti - 7  Part 2   2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Последний поцелуй
+2. Все мимо
+3. Чувства
+4. Девочка, танцуй    Читать дальше...    Жанр: PopПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD99CE6F7D626F3A570AB0F103BBAE6182DAD8E9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358261.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 358 260
 
 VA - 100 Greatest Easy Listening Classics  2020  [MP3|320 Kbps] <Pop, Rock, Jazz>
@@ -1917,81 +1992,6 @@ Eurodance, Euro-House, Technopop  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350028.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 350 026
-
-Sally Shapiro - Remix Romance Vol. 1  2008  [FLAC|Lossless|image + .cue] <Italo-Disco, Downtempo
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-1 I ll Be By Your Side  Tensnake Remix  7:38
-2 I Know You re My Love  Juan MacLean Remix  8:00
-3 Find My Soul  Holy Fuck Remix  4:23
-4 Anorak Christmas  Woodhands Remix  5:20    Читать дальше...    Жанр: Italo-Disco, Downtempo, HouseПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E74C219C6CE2D4E842E957E89ABA467C640535F2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350026.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 349 926
-
-Стас Михайлов - Лучшие песни  2016  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Там  3:40 
- 02. Без тебя  4:20 
- 03. Ну, вот и всё  4:05 
- 04. Всё для тебя  3:54     Читать дальше...    Жанр: Pop, ChansonПродолжительность: 04:02:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18C3FD6072070938C601605214CBED8ADC6CAA63
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349926.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 349 873
-
-VA - Disco Hits Exclusive Collection  1989  [FLAC|Lossless|image + .cue] <Euro-Disco, Eurobeat,
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01 – Gail Berry My Miracle Is Love  Dance Mix  6:06
-02 – Ken Laszlo Everybody Is Dancing 7:15
-03 – Pat & Bel Without You  Dance Mix  6:13
-04 – Francesco Salvi Esatto!  Mix Version  5:32    Читать дальше...    Жанр: Euro-Disco, Eurobeat, Hi NRGПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7D6004944AB040D60EEB46D812F041963579FAF8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349873.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

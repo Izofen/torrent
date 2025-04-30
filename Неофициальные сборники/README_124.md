@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 134 893
+
+VA - Сотка популярных весенних хитов на Europa Plus выпуск № 10  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Алиса Вокс - Неподруги 4:37
+002. Tommy Feat. Helena-Shadia - Притяжение 4:40
+003. Марк Тишман - Города 3:45
+004. Владимир Винс - Зажигаю Любовь 4:05    Читать дальше...    Жанр: PopПродолжительность: 06:03:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED9A68AD1F4D4A259E97DC77E7C0E967A5FBB2E8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134893.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 134 891
+
+VA - Звездная тусовочка. Отдыхаем с лучшими хитами выпуск № 11  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Lila & Stitch - Город-Электрошок 3:25
+002. Сергей Славянский - На Пешеходном Переходе 3:18
+003. Пропаганда - Забываю 3:25
+004. Zac Samuel & Moon Willis Feat. Taya - Never Letting Go 3:56    Читать дальше...    Жанр: PopПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E32506964C2B788AD76612D31B06208AE1BEF7CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134891.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 134 888
+
+VA - Любимая музыка. Дискотека Хит FM выпуск № 4  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Лена Максимова - Счастье Внутри 3:50
+002. Alex Opium - Не Обижу 3:45
+003. Бордо - Осталось 3:49
+004. Никита - Белыми Птицами 3:51    Читать дальше...    Жанр: PopПродолжительность: 06:04:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:68C6B9790F344D10419FA09C09C1DC460C83834F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134888.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 134 885
+
+VA - Зажигай вместе с Европа Плюс. Версия № 4  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Бордо - Осталось 3:49
+002. Моника - Корпоратив 3:08
+003. Adil Karaca - Музыка 3:52
+004. Лена Максимова - Счастье Внутри 3:50    Читать дальше...    Жанр: PopПродолжительность: 06:01:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6428FF4EC7C744656F65BC5CE4E79BC7331B3619
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134885.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 134 883
 
 VA - Весенний хитовичок молодежный. Выпуск № 3  2017  [MP3|256 Kbps] <Pop>
@@ -1893,106 +1993,6 @@ VA - Russian Disco Compilation  2017  [MP3|320 Kbps] <Pop, Disco>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132278.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 132 221
-
-VA - Dancefloor Sweetest Anthems  2017  [MP3|320 Kbps] <Twerk, Reggaeton, G House, Fusion, Urban
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Geko - Drunk On You  Clean  02:59
-002. Zedd & Alessia Cara - Stay  ShadowReD Remix  Clean 03:39
-003. Skiavo & Vindes - KNAS 2k17  Original Mix  Clean 03:26
-004. M83 vs Kygo & Selena Gomez - It Ain t Midnight  DJ Nasa Mashup  Clean 03:58    Читать дальше...    Жанр: Twerk, Reggaeton, G House, Fusion, Urban, Moombahton, Trap, Electro, DancehallПродолжительность: 09:45:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5BAD725B444E9492CF3B5F7C469A3C9D79CBC9D3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132221.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 132 208
-
-VA - 90 s Eurodance  2017  [MP3|320 Kbps] <Eurodance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  2 Unlimited - The Real Thing  3:41
-02.  La Bouche - Be My Lover  Radio Edit   3:59
-03.  Alexia - Me And You  Radio Version   4:06
-04.  Robert Miles - Children  Radio Edit   4:07    Читать дальше...    Жанр: EurodanceПродолжительность: 03:49:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E2B052CA50DB7F14F05B776C6649395DF3007F98
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132208.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 132 178
-
-VA - Ham!d Production April  2017  [MP3|192-320 Kbps] <Pop, House, Trance, Dance>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01.  Aly & Fila - Beyond The Lights  Extended Mix   7:46
-02.  Black M - French Kiss  3:41
-03.  C-Bool - Never Go Away  3:49
-04.  Maroon 5 & Future - Cold  Sak Noel Remix   3:46    Читать дальше...    Жанр: Pop, House, Trance, DanceПродолжительность: 03:17:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38B89D718673A676FD4C49E826ACF2300519B651
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132178.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 132 116
-
-VA - Empire Records - Space Disco  2017  [MP3|320 Kbps] <Nu-Disco>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01.  Alex Di Lecce - Hot Shot  Francesco Caramia Remix   5:16
-02.  MV Edit - 80s Reloaded  Extended Mix   7:31
-03.  Neo Mind & Irina Wiggle - Take Me To The Stars  Paolo Madzone Zampetti Disco Mix   6:41
-04.  Asters - Jupiter  3:52    Читать дальше...    Жанр: Nu-DiscoПродолжительность: 01:47:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FCD35492D250E8BEDC8EC695FE0E9C477B04CF65
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132116.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,102 @@
 ﻿
+###  Публикация: 1 559 675
+
+The Three Degrees - Compilation  2022  [MP3|320 Kbps] <Pop, Disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. What I Did For Love
+02. Toast Of LoveЖанр: Pop, DiscoПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DDA45740A5CC1068CFFC57D4C4D27781B28633DC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1559675.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 559 674
+
+VA - Music News vol.198  2022  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. ANNA ASTI - Затмила  02:50 
+ 002. Agunda - Круговорот  02:05 
+ 003. AKVA - Быть Счастливым  02:29 
+ 004. Alex Menco feat. Jony Safa - Higher  02:20     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 07:39:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE4482D39EA8AA4C6070FA3CAA232F4A1CF9FE7B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1559674.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 559 636
+
+VA - В машине с музыкой Vol.278  2022  [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Bulava - Я Полетел Бы
+02. Semenyak  - Химия
+03. Lena Feat. & Janaga - Знаешь Как Уйти
+04. Verbee Feat. & Rompasso - Тает Дым    Читать дальше...    Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:28:27 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6C55B350278A8FB6B193D80DBA4CEA734B155AFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1559636.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 559 631
+
+VA - В машине с музыкой Vol.277  2022  [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Shir  - Поцелуй
+02. Alice Merton  - Blindside
+03. Гнилаялирика  - Корабли
+04. Митя Фомин  - Быть Собой    Читать дальше...    Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:27:47 hrs
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:52B5F06C973A21CB93BD5BDBABFDA4CF660A5844
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1559631.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 559 575
 
 VA - Music News vol.197  2022  [MP3|320 Kbps] <Pop, Dance, Other>
@@ -1893,106 +1991,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553396.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 553 394
-
-Bloodhound Gang - The Bad Touch  1999  [MP3|320 Kbps] <Alternative, Punk>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. The Bad Touch  Single Version   4:27 
-02. Along Comes Mary  The Bloodhound Gang Mix   3:25 
-03. I Wish I Was Queer So I Could Get Chicks  Punk Version   3:35 
-04. Fire Water Burn  Single Version   4:56     Читать дальше...    Жанр: Alternative, PunkПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0C3FB0A7FAA3DEF1782002155B84009063C7884E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553394.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 553 373
-
-VA - Trance Colors  2022  [MP3|320 Kbps] <Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Skyvol - 9th Life  Extended Mix   6:58 
-002. Nicola Maddaloni - Brainwashing  Extended Mix   6:19 
-003. U-Mount & SpaceLine - Libra Terra  Extended Mix   7:33 
-004. Ahmed Romel - You Never Know  8:16     Читать дальше...    Жанр: TranceПродолжительность: 11:45:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:01C965624BB6857AA56F1CC3BCEA8A565D403156
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553373.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 553 366
-
-VA - Русские Хиты 4 2022 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Ivan Valeev - Выпускной  2:34 
-002. Честный - Да гори оно огнем  3:01 
-003. Beatrise feat. HUGGA - Эскорт  2:11 
-004. SVETLYI - Отпусти  3:17     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 13:41:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70A647BA793E2D7B6F82D87FBF70ED4C556FA3DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553366.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 553 313
-
-VA - Warrior s Words  горловое пение   2022  2CD [MP3|320 Kbps] <World Music, Ethno Fushio
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Altai Kai - Maral Deer  04:45 
-02. Annwn - Douce Dame Jolie  04:03 
-03. Bai-Terek - Archyndu jol  03:32 
-04. X-Eternity - My Mother Told Me  feat. Perly i Lotry   05:44     Читать дальше...    Жанр: World Music, Ethno Fushion, Throat SingingПродолжительность: 07:42:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:646B439CFA4D0C7D6B407AA204A365B98EC03534
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553313.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 306 821
+
+Extensive Care - Sexy Thrills  1980  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Sexy Thrills  6:38 
+02. Do It Like This  5:30 
+03. Disco Squeeze  6:55 
+04. Strict Blonde Chick  6:43 Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:25:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:67884872F0CBE53C211C596237351FDA86C629C5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306821.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 617
+
+Mac And Katie Kissoon - Chirpy  Chirpy Cheep Cheep  1995  [FLAC|Lossless|image + .cue] <Funk, So
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Chirpy Chirpy Cheep Cheep  2:47 
+02. Do You Really Love Me  4:16 
+03. I ve Found My Freedom  2:34 
+04. Show Me  2:26     Читать дальше...    Жанр: Funk, Soul, PopПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D773FDEC2729D7246CC5DAE5642A9A625B264E93
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306617.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 306 570
+
+VA - So Fresh: The Hits Of Autumn 2019 [FLAC|Lossless|tracks + .cue] <Pop, Dance, R n B>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Ariana Grande - 7 rings
+02. Mark Ronson - Nothing Breaks Like a Heart  feat. Miley Cyrus 
+03. Post Malone - Wow.
+04. Dean Lewis - 7 Minutes    Читать дальше...    Жанр: Pop, Dance, R n BПродолжительность: 01:14:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2732D4120EE9FE089F6E1B75D0337696B766A121
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1306570.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 306 555
 
 Charlotte Cornfield - The Shape Of Your Name  2019  [FLAC|Lossless|tracks + .cue] <Pop, Folk, Co
@@ -1912,79 +1987,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1301746.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 301 658
-
-VA - Pop Giganten Urlaubs-Hits  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01. Luis Fonsi - Despacito 3:49
-02. Shakira - Hips Don t Lie 3:41
-03. Pedro Capo & Farruko - Calma  Remix  4:01    Читать дальше...    Жанр: PopПродолжительность: 02:37:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C542AA92A7BC04CA3A3E629A0EA37E812A18C9B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1301658.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 301 611
-
-VA - House Summerlove  2019  [MP3|320 Kbps] <Dance, Electronic>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01. The Prince Karma - Later Bitches
-02. Robin Schulz - Speechless  feat. Erika Sirola 
-03. Hugel - WTF  feat. Amber Van Day     Читать дальше...    Жанр: Dance, ElectronicПродолжительность: 02:06:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:84E43515DF7BACB90C7162C9533F9DEF62B48919
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1301611.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 301 330
-
-Tight Fit - Back To The 60 s  1981  LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Mixed - Back To The 60s - Side One  18:32 
-02. Mixed - Back To The 60s - Side Two  18:03 Жанр: Pop, Disco, Rock & RollПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5FB8DDAD6367556C42E791D7EEE10570F6EB854A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1301330.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

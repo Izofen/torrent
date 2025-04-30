@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 998 083
+
+a-ha - Time And Again: The Ultimate a-ha 2 CD  2016  WEB [MP3|320 кб с] <Pop-Rock, Synthpop, N
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Take On Me  2016 Remastered   3:47 
+02. The Sun Always Shines On TV  2016 Remastered   5:06 
+03. Hunting High And Low  7  Remix   2016 Remastered   3:47 
+04. I ve Been Losing You  2016 Remastered   4:24     Читать дальше...    Жанр: Pop-Rock, Synthpop, New-Wave, ElectronicПродолжительность: 02:38:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:01DE8C58A644FB93209524FEE21A68E9BF56F45B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_998083.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 997 946
+
+Gwen Stefani - This Is What the Truth Feels Like  2016  Japan Deluxe Edition [MP3|320 кб с] <P
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Misery
+ 02. You re My Favorite
+ 03. Where Would I Be?
+ 04. Make Me Like You    Читать дальше...    Жанр: PopПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:40AA7FB50115F29A9DAFFAC581F390F9AEB74363
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997946.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 997 934
+
+Комиссар - Дрянь  1998  [FLAC|Lossless|tracks + .cue] <Europop, Euro House, Synth-pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Дрянь  4:48 
+02. Телефон  Сгорая Огнём   4:47 
+03. Первый Полёт  5:14 
+04. Падла  Какая Же Ты   4:27     Читать дальше...    Жанр: Europop, Euro House, Synth-popПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BFAC35CB148DFC7B62A8CB4C2366EDFA9D2422B3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997934.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 997 852
 
 VA - Number 1 s: The Ultimate Collection  2014  Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Po
@@ -1924,81 +1999,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986946.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 986 921
-
-VA - Radio 538 Hitzone 76  2016  [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Major Lazer feat. Nyla & Fuse ODG - Light It Up  Remix   2:47 
-02. Justin Bieber - Sorry  3:20 
-03. Coldplay - Adventure Of A Lifetime  3:43 
-04. Matt Simons - Catch & Release  Deepend Remix   3:15     Читать дальше...    Жанр: Top 40, Pop, Rock, Indie, Electronic, R&B, Soul, Ballad, Hip Hop, Electronic, Dance, Dancepop, Trance, Electro, Pop Rock, Hip Hop, Pop RapПродолжительность: 02:36:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C8130C562489909069FD946FB8D3752196A05BC3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986921.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 986 904
-
-Sia - This Is Acting  2016  Japan Deluxe Edition [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Bird Set Free
- 02. Alive
- 03. One Million Bullets
- 04. Move Your Body    Читать дальше...    Жанр: PopПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FBC4410E61C1A07AF25C5B4779E56135FE585324
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986904.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 986 871
-
-VA - KuschelRock: Lovesongs Of The 90 s  2016  Special Edition [FLAC|Lossless|WEB-DL|tracks] <
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Sinéad O Connor - Nothing Compares 2 U  1990  - 5:09
-02. Oasis - Wonderwall  1995  - 4:13
-03. Faith No More - Easy  1992  - 3:06
-04. Extreme - More Than Words  Single Version   1991  - 4:00    Читать дальше...    Жанр: Top 40, Ballad, Pop, Soul, Rock, Alternative Rock, Pop Rock, Soft Rock, R&B, Reggae Pop, Stage & Screen, VocalПродолжительность: 02:41:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:332159396F66FCD27B14BDADCC1634994B8AA624
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986871.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

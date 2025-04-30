@@ -1,4 +1,91 @@
 ﻿
+###  Публикация: 593 205
+
+Игорь Корнелюк - The Best  2012  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Будем танцевать
+02. Город, которого нет
+03. Дожди
+04. Я не могу так жить
+05. Месяц май
+06. Холодно
+07. Дым
+08. Милый
+09. Возвращайся
+10. Маленький дом    Читать дальше...    Жанр: PopПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CE99539C44F10EC7E2C4A5AFECE047C3070A1A91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_593205.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 592 175
+
+VA - 130 Original Hits - 70 s  2009  6CD[FLAC|Lossless]<Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01.	Boney M - Painter Man	[03:19]
+02.	Hot Chocolate - Disco Queen	[03:10]
+03.	George McCrae - Rock Your Baby	[03:18]
+04.	Marshall Hain - Dancing In The City	[03:46]
+05.	Steve Harley & Cockney Rebel - Make Me Smile  Come Up And See Me 	[03:53]
+06.	Roy Wood - Forever	[04:19]
+07.	Gerry Rafferty - Baker Street 	[04:08]
+08.	Roxy Music - Virginia Plain	[02:58]
+09.	Electric Light Orchestra - Roll Over Beethoven  Single version 	[04:32]
+10.	The Move - Tonight	[03:18]    Читать дальше...    Жанр: Pop, RockФормат: 6*CD BoxSetПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA8C03C82A08A3FF73A3F308E8F5ACA986E2594A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_592175.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 591 935
+
+Аида Ведищева - Корабль воспоминаний  Лучшее   2007  2CD [APE|Lossless|image + .cue]<Retro>
+Pop (сборники)
+Советская эстрада, Ретро (Lossless)
+
+###  Подробнее
+
+1. Мелодия любви  Helms Norma, C.Morgan - Д.Чашников 
+2. Песенка вполголоса  С.Заславский - М.Пляцковский 
+3. Чёрный кофе  В.Шаинский - А.Алшутов 
+4. Помоги мне  А.Зацепин - Л.Дербенёв     Читать дальше...    Жанр: RetroПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:79DDBBB7363352903DBC9DB4E719190167B8C22A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_591935.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 591 551
 
 VA - Кружатся диски. Хиты 70-х  2002  CD № 1-2 [APE|Lossless]<Retro, pop>
@@ -2160,87 +2247,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_574113.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 573 771
-
-Муслим Магомаев - Любовь - моя песня  2001  [FLAC|Lossless]<Pop, Retro>
-Pop (сборники)
-Советская эстрада, Ретро (Lossless)
-
-###  Подробнее
-
-01. Верни мне музыку  3:54 
-02. Свадьба  3:18 
-03. Благодарю тебя  3:29 
-04. Королева красоты  2:34     Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FD346ACAC9506C3E89BE8B13FA7EC1C479085F39
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_573771.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 573 705
-
-Анна Герман - Наши любимые песни  2005  [FLAC|Lossless]<Pop, Retro>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-[04:49] 01. Когда цвели сады
-[02:35] 02. Белая черемуха
-[03:05] 03. А он мне нравиться
-[02:45] 04. Быть может  на польском     Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B8B1E0EF13998B8E690C79624567D56DCE88D57A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_573705.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 573 350
-
-Anastacia - It’s a Man’s World  2012  [MP3|320 кб с]<Pop,Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Ramble On  Led Zeppelin 
- 2. Best of You  Foo Fighters 
- 3. Sweet Child O Mine  Guns N  Roses 
- 4. You Can t Always get What You Want  Rolling Stones 
- 5. One  U2 
- 6. Back In Black  ACDC 
- 7. Dream On  Aerosmith 
- 8. Use Somebody  Kings Of Leon 
- 9. You Give Love A Bad Name  Bon Jovi 
- 10. Wonderwall  Oasis Жанр: Pop,Pop-RockПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:924E6F354E09CCAF257B3E487638C29E1E3D6996
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_573350.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 670 380
+
+VA - Music News vol.307  2023  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Despina Vandi - S  Agapao Kai Den Pao Kala  03:10 
+ 002. 5sta Family - Искры  02:45 
+ 003. 22 Region - На Таран  01:52 
+ 004. Ahmed Helmy - R4VE 201  02:49     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 09:03:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C3CD60943276164EABF12CEAF6D18604190A9809
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670380.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 670 327
+
+VA - Musica Gregoriana Catolica  2023  [MP3|320 Kbps] <New Age, Symphonic, Gregorian Chant>
+Неофициальные сборники
+Instrumental/New Age/Meditative/Relax (сборники)
+
+###  Подробнее
+
+001. Dan Gibson s Solitudes - Kyrie Eleison [06:31]
+002. Capella Gregoriana Easo - Salve, Festa Dies [01:56]
+003. The Cathedral Singers - Adoro Te, O Panis [02:47]
+004. Coro de la Abadia Benedictina de Santo Domingo de Silos - Requiem aeternam : Introitus, Modus VI [02:11]    Читать дальше...    Жанр: New Age, Symphonic, Gregorian ChantПродолжительность: 08:52:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B62E93DE6B1A1147EE05C6F2AA38114DD316B2B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670327.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 670 150
+
+Limora - Compilation  2023  [MP3|320 Kbps] <Electronic>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. My Time
+02. Zehra
+03. Paris
+04. False Feeling    Читать дальше...    Жанр: ElectronicПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CF2FACE4B48A74DBBDE0E1BDB980A7FBBA5D5A4B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670150.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 670 026
+
+VA - Workout, Beast Mode, Aggressive (2023) [MP3|320 Kbps] <Rock, Hard Rock, Other>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Tundra - Pull Up (2:02)
+002. LaLion - RUN BOY (2:08)
+003. Tundra - Major (2:09)
+004. Egypt Central - Over And Under (2:12)(   Читать дальше...   )Жанр: Rock, Hard Rock, OtherПродолжительность: 05:59:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:66A6B431827747D37A69A368E4BAAB5DC4B005C0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670026.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 670 017
 
 VA - Relaxing Rhythms - Chill Electronic  2023  [MP3|320 Kbps] <Electronic, Lounge, Chill Out, A
@@ -1889,106 +1989,6 @@ VA - Music News vol.290  2023  [MP3|320 Kbps] <Pop, Dance, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653802.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 653 520
-
-Oliver Shanti - Beating Heart  2023  [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditation>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Huanqiutan Garden [03:59]
-02. Chenresie, Flame of Peace and Compassion [06:44]
-03. Tang Xingqing Park [05:00]
-04. Tai Chi Ch uan Way and Meditation [07:23]    Читать дальше...    Жанр: Electronic, Lounge, Relax, MeditationПродолжительность: 05:53:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F5A9F3039CC76D95CD95D374AA6CC2C575CB94C5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653520.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 653 519
-
-Karunesh - Heart To Heart  2023  [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditation>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Dazzled by the Light [05:40]
-02. Humming [15:21]
-03. Japanese Spring [05:51]
-04. Moon Temple [05:50]    Читать дальше...    Жанр: Electronic, Lounge, Relax, MeditationПродолжительность: 05:32:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1FC1858D59BF87E66AA2333433733ED0C992CD62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653519.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 653 040
-
-VA - Дискотека 2023 Dance Club Vol. 220 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Part 1  Discoteka :
-001. Max Oazo feat. Bonzana - Rhythm Is A Dancer  3:13 
-002. R3hab, Inna & Sash! - Rock My Body  2:17 
-003. Robert Cristian feat. Alis Shuka - The Day Before  2:25     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 23:35:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:03CEDE1E5615DA14816F28BF440D237AB7319190
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653040.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 889
-
-VA - Сегодня на радио хиты FM Vol.13 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Yolanda Be Cool - Segunda feat Jonjon Extended Mix (5:48)
-002. BLOND ISH - Call My Name (Extended Mix) (5:00)
-003. Eelke Kleijn - Time Machine (4:31)
-004. Swedish House Mafia - Ray Of Solar (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:48:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:21C98137BB6083C4ADE85981CB479B6344FCAD95
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652889.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

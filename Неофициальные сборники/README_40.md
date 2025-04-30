@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 478 539
+
+VA - Rock  2021  [MP3|320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Godspeed You! Black Emperor - Job s Lament  8:02 
+002. Би-2 feat. Моя Мишель & Yuri Kasparyan & Глеб Колядин & Алексей Мещеряков & Антон Давидянц - Падал Свет  6:07 
+003. The Black Keys - Crawling Kingsnake  6:08 
+004. Greta Van Fleet - Broken Bells  5:50     Читать дальше...    Жанр: RockПродолжительность: 06:29:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9009A13EAA468A499B6838F1E43251FC2175806F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478539.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 478 456
+
+VA - German Top 100 Single Charts 18.06.2021 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Olivia Rodrigo - good 4 u
+02. Måneskin - Beggin 
+03. Måneskin - I WANNA BE YOUR SLAVE
+04. Nathan Evans - Wellerman  Sea Shanty   220 KID x Billen Ted Remix     Читать дальше...    Жанр: PopПродолжительность: 04:56:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:75D22C649D6A4B1D8F6C6BD1CE8512E65084D950
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478456.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 478 441
+
+VA - Music News vol.109  2021  [MP3|320 Kbps] <Pop, Soul, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Вера Брежнева - Розовый Дым  03:27 
+ 002. Aisha - Выдуманы  03:45 
+ 003. Юлия Пушман - Эй, Бой  02:20 
+ 004. Alice Change - Никому  04:02     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 06:23:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90639832DB9D63F45A533E2BEC9797B0C6DAD78C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478441.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 478 262
+
+VA - ЕвроХит Топ 40 Europa Plus 18.06.2021 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Chael feat. Kaii - Don t Speak  3:19 
+02. Imagine Dragons - Follow You  2:55 
+03. The Weeknd - Save Your Tears  3:35 
+04. INNA - Flashbacks  2:33     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:00:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3C66A073D342C075BE4C8B6C2D49BF897D7C4725
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1478262.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 478 178
 
 VA - Крутые пушки Лето 2021 [MP3|320 Kbps] <Club, Dance, Other>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1473995.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 473 992
-
-VA - Synergetic Nightclub  Vol.02   2021  [MP3|320 Kbps] <Club, Dance, House, EDM>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Folklore & Vacce - Krater
-002. Caox & Chris Fielding - Enemy
-003. Andrew Fields - Secret Place
-004. Maph - Ridin Dirty    Читать дальше...    Жанр: Club, Dance, House, EDMПродолжительность: 08:31:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A17BAB545B00EF38364140831CF9BD00CA9571B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1473992.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 473 990
-
-VA - The Clubbing Tech House  2021  [MP3|320 Kbps] <Tech House, Electro, EDM>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Dubmask - Tale Of
-002. Altamirano - Much Money
-003. Ohmme - Rewind
-004. Drag & Drop - Hypno Slap    Читать дальше...    Жанр: Tech House, Electro, EDMПродолжительность: 12:31:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E773B513CD643ADA911BE624A14674973348F121
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1473990.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 473 989
-
-VA - 80s Hits Essentials  2021  [MP3|320 Kbps] <Disco, Pop, Rock, RnB>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Toto - Africa
-02. Def Leppard - Pour Some Sugar On Me  Remastered 2017 
-03. Matthew Wilder - Break My Stride
-04. Bobby Brown - My Prerogative    Читать дальше...    Жанр: Disco, Pop, Rock, RnBПродолжительность: 07:51:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1A53B3BE235328526B3099C712EE15F37C7B9548
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1473989.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 473 988
-
-VA - The Favorite Fitness Music  2021  [MP3|320 Kbps] <EDM, Club, Dance, House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Scar And Eazyvibe - Life Without You
-002. Jonathan Touch - Brotherhood
-003. Dsigual - Natjwa
-004. Adam Cooper - Eyes Shut    Читать дальше...    Жанр: EDM, Club, Dance, HouseПродолжительность: 09:32:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2538BAFC4CA0C8349BF588F5D184245E76CB56F2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1473988.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

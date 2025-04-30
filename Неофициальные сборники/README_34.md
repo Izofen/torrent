@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 507 486
+
+VA - A Synthwave Panorama Vol. 5  2018  by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outru
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Heavy Malyari - Spaceman  5:52 
+02. StrayLight - Chasing The Light  4:28 
+03. IDEON - The World Might End Tomorrow  Gertrudda Edit   8:10 
+04. TrialCore - Living In Cybercity  3:56     Читать дальше...    Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:26:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D8788A90C392D7ABCEAF3CB409D10BC345E4B1E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507486.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 507 481
+
+VA - A Synthwave Panorama Vol. 4  2018  by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outru
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Pilotpriest - Archive Seven  5:45 
+02. STARLANDER - Station 5  5:10 
+03. Alseph - SuperNova  3:24 
+04. GUNSHIP - When You Grow Up, Your Heart Dies  5:50     Читать дальше...    Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C67649E4ADC86960B41C10D11DD1918DDDF38FA0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507481.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 507 477
+
+VA - A Synthwave Panorama Vol. 3  2018  by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outru
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. A Z U R E - The Future Is Now  4:06 
+02. Blaze of Gunfire - We Were So Young  Gertrudda Edit   4:26 
+03. STARLANDER - One Last Thing  6:18 
+04. Diamond Ace - Vulnerable Now  5:21     Читать дальше...    Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:28:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C010FB89EA8017F0D27E2959EAEC5413A9FC9820
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507477.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 507 443
+
+VA - A Synthwave Panorama Vol. 2  2018  by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outru
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Pilotpriest - Miracle Mile  Gertrudda Edit   7:45 
+02. Mr. McNoggin - Desire  4:11 
+03. AM 1984 - Red Sunset  4:55 
+04. N-THONY-N - Bells  6:35     Читать дальше...    Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:11:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E9F8B6E929A77162D5D0A43554D1B3A781A765B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507443.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 507 388
 
 VA - October Hip Hop Compilation  2021  [MP3|320 Kbps] <Hip Hop, Rap>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1501155.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 501 151
-
-VA - The Ambient Atmosphere: Relax Musical Collection  2021  [MP3|320 Kbps] <Ambient, Relax, Med
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Substak - Celestial
-002. Hvid Ø - Color
-003. Tomat Petrella - Oumuamua
-004. Heavenchord - Pacific Drone    Читать дальше...    Жанр: Ambient, Relax, Meditation, New AgeПродолжительность: 09:50:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F03A4662FB6ABAF883EFBF788F5D8A0D21DC0B82
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1501151.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 501 150
-
-VA - Soul Sugar  2021  [MP3|320 Kbps] <Funk, Soul, Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. The Steoples - Alas Alice
-002. Timewarp Inc - Breakbit
-003. Eunice Haze - String Around My Heart
-004. Niles Philips feat. Tonkin - Nose Dive    Читать дальше...    Жанр: Funk, Soul, JazzПродолжительность: 08:21:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D5C80D55621E26DF5F41878CC3A22C60BB95EA93
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1501150.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 501 145
-
-VA - Music News vol.139  2021  [MP3|320 Kbps] <Pop, Soul, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Анастасия Рэй - Я Смогу  02:39 
- 002. 24kGoldn feat. Lil Tecca - Prada  02:32 
- 003. A7S - Nirvana  Header Remix   03:17 
- 004. Aimee - Just A Phase  03:22     Читать дальше...    Жанр: Pop, Soul, DanceПродолжительность: 08:27:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F724DEC9370EEF07A31B0846FD40CCD7919520DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1501145.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 501 143
-
-VA - EDM Nation: October Dance Mixes  2021  [MP3|320 Kbps] <EDM, Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Sam Collins feat. Oniva - Something About You
-002. Br1an - We Just People
-003. Faul & Wad vs. Pnau - Changes
-004. DJ Jamx - Keep It That Way    Читать дальше...    Жанр: EDM, Club, DanceПродолжительность: 07:35:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5594CACB16B1B03C275F2F30791922499AD088EB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1501143.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

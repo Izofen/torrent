@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 453 163
+
+Lana Del Rey - Chemtrails Over the Country Club  2021  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. White Dress
+2. Chemtrails Over The Country Club
+3. Tulsa Jesus Freak
+4. Let Me Love You Like A Woman    Читать дальше...    Жанр: PopПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B3AE5674C7F4D29256A907C9D4713EDAC0AF0BCF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1453163.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 453 077
+
+Lida - Музло из гаражей  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01 - Али Ули  feat. S3RL  [02:58]
+02 - Анапа  feat. DK  [03:45]
+03 - Герда [02:49]
+04 - Евробит  feat. GSPD  [02:45]    Читать дальше...    Жанр: PopПродолжительность: 00:28:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A68C73B9E4DAD27ED4E6014E6B4A62F12CB1A1C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1453077.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 453 041
+
+Aleph - Little Wonder  2020  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Fire on the Moon  Under the Moon Version   5:30 
+02. I m on Fire  Grand Mix Extended Version   4:45 
+03. Must Be Love  3:50 
+04. Fly to Me  5:28     Читать дальше...    Жанр: Italo-Disco, EurobeatПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:492A85AC1BD4D312049A0C9AD435AC565961660C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1453041.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 453 040
 
 Aleph - Black Out  1988  Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
@@ -1916,78 +1991,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1444943.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 444 879
-
-Mia Boyka & Би-2 - Последний герой  2021  Single [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Последний геройЖанр: PopПродолжительность: 00:02:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:49063675623F1718690EB0FD4B03C94B41559416
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1444879.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 444 866
-
-M. A. 3 - M. A. 3  1978  LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Bee Gee s Mania  Medley   13:40 
-02. If You Wanna Dance  5:15 
-03. Music  4:13 
-04. When Will I See You Again  4:02     Читать дальше...    Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:22BC22B5D4DC672BC97376133CEA228302E41C2F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1444866.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 444 833
-
-Annie Lennox - Songs Of Mass Destruction  2007  [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Dark Road [3:47]
- 02. Love is Blind [4:19]
- 03. Smithereens [5:17]
- 04. Ghosts in My Machine [3:31]    Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3801A3E3E8B69D861A0148AD0A57749440807DA2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1444833.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

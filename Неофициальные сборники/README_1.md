@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 779 881
+
+VA - House of the past years (2025) [MP3|320 Kbps] <House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Worakls - Good Night My Love (Joachim Pastor Remix) (6:39)
+002. Tosel & Hale, Heavy Pins feat. Veselina Popova - Read The Signs (Radio Edit) (3:32)
+003. Tensnake feat. Fiora - See Right Through (4:28)
+004. Stefan Gruenwald, Lookee feat. Pearl Andersson - Wonderful Life (Radio Edit) (3:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 09:18:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7E38F660098E8C612B2E381B8BCAB824B2DB0760
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779881.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 779 590
+
+Beth Hart - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+Неофициальные сборники
+Jazz, Blues, Soul (сборники)
+
+###  Подробнее
+
+01. Delicious Surprise [04:15]
+02. Let's Get Together [04:10]
+03. Saved [04:31]
+04. Guilty [04:52](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:44:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:38922E875221A85A95329381C5FC9761AA7C4DE7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779590.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 779 507
+
+Johnny Valdivia - Mandolin Cover Compilation (2025) [MP3|320 Kbps] <Instrumental, Easy listening, Co
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. David Guetta, Johnny Valdivia - Lovers on the Sun
+02. Annalisa, Johnny Valdivia - Sinceramente
+03. Joe Dassin, Johnny Valdivia - Et Si Tu N'existais Pas
+04. Johnny Valdivia - The Beauty of Rose of Versailles(   Читать дальше...   )Жанр: Instrumental, Easy listening, CoverПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FC8546BB2F59AD5542BB850DE2CBC6729B68FDF9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779507.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 779 475
+
+Fidel Wicked - Compilation (2025) [MP3|320 Kbps] <Electronic>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01.  L'amour
+  02.  Wicked Angel
+  03.  Sadness
+  04.  Fidelity(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C865DC7808A1BDBB44E706B47D3B5C9D0D8044F2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779475.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 779 465
 
 VA - Music News For Forum vol.062 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -1877,106 +1977,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768759.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 768 741
-
-VA - Enigmatic World (2024) [MP3|320 Kbps] <Enigmatic, New Age, Electro>
-Неофициальные сборники
-Instrumental/New Age/Meditative/Relax (сборники)
-
-###  Подробнее
-
-001. Oliver Shanti & Friends - Sacral Nirvana (radio edit) [05:45]
-002. Lenny Mac Dowell - Red Buddha [12:35]
-003. Enya - May It Be [03:31]
-004. Era - Ameno (Remix) [03:50](   Читать дальше...   )Жанр: Enigmatic, New Age, ElectroПродолжительность: 06:00:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:21C5C98E27E915C34DF64930893F9BAF0BD91039
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768741.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 768 699
-
-VA - SAW 2 ((2005-2024)) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-001. Alter Bridge - Blackbird
-002. Blue Stahli - Anti You
-003. Corroded - 6 Ft. Of Anger
-004. Deftones - Change(   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, Progressive RockПродолжительность: 07:05:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E4DD8DE945A6E655774CC58AAF79BEA3F0BE00C1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768699.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 768 559
-
-VA - Новогодняя ночь хитов (2024) [MP3|320 Kbps] <Pop, Christmas>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Александр Добронравов, Варвара - Белая зима [03:24]
-002. Альфия Тагирова - Полёт В Новый Год [02:09]
-003. Игорь Николаев, Юлия Проскурякова, Вероника Николаева - Я люблю эту зиму [03:05]
-004. Константин Кожевников - Девушка Хочет Дедушку (feat. МПВ Бэнд) [03:10](   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 05:20:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25B7985585E924566B4C95FDAD7D0050532D7DA8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768559.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 768 301
-
-VA - Sensual Sexy Songs 2 (2024) [MP3|320 Kbps] <Pop, R&b, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Dua Lipa - Love Again (4:18)
-02. Kept Secret - 2's Forever (2:50)
-03. Labrinth - Mount Everest (2:37)
-04. ZHU - Faded (3:43)(   Читать дальше...   )Жанр: Pop, R&b, OtherПродолжительность: 02:53:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4483E748E684D25A9F3FB47D28C7067451CD84ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768301.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

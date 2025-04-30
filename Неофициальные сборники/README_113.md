@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 182 330
+
+VA - Для Тех, Кто Помнит! Русский Рок Vol.7 от Ovvod7  2017  [MP3|320 Kbps] <Рок>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01.  7Б - Молодые ветра  4:25
+02.  Король и Шут - Кукла колдуна  3:24
+03.  Ляпис Трубецкой - Ау  3:54
+04.  Ночные Снайперы  Диана Арбенина  - Асфальт  3:19    Читать дальше...    Жанр: РокПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E97669591858B4E7ED8D5A513D82155346A20945
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1182330.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 182 267
+
+VA - Games At Sunset: Psy Goa Trance  2017  [MP3|320 Kbps] <Psy, Goa Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Aumni - Microscope
+002. Mono - Music is my Reality
+003. Raccoon - Lizard In The Sphere  Original Mix 
+004. Diadem - Trick it    Читать дальше...    Жанр: Psy, Goa TranceПродолжительность: 12:14:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E47A47C72AC63EFAFF59BA02E21165440058EC7C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1182267.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 182 225
+
+VA - Progressive House: Beach Dance Classic Radio  2017  [MP3|320 Kbps] <Progressive House, Danc
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Cristoph - Feel feat Jem Cooke  Original Mix 
+002. Victor Ruiz - Dying Of The Light
+003. Supacooks - Aftermath  Original Mix 
+004. Rolo Green - Napier    Читать дальше...    Жанр: Progressive House, Dance, ClubПродолжительность: 12:55:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F338AF27FB9328A6131639CB4536BA7AA9071F2B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1182225.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 182 140
+
+VA - German Top 100 Single Charts 10.11.2017 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Bausa - Was du Liebe nennst
+002. Camila Cabello - Havana  feat. Young Thug 
+003. Post Malone - rockstar  feat. 21 Savage 
+004. ZAYN - Dusk Till Dawn  feat. Sia     Читать дальше...    Жанр: PopПродолжительность: 05:38:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C0904924607255E3C6FE9BF01F81A2447FE2D38C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1182140.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 182 136
 
 VA - Полночный Разговор Сборник Русского Шансона  2017  [MP3|256 Kbps] <Шансон, Авторская Песня>
@@ -1895,106 +1995,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1179019.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 178 996
-
-VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House и Trance от LORDEGRAF Vol.12  2017<4
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001.  Roger Sanchez feat. Lisa Pure - Lost  Artur Montecci Remix  4:52
-002.  Gucci Mane feat. Selena Gomez - Fetish 3:06
-003.  Snoop Dogg - Drop It Like It s Hot  Tim Gunter Remix  3:37
-004.  Midi Culture & Pascal Junior - New Rules  feat. Ben Woodward  5:23    Читать дальше...    Жанр: House, Deep House, ElectroПродолжительность: 07:14:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:901E4E482541368ADDB634FF5C77FA86483FD571
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178996.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 178 994
-
-VA - Synthetic  vol.7  2017  [MP3|243-320 Kbps] <Synthpop>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Heliophile - Tranen Van De Regen  04:09 
-02. Lay Your Ghost - The Flame  04:30 
-03. Torul - Further Skies  04:23 
-04. Loewenhertz - Wer sind Wir  03:40     Читать дальше...    Жанр: SynthpopПродолжительность: 01:48:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F61DE91438F30FA2190EC55AA101180BA0C57760
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178994.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 178 944
-
-VA - Reggae: The House Of Love  2017  [MP3|192-320 Kbps] <Reggae, Soul>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. Jimmy Cliff - Many Rivers To Cross
-002. Dennis Brown - Sitting and Watching
-003. Clinton Fearon - Waiting
-004. Dobby Dobson - Dobby Dobson - Loving Pauper    Читать дальше...    Жанр: Reggae, SoulПродолжительность: 05:53:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7AA2E03BC54644E8EC643B9A652F26F21F42BB34
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178944.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 178 918
-
-VA - По волне моей памяти: Том 27  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Ретр
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Игорь Тальков - Летний дождь 7:20
-02.  Олег Кацура - Большая Медведица 3:55
-03.  Юрий Лоза - Одиночество 3:33
-04.  Алла Пугачёва - А знаешь, все еще будет 3:18    Читать дальше...    Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:21:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7904183E8E034537FEBF8AD0B642442A486A6518
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1178918.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

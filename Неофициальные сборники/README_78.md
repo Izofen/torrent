@@ -1,4 +1,103 @@
 ﻿
+###  Публикация: 1 312 188
+
+VA - Best Deal The General DJ Evolution  2019  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Shaun Frank ft. Lexy Panterra - Where Do You Go  Original Mix  Smassh Cut Clean
+002. SACHI - Sparking My Fire  Original Mix  Smassh Intro Clean
+003. Ozuna ft Dozi - Si No Te Quiere  DJ Nasa VIP Redrum   Clap In - Clean 
+004. Mark Knight - The General  Original Mix  Clean CK Cut    Читать дальше...    Жанр: Pop, DanceПродолжительность: 08:40:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F4E852BD291D27C75B4202ED4FF31ADEAEB96833
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312188.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 312 140
+
+VA - не Громкие новинки недели 23  2019  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1.Archi-M feat. Самира - Ты и Я  3:43 
+2.Arkay - Причал  2:35 
+3.Asammuell - Несправедливо  2:51 
+4.Doni feat. Джоззи - Люби Меня Люби  3:12     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:43:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C7FEA70DE24F4FFECB0115577F3A25579A21EF31
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312140.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 312 026
+
+VA - German Top 100 Single Charts 05.07.2019 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+1.Capital Bra x Samra - Tilidin  2:52 
+2.Shawn Mendes & Camila Cabello - Señorita  3:11 
+3.Lil Nas X - Old Town Road  feat. Billy Ray Cyrus Жанр: PopПродолжительность: 05:14:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:180455DD6F647C0072CD90691645FA98310715F3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312026.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 312 014
+
+VA - Vertigo: Premium Techno Set  2019  [MP3|320 Kbps] <Techno, Minimal, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. D. Deep - Tech or
+002. Alan Carter - Brain  Original Mix 
+003. Nik Feral - Propersition  Original Mix 
+004. R.V.O - Merlin 500    Читать дальше...    Жанр: Techno, Minimal, ElectroПродолжительность: 11:11:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:42B94F2EC0B4AC211411B8D27AF0D2E85BF2A819
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1312014.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 311 916
 
 VA - German Top 50 Party Schlager Charts 01.07.2019  2019  [MP3|320 Kbps] <Pop, Dance>
@@ -1892,106 +1991,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1307711.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 307 682
-
-VA - Поехали кататься  2019  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1.Баста - Музыка, будь со мной  6:19 
-2.Madonna, Maluma - Medellín  4:58 
-3.Lil Dicky - Earth  4:41 
-4.Nicky Jam feat. J Balvin, Anuel AA y Arcangel - Ven y Hazlo Tu  4:22     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 01:58:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C45B1D195C8EB74AD9DC221BCB5CD71A1900443C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1307682.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 307 631
-
-VA - Empire Records - Red Star 7  2019  [MP3|320 Kbps] <Spacesynth>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-1.Sung - Auto Ran  Remaster   3:56 
-2.Night Runner - The Driver  4:05 
-3.Miami Beach Force - Neon Ninja  4:05 
-4.Jan-Friedrich Conrad - Spigelia  4:06     Читать дальше...    Жанр: SpacesynthПродолжительность: 02:32:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A75522C4089A8195EC1D3B72F84FB9157CAB9ABA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1307631.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 307 568
-
-VA - This Merry Planet - Space Voyage #1  2019  [MP3|320 Kbps] <Electronic, Synth-pop, Ambient>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.Schaltkreis Wassermann - Space Shuttle  12   Maxi Version   04:41 
-02.Oliver s Planet - Planetarium  10:22 
-03.Angella Dean - World X  05:03 
-04.Michael Stearns - Craft  Dimensional Release   06:29     Читать дальше...    Жанр: Electronic, Synth-pop, AmbientПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87A3573D333E53B3F027750FA91BE8B51CE76262
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1307568.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 307 259
-
-VA - Record Super Chart 590  2019  [MP3|320 Kbps] <Pop, House, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.Billie Eilish - Bad Guy  3:14 
-02.Aaron Smith - Dancin  Krono Remix   4:15 
-03.Mabel - Don t Call Me Up  R3hab Remix   2:33 
-04.Meduza feat. GOODBOYS - Piece Of Your Heart  2:32     Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D63552FD0DCCA0964541613ACB29864F736A65E6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1307259.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

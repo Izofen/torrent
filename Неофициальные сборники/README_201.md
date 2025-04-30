@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 832 357
+
+VA - 80 Cover Songs  2014  [MP3|320 кб с]<Dance, Pop, Disco, House>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. Billie Jean  Radio Mix  - Crew 7 feat. Geeno Fabulous
+02. Last Night a DJ Saved My Life - Outatime
+03. I Won t Let the Sun Go Down  Raggatone Edit  - Sunflash
+04. Ghostbusters  Dancecom Project Radio Version  - Sunrider
+05. Cuba  Sunset Crew Radio Edit  - Cuba Club
+06. Baby Come Back  A-Class Video Mix  - Soul Bros.
+07. Bad Boys  A-Class Video Mix  - Crew 7 feat. Soul Bros
+08. Born to Be Wild  Crew 7 & Hans-O-Matik Edit  - Dirty Impact feat. Chris Antonio
+09. Avenue  Radio Mix  - Crew 7
+10. California     Читать дальше...    Жанр: Dance, Pop, Disco, HouseПродолжительность: 04:23:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:16AAA46C614447218C0575CEFED16C6532125C81
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 832 238
+
+VA - Palmera Blanca Vol. 1: Antares  2014  [MP3|320 кб с]<IDM>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Intro 0:19
+02. 2ndMOUSE — Ronin 2:32
+03. Skrux — If You  Original Mix  5:08
+04. Mister Lies — flood you 3:51
+05. TroyBoi — Memoirs of an Angel 3:43
+06. Polarbye — We are stars master 4:05
+07. Why Murph — Leftovers 4:28
+08. $aturn — Pentecostic 4:51
+09. Chvrches — Mother We Share  KR$CHN Remix  3:17
+10. Cast — t 4:02    Читать дальше...    Жанр: IDMПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD64781534C3826928E654F40D8911EE1B25120C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 832 083
+
+VA - In Da Club Vol.80  2014  [MP3|320 кб с]<Trance, Vocal Trance, Uplifting Trance, Classic T
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Rafael Frost - In The Air
+002. 2nd Phase - Lesson Learned  Garry Heaney Remix 
+003. Andy Duguid feat. Shannon Hurley - I Want To Believe  Original Mix 
+004. Theta Rhythm - Fly With Me  Original Mix 
+005. Boxer - Fathom  LTN Remix 
+006. Mike Danis - For You  Juventa Club Mix 
+007. Ex-Driver & Alex Piletski - Last Rain  Aurosonic Remix 
+008. Johan Vilborg - Leaving Home  Original Mix 
+009. Timur Shafiev - Infarct  Arcalis Remix 
+010. Magnus - Hypnotic  Original Mix     Читать дальше...    Жанр: Trance, Vocal Trance, Classic TranceПродолжительность: 01:51:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99C46549DF3DF9C02939D62DF5E66D6AE20294C3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 831 873
+
+Студия Маркел - Тереза  2014  [MP3|320 кб с]<Blues>
+Неофициальные сборники
+Шансон, Авторская и Военная песня (сборники)
+
+###  Подробнее
+
+01. Чижик-пыжик  Андрей Шепелев - народные 
+02. Крутится-вертится шар голубой  Joe Cocker - народные 
+03. Постой, паровоз  Калинов мост - народные 
+04. Ой мороз мороз  B.B. King - народные 
+05. Лошадка  Eric Clapton - народные 
+06. Тереза  Chris Rea - народные 
+07. Ямщик, не гони лошадей  Joe Cocker - народные 
+08. Клён  Tony Joe White - Л. Шишко 
+09. В тропическом лесу купил я дачу  Janis Joplin - народные 
+10. Я милого узнаю по походке  George Gershwin - народные     Читать дальше...    Жанр: BluesПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BCAB4E21D7D2FE6CEFDF21D85F34193769CC8E36
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 831 826
 
 VA - Ретровечеринка Золотые 80-90е  2014  [MP3|320 кб с]<Disco, Pop, Dance>
@@ -2285,130 +2409,6 @@ Electronic (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:4002E47DF8A8B2D38BE22691EA3F50DBDC436382
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 828 713
-
-Баста - Всем нашим братьям EXtended  2014  [MP3|96-320 кб с]<Rap, Hip-Hop>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-01. БАСТА – Моя игра  1998 
-02. Баста  feat. Бумбокс  – Здесь даже солнца не видно
-03. Баста  feat. Кажэ Обойма  – Ангел
-04. Ноггано – Криминальная Россия
-05. Ноггано  feat. Купэ  – Компьютер это бутор
-06. Баста  feat. Гуф feat. Витя АК-47  – Тем кто с нами
-07. Ноггано – Мути без спешки
-08. Ноггано – Отвечаю за базар
-09. Баста  feat. Смоки Мо & Словетский  – Надежда.ру
-10. Ноггано  feat. Купэ  – Музыка Моего Гетто    Читать дальше...    Жанр: Rap, Hip-HopПродолжительность: 01:40:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:810127A1DA26193BE7DAF56B5CE76EDA6CC73147
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 828 647
-
-VA - Vocal Power Trance Vol 4  2014  [MP3|320 кб с]<Uplifting Trance, Vocal Trance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Melodic Culture - Sedna - Rene Ablaze Remix
-02. Javah - Hallowed Ground - Fallen Skies Remix
-03. Dmitry Zaharov - Higher Than Love - Denis Sender Remix
-04. Nico Otten - Sweetest Silence - Rene Ablaze & Global Influence Remix
-05. Aura - Heavy Session 2K11 - Loverush UK! Club Mix
-06. Tom Wright - Away - Nikita Rise & Roman Akrill Dub Mix
-07. Chris Forward - Kissed By The Wind - Original Mix
-08. Alexander Zhakulin - Antigravity - Original Mix
-09. Kerris - On The Run - Original Mix
-10. Kire - Can t You     Читать дальше...    Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:48:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F514F8CAA110B14F767124DF5ACBFF46DCE4C28
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 828 617
-
-VA - Golden History Rock Ballads  2014  [MP3|320 кб с]<Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Mr. Mister - Broken Wings
-02. T Pau - China In Your Hand
-03. OneRepublic - Stop And Stare
-04. REO Speedwagon - Can t Fight This Feeling
-05. Sheryl Crow - Run Baby Run
-06. John Farnham - You re The Voice
-07. Bangles - Eternal Flame
-08. Cher - Just Like Jesse James
-09. Harry Nilsson - Without You
-10. Various Artists - Heaven    Читать дальше...    Жанр: RockПродолжительность: 03:47:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7C697797F862C9583AFA2F87AD9AFB7B6FE640A8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_828617.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 828 418
-
-VA - Калина красная. Душевный шансон - 2  2014  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Стас Михайлов - Две Души
-02. Борис Леви - А Счастье Рядом
-03. Михаил Санин - Пусть Я Один
-04. Сергей Чернышев - Женушка
-05. Юрий Белоусов - Жизнь Продолжается
-06. Кабриолет - Бейб
-07. Олег Винник - Невеста
-08. Вячеслав Анисимов - Отец
-09. Сергей Сердюков - Не Оставляй
-10. Павел Кашин - Мечта    Читать дальше...    Жанр: ШансонПродолжительность: 06:07:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0265E770710F77FED375725BFF6E121D85BE4D82
 ```
 
 <div id="header" align="center">

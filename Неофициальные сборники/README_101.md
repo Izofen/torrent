@@ -1,4 +1,103 @@
 ﻿
+###  Публикация: 1 220 244
+
+VA - Need For Speed Vol.13  2018  [MP3|320 Kbps] <Dance, Hands Up>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Треклист:
+01. Naya Marie - Can You Hear My Voice  Radio Mix 
+02. Danny Keegan - Let the Music Do the Job  NeoTune! Edit 
+03. Bad Drums - R U Ready  Radio Mix     Читать дальше...    Жанр: Dance, Hands UpПродолжительность: 06:43:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D0E527E3501EBBCF7AAEC54C84D675E543C2F8B5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220244.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 243
+
+VA - Vocal Trance Collection Vol.11  2018  [MP3|320 Kbps] <Trance, Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Above & Beyond feat. Justine Suissa - Cold Feet  Extended Mix 
+02. Tribal Temptation - The Lines of Infinity  Original Mix 
+03. Somna & Cari - My Home  Extended Mix 
+04. MaRLo & Roxanne Emery - A Thousand Seas  Extended Mix     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 04:12:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C4DE135E5136EDA1DBCB2CE22B002EE649829B4E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220243.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 212
+
+VA - Удачной дороги. Любимые хиты шансона  7   2018  [MP3|256 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Виктор Тартанов - Рубиновое Сердце
+002. Сборная Союза - У Бога Рай Не Украдешь
+003. Сергей ТрофимовЖанр: ШансонПродолжительность: 06:16:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D30BF0697053685C16DEC86BE641E3F0A56A753
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220212.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 148
+
+VA - Club Dance Ambience vol.143  2018  [MP3|320 Kbps] <Club House, Vocal House, Electro House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Afgo - The Truth  Original Mix 
+002. Alain Deejay - Mirame  feat. Katiuscia Ruiz   Giovix Remix Edit 
+003. Andrea Tufo - Bassline Riddim  Original Mix 
+004. Anna Mirani - Come With Me  Original Mix     Читать дальше...    Жанр: Club House, Vocal House, Electro HouseПродолжительность: 07:47:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A53B5C5E8CD1CE5A2F861E01896754EF2034B52
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220148.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 220 115
 
 Sandra - Collection от ALEXnROCK  2018  [MP3|320 Kbps] <Pop>
@@ -1893,105 +1992,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218893.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 824
-
-VA - Русский Рок. Лучшее 2018  2018  [MP3|320 Kbps] <Рок>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Ночные Снайперы - инстаграм
-02. Сергей «Чиж» Чиграков, Олег Асса - Не спится
-03. Александр Иванов - Боже, какой пустяк
-04. Vespercellos - Я остаюсь    Читать дальше...    Жанр: РокПродолжительность: 06:29:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:35875247D6017389F6A19946BC340BD588906CB6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218824.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 721
-
-VA - Ocean Of Love: New Generation Italo Disco  2018  [MP3|320 Kbps] <Italo Disco, Dance, Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. MindXpander - Synchronicity
-002. Estimado - Hidden Love  Album Version 
-003. Sakis Gouzonis - Everyday Protection
-004. Synthgo - Bella Bella  Extended Version     Читать дальше...    Жанр: Italo Disco, Dance, PopПродолжительность: 09:03:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7A9213C902239E69F74B332372F003E6B2B2A162
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218721.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 717
-
-VA - Lounge Interior: Private Mood Set  2018  [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Rainer Schnelle - Beyond The Blue
-002. Tolubai - Close Your Eyes
-003. K37 - New Born  feat. Yellowbelly 
-004. Surfer - South Beach    Читать дальше...    Жанр: Lounge, Downtempo, ChilloutПродолжительность: 09:09:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E2B1CB4A67C88CE53E7986533D61FAC8F967F78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218717.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 627
-
-Terror Squad - Lean Back  2017  Remix [MP3|320 Kbps] <G-House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Lean Back
-2. DJ SAVIN
-3. Up MusicЖанр: G-HouseПродолжительность: 00:03:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06B237A7170F4D3EE03271AD1387BF2BBAD85A44
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218627.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

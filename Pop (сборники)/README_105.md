@@ -1,4 +1,80 @@
 ﻿
+###  Публикация: 932 442
+
+Джинсовые мальчики - Mini Disco  2015  [FLAC|image+.cue]<Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Волна
+02. Выше тополей  feat. «140 ударов в минуту» 
+03. Mini Disco
+04. Дождик    Читать дальше...    Жанр: PopПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DFAF395673715181E5A2610BC795563BDD00087E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932442.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 932 428
+
+VA - 300 Hits - Love Songs  2012  15CD [FLAC|track+.cue]<Pop, R&B, Soul, Rock, Country, Disco>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Как это поётся:  О любви так много песен сложено, я спою, тебе спою, ещё одну . Здесь же Вашему вниманию предлагается 16 часов беспрерывной любви с поцелуями Амура, стрелами Купидона и самым широким диапазоном музыкальной стилистики.
+К счастью, в этой коллекции достаточное количество классики жанра - перечислю лишь немногое Stand by Me   Ben E. King ,     Читать дальше...    Список альбомов:
+CD1 - I Will Survive
+CD2 - Timeless Love Songs
+CD3 - Always & Forever    Читать дальше...    Жанр: Pop, R&B, Soul, Rock, Country, DiscoФормат: 15CD, box setПродолжительность: 16:09:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:27788C7578B6A3FE14039C0790BB3DC5296743B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932428.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 932 389
+
+Modern Talking - The First Album & The Second Album  30th Anniversary Limited Special Edition  <
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. You re My Heart, You re My Soul  05:35 
+02. You Can Win If You Want  03:51 
+03. There s too Much Blue in Missing You  04:42 
+04. Diamonds Never Made a Lady  04:06     Читать дальше...    Жанр: Europop, Euro-Dance, Dance-PopПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B4528915B0D5C91BEF83663215FCDDA50E951A78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932389.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 932 165
 
 Halsey - BADLANDS  2015  Deluxe Edition [MP3|320 кб с]<Indie Pop, Electronic>
@@ -1916,81 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918249.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 918 184
-
-VA - Super Vara 2015  2015  [FLAC|image + .cue]<Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1
-
-01.Amna feat. Glance - Evacuat  4:16 
-02.Anda Adam feat. CRBL - Seri de mai  3:20     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:43:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F317E36127C418FC4C401BB5899FE67238918C97
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918184.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 918 180
-
-Life In Film - Here It Comes  2015  Deluxe Version [MP3|320 кб с]<Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Alleyway
-02. Set It Off
-03. Are You Sure?
-04. Lose Control    Читать дальше...    Жанр: Indie PopПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE0239846A9DF7968B5E4E56F766E70416306617
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918180.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 918 005
-
-VA - Radio 538: Hitzone 74  2015  2CD [FLAC|image +.cue]<Pop, Dance, Top40>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Armin van Buuren feat. Mr. Probz - Another You
-02. Jess Glynne - Hold My Hand
-03. Avicii - Waiting For Love
-04. Magic! - No Way No    Читать дальше...    Жанр: Pop, Dance, Top40Продолжительность: 02:31:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36056075898FE9B29049169DEB7854480A538610
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918005.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

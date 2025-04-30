@@ -1,4 +1,103 @@
 ﻿
+###  Публикация: 918 946
+
+VA - Мачо. Академия новинок шансона  2015  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня (сборники)
+
+###  Подробнее
+
+001. Группа Север - Напиши
+002. Мурки - Мачо
+003. Джанго - До Тебя
+004. Галина Журавлева - Ты Мои Услышал Ноты    Читать дальше...    Жанр: ШансонПродолжительность: 06:04:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B2F3D96E355584EA846E9ADA6355E2D88984276D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918946.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 918 837
+
+VA - Dreams of a shaman 3  2015  [MP3|320 кб с]<Native American, World, Ethnic Fusion, Folk>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Sacred Spirit - Comanchy
+02. Indian Mistic - Night Song
+03. Waykey - Spirit voicesЖанр: Native American, World, Ethnic Fusion, FolkПродолжительность: 02:48:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBEA5E3D7B5EBEE8894C572769E4F5E0C90FFCB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918837.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 918 803
+
+VA - Summer Top House Music  2015  [MP3|320 кб с]<Dance, Club, House>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. Marotto - Bounce The Sun  Original Mix 
+02. Dim Sum - High Love  Original Mix 
+03. Dimmi & Goldfish - The Storm  Original Mix 
+04. Collarbones - Turning  Flume Remix     Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 11:35:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F01E8E367E10644F47AAB0013BA16D19115399CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918803.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 918 733
+
+VA - За рулем. Зарубежный  2015  [MP3|256-320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Jason Derulo - Want To Want Me
+002. Taylor Swift - Style
+003. Sheppard - Sheppard-Geronimo
+004. Galantis - Runaway  U & I     Читать дальше...    Жанр: PopПродолжительность: 06:10:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1EE1F2C9EA7C123C9037D4416CDEA199528B7EF1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918733.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 918 713
 
 VA - Славянский Меч IV-Славься, Свентовид!. Часть 1 - 3.  2015  [MP3|128 - 320 кб с]<Folk, Pag
@@ -1889,106 +1988,6 @@ Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_913078.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 912 967
-
-VA - Sexy Elevator Music  2015  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Victor Peixiero - In the Air Tonight [05:16]
-02. Bossanatics, Ana Costa & Barry Gibb - Night Fever [03:56]
-03. Diana Martinez - Time After Time [05:21]
-04. Andre Sarbib - Every Breath You Take [03:41]    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:03:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13CFFBC6F678B781307CBA26BD1B2F130FAFC345
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912967.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 912 889
-
-VA - Дискотека забытых хитов  зарубежная  - 13  2015  [MP3|246 - 269 кб с]<Pop, Disco>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Tommy Bow - Dance Tonight  07:28 
-02. Fockewulf 190 - Body Heat  06:26 
-03. Felli - Greatest Mind  06:37 
-04. Mac Jr. - Elephant Song  07:11     Читать дальше...    Жанр: Pop, DiscoПродолжительность: 04:31:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3437F3E34DDBB9E2E7087BC4A8332EEBD49137CF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912889.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 912 868
-
-VA - Extra Trance  episode 4   2015  [MP3|320 кб с]<Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Peter Steele - Mantra  The Noble Six Remix   07:33 
-02. Sean Mathews - Dubai Sunset  Original Mix   07:12 
-03. Fisher & Sean Tyas - Something In The Way  Original Mix   08:11 
-04. Freigeist - Back in the Days  Original Mix   08:37     Читать дальше...    Жанр: TranceПродолжительность: 02:08:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B1795E7F1586A1588B43B7CEC3830289D721936D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912868.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 912 858
-
-VA - Club Dance  2015  [MP3|319-448 кб с]<Club, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Africanism & Erik Hagleton - Together Forever  Erik Hagleton & Chris Garcia Remix 
-002. Mark Jenkyns, MC Chickaboo - On Me  Club Tweak 
-003. Luca Garaboni - Bassword  Original Mix 
-004. Rio Dela Duna, Erik Hagleton & Africanism - En la Mar  Erik Hagleton Rework The Cube Guys Remix     Читать дальше...    Жанр: Club, DanceПродолжительность: 09:36:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:82A77CBA76E0846D0FE7BF938335D47AB8FC1114
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_912858.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

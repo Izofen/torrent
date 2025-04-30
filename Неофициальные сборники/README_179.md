@@ -1,4 +1,103 @@
 ﻿
+###  Публикация: 959 169
+
+VA - Trance 100 Best Of 2015  EDM RG Deluxe Edition   2015  [MP3|320 кб с]<Trance, Progres
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Armin van Buuren feat. Mr.Probz - Another You  Mark Sixma Remix  04:42
+002. Gaia - Carnation  Original Mix  05:14
+003. Jody Wisternoff feat. Sian Evans - The Bridge  Chicane Rework  05:48
+004. W&W - The One  Extended Mix  04:03    Читать дальше...    Жанр: Trance, Progressive, Melodic, VocalФормат: CD, CompilationПродолжительность: 14:34:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E2039AB274C533D91CF37430E72DD45C6F365C07
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959169.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 959 159
+
+VA - Bermuda Island: Uplifting Vocal Trance  2015  [MP3|320 кб с]<Trance, Uplifting Trance, Vo
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Jennifer Rene, Somna - Back to Life  Original Mix  07:01
+002. Ana Criado - Arms Of Surrender - Original 06:13
+003. Special - Express To Callisto  Stella Project Remix  09:24
+004. Stephane Badey & DJ T.h. With Eva Kade - Checkmate  Denis Sender Radio Edit  03:23    Читать дальше...    Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 09:36:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:32FBA142369DBA2A31835673039F501EF1F32B25
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959159.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 959 156
+
+VA - Autumn Festival: 100 Club House  2015  [MP3|320 кб с]<Club House, Dance, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Kygo - Stole the Show  feat. Parson James  03:32
+002. Sigala - Easy Love  Faaiirr Remix  04:29
+003. Felix Jaehn - Ain t Nobody  Loves Me Better Жанр: Club House, Dance, ElectroПродолжительность: 08:21:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:36CC8DB860DC913692119B35970F338343B835C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959156.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 959 133
+
+VA - White Chill-Out Vol 3  2015  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Dennis Bailey - Kafan - Radio Edit
+02. Bastian Clark - Take a Break - Original Mix
+03. Chuck Mertens - Moshy - Original Mix
+04. Alec Gonzalez - Lia - Original Mix    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA86EFC93FB61EAF6CB5FFE2296F51FEECB54C9B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_959133.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 959 069
 
 VA - After Work Lounge Vol 3    2015  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
@@ -1894,106 +1993,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_954766.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 954 692
-
-VA - Dance Hits Romanian Style 2016  Extended Versions   2015  [MP3|320 кб с]<Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Sianna - Without Your Love  Extended Mix 
-02. DJ Layla - Searching 4 Love  Hudson Leite & Thaellysson Pablo Remix 
-03. Enea Marchesini - Mueve Suave  Extended Mix 
-04. Lorina - Away From Home  Stephan F Remix     Читать дальше...    Жанр: DanceПродолжительность: 02:42:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A93E757530DA0B39B822987C7F1C23425AFB24B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_954692.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 954 662
-
-VA - Beatport Top 100 Deep House October  2015  [MP3|320 кб с]<Deep House, House, Electronica>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Butch - Dope  Original Mix  08:30
-002. Purple Disco Machine, Boris Dlugosch - L.O.V.E.  Original Mix  05:31
-003. Justin Jay - Rain Dance 06:23
-004. EDX - Belong  Extended Mix  06:19    Читать дальше...    Жанр: Deep House, House, ElectronicaПродолжительность: 11:40:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7F9B49B1E3058AE7F03F7872E9671BC4CE29D14C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_954662.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 954 657
-
-VA - Top Club 40 - October  2015  [MP3|224-320 кб с]<Dance, Club, Electro, Remixes>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Nicky Jam x Enrique Iglesias - El Perdon  Intro Club Mix By Martin B.  04:01
-02. Eva Simons - Policeman  Club Mix  03:33
-03. Willy William - Te Quiero  Extended Mix  04:22
-04. Amine - Senorita  Extended Mix  03:09    Читать дальше...    Жанр: Dance, Club, Electro, RemixesПродолжительность: 04:31:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5FE2F72CEBD5BB1E8224AE008C0B4D25552D3224
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_954657.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 954 637
-
-VA - Beatport Indie Dance   Nu Disco Top 100 October  2015  [MP3|320 кб с]<Indie Dance   N
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Platinum Doug - Play with Me  Original Mix  05:14
-002. Giacca & Flores - Last Night A DJ Saved My Life  Original Mix  05:12
-003. Giacca & Flores - New Monday  Original Mix  05:52
-004. Base On & Jean Bacarreza - Back 2 Basicz  Original Mix  06:51    Читать дальше...    Жанр: Indie Dance   Nu Disco, G-House, ElectronicaПродолжительность: 09:54:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8EFE662F58A6CBEC367C2AE74719D10C0D8F878B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_954637.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

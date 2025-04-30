@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 732 406
+
+Duran Duran - My Own Way (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. My Own Way (Single Version) [00:03:42]
+02. Like an Angel [00:04:47]
+03. My Own Way (Night Version) [00:06:36]
+04. My Own Way (Carnival Remix; 2009 Remaster) [00:04:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9DCA9CEDDAEC8D801576D4CF2A9AC276307B818
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1732406.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 731 930
+
+VA - DJ Hits '98 Volume 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Doctor Delite - Let The Music Play (Radio Mix)
+02. Sweetbox - Another Minute (Album version)
+03. Ultimate KAOS - Casanova (7 mix)
+04. Express Of Sound feat. Afrika Bambaataa - Funky Weekend (Radio Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:30CB76CE726F0AB1DD946EFEB3D6CC9598BD89A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731930.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 731 779
+
+VA - DJ Hits Vol. 91 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Louise - Naked
+02. Los Del Mar - Macarena
+03. Shaggy - Boombastic
+04. Coolio feat. LV - Gangsta's Paradise(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:312FC9BA7CDCAAE8E1B6DDDC80D36AE48FAF19AD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731779.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 731 448
 
 Cream & Sugar - Cream & Sugar (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -1909,81 +1984,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1723583.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 723 398
-
-VA - Dance: Made in Italy (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Shympulz - Bionic Brain (Short Cut) (5:15)
-02. Dj Sheep & Luici Galconi - Feel the Same (Nightcore Remix) (2:27)
-03. Fantasy Project - Don't Know Why (C.Y.T. Nightcore Edit) (3:09)
-04. A19 - Beijing (4:24)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:10:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1C9D38C9B29DA13406752AC316B04868655E8D35
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1723398.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 723 396
-
-VA - The Disco Rock Years (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco. Pop, Rock>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. Kiss - I Was Made For Lovin' You (4:29)
-02. Angel - 20th Century Foxes (5:26)
-03. Blondie - Heart Of Glass (Disco Version) (5:49)
-04. The Rolling Stones - Miss You (2009 Mix) (4:48)(   Читать дальше...   )Жанр: Disco. Pop, RockПродолжительность: 02:10:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:099CDE9098220209EA474F754B6A50ECB2DAE60B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1723396.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 723 194
-
-VA - The Best of Italo Disco, Vol. 3 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. Patty Johnson - I'm In Love (Europe Version) (6:03)
-02. Jimmy Ross - First True Love Affair (Larry Levan Remix) (7:09)
-03. International Music System - Dancing Therapy (128 Bpm) (6:05)
-04. Tom Hooker - Love Attack (Extended Mix) (5:25)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:58:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E2938F1514B387EC76DE7352D3FFFFBC41C5B51
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1723194.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 399 402
+
+VA - Radio DFM Top D-Chart Июль 2020 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+1. twocolors - Lovefool  3:10 
+2. Intelligency - August  Alex Shik & Alex One Remix   3:35 
+3. MARUV & Boosin - I Want You  2:55 
+4. Dua Lipa - Break My Heart  Leo Burn Remix   2:52     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:43:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C8FF5CF0BA6FDC32F6AD338175BC336F49874381
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1399402.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 399 331
+
+VA - Sound City: Urban Techno Party  2020  [MP3|320 Kbps] <Techno>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Nematic - Pecular
+002. Javago - Engine
+003. Hypnotrixx - No Confusion
+004. And - Screaming    Читать дальше...    Жанр: TechnoПродолжительность: 10:18:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E825267D899E93F11F2ADE76C7974E8C5F7E0A16
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1399331.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 399 309
+
+VA - SpaceSynth World 2  2020  [MP3|320 Kbps] <Synthpop, Spacesynth, Synthwave>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Atomic Space Project - 25 Billion Miles Of Space  5:17 
+02. Cyber Space - Danger From Space  5:47 
+03. Didier Marouani & Space - Voices Of Jupiter  By QSSMm and Qkj   4:21 
+04. Future Synth - Source Of Space  5:23     Читать дальше...    Жанр: Synthpop, Spacesynth, SynthwaveПродолжительность: 05:16:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F9B87A17B43E44328B6CD5499E0DE4E314123B2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1399309.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 399 254
+
+VA - Shazam Хит-парад Russia Top 100 Июль  2020  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. DaBro - Юность  3:39 
+002. Jvla - Such A Whore  Stellular Remix   2:28 
+003. Twocolors - Lovefool  3:10 
+004. JONY & Gafur - Lollipop  2:29     Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:22:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:632C6A6A371638C3711084B15BA9D86A6949EDAB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1399254.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 399 146
 
 VA - Love me as I love you  playlist for sex  2020  2CD [MP3|320 Kbps] <Easy Listening, Rock
@@ -1892,106 +1992,6 @@ VA - Vocalove  2020  [MP3|320 Kbps] <Pop, Rock, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395965.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 395 703
-
-VA - Шансон Музыкальный хит-парад  2020  [MP3|320 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-1. Сергей Клушин - Мои Друзья  5:37 
-2. Владимир Ждамиров - А я несу тебе цветы  3:43 
-3. Андрей Курбатов & Лера Огонёк - Тишину Хочу  4:37 
-4. Михаил Шуфутинский - Поздняя любовь  3:58     Читать дальше...    Жанр: ШансонПродолжительность: 04:13:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CBEBE14705C20979F0742BBEF5CA8F57A8F8523F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395703.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 395 602
-
-VA - German Top 100 Single Charts 10.07.2020 [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Apache 207 - Bläulich
-02. Jawsh 685, Jason Derulo - Savage Love  Laxed - Siren Beat 
-03. UFO361 - Emotions
-04. DaBaby - ROCKSTAR  feat. Roddy Ricch     Читать дальше...    Жанр: PopПродолжительность: 04:59:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FFF34847F492424F1412C4BA56ADEA08C80CD899
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395602.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 395 596
-
-VA - The Official UK Top 40 Singles Chart 10.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Jawsh 685 - Savage Love  Laxed - Siren Beat 
-02. DaBaby - ROCKSTAR
-03. Lady Gaga - Rain On Me
-04. Topic - Breaking Me    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:04:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0745EB902A71D6B8EC9198727069B209172FA9E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395596.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 395 587
-
-VA - ЕвроХит Топ 40 Europa Plus 10.07.2020 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1. Ya Rick - Lost My Mind  2:53 
-2. Ava Max - Salt  3:00 
-3. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead  2:32 
-4. Filatov & Karas feat. Deepest Blue - Give It Away  3:27     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:08:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7FBD82DA9F78020CCE2AC9209608026DE24FB36E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395587.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

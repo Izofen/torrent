@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 196 777
+
+Bebu Silvetti - 40 Exitos  2008  2CD [MP3|320 Kbps] <Pop, Disco, Easy Listening>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Хуан Фернандо Сильветти Адорно  27 марта 1944 года — 5 июля 2003 года , более известный как Бебу Сильветти — аргентинский композитор, пианист, дирижёр, аранжировщик и музыкальный продюсер. Пик популярности Бебу Сильветти как композитора пришёлся на конец 70-х — начало 80-х годов. Как продюсер стал обладателем премии Billboard Music Awards в 2002 году и обладателем     Читать дальше...    01. Lluvia de primavera  5:55 
+02. Atmosfera  4:44 
+03. Fin de semana  2:30 
+04. Lluvia de cocos  3:26     Читать дальше...    Жанр: Pop, Disco, Easy ListeningПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5195FEA473F6223A80A99CCDD5261FC75A00C81A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196777.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 196 745
+
+VA - Dance Hits Explode  2017  [MP3|320 Kbps] <Euro Dance, Pop Dance>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Justin Bjur – Paper Hearts 2:59
+02. Julie Griffin – Party Part 2 3:55
+03. Thomas Papadopoulos – Proxima 4:16
+04. Shifter X – Rolling Ball 2:45    Читать дальше...    Жанр: Euro Dance, Pop DanceПродолжительность: 01:24:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:633DD856EB7629B48674C856BDD1CC029A4488AB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196745.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 196 730
+
+Зола - Кровожадная  2017  EP [MP3|320 Kbps] <Indie Pop, Indie Rock, Electronic>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Кровожадная
+02. Вопросы
+03. Париж
+04. Не взрывай    Читать дальше...    Жанр: Indie Pop, Indie Rock, ElectronicПродолжительность: 00:19:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DDDDE48CF0B4DBC4893B99B28D9DD0652F1C5166
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196730.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 196 708
 
 VA - Ретро Шлягер  Зимний   2006  [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
@@ -1917,81 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191675.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 652
-
-VA - Absolute Music 83  2017  [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R&B, Soul>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Avicii feat. Sandro Cavazza - Without You  3:02 
-02. Justin Bieber + BloodPop® - Friends  3:10 
-03. DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I m The One  4:49 
-04. Portugal. The Man - Feel It Still  2:43     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Electronic, Soul, R&B, Dancepop, House, Electropop, Synthpop, Pop-Rock, FolkПродолжительность: 01:51:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0991553557C301A71239AC92AC5F19A983366B37
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191652.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 651
-
-Bottle Of Moonshine - Everybody Watches No One Knows  2014  [MP3|320 Kbps] <60 s-70 s Retro
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Horst
-02. Two Faced
-03. Frankly
-04. Medusa    Читать дальше...    Жанр: 60 s-70 s Retro Pop  Ska, Rocksteady, Reggae, Mambo , Female Vocal JazzПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:416AB227D0A3DA644D68E3F630FCB66A19F9CAC4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191651.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 191 641
-
-VA - Absolute Music 82  2017  [FLAC|Lossless|tracks] <Pop, Pop-Rock, Dancepop, House, R&B, Soul>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Wiktoria - As I Lay Me Down  3:11 
-02. Kygo with Selena Gomez - It Ain t Me  3:39 
-03. Julia Michaels - Issues  2:56 
-04. Calvin Harris - My Way  3:39     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Soul, Rock, R&B, Dancepop, House, Electropop, Pop-Rock, Country, FolkПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F39EAD16B3D9CAA4D9DA08FE99B125FAD5201464
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1191641.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

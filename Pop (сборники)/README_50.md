@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 350 026
+
+Sally Shapiro - Remix Romance Vol. 1  2008  [FLAC|Lossless|image + .cue] <Italo-Disco, Downtempo
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+1 I ll Be By Your Side  Tensnake Remix  7:38
+2 I Know You re My Love  Juan MacLean Remix  8:00
+3 Find My Soul  Holy Fuck Remix  4:23
+4 Anorak Christmas  Woodhands Remix  5:20    Читать дальше...    Жанр: Italo-Disco, Downtempo, HouseПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E74C219C6CE2D4E842E957E89ABA467C640535F2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1350026.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 349 926
+
+Стас Михайлов - Лучшие песни  2016  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Там  3:40 
+ 02. Без тебя  4:20 
+ 03. Ну, вот и всё  4:05 
+ 04. Всё для тебя  3:54     Читать дальше...    Жанр: Pop, ChansonПродолжительность: 04:02:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:18C3FD6072070938C601605214CBED8ADC6CAA63
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349926.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 349 873
+
+VA - Disco Hits Exclusive Collection  1989  [FLAC|Lossless|image + .cue] <Euro-Disco, Eurobeat,
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01 – Gail Berry My Miracle Is Love  Dance Mix  6:06
+02 – Ken Laszlo Everybody Is Dancing 7:15
+03 – Pat & Bel Without You  Dance Mix  6:13
+04 – Francesco Salvi Esatto!  Mix Version  5:32    Читать дальше...    Жанр: Euro-Disco, Eurobeat, Hi NRGПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7D6004944AB040D60EEB46D812F041963579FAF8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1349873.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 349 870
 
 Estimado - The Escape to Heaven  2017  [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
@@ -1915,81 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343214.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 207
-
-New Mexico - New Mexico  1980  LP [MP3|320 Kbps] <Funk, Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Take It To Your Limit  4:36 
-02. It s Love  4:00 
-03. Skate With Me  3:21 
-04. Get Up And Dance  3:13     Читать дальше...    Жанр: Funk, Soul, DiscoПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4CA4F55004E02BB994CB0655E970D04A0DEA0ADC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343207.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 192
-
-VA - Blow Up Disco Vol 6 : Nu-Disco & Italodisco Grooves From Blow Up Disco  2019  [FLAC|Lossles
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Barbara Billet – Babies Blue  mix version   6:50 
-02. Barbara Billet – Babies Blue  Babie version   4:25 
-03. Barbara Billet – Babies Blue  Help version   2:33 
-04. Iloveu – I Just Wanna Tell You Baby  Friends In Love mix   6:20     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:18:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F55DA780220E8659D491AC8A0150D6FEC142689
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343192.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 185
-
-VA - Blow Up Disco Vol 5: Italo Heaven  A Sexy Selection Of Italodisco!   2019  [FLAC|Lossle
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Mikron s – Vision  instrumental Italo version   7:06 
-02. Mikron s – Vision  Club mix   7:29 
-03. E.B. 87 – Song Of Love  Italo mix   4:54 
-04. E.B. 87 – Easy Love  4:20     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:207A1B3A2B4502E60EBDE29CDA7EF824FF009F57
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343185.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

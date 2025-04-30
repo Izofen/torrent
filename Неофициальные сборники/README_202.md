@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 828 713
+
+Баста - Всем нашим братьям EXtended  2014  [MP3|96-320 кб с]<Rap, Hip-Hop>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+01. БАСТА – Моя игра  1998 
+02. Баста  feat. Бумбокс  – Здесь даже солнца не видно
+03. Баста  feat. Кажэ Обойма  – Ангел
+04. Ноггано – Криминальная Россия
+05. Ноггано  feat. Купэ  – Компьютер это бутор
+06. Баста  feat. Гуф feat. Витя АК-47  – Тем кто с нами
+07. Ноггано – Мути без спешки
+08. Ноггано – Отвечаю за базар
+09. Баста  feat. Смоки Мо & Словетский  – Надежда.ру
+10. Ноггано  feat. Купэ  – Музыка Моего Гетто    Читать дальше...    Жанр: Rap, Hip-HopПродолжительность: 01:40:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:810127A1DA26193BE7DAF56B5CE76EDA6CC73147
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 828 647
+
+VA - Vocal Power Trance Vol 4  2014  [MP3|320 кб с]<Uplifting Trance, Vocal Trance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Melodic Culture - Sedna - Rene Ablaze Remix
+02. Javah - Hallowed Ground - Fallen Skies Remix
+03. Dmitry Zaharov - Higher Than Love - Denis Sender Remix
+04. Nico Otten - Sweetest Silence - Rene Ablaze & Global Influence Remix
+05. Aura - Heavy Session 2K11 - Loverush UK! Club Mix
+06. Tom Wright - Away - Nikita Rise & Roman Akrill Dub Mix
+07. Chris Forward - Kissed By The Wind - Original Mix
+08. Alexander Zhakulin - Antigravity - Original Mix
+09. Kerris - On The Run - Original Mix
+10. Kire - Can t You     Читать дальше...    Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:48:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F514F8CAA110B14F767124DF5ACBFF46DCE4C28
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 828 617
+
+VA - Golden History Rock Ballads  2014  [MP3|320 кб с]<Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Mr. Mister - Broken Wings
+02. T Pau - China In Your Hand
+03. OneRepublic - Stop And Stare
+04. REO Speedwagon - Can t Fight This Feeling
+05. Sheryl Crow - Run Baby Run
+06. John Farnham - You re The Voice
+07. Bangles - Eternal Flame
+08. Cher - Just Like Jesse James
+09. Harry Nilsson - Without You
+10. Various Artists - Heaven    Читать дальше...    Жанр: RockПродолжительность: 03:47:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7C697797F862C9583AFA2F87AD9AFB7B6FE640A8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_828617.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 828 418
+
+VA - Калина красная. Душевный шансон - 2  2014  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Стас Михайлов - Две Души
+02. Борис Леви - А Счастье Рядом
+03. Михаил Санин - Пусть Я Один
+04. Сергей Чернышев - Женушка
+05. Юрий Белоусов - Жизнь Продолжается
+06. Кабриолет - Бейб
+07. Олег Винник - Невеста
+08. Вячеслав Анисимов - Отец
+09. Сергей Сердюков - Не Оставляй
+10. Павел Кашин - Мечта    Читать дальше...    Жанр: ШансонПродолжительность: 06:07:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0265E770710F77FED375725BFF6E121D85BE4D82
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 828 413
 
 VA - Дискотека Non-Stop. Самые горячие хиты  2014  [MP3|256 кб с]<Pop, Dance>
@@ -2284,118 +2408,6 @@ VA - Super Bomb Electro 46  2014  [MP3|320 кб с]<Electro House>
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:5BBFE488B3C5CA3B8E20A3E38C29EB0F2F604FC6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 822 214
-
-VA - Night Show Dance 2  2014  [MP3|320 кб с]<House, Tech House, Deep House, Progressive House
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Zo! feat. Erro & Phonte - We Are On The Move  Joey Negro Revival Mix .
-02. Distant People feat. Stephanie Cooke - Send Me  Reelsoul Full Length Mix .
-03. Fafaq vs. Anthony Attia & Novabroken - Overload Hell Yeah  Matt Neve Mashup 
-04. Mr. Probz - Waves  Robin Schulz Radio Edit .
-05. White Soul Project - Ever Love  Richard Earnshaw s Classic Reconstruction .
-06. Masahiro Nishibata - Undulating Lines  Reiklavik Remix  .
-07. Pray For More feat. Eddy - Brand New Day 2014  MoD & Staffan Thorsell Remix .     Читать дальше...    Жанр: House, Tech House, Deep House, Progressive HouseПродолжительность: 02:30:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B1FD778F444EB680FED592351557D4771F10ADB9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 822 158
-
-VA - Не Попса. Rock - Cocktail  2014  [MP3|320 кб с]<Rock, Hard Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Uriah Heep - Easy Livin
-02. Kingdom Come - Outsider
-03. Motley Crue - Kickstart My Heart
-04. UDO - Break The Rules    Читать дальше...    Жанр: Rock, Hard RockПродолжительность: 07:45:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:66DB622524C1C92773666EAED13535DD975B6F10
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_822158.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 822 045
-
-VA - Клубные Новинки Vol.500  2014  [MP3|320 кб с]<Dance, Club>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Kaimo K & Sopheary - I Will Feel Again  Orginal Mix 
-02. Dan Thompson - Skywalker  Original Mix 
-03. Driftmoon vs. Geert Huinink feat. Kim - Forever  Original Mix 
-04. Denise Rivera, Dennis Pedersen - For You To Wake Up  UDM Remix 
-05. Crazibiza, Lauer & Canard feat. Max Williams - Fantasy  Original Club Mix 
-06. Paul Oakenfold - Barbers Adagio for Strigs  Club Mix 
-07. Davey Asprey - Illusions  Original Mix 
-08. Nico Otten feat. Crystal Balkk - Sweetest Silence  Rene Ablaze & Global Influence     Читать дальше...    Жанр: Dance, ClubПродолжительность: 05:07:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:608DBFABD7EB8607585493EBF46A23D88F20AE99
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 822 039
-
-VA - Клубные Новинки Vol.498  2014  [MP3|320 кб с]<Dance, Club>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Shakira - Empire  Gustavo Scorpio Club Mix 
-02. Chris Jones, Feel, Vadim Spark - So Lonely  Kaimo K Dub 
-03. Pau Webster - Hold On  Quest 4 Trance Beach Anthem 2014   Original Mix 
-04. Vitodito & Talamanca - Gran Via  Original Mix 
-05. Mischa & NekliFF feat. Anna Rome - Almost Gone  Original Mix 
-06. Super8 & Tab feat. Julie Thompson - No Frontiers  Original Mix 
-07. Aurosonic & Neev Kennedy - Now I See  Progressive Mix 
-08. Diego Broggio, Castaman - Come On Get Up  The Cube Guys Mix 
-09.     Читать дальше...    Жанр: Dance, ClubПродолжительность: 05:10:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:746300D9155D09C07624E42D59AD7F0C7BC89F9D
 ```
 
 <div id="header" align="center">

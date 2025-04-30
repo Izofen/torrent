@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 241 488
+
+ВИА Путiна - Отмечаем, зажигаем  2005  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Отмечаем, зажигаем  3:15 
+02. Рублёвка  2:57 
+03. Москва  2:53 
+04. Пенсия  2:39     Читать дальше...    Жанр: PopПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1AFAB950AEDCD539182005902B96E8D9443AA825
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241488.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 241 479
+
+RSF - RSF  2018  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Leftfield>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+1. Valentino  6:12 
+2. Michael  4:10 
+3. Chez Konrad  6:01 
+4. Beduine  6:32     Читать дальше...    Жанр: Italo-Disco, LeftfieldПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29D44F8EAF75B03DA2568B0600F84AE5FD06427E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241479.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 241 477
+
+RSF - RSF  2018  [MP3|320 Kbps] <Italo-Disco, Leftfield>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+1. Valentino  6:12 
+2. Michael  4:10 
+3. Chez Konrad  6:01 
+4. Beduine  6:32     Читать дальше...    Жанр: Italo-Disco, LeftfieldПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3F27B143BD7BD1281BA48BC1C269FCAE8751BF1A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241477.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 241 452
 
 Frantique - Frantique  1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -1920,81 +1995,6 @@ CD01
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1236950.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 236 866
-
-Монеточка - Раскраски для взрослых  2018  [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Teen Po
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Русский ковчег  3:34 
-02. Каждый раз  3:28 
-03. Нимфоманка  2:41 
-04. Нет монет  4:38     Читать дальше...    Жанр: Pop, Indie Pop, Teen PopПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C761406FA493723998964B5F8F1C70E80B3004AF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1236866.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 236 651
-
-Black Sun - 2 Albums  1978, 1980  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Women  5:58 
-02. Look Again  6:16 
-03. Message From The Stars  6:15 
-04. Carnaval  7:09     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C618904DF8E9FF6AD8F4ECD0CC0E520271206B12
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1236651.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 236 426
-
-Tom Tom Club - 5 Studio Albums  1981-2000  CD [MP3|320 Kbps] <Electronic, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-1981 - Tom Tom Club
-1983 - Close To The Bone
-1988 - Boom Boom Chi Boom Boom    Читать дальше...    Жанр: Electronic, PopПродолжительность: 04:59:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:69D08C6608CAEC0583A4D758F8C4413BC27EBB46
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1236426.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

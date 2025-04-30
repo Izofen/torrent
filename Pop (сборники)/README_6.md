@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 738 621
+
+Wild Cherry - 4 Albums (1976-1979) Collection LP [MP3|320 Kbps] <Rock, Funk, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Wild Cherry начинали как обычная рок-группа, игравшая мелодичный хард-рок в стиле Огайо с влиянием прото-пауэр-попа. Они записали пару альбомов самостоятельно, прежде чем подписали контракт с лейблом Brown Bag Терри Найта. Эти записи не оказали большого влияния, и группа на некоторое время распалась. Примерно в 1975 году первоначальный лидер Wild Cherry Роб Парисси (   Читать дальше...   )Список альбомов:
+1976 - Wild Cherry
+1977 - Electrified Funk
+1978 - I Love My Music(   Читать дальше...   )Жанр: Rock, Funk, DiscoПродолжительность: 02:27:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0A5B1E97FED83C9D697029FE514BA6F86F70DD9C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738621.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 616
+
+VA - La Bola De Discoteca (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Lipps Inc. - Funkytown (Single Version) (3:55)
+02. ABBA - Dancing Queen (3:52)
+03. Donna Summer - Bad Girls (Gigamesh Remix) (5:20)
+04. Jessie Ware - Pearls (4:04)(   Читать дальше...   )Жанр: PopПродолжительность: 04:34:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4981FDF40C5E7FF61CAD45873E6D6F788EC91B85
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738616.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 519
+
+Max Him - The Original Maxi-Singles Collection (2014) Remastered [OGG Vorbis|480 Kbps] <Electronic,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Roadhouse Blues (Psychotic Version)
+02. No Escape (Vocal) (12 Version)
+03. Lady Fantasy (Vocal) (12 Version)
+04. Japanese Girl (Vocal Version)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:025FE3F87401E3D650B968A5B37F40BA976FA13D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738519.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 738 470
 
 Макс Фадеев - Танцуй На Битом Стекле (1992) Reissue, 1998,  J.S.P. [WavPack|Lossless|image + .cue] <
@@ -1919,81 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1732429.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 732 406
-
-Duran Duran - My Own Way (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. My Own Way (Single Version) [00:03:42]
-02. Like an Angel [00:04:47]
-03. My Own Way (Night Version) [00:06:36]
-04. My Own Way (Carnival Remix; 2009 Remaster) [00:04:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9DCA9CEDDAEC8D801576D4CF2A9AC276307B818
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1732406.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 930
-
-VA - DJ Hits '98 Volume 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Doctor Delite - Let The Music Play (Radio Mix)
-02. Sweetbox - Another Minute (Album version)
-03. Ultimate KAOS - Casanova (7 mix)
-04. Express Of Sound feat. Afrika Bambaataa - Funky Weekend (Radio Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:30CB76CE726F0AB1DD946EFEB3D6CC9598BD89A6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731930.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 731 779
-
-VA - DJ Hits Vol. 91 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Louise - Naked
-02. Los Del Mar - Macarena
-03. Shaggy - Boombastic
-04. Coolio feat. LV - Gangsta's Paradise(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:312FC9BA7CDCAAE8E1B6DDDC80D36AE48FAF19AD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1731779.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

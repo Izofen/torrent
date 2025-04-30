@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 99 160
+
+Николай Носков - The Best (2004) [APE|Lossless]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Это здорово
+02 - Я тебя люблю
+03 - Паранойя
+04 - Снег(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A833FF3B37F6B076B910F8F68EA78FE542C81D86
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_99160.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 98 717
+
+Chilly - For Your Love 1978 -Come To L.A 1979 -Secret Lies 1982  [FLAC+Cue|940 kbps]<Pop
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Dimension 5  3:18 
+02. Secret Lies  3:11 
+03. Ten Million Dollar Baby  2:40 
+04. Brain Storming  3:44     Читать дальше...    Жанр: PopПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:518B8467F9DEB7EE9AD5F832F96225986A162BDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_98717.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 90 292
+
+Marlene Dietrich - Lili Marlene  1950  [MP3|320 kbps]<Cabaret,Chanson>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Lili Marlene  0:03:09 
+2. Mean to Me  0:03:11 
+3. Annie Doesn t Live Here Anymore  0:02:58 
+4. Surrey With the Fringe on Top  0:03:35     Читать дальше...    Жанр: Cabaret,ChansonПродолжительность: 0:25:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B12E63E8386BD8524596772CB766CBA1C20E4BEA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_90292.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 89 828
 
 Blue System - Дискография (1987-2009) 52 CD [MP3|192]<Pop>

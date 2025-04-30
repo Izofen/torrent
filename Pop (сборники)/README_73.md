@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 219 037
+
+Donna Summer - The Dance Collection  1987  Reissue, Mercury, 2013 [MP3|320 Kbps] <Electronic, Fu
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+A Compilation Of Twelve Inch Singles  Сборник двенадцатидюймовых синглов 01. I Feel Love  8:15 
+02. With Your Love  7:34 
+03. Last Dance  8:14 
+04. MacArthur Park Suite  17:35 :    Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:37FF6FA137FD6A9CDCC8D33FC4AB29D408A73AA7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219037.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 973
+
+Инна Маликова & Новые Самоцветы - 12  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Склеим
+2. Зелёные глаза
+3. Раны
+4. Ты моей никогда не будешь    Читать дальше...    Жанр: PopПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A4B34CF810522EC79B6824A4A23814BAA51256DC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218973.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 218 782
+
+VA - Ministry Of Sound I Love Acoustic  2018  3CD [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Sigala & Paloma Faith - Lullaby
+02 - Jax Jones, RAYE - You Don t Know Me - Acoustic Version
+03 - Stormzy, Wretch 32, Aion Clarke, Aion - Blinded By Your Grace, Pt. 2  Acoustic 
+04 - Not3s, Mabel - My Lover - Radio Edit    Читать дальше...    Жанр: PopПродолжительность: 03:35:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D097931383994319CFEC5F2D523F5BA09CD067A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218782.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 218 676
 
 Brad Paisley  Брэд Пейсли  - Who Needs Pictures  1999  Arista Nashville [MP3|320 Kbps] <Coun
@@ -1918,81 +1993,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212815.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 212 697
-
-VA - #Dance 2018: Club & Dance News Vol.4  2018  [MP3|320 Kbps] <Dance, Pop, House>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. Jason Derulo – Tip Toe  feat. French Montana   03:07 
-02. Martin Garrix & David Guetta – So Far Away  Bad Decisions Remix   04:06 
-03. Lea – Leiser  03:26 
-04. Nico Santos – Rooftop  03:14     Читать дальше...    Жанр: Dance, Pop, HouseПродолжительность: 02:30:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99DBF8D4170D190D939BC1B275B9EB4799AAA0F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212697.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 212 682
-
-VA - 90s Dance Hits Vol.1  2018  [MP3|320 Kbps] <Eurodance, Euro House>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01.  Haddaway  -  What Is Love  7  Mix   4:30
-02.  Technotronic  -  Pump Up The Jam  Radio Edit   3:37
-03.  Gigi D Agostino  -  La Passion  New Radio Cut   3:02
-04.  Eiffel 65  -  Blue  Da Ba Dee   DJ Ponte Ice Pop Radio   4:44    Читать дальше...    Жанр: Eurodance, Euro HouseПродолжительность: 02:33:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7691CC16A6F504F67C13EB79F3C5B6DBA6DB0635
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212682.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 212 633
-
-New Paradise - 6 Albums  1977-1983  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Французский студийный диско-проект, созданный Leo Carrier. Изначальное название было просто  Paradise , со вторым альбомом появились как  Paradise Birds  и лишь с третьим альбомом стали неизменно выходить как  New Paradise . В составе присутствовали три вокалистки. Проект незаслуженно прошел мимо многих стран.Список альбомов:
-1977 - Back To America  Paradise 
-1978 - I Am A Song  Paradise  Paradise Birds 
-1979 - New Paradise  1     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 03:23:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06A1244F6336326CD95B5BFAB962633C80226BF6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212633.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

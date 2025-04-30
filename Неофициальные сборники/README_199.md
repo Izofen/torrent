@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 840 931
+
+VA - Resident Advisor Top 50 For October  2014  [MP3|229-320 кб с]<Tech House, Deep House, Tec
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Culoe De Song - Y.O.U.D.  Original Mix  08:32
+02. Adriatique - Rollox  Original Mix  06:17
+03. Corrado Bucci - Open Your Eyes  Andres Remix  06:29
+04. Stephan Bodzin - Sungam  Original Mix  08:50
+05. Recondite - Caldera  Original Mix  08:53
+06. Josh Wink - Talking To You  Original Mix  08:49
+07. Patrice Baumel - Mile High Gang  Original Mix  07:12
+08. Rodhad - Haumea  AЖанр: Tech House, Deep House, Techno, Minimal, Indie Dance, Nu DiscoПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E3C49058BE1BDBF06DD09B2B6CBC08087DC6EC4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 840 722
+
+VA - DFM - TOP 300  2014  [MP3| 128 - 320кб с]<Dance, Club, Trance, House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001 - Feder-Lyse - Goodbye  Dj Antonio rmx   2:47 
+002 - SAK NOEL Vs. DJ KUBA & NEITAN ft. Mayra Veronica - No Boyfriend  3:12 
+003 - DJ Noiz feat. Asti - Зацелую  3:46 
+004 - ZHU - Faded  Original Mix   3:52 
+005 - Потап и Настя - Манго   2:24 
+006 - Kiesza - Hideaway  DFM rmx   4:11 
+007 - Arash Feat. Helena - One Day  Golden Star Radio Mix 
+008 - Dr. Alban - Its My Life 2014  Bodybangers Radio Edit 
+009 - Fytch - In These Shadows  feat. Carmen Forbes 
+010 - David Guetta - Dangerous  feat. Sam Martin      Читать дальше...    Жанр: Dance, Club, Trance, HouseПродолжительность: 18:07:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7773E61C118371108BDD31348ED7CA142648D415
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 840 717
+
+VA - Chillstep World Vol.12  2014  [MP3|320 кб с]<Chillstep, Chillout, Dubstep>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. CMA - Youre Not Alone  Original Mix 
+02. Dabin & Koda - The Take Down  Original Mix 
+03. Dee Flack Feat. Eternall & Elo Method - Serenity  Fracture Design Remix 
+04. Electus - Dukkha
+05. Electus - Stay With Me
+06. ENiGMA Dubz - Before We Started
+07. frequentative. - Go Away
+08. Jacoo - Memories  Original 
+09. KOSIKK - Persia
+10. Motorcycle - As The Rush Comes  High Rankin Remix     Читать дальше...    Жанр: Chillstep, Chillout, Dubstep
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:08AA13FCC8DEAF0EB609D9A3814DF14FB65386D3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 840 682
+
+VA - Клубная Автодискотека. Хит За Хитом  2014  [MP3|320 кб с]<Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Armin van Buuren - Hystereo  Original Mix  05:05
+02. Alesso feat. Tove Lo - Heroes  Chris Davies Remix  05:01
+03. Aeon - Back Scratcher  Original Mix  04:55
+04. ElectroRythm - Turn Up The Bass  Original Mix  04:52
+05. Skyfreak - Fire  Original Mix  04:51
+06. DJ Gollum feat. DJ Cap - Give Me Five  Easter Hymn 2K14  04:53
+07. Kai Wachi - Vivacity  Original Mix  04:47
+08. Driftmoon - Phantoms  Original Mix  04:51
+09. Far Too Loud - Boom!  Original Mix  04:47
+10. D.O.D - Pop Pop  Original Mix  04:46    Читать дальше...    Жанр: Dance, ClubПродолжительность: 06:56:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9326A87B86DBD649F7DEE158A37E2425F9AC5CA7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 840 247
 
 VA - Vocal Trance Temptation Volume 36  2014  [MP3|320 кб с]<Vocal Trance>
@@ -2276,129 +2398,6 @@ Electronic  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:7E3B06FDC7F8317CD42B67A5CD47EDDC04F65A45
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 835 205
-
-VA - Hardcore Top 100 - Best Of 2014  2014  [MP3|320 кб с]<Techno, Hardcore, Schranz>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. N3AR & Lowroller - Minnesota [04:21]
-002. The Wishmaster - Everybody Hardcore [04:28]
-003. Amnesys & Tommyknocker Ft. Jessica Pearson - Eliminate [04:29]
-004. N-Vader - The Enemy [04:18]
-005. Placid K - G Member  Placid K 8PM Remix  [04:31]
-006. Miosa Ft. MC Rephex - Going Hard [05:27]
-007. Cruel Intentions - Slaves Ever Since [05:10]
-008. Biorekk - Get Up on this [05:12]
-009. Decipher & Shinra - Execute [05:30]
-010. Endymion - Gladiator  Album Edit  [03:48]    Читать дальше...    Жанр: Techno, Hardcore, SchranzПродолжительность: 10:39:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D5901BB49BF51A715FF509B6A750757428001F3B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 835 199
-
-VA - Hardstyle Top 100 Best of 2014  24.10.2014  [MP3|320 кб с]<Techno, Hardstyle, Jumpstyle>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. Audiotricz & TNT - Ghettoblaster  Edit  [03:24]
-002. Code Black - Unleash the Beast  Defqon.1 Australia Anthem 2014   Edit  [05:01]
-003. Dillytek Ft. Missjudged - This Moment [05:30]
-004. Pherato - Start Living [04:19]
-005. Max Enforcer - Journey [05:56]
-006. Audiofreq Ft. Teddy - Elevation [04:16]
-007. Atmozfears & Energyzed - Rapture [04:42]
-008. Toneshifterz - Wild Wild Weekend  the Qontinent Anthem 2014  [06:33]
-009. Crystal Lake - BVRN! [04:29]
-010. Joeysuki & Kill the Buzz - Life is Calling     Читать дальше...    Жанр: Techno, Hardstyle, JumpstyleПродолжительность: 10:43:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:811AD2BD15DC3818833E6F4E4A718DABD0741CB0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 835 185
-
-VA - Club Playlist Autumn Edition 2014  25.10.2014  [MP3|320 кб с]<Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Magnessi - Kangaroo  Original Mix  [04:39]
-02. Bart Claessen - How I Roll  Original Mix  [05:14]
-03. Labrinth - Let It Be  Matrix & Futurebound Vocal Edit  [04:36]
-04. 2SOULS feat. Digital Heroes & Lexell - Get Down  Original Mix  [05:13]
-05. MAKJ & Lil John - Let s Get Fucked Up  Doggun Remix Competition  [04:22]
-06. DJ Mikesh - Discoshit  Ill-Ko & Mike Air Remix  [05:10]
-07. Kaizer - Neapolis  Original Mix  [04:20]
-08. Chris Lake - Squeak  Tom Piper Remix  [05:08]
-09. Joe Bermudez feat.     Читать дальше...    Жанр: Dance, ClubПродолжительность: 06:10:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DE0A15C2C6A8EC06DEA7F021C184CACDA0893BFC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 835 104
-
-VA - Trance Pro V.64  2014  [MP3|320 кб с]<Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Stella Project - Perfect Day  John Sunlight Remix 
-02. Luke Warner - Epiphany  Original Mix 
-03. Ronny K. - Simferopolis  Original Mix 
-04. Solis & Sean Truby - Marina  Original Mix 
-05. ArtuR - Days  Original Mix 
-06. TerraNation - Spirits of Egypt  Original Mix 
-07. Scorpius - Storm Tears  In Progress Distorted Orchestra Mix 
-08. Mitchell Claxton - Dive  Icedream Remix 
-09. KAYAT - Nordwind  Touchstone Remix 
-10. Otto Uplifting - I ll Miss You  Original Mix     Читать дальше...    Жанр: TranceПродолжительность: 06:14:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:77D06DCEA1830FC687893BFDB1A2D60014EA47B0
 ```
 
 <div id="header" align="center">

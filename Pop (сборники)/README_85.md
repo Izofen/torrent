@@ -1,4 +1,77 @@
 ﻿
+###  Публикация: 1 132 295
+
+Julio Iglesias - Mexico & Amigos  2017  [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 12. Usted  Con Diego Torres   3:29 
+ 02 12. Jurame  Con Juan Luis Guerra   4:08 
+ 03 12. Ella  Con Sin Bandera   3:46 
+ 04 12. Fallaste Corazon  Con Placido Domingo   4:01     Читать дальше...    Жанр: Pop, LatinПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AAE210015FF37147B5E9634BF7C651A54716F51D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132295.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 132 277
+
+Katy Perry - Chained to the Rhythm  2017  Single [FLAC|Lossless|tracks + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Chained to the Rhythm  feat Skip Marley   3:58 
+02. Chained to the Rhythm  Instrumental    3:58 Жанр: PopПродолжительность: 00:07:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D0960CC8DCD70146C3FC4FE2E7D591058AEB6D73
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132277.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 132 179
+
+PLS PLS - LP LP  2013  [MP3|256 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Circles
+02. On Off On
+03. Pigs
+04. WCA    Читать дальше...    Жанр: Indie Pop Rock, Electronic Rock, SynthpopПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D04CFE789AABB6F1B38B1B00F2F1B739D0ED7149
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132179.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 132 174
 
 PLS PLS - Jet Black  2017  [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
@@ -1913,81 +1986,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126303.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 125 779
-
-A La Carte - Nonstop 56 Hits  1989  2CD Box Set, Reissue 2006 [FLAC|Lossless|image + .cue] <Synt
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. Sun Sun Summertime  0:12 
-02. Put Your Hand On Your Heart  1:59 
-03. Take Me To Your Heart  1:42 
-04. Hooray! Hooray! It s A Holi-Holiday!  1:27     Читать дальше...    Жанр: Synth-pop, DiscoФормат: 2хCD, Compilation, MixedПродолжительность: 01:24:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BCF5FF7AD6C4F5F81D3C4504F385C126E4AD8D61
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1125779.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 125 744
-
-A La Carte - Sun Sun Summertime  1989  Vinil-Rip [MP3|320 Kbps] <Synth-pop, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Part 1
-Sun Sun Summertime
-Put Your Hand On Your Heart
-Take Me To Your Heart    Читать дальше...    Жанр: Synth-pop, DiscoПродолжительность: 01:21:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DD26DD0069647CE7054D3700E6CDC4228C868725
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1125744.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 125 611
-
-VA - Germanys Next Topmodel: Best Catwalk Hits 2017  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Bruno Mars – 24k Magic
-02. Jax Jones – You Don’t Know Me
-03. Alice Merton – No Roots
-04. Alma – Chasing Highs    Читать дальше...    Жанр: PopПродолжительность: 02:39:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D459610DD9AA573A588728833C87D4CE7089F2CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1125611.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

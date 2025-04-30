@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 129 829
+
+VA - German Top 100 Single Charts 01.05.2017  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Luis Fonsi – Despacito  feat. Daddy Yankee 
+002. Ed Sheeran – Shape of You
+003. Burak Yeter – Tuesday  feat. Danelle Sandoval 
+004. Jason Derulo – Swalla  feat. Nicki Minaj Ty Dolla ign     Читать дальше...    Жанр: PopПродолжительность: 05:56:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:05DC35AE439E8042C625B15DC69E119C1869AD77
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1129829.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 129 814
+
+VA - Music Of Dreams: Original Relax Mix  2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+001.  Deep Sleep Hypnosis Masters - Massage Music  3:26
+002.  Xerxes & Phoenix - Scarecrow  4:04
+003.  351 Lake Shore Drive - Frozen Heart  6:51
+004.  Marga Sol - Ibiza Blue  5:03    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:37:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C5FBCB06225BF76480A8009B7EBA71D379865F91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1129814.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 129 773
+
+VA - Nostalgia Collection  Volume Second   2017  [MP3|320 Kbps] <Pop, Rock, Disco>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001.  Francis Goya - Nostalgia  3:53
+002.  Liza Minelli - Cabaret  3:37
+003.  Boyz II Men - End Of The Road  5:54
+004.  SuperMax - Camillo  4:05    Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 10:25:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:143CBF4077D35A42828E80B9808BA903E8A3EF9C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1129773.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 129 696
+
+VA - Nostalgia Collection  Volume One   2017  [MP3|320 Kbps] <Pop, Rock, Disco>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001.  Demis Roussos - From Souvenirs To Souvenirs  2:38
+002.  F.R.David - Words  3:28
+003.  Enigma - Principles Of Lust  4:13
+004.  Earth, Wind & Fire - Fantasy  3:48    Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 09:34:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E912F2350EEED93428E62175E7ABF41CFEC12C6B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1129696.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 129 531
 
 VA - Eurodance Compilation  2017  [MP3|320 Kbps] <Eurodance>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1127756.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 127 755
-
-VA - Лучший весенний хит. Версия № 11  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Швец - Фиолент 2:27
-002. Тина Кароль - Lost In The Rain 3:18
-003. Ольга Бузова - Привыкаю 3:49
-004. Катерина Корс - Так Близко 3:49    Читать дальше...    Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BDE0AD65191035BF58AF24E60E4B08802BB382A9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1127755.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 127 753
-
-VA - Сотка популярных весенних хитов версия № 6  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Инфинити Feat. Гена Дудин - Воланчик 3:18
-002. Илья Гуров - Геолокация 3:14
-003. Егор Диких - Маэстро 3:55
-004. Владимир - Голливуд 3:19    Читать дальше...    Жанр: PopПродолжительность: 06:03:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A7B603CF98C64D994E059185CFFE8478918EE45
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1127753.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 127 747
-
-VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Диана Громова - Не Хочется 2:58
-002. Mike Perry Feat. Casso - Inside The Lines 3:25
-003. Катерина Sky - Мне Тебя Не Хватает 3:21
-004. Sigala & Digital Farm Animals - Only One 3:24    Читать дальше...    Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E9A6761CB1FA8CD3400D41DD14B87F25ACE8A0F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1127747.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 127 742
-
-VA - Положительный заряд от Хит FM. Выпуск № 8  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Katya Tu - Неформатный 3:14
-002. Queens - Зачем 3:09
-003. Bogachi - Тебя Люблю Я 3:03
-004. Анжелика Варум - Голос 4:43    Читать дальше...    Жанр: PopПродолжительность: 06:03:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B8DD08C0271124F5ED0FF023A4D1E8CAFF1EF94
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1127742.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

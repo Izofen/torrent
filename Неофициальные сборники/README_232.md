@@ -1,4 +1,121 @@
 ﻿
+###  Публикация: 640 515
+
+VA - Electro Life 24  by ZiP  2013  [MP3|320 kbps]<Electro House, Electro Progressive>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. 30 Second To Mars - From Yesterday  Tony Igy Remix 
+02. Alexey Romeo ft. Gerald G - This Is Your Life  Heartbeat Re-Mode 
+03. Avicii - UMF  Ultra Music Festival Anthem  -Жанр: Electro House, Electro Progressive, Progressive House, Vocal HouseПродолжительность: 02:12:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5BF10FA8484633C86BB5943091BE22DD12DB2988
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_640515.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 640 501
+
+VA - Радио Record Superchart Top-33  06.04.2013  [MP3|320 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. MACKLEMORE & RYAN LEWIS - Thrift Shop  Mikael Wills Bootleg 
+ 02. Dj Indygo feat. Chris Antonio - Fuck This Early Morning  Royal XTC Remix 
+ 03. Adrian Sina Feat. Sandra N. - Angel  South Blast! Nympho Angel Remix 
+ 04. Bingo Players feat. Far East Movement - Get Up  Rattle 
+ 05. Havana Brown feat. R3hab & Prophet - Big Banana  Original Mix 
+ 06. Deorro - For President  Original Mix 
+ 07. Movetown feat. R. Horton - Here Comes The Sun  Record Mix 
+ 08. Baauer - Harlem Shake
+ 09. Starfuckers feat. Miracle - One Night
+ 10. Icona Pop - I Love It  DJ KUBA & NE!TAN Bootleg Жанр: Pop, DanceПродолжительность: 02:31:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:574F6B3C8E7ADE4181F199D7B3ADF6E2A07E4529
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 640 324
+
+VA - Candlelight and Roses  10CD   2013  [MP3|320 кб с]<Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+1. Franck Chacksfield - The way you look tonight   02:59
+2. Norman Candler - Come dancing   02:39
+3. Bert Kaempfert - Hold me   02:51
+4. Les & Larry Elgart - Meditation   02:50
+5. Living Strings - What a diff rence a day made   03:21
+6. Lawrence Welk - Goin  home   02:32
+7. Helmut Brandenburg & The Philharmonic Pop Orchestra - Affaire du coeur   04:25
+8. Tony Hatch - You d better come home   02:49
+9. Manuel and The Music Of The Mountains - Softly as in a sunrise   02:44
+10. Sounds Orchestral - It s too late   04:17    Читать дальше...    Жанр: InstrumentalПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:936E82F7CA1BB350468EFFB267E6B4B4902367FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_640324.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 640 304
+
+VA - Power Metal Ballads 16  2013  [MP3|224 кб с]<Heavy, Sympho, Glam, Prog, Power Metal, Ball
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001-Golden Ressurection-The Light Overture
+002-Asylum Pure-Will You Believe Me
+003-AtVance-Don t Dream
+004-Baton Rouge-Free
+005-Big Bad Wolf-Crystal
+006-Braveride-At the Village
+007-Dare-Calm Before The Storm
+008-Dragons Cave-Ghosts of the Past
+009-Epica-Delirium
+010-Firewind-Edge Of A Dream  feat. Apocalyptica     Читать дальше...    Жанр: Heavy, Sympho, Glam, Prog, Power Metal, BalladsПродолжительность: 07:20:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D7A2885BE6D4FD67F881BE3AE1A71036A3C0017
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 640 289
 
 VA - Casanova Lounge Vol. 1-4  Musical Moment of Love & Passion - Brazil Lounge Cafe   5CD 
@@ -2285,125 +2402,6 @@ CD1:
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 626 501
-
-VA - Drive Poison Melody Days  2013  [MP3|320 кб с]<Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Mauro Panello Feat Mimi - Rise  Alex Greed Remix  07:00
- 02. Mike Van Fabio, X-Thoff & Jack Noise Feat Helen Sylk - One More Day  Marcos Remix  08:31
- 03. Markus Schulz - The Spiritual Gateway  Transmission Theme 2013   Radio Edit  02:17
- 04. Las Salinas - Chipsy Kings  Genix Remix  06:25
- 05. Mark Eteson & Luke Bond - 4 Days Out  Radio Edit  04:21
- 06. Markus Schulz - Nothing Without Me  Feat Ana Diaz-Beat Service Remix  07:12
- 07. Luca De Maas - Futility Of Resistance  Otto Uplifting Remix  08:35
- 08. Mino Safy - Everlasting  Alan Cuevas & Diego.Morrill Remix  08:03Жанр: TranceПродолжительность: 03:14:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:91078704F309A8E1059979417CF14717C34F7F2C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 626 491
-
-VA - Moment Oasis Dreams  2013  [MP3|320 кб с]<Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Misja Helsloot Feat Fisher - Inspire  Original Vocal  07:59
- 02. Mohamed Bahi - Casablanca 08:42
- 03. Moonbeam - The Raven  Rosie Romero Ian Round Remix  05:34
- 04. Moonbeam Feat Jacob A - Only You 04:15
- 05. Alex Butcher - More & More  Club Mix  06:22
- 06. Morvan - Charisma  Original Mix  06:08
- 07. Morvan - When We Fly  Original Mix  06:26
- 08. Mr Nagasaki & Andrey Subbotin Feat Monika Star - My Love  Original Mix  05:02Жанр: TranceПродолжительность: 06:52:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D91DB71DAF0A831C5757B882948F027337A188F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 626 475
-
-VA - Club Dubstep №29  2013  [MP3|320 кб с]<Dubstep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Gemini feat. Fabienne - 3D Romeo  Original Mix 
-02. J.Nitrous - Anywhere But Here  Original Mix 
-03. Quba ft. Daniella - Be Better  Original Mix 
-04. Infuze - Black Out
-05. Rye Rye - Boom Boom  EOS Remix .
-06. Beauty Brain, Poisound - Bullfighter
-07. Jibbs - Chain Hang Low  Crizzly & AFK Remix 
-08. Zeds Dead & Omar Linx - Crank
-09. Majai - Crumble  Klaypex Remix Жанр: DubstepПродолжительность: 02:40:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F2CE791580E1783AB9C958A627DB44A2E6F4EB1F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_626475.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 626 200
-
-VA - Атака танцевальной клубной музыки  2013  [MP3|320 кб с]<Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Basic Element - To You  DJ A-One Remix 
-02. Bombs Away - Party Bass  Slayback & Nexboy Remix 
-03. Dj Cargo & Kei Morton feat. T Paul - SomeBody Dance With Me  Original Saxy Mix 
-04. DJ Layla feat. Dee-Dee - Born To Fly  Radio Edit 
-05. DJ Sergey Fisun - Welcome To Minecraft  Original Mix 
-06. Faydee - Catch Me
-07. Inna - Tonight  Extended Version  [2013]
-08. Madonna - Masterpiece  DJ Yonce Remix 
-09. Manian & Nicco - Tonight  R.I.O. Video Edit 
-10. Mike Candys - Oh, Oh  Original Mix     Читать дальше...    Жанр: DanceПродолжительность: 01:50:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8834B9A956853FC1F4036BE994BA89C4DB9902CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_626200.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

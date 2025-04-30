@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 167 023
+
+Emily Haines  of Metric  & The Soft Skeleton - Choir of the Mind  2017  [FLAC|Lossless|track
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Planets
+02. Fatal Gift
+03. Strangle All Romance
+04. Wounded    Читать дальше...    Жанр: Alternative Pop, Acoustic Indie Rock, PianoПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BF36EB4B6BA52E4882469B7D742CF7472C81AC5D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167023.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 166 965
+
+VA - Romantic Collection Vol. 6  2000  [FLAC|Lossless|tracks + .cue] <Pop, Retro>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01 Elvis Presley - Love Me Tender
+02 Scorpions - Still Loving Tou
+03 Annie Lenox - Love Song For A Vampire
+04 Sting - Shape Of My Heart    Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AB1A2F71F9AE0E6544E8EDB82D8926D7B7361A66
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166965.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 166 963
+
+VA - Romantic Collection Vol. 8  2000  [FLAC|Lossless|tracks + .cue] <Pop, Retro>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01 Andy Williams - Love Story
+02 Patricia Kaas - Mon Mec A Moi
+03 Terence Trent D Arby - Sign Your Name
+04 Sam Brown - Stop    Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:68EEAB8F0E5E75D870E4494B467C3772AA6F4270
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1166963.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 166 788
 
 Kaleida - Tear The Roots  2017  [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Synthpop, Indie
@@ -1922,81 +1997,6 @@ Roland Bocquet с 1969 по 1977 был лидером французской и
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156233.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 228
-
-Bronski Beat - The Age Of Reason  2017  2CD [FLAC|Lossless|image + .cue] <Synth pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Stars  Radio Edit   3:26 
-02. Stars  Extended Mix   5:11 
-03. Stars  Sordid Soundz Remix   6:32 
-04. Stars  QUBIQ Cosmic Energy Extended Mix   8:45     Читать дальше...    Жанр: Synth popПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ECB20AB952D90506FD9FABEE2BC5E0C5407E129D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156228.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 190
-
-VA - New Italo Disco Top 25: Compilation Vol.7  2017  [MP3|320 Kbps] <Italo Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01.  Miko Vanilla - Change Your Mind  Radio Remix   4:11
-02.  Rynar Glow - Deep In Love  Last Vocal   5:36
-03.  Mimosa - In Love  Short Love Mix   4:31
-04.  Ken Martina - Another Melody  Another Radio Remix   5:52    Читать дальше...    Жанр: Italo DiscoПродолжительность: 01:59:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CC21F98F2961E7C22A006C9C78FF573189661B77
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156190.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 145
-
-Eighth Wonder - 2 Albums  1987, 1988  CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Британская поп-группа 80-х годов. Образовались в 1983 году и пользовались большим успехом в Японии и Италии между 1985 и 1987 годом, до того как серия хит-синглов не прокатилась по Великобритании и далее по всей Европе в 1988 году. Безусловно  изюминкой  группы стала актриса Пэтси Кенсит  Patsy Kensit .01. When The Phone Stops Ringing  3:41 
-02. Loser In Love  3:23 
-03. Open Your Mind  3:58 
-04. Stay With Me  3:19     Читать дальше...    Жанр: Electronic, Pop, Synth-popПродолжительность: 01:38:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:997F71EE3DB5CB6C215A7B0538816DD099C77F3C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156145.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

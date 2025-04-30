@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 976 266
+
+VA - Trance Desire Volume 59  2016  [MP3|320 кб с] <Trance, Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Denise Rivera - Perfect Ending  Dart Rayne & Yura Moonlight Extended   06:18 
+02. Yuri Kane feat. Sopheary - Obsession  Original Mix   07:47 
+03. Beat Service & Neev Kennedy - Not This Time  Original Mix   07:09 
+04. Masoud feat. Aneym - No More  Original Mix   07:35     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:12B7A1498190AAC94248145C478F24AFB5299B27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976266.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 976 162
+
+VA - The Fitness Club House and Deep House Beats for Running  2016  [MP3|320 кб с] <House, Dee
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Harmonique - Rockstar - Original Mix
+02. Alex & Chris - Nightbird
+03. Brass - Brother
+04. Brass - You Have Control    Читать дальше...    Жанр: House, Deep HouseПродолжительность: 01:20:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5B6FE014FED39D3086F00FB1672CF63995D17ABF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976162.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 976 148
+
+VA - Super Bomb Electro 54  2015  [MP3|320 кб с] <Electro House, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. 22Bullets - It s Time  Original Mix   4:33 
+02. Alvaro & D-Wayne - Take U  Original Mix   4:20 
+03. Apashe, Sway - I m a Dragon  Jaycen A mour Remix   5:18 
+04. Apster - Get Down Like That  Original Mix   4:09     Читать дальше...    Жанр: Electro House, ElectroПродолжительность: 03:37:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0286981BE50AFD711C1F090A07F4F240BC65119E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976148.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 976 136
+
+2011stress - With eyes closed again  NNM   2016  [MP3|320 кб с] <Electronic, Synth-pop, Cl
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Turquoise
+02. Drowning in your eyes
+03. Bubble - Mania 2
+04. Jane Bond    Читать дальше...    Жанр: Electronic, Synth-pop, Classical CrossoverПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F5DFE8FE3BF34E1CD5BED18EE5A75B9E16D754B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976136.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 976 080
 
 VA - Disco Party Nights  2016  [MP3|320 кб с] <Disco, Italo Disco, Eurodisco>
@@ -1890,106 +1990,6 @@ VA - Winter Music  2016  [MP3|320 кб с] <Dance>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_972091.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 972 056
-
-VA - The Best Of Alterportal HITS  2015  [MP3|256- 320 кб с] <Alternative, Metal, Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-1. Enter Shikari - Anaesthetist
-2. Periphery - Alpha
-3. Папа Роач - Дьявол
-4. Blue Stahli - Not Over Til We Say So  feat. Emma Anzai of Sick Puppies     Читать дальше...    Жанр: Alternative, Metal, RockПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9DEC7DA452A0AC451A45714AC6FE6C78E5CE1648
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_972056.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 971 991
-
-VA - EuroHit Top 40 - Итоговый выпуск  2015  [MP3|320 кб с] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Sam Smith - I m Not The Only One  04:00 
-02. Charli XCX - Boom Clap  02:47 
-03. Gorgon City & Katy Menditta - Imagination  03:00 
-04. Ellie Goulding - Love Me Like You Do  04:11     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:18:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C165C19C7F78A65440BF91F6359FDE13A895750
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_971991.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 971 877
-
-VA - Top 100 Deep House  December   2016  [MP3|302-320 кб с] <House, Indie Dance, Nu Disco
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. AKA AKA & Thalstroem - Faces  Teenage Mutants Remix 
-02. Alex Preda, Amber Long - DNA Matching feat. Amber Long  Arnas D Dub Remix 
-03. ALEXANDER AUREL - SHOUT  Original mix 
-04. Alexander Hristov & Wallmers - Let`s Go Retro  Original Mix     Читать дальше...    Жанр: House, Indie Dance, Nu DiscoПродолжительность: 10:18:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B09E9C5405AB4EFC76A2E5C24F1E204FAA393C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_971877.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 971 870
-
-VA - Explosion Samples Tropic House  2016  [MP3|230-320 кб с] <Tech House, Soulful, Nu Disco,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Ka One & St-Sene - Page Not Found 05:58
-002. Fred P - Slow Euphoria 07:03
-003. Herron - Feet First 05:26
-004. Lnrdcroy - Donny On The River 02:47    Читать дальше...    Жанр: Tech House, Soulful, Nu Disco, Progressive, Tropical HouseПродолжительность: 11:36:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7267BBE320242DE7FF234E034729D3B3D0E37136
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_971870.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,76 @@
 ﻿
+###  Публикация: 1 201 676
+
+Людмила Сенчина - Золушка  1975  Remastered, 2001, Melodiya Record Company Europe [MP3|320 Kbps]
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Памяти исполнительницы посвящается.01. Золушка  3:45 
+02. Ты дождись меня  3:12 
+03. Я к тебе не вернусь  3:45 
+04. Ты  3:03     Читать дальше...    Жанр: Pop, VocalПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:00AB6A9B42CF64DB5800A96B1D6A8A8B7B7C2E97
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1201676.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 201 468
+
+VA - 2018 Grammy Nominees  2018  [FLAC|Lossless|tracks] <Pop, Hip Hop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+В этом году вручать Grammy будут в воскресенье, 28 января, в 19:30 вечера  по местному времени  и не в Лос-Анджелесе. Впервые за 15 лет самая большая ночь музыки возвращается в Нью-Йорк  в Мэдисон-Сквер-Гарден. Но как всегда за несколько дней до этого звездного часа музыки выпускается диск с основными номинантами. Обычно награждение Grammy происходит в середине февраля,     Читать дальше...    01. Bruno Mars - 24K Magic   3:46 
+02. Kelly Clarkson - Love So Soft   2:52 
+03. Luis Fonsi & Daddy Yankee - Despacito  Feat. Justin Bieber   Remix    3:50 
+04. Kendrick Lamar - Humble   2:58     Читать дальше...    Жанр: Pop, Hip HopПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA517C035B706A6FBDBCE67F6A1E8DABBB8D1FED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1201468.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 201 104
+
+Mylene Farmer  - Rolling Stone  2018  Single [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Mylène Farmer - Rolling StoneЖанр: PopПродолжительность: 03:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:42E772B1CDEC0AA2B5DA567532496388BFEA2033
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1201104.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 201 066
 
 Ханна - Мысли. Часть 1  2018  [MP3|320 Kbps] <Pop>
@@ -1916,81 +1988,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196836.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 196 777
-
-Bebu Silvetti - 40 Exitos  2008  2CD [MP3|320 Kbps] <Pop, Disco, Easy Listening>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Хуан Фернандо Сильветти Адорно  27 марта 1944 года — 5 июля 2003 года , более известный как Бебу Сильветти — аргентинский композитор, пианист, дирижёр, аранжировщик и музыкальный продюсер. Пик популярности Бебу Сильветти как композитора пришёлся на конец 70-х — начало 80-х годов. Как продюсер стал обладателем премии Billboard Music Awards в 2002 году и обладателем     Читать дальше...    01. Lluvia de primavera  5:55 
-02. Atmosfera  4:44 
-03. Fin de semana  2:30 
-04. Lluvia de cocos  3:26     Читать дальше...    Жанр: Pop, Disco, Easy ListeningПродолжительность: 02:27:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5195FEA473F6223A80A99CCDD5261FC75A00C81A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196777.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 196 745
-
-VA - Dance Hits Explode  2017  [MP3|320 Kbps] <Euro Dance, Pop Dance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Justin Bjur – Paper Hearts 2:59
-02. Julie Griffin – Party Part 2 3:55
-03. Thomas Papadopoulos – Proxima 4:16
-04. Shifter X – Rolling Ball 2:45    Читать дальше...    Жанр: Euro Dance, Pop DanceПродолжительность: 01:24:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:633DD856EB7629B48674C856BDD1CC029A4488AB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196745.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 196 730
-
-Зола - Кровожадная  2017  EP [MP3|320 Kbps] <Indie Pop, Indie Rock, Electronic>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Кровожадная
-02. Вопросы
-03. Париж
-04. Не взрывай    Читать дальше...    Жанр: Indie Pop, Indie Rock, ElectronicПродолжительность: 00:19:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DDDDE48CF0B4DBC4893B99B28D9DD0652F1C5166
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1196730.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

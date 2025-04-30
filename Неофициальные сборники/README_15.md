@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 632 938
+
+VA - 90s Eurodance: XXL Super Sounds 90s  2020  Unofficial [MP3|320 Kbps] <Eurodance, Techno, Ho
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Mach 7 - Real Love  Extended   5:42 
+02. Sound Of R.E.L.S. - !Love Is The Powa!  The Powa Mix   5:22 
+03. O-Zone - Engel 07  Extended Version   5:59 
+04. God s Groove - Back To Nature  Element Mix   6:10     Читать дальше...    Жанр: Eurodance, Techno, HouseПродолжительность: 76:21:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD9D2389DDB0A3839944CB2596D04C0200EB0D60
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1632938.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 632 924
+
+VA - Music News vol.263 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Ciara feat. Lay Bankz - Da Girls (Dance Mix) (02:26)
+ 002. A R I Z O N A - Dancing With The Dead (03:03)
+ 003. A R I Z O N A - Out Of My Hands (04:02)
+ 004. A R I Z O N A - Wanderer (03:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:55:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D617C5C0EAA3EBB7A029E87D23ADE2333FFA2601
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1632924.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 632 541
+
+VA - 90's Indie (2023) [MP3|320 Kbps] <Alternative, Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+01. Blur - Coffee and TV (Radio Edit)
+02. Red Hot Chili Peppers - Under the Bridge
+03. Coldplay - High Speed
+04. New Order - Regret(   Читать дальше...   )Жанр: Alternative, Indie, RockПродолжительность: 02:44:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:47EC0431DC1ED2B9A3EADB07338258E16786AE30
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1632541.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 632 425
+
+VA - For Those About to Rock (2023) [MP3|320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+01. Led Zeppelin - Black Dog (Remaster) [04:55]
+02. Megadeth - Symphony Of Destruction [04:07]
+03. Slayer - South Of Heaven [04:59]
+04. Black Sabbath - Paranoid (2012 - Remaster) [02:48](   Читать дальше...   )Жанр: RockПродолжительность: 06:20:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9141A16FEEB275A075334C97608E1733070A79DB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1632425.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 632 237
 
 VA - Shazam Хит-парад Top 100 Russia 09.05.2023  2023  [MP3|256-320 Kbps] <Pop, Electronic, Danc
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623724.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 553
-
-VA - ЕвроХит Топ 40 Europa Plus 31.03.2023 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Miley Cyrus - Flowers  3:20 
-02. Metro Boomin feat. The Weeknd & 21 Savage - Creepin   DJ Dark Remix   2:21 
-03. Tiesto - Lay Low  2:33 
-04. The Future X - This Kind Of Love  2:50     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:03:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6147CFEEB42383C0FB7A2500FCC264D6BB91061E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623553.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 454
-
-VA - Дискотека 2023 Dance Club Vol. 218 [NNNB]  2023  [MP3|320 Kbps] <Dance, House, Trance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Part 1  Discoteka :
-[3:07] 001. Morgan Page feat. TELYKast - Dancing All Alone
-[2:15] 002. Tiesto - All Nighter
-[2:24] 003. Lolita Jolie feat. Rob x Chris x Rocco - Ella Elle La    Читать дальше...    Жанр: Dance, House, Trance, Pop, ChillПродолжительность: 12:14:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7CC1A36FAA9C5AC75AAF26E4FDCC5FBD03EC5136
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623454.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 444
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 126  2023  [MP3|320 Kbps] <Club, Dance, Disco>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Dance:
-01. Aazar - That Thing  Original Mix 
-02. AC-DC x EwellicK, Dimax White   - Thunderstruck 23  Dj Baur VIP Edit 
-03. Akcent - Kylie  Jenia Smile & Ser Twister Remix     Читать дальше...    Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 05:04:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A00CFE7AEA600227119136C24296FEF6B0642ACD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623444.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 623 441
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 125  2023  [MP3|320 Kbps] <Club, Dance, Disco>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Dance:
-01. Audino, ELMY & Franz Kolo - Pump It Up  Extended Mix 
-02. Blondie - Heart of glass  Ayur Tsyrenov remix 
-03. Bob Sinclar - Rock This Party  Rakurs & EwellicK Radio Remix     Читать дальше...    Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:46:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5715394CE1599F5A8126F802625C53A779F53D78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623441.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

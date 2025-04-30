@@ -1,4 +1,401 @@
 ﻿
+###  Публикация: 1 504 613
+
+Тінь Сонця - Тернистий Шлях  2021  [MP3|192 Kbps] <Folk Rock, Heavy Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+[3:46] 01. Спалена земля
+[4:30] 02. Над прірвою
+[4:50] 03. У надрах снів
+[4:13] 04. Моя Україна    Читать дальше...    Жанр: Folk Rock, Heavy MetalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8CE911B1E569EF32B10B11D4ACE42A76E49CC5EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504613.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 596
+
+ДДТ  DDT  - Творчество в пустоте  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Муха
+2. Борщевик
+3. Хор
+4. В магазине    Читать дальше...    Жанр: RockПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8A99F6828CC3D5A7930CF55A0F0C663AF1E1C4D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504596.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 535
+
+Creux Lies - Goodbye Divine  2021  [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Punk, S
+Rock, Alternative, Punk, Metal
+Alternative, Punk  Lossless 
+
+###  Подробнее
+
+01. Jungle  5:29 
+ 02. Misunderstanding  3:52 
+ 03. Becoming  5:10 
+ 04. PS Goodnight  4:21     Читать дальше...    Жанр: Alternative Rock, Post-Punk, Synthpop, New WaveПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5B31431B5A6898B0E641C053442240D5518C55BA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504535.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 506
+
+Tropa de Shock - The Circle of Spells  2021  [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. The Legend of Warlock  01:37 
+02. The Rising of the Witch  04:32 
+03. The Greek Clairvoyant  05:39 
+04. Eternal Sleep  05:05     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:18DF61B5F5D3B6430052EC5BC11C9285D6E84C0E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504506.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 497
+
+The Rolling Stones - Tattoo You  1981  40th Anniversary, Super Deluxe Edition, Remastered, 2021,
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Under My Thumb [00:03:53]
+02. When The Whip Comes Down [00:04:33]
+03. Let s Spend The Night Together [00:04:22]
+04. Shattered [00:04:41]    Читать дальше...    Жанр: Hard-Rock, Rock-n-RollПродолжительность: 3CD, 03:27:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2C59573B8E3FBF314B53532DD9D58F4A1E58130A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504497.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 482
+
+Zornheym - The Zornheim Sleep Experiment  2021  [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black,
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Corpus Vile
+02. An Evil Within
+03. Dead Silence
+04. Keep The Devil Away    Читать дальше...    Жанр: Symphonic Black, Death MetalПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F1465251BCB83B0DEBDDB41315BBD846F419522D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504482.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 476
+
+Livlos - And Then There Were None  2021  [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. And Then There Were None
+02. Serpentine Supremacy
+03. Mortal Severance
+04. Pallbearer    Читать дальше...    Жанр: Melodic Death MetalПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9BB76C3081D32C52268FCF0400B02FF9E40D7E40
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504476.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 469
+
+Dion Bayman - Alive  2021  [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Alive
+02. Waiting For That Day
+03. You Will Never Know
+04. One Way Ticket    Читать дальше...    Жанр: Melodic RockПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DC514DBA67ED27521F950466F74A40D70444AF73
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504469.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 467
+
+Elton John - The Lockdown Sessions  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Cold Heart  PNAU Remix   Feat. Dua Lipa   3:23 
+02. Always Love You  Feat. Young Thug & Nicki Minaj   4:17 
+03. Learn To Fly  Feat. Surfaces   3:30 
+04. After All  Feat. Charlie Puth   3:29     Читать дальше...    Жанр: Pop RockПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3FA5ADAA79816C6B2EDEE20FCD1BD90C9706DEC5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504467.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 460
+
+Armored Saint - Symbol of Salvation  2021  Live [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Reign of Fire [00:04:20]
+02. Dropping Like Flies [00:04:34]
+03. Last Train Home [00:06:34]
+04. Tribal Dance [00:04:00]    Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:24:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AB7BC71A9B5EF0E6B09D3D60D93F26D7A07FCAA6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504460.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 457
+
+Brian May - Back To The Light  1992  Deluxe Edition, Remastered, 2021, UMC [FLAC|Lossless|WEB-DL
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+Продолжительноcть: 01:31:07
+
+01. Nothin  But Blue  Guitar Version   3:50 
+02. Too Much Love Will Kill You  Guitar Version   4:29     Читать дальше...    Жанр: RockПродолжительность: 2CD, 01:31:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:586C2C5D992B9AA5D0FF394631DAAFABC90AC32B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504457.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 450
+
+РУБИ КОНцы! - Пуси-панк и подвески  2021  [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Пуси-панк
+2. Тупая сука
+3. Рокстар
+4. Лолли    Читать дальше...    Жанр: Punk RockПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:216A8F08429097778FBDCE6A52FD6E4C1ABFC798
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504450.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 449
+
+НАИВ & Симфонический оркестр «Глобалис» - Симфопанк  2021  [FLAC|Lossless|WEB-DL|tracks] <Sympho
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+1. НАИВная увертюра
+2. 20 лет одиночества
+3. Я панк-рокер и алкоголик
+4. ННННЗ    Читать дальше...    Жанр: Symphonic Punk RockПродолжительность: 00:59:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0333C8E5EBA722E03B5AEDBEE9371B996705C9A4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504449.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 448
+
+Supernova Plasmajets - Now Or Never  2021  [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+01. Pretty Bizarre  Intro 
+02. Beggin 
+03. Take Me To The Underground
+04. Now Or Never    Читать дальше...    Жанр: Hard RockПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F946698F823DACC3C19A1E144DA11DE55BF5395
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504448.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 377
+
+Dead Sara - Ain t It Tragic  2021  [MP3|320 Kbps] <Alternative Rock, Modern Hard Rock, Female
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Starry Eyed
+02. Good Times
+03. All I Know is That You Left Me for Dead
+04. Hypnotic    Читать дальше...    Жанр: Alternative Rock, Modern Hard Rock, USA Pop Rock, Female VocalПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE76DF9FCF2977FF888DB20511C7BA86E73F9C73
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504377.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 504 376
+
+Элизиум - Жыве Беларусь  2020  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Жыве БеларусьЖанр: RockПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D2BB1654AB41BC992A71C18232B529676ECA2BD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1504376.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 504 368
 
 Элизиум - Пятница, 13 Live  2012  [MP3|320 Kbps] <Рок>
@@ -1594,408 +1991,6 @@ Soulfly - Groove Metal группа, созданная Максом Кавал�
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502921.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 903
-
-Peter Hammill – Out Of Water  1990  [FLAC|Lossless|tracks + .cue]<Art Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-1. Evidently Goldfish
-2. Not The Man
-3. No Moon In The Water
-4. Our Oyster    Читать дальше...    Жанр: Art RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:173AB3198C2686AAE75D566EC981D24DB41E4120
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502903.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 845
-
-Gus G. - Quantum Leap  2021  2xCD [FLAC|Lossless|tracks + .cue] <Heavy Metal, Hard Rock>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-Четвертый сольный инструментальный альбом греческого гитариста-виртуоза Gus G.  FIREWIND, ex-OZZY OSBOURNE   Quantum Leap  вышел 8 октября 2021 года на лейбле AFM.
- Quantum Leap  родился во время всемирной пандемии, которая не дала последнему альбому FIREWIND одного с группой названия в полной мере реализовать свой коммерческий потенциал. Когда     Читать дальше...    CD - 1:
-01. Into The Unknown
-02. Exosphere
-03. Quantum Leap    Читать дальше...    Жанр: Heavy Metal, Hard RockПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D704C7A603F6B5C4B618D83CB87B134EA388D899
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502845.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 838
-
-Creedence Clearwater Revival - 39 albums, 1 Box sets, 95CD  1968-2021  [FLAC|Lossless|image + .c
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-Creedence Clearwater Revival  CCR  — американская рок-группа, образовавшаяся в 1967 году и за пять лет существования добившаяся всемирного успеха и признания критиками. CCR, возникшие в Сан-Франциско, с самого начала находились под влиянием свомп-блюза. В ранних песнях  «Born On The Bayou» и др.  CCR создали своего рода легенду «простых парней со старого доброго     Читать дальше...    --------------------------
-
-01. Born On The Bayou  5:33 
-02. Green River  3:16     Читать дальше...    Жанр: Roots Rock, Swamp Rock, Southern Rock, Classic Rock, Country |Продолжительность: 80:02:49 |
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6FB3DF420E7EEAD45F5AADD778671C8D93E6A900
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502838.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 810
-
-Максим Леонидов - Седьмое небо  2021  [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок  Lossless 
-
-###  Подробнее
-
-1. В твоём городе осень
-2. В зоне доступа твоих губ
-3. Убить дракона
-4. Кот    Читать дальше...    Жанр: RockПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:168557F07B12BBE51D36A360004A48D798489C22
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502810.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 744
-
-Autumn s Grief - The Dead Don t Smile  2021  [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal,
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. The Oblivion  04:16 
-02. The Dead Don t Smile  03:36 
-03. The Offerings  03:18 
-04. Not Much More To Say  03:49     Читать дальше...    Жанр: Symphonic Metal, Female VocalПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0A38DF33B97D262D203154C04B501F4DEA22C28
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502744.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 738
-
-The Beatles - Let It Be  1970  5СD, Super Deluxe, 2021, Universal Music Catalogue [MP3|320 Kbps]
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. Across The Universe  1970 Glyn Johns Mix  [00:03:31]
-02. I Me Mine  1970 Glyn Johns Mix  [00:01:45]
-03. Don’t Let Me Down  Single Version   2021 Mix  [00:04:08]
-04. Let It Be  Single Version   2021 Mix  [00:03:52]Жанр: RockПродолжительность: 5CD, 02:44:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0F41B40CCD3EB6156C9688233916A861FEE2453
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502738.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 720
-
-Judas Priest - Reflections  2021  50 Heavy Metal Years of Music [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. Let Us Prey   Call for the Priest [00:06:14]
-02. You Don t Have to Be Old to Be Wise [00:05:03]
-03. Fever [00:05:21]
-04. Eat Me Alive [00:03:35]    Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:794D6ED63FA8C7AFC103678BD86BB99B7FAEB051
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502720.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 709
-
-Lords Of Black - Alchemy Of Souls - Part II  2021  [FLAC|Lossless|image + .cue] <Heavy Metal, Po
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-Испанские мелодик-прогрессив-металлисты LORDS OF BLACK выпустили новый альбом “Alchemy Of Souls, Part II” 15 октября 2021 года на лейбле Frontiers.
-Альбом последовал за чрезвычайно хорошо принятым “Alchemy Of Souls, Part I”  2020 . На нем нашли продолжение многие темы, начатые на предыдущем диске. Во время паузы, вызванной глобальной пандемией, LORDS OF BLACK работали     Читать дальше...    01. Prelude  Alchimia Confessio 1458 A.D. 
-02. Maker Of Nothingness
-03. What s Become Of Us
-04. Bound To You    Читать дальше...    Жанр: Heavy Metal, Power MetalПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F1DE9DD0384921A29FFC738ABD91E99EF09803C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502709.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 686
-
-The Grandmaster - Skywards  2021  [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Lunar Water
-02. The Tempest
-03. Someday Somehow
-04. Dead Bond    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE132ED883B6324102B010B179343E54F39FEA28
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502686.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 683
-
-SkeleToon - The 1.21 Gigawatts Club  2021  [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Intro: Unveiling Secrets
-02. Holding On
-03. Outatime
-04. The Pinheads    Читать дальше...    Жанр: Power MetalПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2B6BBF10EE1D4235371D144742C86C4EE39A3DE6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502683.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 680
-
-Manora - Brave The Storm  2021  [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Power Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. System Shutdown
-02. The Traveler
-03. Break Your Fall
-04. Wired To Obey    Читать дальше...    Жанр: Symphonic, Power MetalПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:250816FFDDA42EA89AC15185B0E6BDC7CC2E0CA9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502680.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 677
-
-Lutharo - Hiraeth  2021  [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Introspection
-02. To Kill Or To Crave
-03. What Sleeps In Your Mind
-04. Phantom    Читать дальше...    Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5ECF2E063205E5B507888218C204C456860336EA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502677.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 675
-
-The Beatles - Let It Be  1970  5CD Super Deluxe, 2021, Universal Music Catalogue [FLAC|Lossless|
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Across The Universe  1970 Glyn Johns Mix  [00:03:31]
-02. I Me Mine  1970 Glyn Johns Mix  [00:01:45]
-03. Don’t Let Me Down  Single Version   2021 Mix  [00:04:08]
-04. Let It Be  Single Version   2021 Mix  [00:03:52]Жанр: RockПродолжительность: 5 CD, 02:44:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A65ED4351635B7C10C006799FC39CCF4C57A43C3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502675.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 673
-
-Midnight Phantom - L.A. Nights  2021  [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. When The Night Comes  04:35 
-02. Sting Attack  03:58 
-03. Race Called Today  03:58 
-04. One Time One Life  05:11     Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:05:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF5FD3EACE7CAF5BE881D94908D1EF66E1642B72
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502673.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 670
-
-Midnight Phantom - Hollywood Dreams  2020  [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Forbidden Land  03:21 
-02. Human Race  04:38 
-03. Where I Belong  04:13 
-04. Children Of The 80s  05:21     Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97390A7827959DB19512EB542AE62C8656CC2E24
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502670.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 502 668
-
-Necromantia - To The Depths We Descend  2021  [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Daemonocentric
-02. And The Shadows Wept...
-03. Give The Devil His Due
-04. Inferno    Читать дальше...    Жанр: Black MetalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:324B01A406BC71A73336A83425144B5E9A4AB024
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1502668.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

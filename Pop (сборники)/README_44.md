@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 389 164
+
+Виктория Черенцова - 10 дней  2016  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Мама  3:32 
+02. Если б  3:10 
+03. Боль сильна  3:24 
+04. За всё тебя простила  2:48     Читать дальше...    Жанр: PopПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:79F3931E23C0DA881DEDF8476E45CA41CBEECFA0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389164.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 945
+
+Виктория Черенцова - Кукуруза  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. До завтра, Москва  3:52 
+02. Я люблю тебя  3:29 
+03. Будь со мной  3:35 
+04. Танцуй  3:42     Читать дальше...    Жанр: PopПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:93EC362F0B6C38889AFC6DCEBF487E110CB29875
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388945.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 388 870
+
+Savage - Before: 1983 - 1986 Demo Collection  2020  [FLAC|Lossless|image + .cue] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Don t Cry Tonight  Early Demo 1983 
+02. Only You  Very First Demo 1984 
+03. Radio  All My Life   Demo 1983 
+04. Fugitive  Let Me Go   Demo 1984     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A8C3FB24527C2814895AC8A5B2C305BAF9389A90
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388870.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 388 768
 
 VA - Pop Dance Hits  2020  [MP3|320 Kbps] <Pop, Dance>
@@ -1918,81 +1993,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383781.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 678
-
-Clara Luciani - Sainte-Victoire  2019  Super-edition [MP3|320 Kbps] <French Pop, Post Disco, Syn
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. La Grenade
-02. La Baie
-03. On ne meurt pas d amour
-04. Eddy    Читать дальше...    Жанр: French Pop, Post Disco, Synth PopПродолжительность: 01:03:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:762FD4500A20774AE5FEA69F2EFC629743313C76
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383678.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 587
-
-Hazel English - Wake UP!  2020  [FLAC|Lossless|tracks + .cue] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Born Like  03:46 
-02. Shaking  03:33 
-03. Wake UP!  03:35 
-04. Off My Mind  03:38     Читать дальше...    Жанр: Indie PopПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:82640E2E8B396F581EDBE3BBE902AFDEF3275047
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383587.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 514
-
-T.P.H. Productions - The Party s Here! With The Beatles  2002  [FLAC|Lossless|image + .cue] <P
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Hey Jude  4:00 
-02. Love me do  2:30 
-03. She loves you  2:20 
-04. Yesterday  2:10     Читать дальше...    Жанр: Pop, Cover, OldiesПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EBD931062AF298D0377EAD09B701B6DB35CF9B3E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383514.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

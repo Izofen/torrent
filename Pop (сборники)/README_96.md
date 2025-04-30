@@ -1,4 +1,80 @@
 ﻿
+###  Публикация: 1 030 436
+
+Vivien Vee - 3 Albums  1979-1983  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Итальянская исполнительница  Диско  и модель,  дебютировала в 1979 году как электронный диско - проект, подготовленный Клаудио Симонетти и Джанкарло МЭО.
+Ее песня  Give Me A Break    стала весьма популярной в американских танцевальных чартах, а песня  Higher  достигла № 36 - в итальянском чарте. Последний сингл вышел в 1989 году.01. Give Me A Break  8:57 
+02. It s Too Soon  9:13 
+03. Come Back  9:42 
+04. Finally Alone  6:26     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 01:46:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BE7971D1F654593695BA924C1862085C951EC05E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030436.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 030 414
+
+VA - Pavarotti & Friends For War Child  1996  [APE|Lossless|image + .cue] <Rock, Pop, Classical>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Eric Clapton • Luciano Pavarotti • East London Gospel Choir - Holy Mother
+02. Joan Osborne - Saint Teresa
+03. Elton John - I Guess That s What They Call It The Blues
+04. Liza Minnelli • Luciano Pavarotti - New York, New York    Читать дальше...    Жанр: Rock, Pop, ClassicalПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030414.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 030 261
+
+Whitney Houston - Greatest Hits  2010  2CD [FLAC|Lossless|image + .cue] <Rhythm & Blues, Soul>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. 	I Have Nothing 	04:54
+02. 	Didn t We Almost Have It All 	04:39
+03. 	Saving All My Love For You 	04:00
+04. 	All The Man That I Need 	03:59    Читать дальше...    Жанр: Rhythm & Blues, SoulПродолжительность: 02:35:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:33972A7B069BEC454B8192FDB46889A1E3661964
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030261.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 030 213
 
 VA - Ultimate... Christmas  2015  Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Soul,
@@ -1911,81 +1987,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022007.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 021 976
-
-Omer Ozgur - We Are All the Same  2016  [MP3|320 кб с] <Pop, Rock, Blues>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. We Are All the Same
-02. In Maldives
-03. The Girl Who Knows Everything
-04. No Sign    Читать дальше...    Жанр: Pop, Rock, BluesПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F92FCAC3B93184DBECBD45D75A5E18215B6E53F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021976.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 021 812
-
-Mads Langer - Reckless Twin  2016  [MP3|320 кб с] <Europop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Daylight  04:02 
-02. Amy  04:37 
-03. Blondie  05:19 
-04. 3AM  03:22     Читать дальше...    Жанр: EuropopПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:93265CD1D8228F741968725A91569B4F4966B93F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021812.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 021 799
-
-Yumi Zouma - Yoncalla  2016  [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Synth Po
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Barricade  Matter of Fact 
-02. Text from Sweden
-03. Keep It Close to Me
-04. Haji Awali    Читать дальше...    Жанр: Alternative Pop, Indie Pop, Synth PopПродолжительность: 00:34:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4FBA12096BEF83F3EA2C6E7D3FB3C05D33F2984D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021799.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

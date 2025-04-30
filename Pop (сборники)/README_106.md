@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 918 184
+
+VA - Super Vara 2015  2015  [FLAC|image + .cue]<Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1
+
+01.Amna feat. Glance - Evacuat  4:16 
+02.Anda Adam feat. CRBL - Seri de mai  3:20     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:43:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F317E36127C418FC4C401BB5899FE67238918C97
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918184.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 918 180
+
+Life In Film - Here It Comes  2015  Deluxe Version [MP3|320 кб с]<Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Alleyway
+02. Set It Off
+03. Are You Sure?
+04. Lose Control    Читать дальше...    Жанр: Indie PopПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CE0239846A9DF7968B5E4E56F766E70416306617
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918180.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 918 005
+
+VA - Radio 538: Hitzone 74  2015  2CD [FLAC|image +.cue]<Pop, Dance, Top40>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Armin van Buuren feat. Mr. Probz - Another You
+02. Jess Glynne - Hold My Hand
+03. Avicii - Waiting For Love
+04. Magic! - No Way No    Читать дальше...    Жанр: Pop, Dance, Top40Продолжительность: 02:31:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:36056075898FE9B29049169DEB7854480A538610
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918005.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 917 911
 
 VA - Pure... Brazil  2010  Box Set, 4CD [FLAC|Track+.cue]<Dance, Pop, Jazz, Rock, Latin>
@@ -1919,81 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_910149.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 909 994
-
-Скрябін  Скрябин  - Дякую люди  Останній запис   2015  2CD Live [FLAC|image+.cue]<Pop-Ro
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Кинули
-02. Танець пінгвіна
-03. Мам  6:50 
-04. Годинник    Читать дальше...    Жанр: Pop-RockПродолжительность: 02:23:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63EA813E48DC9D92DADFC4CADA4121A75E1F8699
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_909994.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 909 904
-
-Игорь Николаев - Линия жизни  2014  [MP3|256 кб с]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Песня для тебя [04:06]
-02. Линия жизни [03:44]
-03. Поздняя весна [03:54]
-04. Мы совпали с тобой [03:13]    Читать дальше...    Жанр: PopПродолжительность: 00:55:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EBA00A69038C251FFAFA4381FB66B423631971F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_909904.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 909 755
-
-Giorgio Moroder - Deja-Vu  2015  [FLAC|Lossless]<Pop, Electronic>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. 4 U With Love
-02. Deja Vu  feat. Sia 
-03. Diamonds  feat. Charli XCX 
-04. Don’t Let Go  feat. Mikky Ekko     Читать дальше...    Жанр: Pop, ElectronicПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9B554833FFAAA455846A61A8B57E7355DDF7700
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_909755.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

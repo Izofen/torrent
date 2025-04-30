@@ -1,4 +1,101 @@
 ﻿
+###  Публикация: 1 380 142
+
+VA - ЕвроХит Топ 40 Europa Plus 01.05.2020 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights 3:22
+02. Little Big - UNO 2:41
+03. Trevor Daniel - Falling 2:39
+04. Doja Cat - Say So 3:58    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:10:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5024185D2DEC4619661517A3F6CA3DDD97201A02
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1380142.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 380 100
+
+VA - Classic Pop & Rock Songs Hits Of The 80 s  2020  [MP3|320 Kbps] <Rock, Pop>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Queen - Bohemian Rhapsody  2011 Mix  5:54
+002. Europe - The Final Countdown 5:10
+003. Michael Jackson - Billie Jean 4:54
+004. a-ha - Take On Me 3:48    Читать дальше...    Жанр: Rock, PopПродолжительность: 20:45:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4C2DDFC0584E076A9ECB76FCFAEFB7C407E3AF54
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1380100.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 380 061
+
+aQuaLuna - Best of Destination Paradise  2020  [MP3|320 Kbps] <Progressive, Vocal, Tech, Uplifti
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Жанр: Progressive, Vocal, Tech, Uplifting TranceПродолжительность: 55:08:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AF25BC9995D05D374E910BDAA5DEF5713E288B8B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1380061.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 380 045
+
+VA - The #1 Dad Album  3 CD   2020  [MP3|320 Kbps] <Pop, Rock>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+CD1
+01. Meat Loaf - Bat Out of Hell
+02. Thin Lizzy - The Boys Are Back In Town
+03. Status Quo - Down Down    Читать дальше...    Жанр: Pop, RockПродолжительность: 03:47:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EA83BD3F3E03B83C1BD7518192FBF344DC5BA932
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1380045.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 380 036
 
 VA - Rock Love Songs  2020  [MP3|320 Kbps] <Rock, Pop>
@@ -1891,106 +1988,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1377028.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 376 998
-
-VA - Beatport Psychedelic Trance: Sound Pack #62  2020  [MP3|320 Kbps] <Psychedelic, Goa Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Cosmos Vibration - Dreamscape
-002. Fractal Vivisection - Interstellar Gliding
-003. Luminaria - Gamma Wave
-004. Starlab - Symphonic Universe    Читать дальше...    Жанр: Psychedelic, Goa TranceПродолжительность: 12:44:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FBDAAAC1545AC9DCCA770CF4BE8C4F1242F781E9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1376998.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 376 997
-
-VA - Beatport Space House: Sound Pack #65  2020  [MP3|320 Kbps] <Future House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Innellea - Visionquest
-02. La Fleur - Second Story
-03. Groofeo - Fox Mountain
-04. Jonathan Northtribe - Andromeda    Читать дальше...    Жанр: Future HouseПродолжительность: 06:06:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A0B293833D8D0DD900896B5105D9FEA5166B757D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1376997.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 376 906
-
-Creedence Clearwater Revival & John Fogerty - 100% Creedence  2020  [MP3|320 Kbps] <Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - Born On The Bayou
-02. Creedence Clearwater Revival - I Heard It Through The Grapevine  Edit 
-03. John Fogerty - In The Garden
-04. Creedence Clearwater Revival - Lodi    Читать дальше...    Жанр: RockПродолжительность: 03:07:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EE2BDC1A60BBA97FA322FB1317A3B3C9E91E6E17
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1376906.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 376 905
-
-VA - не Громкие новинки недели 64  2020  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1.Сплин - Передайте Это Гарри Поттеру, Если Вдруг Его Встретите  5:24 
-2.H1GH - Пропорция Уязвимости  5:22 
-3.Смоки Мо - Лирический Дилер  4:29 
-4.Sobol - Самая  4:15     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:43:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4F14B976FD56A831F906B87EFB70F5A251D84148
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1376905.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

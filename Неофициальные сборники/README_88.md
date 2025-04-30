@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 273 502
+
+VA - German Top 100 Single Charts 07.01.2019 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Capital Bra - Benzema
+002. Mariah Carey - All I Want for Christmas Is You
+003. Wham! - Last Christmas
+004. Ava Max - Sweet but Psycho    Читать дальше...    Жанр: PopПродолжительность: 05:31:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BB41AF1DD2B1ADCC58C74F0D2F626415A05FB994
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273502.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 273 495
+
+VA - Новогодний шансон от Zaycev.fm  2019  [MP3|320 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Федя Карманов - Под Новый Год
+02. Владимир Бажиновский - Зима
+03. Манго манго  - Новый Год и Белка
+04. Тишинская Таня - Угостите Даму Сигаретой    Читать дальше...    Жанр: ШансонПродолжительность: 02:26:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F617AD716FAF8D4D421D984EC242F999F5CA15EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273495.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 273 402
+
+VA - Club Night Cream Moon  2018  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Deep Fog, Cream - Moon
+002. Dj Aroze - I See You
+003. Eddie Niguel - 4 The People
+004. Interaxxis - I Don t Understand The Machine    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 10:04:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6832DA15E1D9E2EA4AA78D51C3F8E8ECDB19DC95
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273402.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 273 389
+
+Deep Purple - Love Conquers All  Greatest Ballads   2019  [MP3|320 Kbps] <Hard Rock, Classic
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Love Conquers All
+02. When A Blind Man Cries
+03. Fortuneteller
+04. Lalena    Читать дальше...    Жанр: Hard Rock, Classic Rock, RockПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8DC4317ED698AF5B25D13FF44F3A0907AD7F380A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1273389.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 273 328
 
 VA - Stranger Blues  2018  [MP3|320 Kbps] <Blues, Soul, Jazz>
@@ -1894,106 +1994,6 @@ VA - Давай, Махнём!  2018  [MP3|320 Kbps] <Шансон>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1270333.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 270 322
-
-VA - Club 2019-Hottest New Tracks  2018  [MP3|320 Kbps] <House, Handsup, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Jason Parker feat. Elaine Winter - Dancing on My Own  Radio Version 
-02. Housefly - Be with You  Markus D Ambrosi Remix 
-03. Felicia Uwaje - Strike It Up  Chris Excess Remix 
-04. G-Lati and Mellons feat. Damian Pipes - Hero  Adam Brown and Armand Van Henegouwen Mix     Читать дальше...    Жанр: House, Handsup, DanceПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F4AFA24E2BDF071FA8807F2116C477F346827E0B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1270322.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 270 306
-
-VA - Самые скачиваемые треки ВКонтакте Зима 7  2018  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Тима Белорусских - Мокрые кроссы  Lapin & Dzoz Radio Edit  3:44
-002. Dynoro & Gigi D Agostino - In My Mind  G-Love & Igor Frank RMX  4:34
-003. Леша Свик - Малиновый свет  Mikis Remix  3:41
-004. Сергей Лазарев - Пьяным, чем обманутым 3:37    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:50:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C65DDE487899CFBF4638EF3423815CE0A25529CA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1270306.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 270 179
-
-VA - Новый Год вдвоём  2018  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Tom Odell - Real Love
-02. Why Don t We - You and Me at Christmas
-03. Ed Sheeran - Perfect Duet  with Beyonce 
-04. The Guess Who - Love Is All Around    Читать дальше...    Жанр: PopПродолжительность: 01:47:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5077AF325F83627F2225F189228CDADDE9467D15
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1270179.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 270 178
-
-VA - German Top 50 Party Schlager Charts 17.12.2018  2018  [MP3|320 Kbps] <Pop, Schlager>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Thomas Anders - Sie sagte doch sie liebt mich  feat. Florian Silbereisen 
-02. Maite Kelly - Die Liebe Siegt Sowieso
-03. Andrea Berg - Ja Ich Will
-04. De Lancaster - Rosenzeit  feat. Kay Dörfel     Читать дальше...    Жанр: Pop, SchlagerПродолжительность: 02:56:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E72306227100739DFC04072B1A73EF608C9CC3C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1270178.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

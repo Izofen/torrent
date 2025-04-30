@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 470 906
+
+VA - Hardcore Dance: Music For Heavy Fitness  2021  [MP3|320 Kbps] <Hardcore, Hardstyle, Hard Da
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+Занятия спортом и музыка — для многих вещи, друг от друга неотделимые. Особенно это касается бега, где ритм играет едва ли не решающую роль. В настоящей раздаче предлагается скачать хорошую и качественную подборку плейлиста для занятий беговыми тренировками или фитнесом.001. Marius Tiberian - See Yourself
+002. Sasha F - Dead Generation
+003. Jay Reeve - The Nearest Star
+004. Sinister Seven - Ballers    Читать дальше...    Жанр: Hardcore, Hardstyle, Hard DanceПродолжительность: 07:44:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:331572CE0C87379718CA66CA56E425AD27E1B1EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1470906.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 470 902
+
+VA - Hot Disco Remixes  2021  [MP3|320 Kbps] <Disco, Dance, Remixes>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+Не секрет, что многие популярные музыкальные композиторы и аранжировщики приобретают своё творческое вдохновение из мелодий 80х годов. И это беспроигрышный вариант признания. Доказательством тому будет новый ретро мастер микс в стиле диско музыки!001. Tim Klein - Mellow On The Right
+002. Discodumper - Dirty Games
+003. Julius Papp - Feel The Rhythm
+004. Marco Bardi - My Romance    Читать дальше...    Жанр: Disco, Dance, RemixesПродолжительность: 10:06:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A49C6CF98C57D02D083546F5B9AE9D31FC0578C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1470902.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 470 900
+
+VA - Idealizing: Tech House Edm Live Set  2021  [MP3|320 Kbps] <House, Tech House, Electro, Club
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Шикарное балансирование между хрупкой невесомостью и суровой реальностью дало роскошный контраст в звучании и незабываемую атмосферу музыки. Тут есть место, как дипу, так и классическим техно хаусу и мелодик-техно в новой обёртке с новым мастерингом.01. Bizen Lopez - Keep Working
+02. Deetron - Love Song
+03. Jt Donaldson - Shelter
+04. Techno House - Take On  Original Mix     Читать дальше...    Жанр: House, Tech House, Electro, ClubПродолжительность: 07:55:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6614570C0CE88854EE67C903B78918E25D8A5D1F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1470900.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 470 897
+
+VA - Watercolor Sound: Relax Chillout Music  2021  [MP3|320 Kbps] <Ambient, Downtempo, Chillout,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Мелодичная музыка, которая способна проникнуть и запасть в душу, слушая которую, мы невольно начинаем задумываемся о вечности, гармонии, любви. Релакс музыка способна передавать эмоции и даже мысли между людьми без каких-либо диалогов, она раскрепощает и человек может совершить такие поступки, на которые раньше не решался. Такая музыка отлично подходит для проведения     Читать дальше...    001. Quantic - Hotline Bling
+002. Jaded Satire - Funk The Police
+003. A Winged Victory - Despair Dialogue
+004. Fatima Yamaha - Daio Alternate History    Читать дальше...    Жанр: Ambient, Downtempo, Chillout, RelaxПродолжительность: 08:36:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0584370CF25D3E736A7EC5D72E9133988BAB8DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1470897.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 470 894
 
 VA - 200 Ethnic Pop Songs  2021  [MP3|320 Kbps] <Pop, Dance>
@@ -1891,106 +1991,6 @@ VA - Workout Motivation  1  2021  [MP3|320 Kbps] <Dance, House, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464735.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 464 503
-
-VA - The Stars In The Night Sky  2021  [MP3|320 Kbps] <Jazz, Instrumental, Lyric>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-Целая сотня композиций джаз музыки, чтобы понять и полюбить его навсегда! Удовольствие от джаза в том, чтобы следить за импровизацией, которая течет, как река или разговор двух близких друзей не видевшихся целую вечность.001. Jazz At Lincoln Center Orchestra - Be Present
-002. Jarez - Love Like This
-003. Dave Koz - Put The Top Down
-004. Franco Chiari - Quick Samba    Читать дальше...    Жанр: Jazz, Instrumental, LyricПродолжительность: 09:49:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A25BE438670B85016EDD3B0C9200EF8F013DD736
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464503.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 464 501
-
-VA - National Pop Dance Music  Vol.15 1   2021  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Музыка, которая всегда будет неотъемлемой частью жизни каждого человека, в большей степени или в меньшей. А если эта музыка еще и отличного качества и понравившегося Вам стиля, то Ваше настроение всегда будет на высоте. Представляет вам сборник из 155 популярных песен со всех концов света, в компании с которыми жизнь покажется гораздо веселее!001. Jonas Blue - Something Stupid
-002. Smith & Thell - Radioactive Rain
-003. Dash Berlin - No Regrets
-004. Benny Benass - Lovelife    Читать дальше...    Жанр: Pop, DanceПродолжительность: 08:40:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D5284BFB3BC0B865A6C24D2BE6F2DF9E637E25D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464501.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 464 423
-
-VA - Deep House Relax 3  2021  [MP3|320 Kbps] <House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Martin Mayer - Feel  3:29 
-02. Dophamean - Sunrise  4:36 
-03. VetLove - Storm - Original Mix  4:44 
-04. Nando Fortunato, Housenick - Never Go  Housenick Remix   6:12     Читать дальше...    Жанр: HouseПродолжительность: 06:37:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:174E64836AB7F751B68CF4D7DCFE72847D7C084C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464423.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 464 368
-
-VA - Disco Is Alive 2  2021  [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Afric Simone - Casanova Africano  1978   3:15 
-02. Arabesque - Once In A Blue Moon  1980   3:19 
-03. Azoto - Anytime Or Place  1980   6:15 
-04. Black Devil - No Regrets  1978   5:07     Читать дальше...    Жанр: Electronic, Disco, Funk SoulПродолжительность: 05:45:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90A904259D601E2BC58DF7D83B6537134C5A5FB9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464368.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

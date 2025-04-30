@@ -1,4 +1,77 @@
 ﻿
+###  Публикация: 948 718
+
+Pentatonix - 7 альбомов  2012-2015  [FLAC|tracks|WEB-DL]<Pop, A Cappella>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Pentatonix  сокращенно PTX  — американская а капелла группа родом из Арлингтона, штат Техас, состоящая из пяти вокалистов: Скотт Хоинг, Митч Грасси, Кирсти Мальдонадо, Ави Каплан и битбоксера Кевина Олушола.
+Pentatonix не имеет конкретного музыкального направления, так как получает влияние от различных направлений, таких как поп-музыка, дабстеп, электро, регги, хип-хоп     Читать дальше...    Жанр: Pop, A CappellaПродолжительность: 04:06:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:09AAB235E67557F4250B7DD05AF211942F84A20E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_948718.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 948 651
+
+Вячеслав Малежик -  Ночь в Сан-Франциско  2014  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ловлю полёт твоих шагов
+02. Мадам
+03. Украденное счастье
+04. Не любила    Читать дальше...    Жанр: PopПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0AEB3F5FD2D31E4673B00520F68FD410F8A22F0B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_948651.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 948 624
+
+VA - Guilty Pleasures|The Songs You Secretly Love  2011  2CD [FLAC|tracks + .cue]<Synth-pop, Pop
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Electric Light Orchestra - Sweet Talkin  Woman  3:49 
+02. Daryl Hall & John Oates - Private Eyes  3:36 
+03. The Steve Miller Band - Abracadabra  3:40 
+04. Laura Branigan - Self Control  4:05     Читать дальше...    Жанр: Synth-pop, Pop RockПродолжительность: 02:34:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7B2B9C6D0B07198C231D53CC5FBE866377754C7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_948624.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 948 598
 
 Maroon 5 - Singles  2015  [FLAC|tracks|WEB-DL]<Pop, Pop Rock, Soft Rock>
@@ -1915,82 +1988,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932484.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 932 442
-
-Джинсовые мальчики - Mini Disco  2015  [FLAC|image+.cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Волна
-02. Выше тополей  feat. «140 ударов в минуту» 
-03. Mini Disco
-04. Дождик    Читать дальше...    Жанр: PopПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DFAF395673715181E5A2610BC795563BDD00087E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932442.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 932 428
-
-VA - 300 Hits - Love Songs  2012  15CD [FLAC|track+.cue]<Pop, R&B, Soul, Rock, Country, Disco>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Как это поётся:  О любви так много песен сложено, я спою, тебе спою, ещё одну . Здесь же Вашему вниманию предлагается 16 часов беспрерывной любви с поцелуями Амура, стрелами Купидона и самым широким диапазоном музыкальной стилистики.
-К счастью, в этой коллекции достаточное количество классики жанра - перечислю лишь немногое Stand by Me   Ben E. King ,     Читать дальше...    Список альбомов:
-CD1 - I Will Survive
-CD2 - Timeless Love Songs
-CD3 - Always & Forever    Читать дальше...    Жанр: Pop, R&B, Soul, Rock, Country, DiscoФормат: 15CD, box setПродолжительность: 16:09:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:27788C7578B6A3FE14039C0790BB3DC5296743B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932428.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 932 389
-
-Modern Talking - The First Album & The Second Album  30th Anniversary Limited Special Edition  <
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. You re My Heart, You re My Soul  05:35 
-02. You Can Win If You Want  03:51 
-03. There s too Much Blue in Missing You  04:42 
-04. Diamonds Never Made a Lady  04:06     Читать дальше...    Жанр: Europop, Euro-Dance, Dance-PopПродолжительность: 02:06:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B4528915B0D5C91BEF83663215FCDDA50E951A78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_932389.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

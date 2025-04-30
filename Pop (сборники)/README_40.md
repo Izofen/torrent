@@ -1,4 +1,76 @@
 ﻿
+###  Публикация: 1 421 104
+
+Bad Boys Blue - Tears Turning To Ice  2020  [MP3|320 Kbps] <Dance, Pop, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Killers  03:49 
+ 02. Tears Turning to Ice  03:19 
+ 03. Love Love Love  02:56 
+ 04. A Million Times in Heaven  04:07     Читать дальше...    Жанр: Dance, Pop, Euro-DiscoПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C3B6340AB80F7393C35B55FB84713B2D562A1D3E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421104.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 076
+
+Laura Branigan - Self Control  2020  2 CD Expanded Edition [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Треклист CD1:
+01. The Lucky One
+02. Self Control
+03. Ti Amo    Читать дальше...    Жанр: Pop |Продолжительность: 01:27:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3D909E7AC84F75CACD478DCFE87CD2E0CDC4C81D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421076.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 420 857
+
+Karel Gott - Hinter Der Sonne-Lieder, Die Ich Im Herzen Trage  2011  [FLAC|Lossless|image + .cue
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Im Leben Zahlen Nicht Die JahreЖанр: Pop, SchlagerПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:23ACB17975236D83206542466500D24342896A83
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1420857.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 420 545
 
 VA - Acoustic Classic Rock Covers  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
@@ -1908,81 +1980,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413037.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 020
-
-VA - Heartbreak Hits  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Justin Bieber - That Should Be Me  Album Version   3:52 
-02. Dean Lewis - Waves  4:00 
-03. OneRepublic - Apologize  Album Version   3:26 
-04. Whitley - More Than Life  2:55     Читать дальше...    Жанр: Pop, Pop-RockПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:084CEC7DEF07994B89632AA4BDC3AEC438512F72
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413020.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 412 814
-
-VA - 35 Top Songs For Gym & Weight Lifting 2020 Edition [MP3|320 Kbps] <Euro-Dance, Pop-Dance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. DJ Hush - Anthem  Fitness Version   04:20 
-02. Radiorama - I ll Be There  Fitness Version   04:04 
-03. Vanillas - Planet Rock  Fitness Version   05:20 
-04. Hellen - Live Your Story  Fitness Version   05:11     Читать дальше...    Жанр: Euro-Dance, Pop-DanceПродолжительность: 02:41:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:26BF30B17C610F5518D0F4B04E6C8E64849FF6BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1412814.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 412 489
-
-VA - New Italo Disco Top 25 Compilation Vol. 14  2020  [MP3|320 Kbps] <Italo-Disco, Euro-Disco,
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Emy Care - Do You Love Me  Radio Edit  [4:12]
-02. Emy Care - You And Me  Radio Edit  [4:07]
-03. Boy Blue - Don t Break My Heart  Radio Edit  [4:29]
-04. Brad Lake - Yesterday  When I Was Young   Radio Edit  [4:36]    Читать дальше...    Жанр: Italo-Disco, Euro-Disco, DanceПродолжительность: 01:48:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:89B83BA866999D7511B05C3A38949D6630DFD150
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1412489.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

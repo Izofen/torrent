@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 689 434
+
+VA - Максимальный размер удовольствий от Авторадио  2013  [MP3|128 кб с]<Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001 Григорий Лепс и Ани Лорак - Зеркала
+002 Точка G feat. Леся - Улетаем
+003 Монако Project - Снова Одна
+004 Tisha - Адреналин
+005 Дима Билан - Улыбка Ангела
+006 Катя Нова - Волк-Одиночка
+007 Lola - Лучший Из Мужчин
+008 Рома Жуков - Цветы На Асфальте
+009 Ани Лорак - Забирай
+010 Nebesno - Небо На Двоих    Читать дальше...    Жанр: PopПродолжительность: 11:46:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43911BFA3A879D3A1425517B6132326DA88EDE7F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 689 396
+
+VA - Созвездие хитов Европы Плюс Часть 2 200 хитов  2013  [MP3|128 кб с]<Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001 Дио.Фильмы - Наоборот
+002 Loveable Rogues - What A Night
+003 Сергей Ашихмин и Юлийа Погожева - Армагедон
+004 Miley Cyrus - We Cant Stop
+005 Джулийа - Вселенная
+006 Baby & Me - Here Comes a Hotstepper
+007 АнгелиЯ - Неразлучные
+008 Fergie feat. Q-Tip & GoonRock - A Little Party Never Kil
+009 Саша Ветер феат. Флаш-Моб & Татьяна Сандуленко - Не З
+010 Lana Del Rey - Summertime Sadness  Cedric Gervais Radio    Читать дальше...    Жанр: PopПродолжительность: 11:41:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:527E49060C3EF8560C9BF84CEC22CC5D51C8698B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 689 388
+
+VA - Летний Рашн Дэнс  2013  [MP3|256-320 кб с]<Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Винтаж Feat. Dj Грув - Kill My Business
+02. DJ Sandro Escobar & MC Романов - Голое Лето  Radio Edit 
+03. Monroe - Оркестр
+04. 30.02 - Звезды В Лужах
+05. Dj Sandro Escobar & Mc Romanov - Голое Лето  Radio Edit 
+06. Dj Kerim Muravey & Арсен Петросов - Кайфуем!  Official Radio Mix 
+07. 23-45 - Тайна
+08. Belka - Ключицы  Lounge Version 
+09. Zabava Life - Город Танцует  Ural Djs Remix 
+10. Ева Польна - Весь Мир На Ладони Моей  Latte & Hitretz Remix     Читать дальше...    Жанр: DanceПродолжительность: 05:01:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C6D78317AB2C72FAF29ECDA43DD4CB751FFA0026
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 689 382
+
+VA - German TOP100 Single Charts  19.08.2013   2013  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Avicii - Wake Me Up
+002. Naughty Boy feat. Sam Smith - La La La
+003. Robin Thicke - Blurred Lines
+004. Casper - Im Ascheregen
+005. Onerepublic - Counting Stars
+006. Cro - Whatever
+007. John Newman - Love Me Again
+008. Bastille - Pompeii
+009. Daft Punk Feat. Pharrell Williams - Get Lucky
+010. Ellie Goulding - Burn    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:10:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D9C1364C2DDED6BBB8AF54738596A609C932808
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 689 355
 
 VA - Hits Cocktail Vol.15  2013  [MP3|320 кб с]<Pop, Dance>
@@ -2310,130 +2434,6 @@ Electronic  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:9398C2B8F2F8475457E42981F98C9F3DE959FEA7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 682 591
-
-VA - Cafe Del Mar XIX  Volumen Diecinueve   2CD   2013  [MP3|320 кб с]<Downtempo, Loun
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. DоNote - Sylvia [04:27]
- 02. Space Designers - Nothing Really Matters [05:00]
- 03. Ziller - Pearl & Dean [04:53]
- 04. James Bright - Be [05:34]
- 05. Silent Way - Pretty Good [04:50]
- 06. Lux - Golden [04:54]
- 07. No Logo - Matter of Time [04:13]
- 08. Kinobe - Lotus Eater [05:03]
- 09. Aromabar - Renegade [04:56]
- 10. Hazy J - Our Way [05:05]    Читать дальше...    Жанр: Downtempo, Lounge, ChillOutПродолжительность: 04:17:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5F95B3B1157E75E84F69A2506C90CBD6D65A71E5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 682 208
-
-VA - Только новинки от VANOVLAD 50 50 vol.1  2013  [MP3|128-320 кб с]<Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1.Houseshaker feat. Amanda Blush - Light The Sky  Radio Edit 
-2.Harris & Ford vs. Gordon & Doyle feat. Lisah - Das Geht Boom  Shag Ragga   Radio Edit 
-3.AlunaGeorge - Best Be Believing
-4.Афродита - Мелодия Лета  Radio Edit 
-5.Эльбрус Джанмирзоев - Напоминание
-6.Жанна Фриске - Плачь И Умоляй
-7.Kike Rodriguez & McMesie - Toca Disfrutar
-7.Kaira - Besame  Radio Edit 
-8.Young Cash feat. Akon - Around My Way
-9.Юлия Беретта - Подруга-Крокодил    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:15:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A18524CFE086389F34021733327CA2FAA44B98D3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 682 057
-
-VA - Радио DFM - D Чарт - Top-30  19.07.2013  [MP3|128-320 кб с]<Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Daft Punk feat. Pharell Williams - Get Lucky
-02. Mind Vortex - Alive
-03. Lana Del Rey - Summertime Sadness  Cedric Gervais Remix 
-04. David Guetta Feat. Ne-Yo & Akon - Play Hard
-05. Calvin Harris feat. Ellie Goulding - I Need Your Love
-06. One Republic - If I Lose Myself  Alesso rmx 
-07. Mia Martina - Tu Me Manques  Missing You 
-08. Dino MFU feat. Slick Beats - On Your Name  DFM MIX 
-09. Avicii vs. Nicky Romero - I Could Be The One
-10. Naughty Boy feat. Sam Smith - La La La    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:59:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:782ADD5207FD954B53318F2055CC2979A5BB8DCC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 682 015
-
-VA - Best of Dance Clubs  Beach Summer Collection 30 Hot Tracks Ibiza   2013  [MP3|320 кб 
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Key Tronics Ensemble - Calypso of House - Sicania Soul Introspective Mix  06:01 
-02. DN3 - Big Bottle  06:37 
-03. Double Dee, Dany - Found Love - Keith & Supabeatz Remix  05:10 
-04. Ltj Xperience - I Don t Want This Groove to Ever End  08:39 
-05. Jestofunk, Cece Rogers - Can We Live - Soul Chemistry Mix  05:56 
-06. Black Mighty Wax - Pull Down - Ltj Xperience Remix  07:23 
-07. United Peace Voices - Maritsema  04:24 
-08. Lipstick - 80s Pop - DJ Leg Remix  06:36 
-09. Low Fidelity Jet Set Orchestra - Ride the Sun  03:49 
-10. Ltj Xperience - Funk Is On  09:02     Читать дальше...    Жанр: Funky,Club House,Deep HouseПродолжительность: 02:55:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EF6A7865E033A56EACA19080C06EB7B0BB102610
 ```
 
 <div id="header" align="center">

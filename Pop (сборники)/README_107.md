@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 909 994
+
+Скрябін  Скрябин  - Дякую люди  Останній запис   2015  2CD Live [FLAC|image+.cue]<Pop-Ro
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Кинули
+02. Танець пінгвіна
+03. Мам  6:50 
+04. Годинник    Читать дальше...    Жанр: Pop-RockПродолжительность: 02:23:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63EA813E48DC9D92DADFC4CADA4121A75E1F8699
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_909994.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 909 904
+
+Игорь Николаев - Линия жизни  2014  [MP3|256 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Песня для тебя [04:06]
+02. Линия жизни [03:44]
+03. Поздняя весна [03:54]
+04. Мы совпали с тобой [03:13]    Читать дальше...    Жанр: PopПродолжительность: 00:55:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EBA00A69038C251FFAFA4381FB66B423631971F7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_909904.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 909 755
+
+Giorgio Moroder - Deja-Vu  2015  [FLAC|Lossless]<Pop, Electronic>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. 4 U With Love
+02. Deja Vu  feat. Sia 
+03. Diamonds  feat. Charli XCX 
+04. Don’t Let Go  feat. Mikky Ekko     Читать дальше...    Жанр: Pop, ElectronicПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9B554833FFAAA455846A61A8B57E7355DDF7700
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_909755.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 909 741
 
 Lenka - The Bright Side  2015  [FLAC|Lossless|WEB-DL]<Indie Pop>
@@ -1935,84 +2010,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:4ED82DBB6AC884524CA755D1D773C9D3B40D4260
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 877 530
-
-Скрябін  Скрябин  - Діапазон  2015  [MP3|320 кб с]<Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Любити платити
-02. Бультер р
-03. Люди, як кораблі
-04. На даху
-05. Про любов    Читать дальше...    Жанр: Pop RockПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE47724482DA37243C265AAB1531FDE5A9F55EE0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 877 527
-
-Oonagh - Aeria  2015  [MP3|320 кб с]<Pop, Ethno-Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Ananau - Wo Die Höhen Zum Himmel Reichen
- 02. Silmaril - Schöner Als Die Sterne
- 03. Eccaia - Von Der Flut
- 04. Tinúviël - Bis Die Stille Zerbricht
- 05. So Still Mein Herz  feat. Santiano, Oomph!     Читать дальше...    Жанр: Pop, Ethno-PopПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F2887CEC1DF8FED96F7980D9CDC96A85994654F4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 877 515
-
-Giovanni Caccamo - Qui Per Te  2015  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Qui per te
-02. Oltre l estasi
-03. Il mondo non mi basta
-04. Ritornerò da te
-05. Nel fango    Читать дальше...    Жанр: PopПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4D405F6068D141622002C0FD3FC6A2C23921D2F9
 ```
 
 <div id="header" align="center">

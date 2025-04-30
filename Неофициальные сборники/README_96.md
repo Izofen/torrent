@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 237 113
+
+Metallica - Time For One...Or 3...Or 7  EP   2018  [MP3|320 Kbps] <Thrach Metal, Heavy>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. The Outlaw Torn  Unencumbered By Restrictions 
+02. Bass Solo
+03. Killing Time
+04. Guitar Solo    Читать дальше...    Жанр: Thrach Metal, HeavyПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:35088B4B9F6728598A694EFAC00DDC37F59E7532
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237113.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 237 087
+
+VA - Зайцев.нет: Лучшие новинки Июля 2018 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. GAZIROVKA - Яйца в кулак 2:49
+002. Эльбрус Джанмирзоев - Этой ночью 3:19
+003. RASA - Эликсир 3:40
+004. Хлеб - Шашлындос 2:58    Читать дальше...    Жанр: PopПродолжительность: 05:53:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F1F731205C0C8E27798B79D6A629A4669260F0AC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237087.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 237 069
+
+VA - Зайцев.нет Музыкальные новинки 2 Июль 2018 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Willy William - La La La 2:52
+02. Rasel feat. Brytiago - Voy Subiendo 3:33
+03. Sabi Miss - Северный ветер 3:08
+04. Misty - Девочка 3:49    Читать дальше...    Жанр: Pop, DanceПродолжительность: 04:25:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:55E570D200CFA4C00B333259A94B4322E68F7EEA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237069.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 237 061
+
+VA - Summer Temptation: Night Party  2018  [MP3|320 Kbps] <Club, Dance, House, Trance>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Don Diablo - People Say
+002. Raw N Holgerson - Still Thinking
+003. Free 2 Night - The Only One  Radio Mix 
+004. Blutonium Boy - Where Did I Go    Читать дальше...    Жанр: Club, Dance, House, TranceПродолжительность: 09:29:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4FD5787E4827BB46F05D4685F8A8BE35606C6BE8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237061.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 236 981
 
 VA - DFM Top 30 D-Chart 20.07.2018 [MP3|320 Kbps] <Pop, Dance>
@@ -1891,106 +1991,6 @@ VA - Latin Positivo Music Day  2018  [MP3|320 Kbps] <Merengue, Reggaeton, Dembow
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1232856.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 232 634
-
-VA - De Top 100 Aller Tijden 1990  Radio Veronica   2017  [MP3|320 Kbps] <Pop, Rock, World>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
- De Top 100 Aller Tijden   Топ 100 на Все Времена  от голландской радиостанции  Radio-Veronica  .001.  Sinead O  Connor - Nothing Compares 2 U  5:10 
-002.  Londonbeat - I ve Been Thinking About You  5:18 
-003.  Corry Konings - Mooi Was Die Tijd  4:06 
-004.  Roxette - It Must Have Been Love  4:20     Читать дальше...    Жанр: Pop, Rock, WorldПродолжительность: 07:06:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:04E5DB5EF5B6A34E8BD1DEFD1542CB5D804D74FA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1232634.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 232 567
-
-VA - Record Super Chart 542  2018  [MP3|320 Kbps] <Dance, Club, House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. The Prodigy feat. Vicetone - Omen 3:43
-02. Bolier & Joe Stone - Keep This Fire Burning 4:23
-03. Don Diablo feat. Paije - People Say 3:09
-04. Lucas & Steve - Source 4:22    Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C18C866276BDD60D78F5153C3EDDB2F8528EC31C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1232567.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 232 546
-
-VA - ЕвроХит Топ 40 Europa Plus 22.06.2018 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Dynoro feat. Gigi D Agostino - In My Mind
-02. Tom Walker - Leave a Light
-03. MARUV & Boosin - Drunk Groove
-04. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:17:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6A0FCD2A65F01D1B436840AD12EAD88BECB9740
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1232546.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 232 533
-
-VA - Deep House Collection Vol.176  2018  [MP3|320 Kbps] <Deep House, Club House, Tech House>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-001. 7even  GR  - Just a Fool  Original Mix 
-002. Ahmet Kilic & Stoto & Adeba - Stumblin  In  feat. Adeba   Original Mix 
-003. Ahmet Kilic, DJ Tarkan - We Still Alive   DJ Tarkan Remix 
-004. Aimo & Chaos feat. Pearl - Just Like Music   Tswex Malabola Remix     Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:59:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:35C189966DFA2254B892D9ABFAA1F6E604D16028
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1232533.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

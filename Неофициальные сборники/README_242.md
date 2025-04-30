@@ -1,4 +1,110 @@
 ﻿
+###  Публикация: 493 621
+
+VA - Инструментальная музыка  2012  vol. № 29 [MP3|320 кб с]<Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:39:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD63D75D6F617B87ECAFBEBDF7FA9CD14BBAB40F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_493621.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 493 088
+
+VA - Лучшие Хиты Радио Дача Часть 8  2012  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001 Юрий Шатунов - А лето цвета
+002 ВИА Гра - Диско
+003 Денис Майданов feat. Филипп Киркоров - Стеклянная любовь
+004 Наташа Королева - Небеса
+005 София Ротару и Николай Басков - Я найду свою любовь
+006 Чай Вдвоем - Улетай
+007 Наталья Бучинская - Река любви
+008 Валерий Меладзе - Потерян и не найден
+009 Ирина Билык - Мы будем вместе
+010 Андрей Бандера и Рада Рай - Догорит костер  новая версия 2012Жанр: PopПродолжительность: 06:15:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:11FEAAE8A02F87A7C0C4B856A499AF7A60FC068F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_493088.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 493 063
+
+VA - Клубный Хит в Машину! Vol.1  2012  [MP3|320 кб с]<Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Luis Lopez feat. Adena - Lay Me Down  Extended Mix 
+02. Groove Breaks - Hands In The Ayer  Original Mix 
+03. Andrea Del Vescovo feat. Jay - Ibiza  Extended Mix 
+04. Phoenyx & Kunala - Feel  Original Mix 
+05. Marc Simz feat. Naomi Striemer - This Is Love  Radio Edit 
+06. Will.I.Am ft. JLO & Mick Jagger - Go Hard  R3hab vs The Eye Remix 
+07. Aura Dione - Geronimo  DJ RICH-ART Remix 
+08. Taito vs. Benny G - Make A Move  Original Mix 
+09. Инфинити - Другая  Extended Mix 
+10. Pascal & Pearce feat. Juliet Harding - Disco Sun2012Жанр: Dance, ClubПродолжительность: 05:02:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:23587A09C11746AB2404814DD123E34810AD4AD4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_493063.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 493 040
+
+VA - Песни Великой Победы  10CD   2012  [MP3|320 кб с]<Ретро, военные песни>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+2012Жанр: Ретро, военные песниПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:68139F67A9D024CF579DF4D6CC9D56DE43CE5304
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_493040.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 492 623
 
 VA - Пиратская Станция Часть 13  2012  [MP3|256 кб с]<Pop,Dance, Club>
@@ -2245,130 +2351,6 @@ VA - Top 100 Зайцев.нет  11.04.2012   2012  [MP3|128-320 kbps]<Alternat
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:5D64B2F8EEC5BAC7204B936CAFFB5CD1340A4588
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 481 173
-
-VA - Музыка для хорошей компании  2012  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-1. 01. Андрей Калинин - А мы гуляем  3:14 
-2. 02. Валерий Курас - Давайте выпьем за здоровый образ жизни  3:35 
-3. Рождество - Молодость  4:18 
-4. Игорь Пермский - За Друзей  4:25 
-5. Александр Черкасов - Дочки  3:49 
-6. Евгений Алтайский - Женщина любимая  3:24 
-7. Пахомов - Девочка-Девченочка  2:53 
-8. Татьяна Тишинская и Эдуард Видный - Дым от сигарет  4:04 
-9. Лепа - Пластиночка  3:27 
-10. Белый орел - Теряй  3:50 2012Жанр: ШансонПродолжительность: 06:24:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0EDC03CAB1C8FFD4E841413B16C4B1DAB7DC931
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_481173.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 480 997
-
-VA - Beatport Top 100 Download April  2012  [MP3|320 kbps]<House | Dance | Trance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Thomas Gold – Sing2Me  Original Mix 
-02. Swedish House Mafia - Greyhound  Original Mix 
-03. Sebastian Ingrosso,Alesso & Ryan Tedder – Calling  Lose My Mind   Extended Club Mix 
-04. TJR – Funky Vodka  Original Mix 
-05. Zedd – Shotgun  Original Mix 
-06. Fedde Le Grand, Deniz Koyu & Johan Wedel – Turn It  Original Mix 
-07. Mark Knight – Alright  Original Club Mix 
-08. Mark Knight – Together  Original Club Mix 
-09. Cicada, Third Party – Feel  Original Mix 
-10. Luigi Rocca & Manuel De La Mare – Opa-Locka  Original Club Mix     Читать дальше...    2012Жанр: House | Dance | TranceПродолжительность: 10:50:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:952FCFCDFDE2AF04C429403DA63C595A2F2990D3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 480 790
-
-VA - 100 Most Beautiful Love Songs  2006  [MP3|320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01.10CC - I m Not In Love - 6:02
-02.ABC - The Look Of Love  Part 1  - 3:30
-03.Level 42 - Lessons In Love - 4:06
-04.Joan Armatrading - Love Ans Affection - 4:25
-05.Cat Stevens - Wild World - 3:20
-06.Shanice - I Love Your Smile - 4:21
-07.Shelby Lynne - Your lies - 2:57
-08.All About Eve - Martha s Harbour - 3:04
-09.The LA s - There She Goes - 2:43
-10.The Osmonds - Love Me For A Reason - 4:02    Читать дальше...    2006 [03. Februar 2006]Жанр: PopПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2A795B8226E1D3B074305FC8F3E3BC3678DD902F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_480790.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 480 285
-
-VA - The Best Of Lounge Music  2012  [MP3|320 kbps]<Chillout | Lounge>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Lily Wood & The Prick - This Is A Love Song
-002. The Do - Too Insistent
-003. Emilie Simon - Desert
-004. Cocoon - Cornets
-005. Brisa Roche - Breathe In Speak Out
-006. General Elektriks - Summer Is Here
-007. Applause - Black Sand
-008. The Herbaliser Feat. Seaming To - Something Wicked
-009. Beat Assailant - Hard Twelwe - The Ante
-010. Raashan Ahmad Feat. Aloe Blacc & Gift Of Gab - Falling    Читать дальше...    2012Жанр: Chillout | LoungeПродолжительность: 07:54:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6EEC6F23D3845AE38C1B84EB2BF5F40445321928
 ```
 
 <div id="header" align="center">

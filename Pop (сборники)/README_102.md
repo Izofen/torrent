@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 965 510
+
+Geri Halliwell - Scream If You Wanna Go Faster  2001  [FLAC|Lossless|tracks + .cue] <Electro, Eu
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Scream If You Wanna Go Faster  3:38 
+02. Shake Your Bootie Cutie  4:04 
+03. Calling  4:23 
+04. Feels Like Sex  3:24     Читать дальше...    Жанр: Electro, Euro House, BalladПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C019E2FDD7A05CF7217880D144C69D092918B21C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965510.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 965 484
+
+Savage Garden - Affirmation  1999  [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Affirmation  4:56 
+02. Hold Me  4:50 
+03. I Knew I Loved You  4:10 
+04. The Best Thing  4:19     Читать дальше...    Жанр: Pop Rock, Synth-popПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:035AE55DC6D8A97471CE0368F5E39425A5D1E878
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965484.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 965 368
+
+VA - Hot Parade Winter 2016  2015  [MP3|320 кб с] <Dance, House, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Lost Frequencies feat. Janieck Devy - Reality  2:3 
+02. Charlie Puth feat. Meghan Trainor - Marvin Gaye  3:04 
+03. Jess Glynne - Don t Be So Hard On Yourself  3:29 
+04. Robin Schulz feat. Francesco Yates - Sugar  3:3     Читать дальше...    Жанр: Dance, House, PopПродолжительность: 2:26:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E1B07708B38D272F171E716096A5E272FA8D5CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_965368.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 965 177
 
 Mylene Farmer - Cendres De Lune  1987  [FLAC|Lossless|tracks + .cue] <Chanson, Synth-pop>
@@ -1916,81 +1991,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956989.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 956 542
-
-Лолита - Неизданное  2015  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Остановите землю
-02. Свободна
-03. Не заморачивайся
-04. Здорово    Читать дальше...    Жанр: PopПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7D84225D1461620224A81C0E849E6D911369F95A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956542.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 956 469
-
-Simply Red - Big Love: Greatest Hits Edition  30th Anniversary   2015  [FLAC|tracks|WEB-DL]<
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Shine On  3:11 
-02. Daydreaming  3:37 
-03. Big Love  4:09 
-04. The Ghost of Love  3:14     Читать дальше...    Жанр: Pop,SoulПродолжительность: 01:57:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7343B1337972A3F43224EE0ED6E184CB032615A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956469.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 956 343
-
-Алла Пугачёва - Алла Пугачёва поёт песни Юрия Чернавского  2013  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-01. Белая Дверь  04:43 
-02. Робинзон  04:43 
-03. Сирена  04:04 
-04. Белая Панама  05:49     Читать дальше...    Жанр: PopПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EF8C88F15720A56BC7CCB1DCB5002297CDE7D9D2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956343.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

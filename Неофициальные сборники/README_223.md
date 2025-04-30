@@ -1,4 +1,110 @@
 ﻿
+###  Публикация: 713 053
+
+Seal - 25 Best Songs  2012  [MP3|218 - 250 кб с]<Soul>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Amazing  Thin White Duke Edit  2007
+02. Crazy 1991
+03. Bring It On 1994
+04. If It s In My Mind, It s On My Face 2007    Читать дальше...    Жанр: SoulПродолжительность: 01:54:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EBF206394AC24BFDCBE75B48F628E5D4545579D5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_713053.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 713 015
+
+A-ha - 25 Best Songs  2012  [MP3|320 кб с]<Synthpop>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Take On Me 1985
+02. The Sun Always Shines On TV 1985
+03. Hunting High And Low  7   Remix  1985
+04. Scoundrel Days 1986    Читать дальше...    Жанр: SynthpopПродолжительность: 01:46:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB9FB3374D1D229CEF5D97DF95248235EDF12FF9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_713015.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 713 007
+
+VA - Хит за хитом. Осенний выпуск  2013  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+1. DJ Сателлит & Marlena vs. Armin Van Buuren - Это Любовь  Tonada Radio Mix   4:35 
+2. Полина Гагарина - Нет  3:55 
+3. Потап и Настя - Все Пучком  3:18 
+4. Наталья Могилевская - Helele  4:30 
+5. Влад Соколовский - Ла-ла-ла  3:49 
+6. Иракли - Все Будет Ок!  3:27 
+7. Жара & Ёлка - Новый Мир  3:46 
+8. Real O - Вова Давай, Hayden Goodbye  3:26 
+9. Алена Высотская - Мы теряем себя  3:52 
+10. Ёлка - Сука Любовь  4:33 Жанр: PopПродолжительность: 06:20:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F1E1D36FC553D0ACC5A29CE9BBB58E3A26C24D44
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 712 966
+
+Chris Rea - 25 Best Songs  2012  [MP3|197 - 270 кб с]<Blues-Rock>
+Неофициальные сборники
+Jazz, Blues, Soul (сборники)
+
+###  Подробнее
+
+01. The Road To Hell  Part 2  1989
+02. King Of The Beach 2000
+03. Auberge 1991
+04. Josephine 1985    Читать дальше...    Жанр: Blues-RockПродолжительность: 01:56:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4872F3B02622077633653BDBE207E63263E14497
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_712966.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 712 939
 
 VA - Эйфория.vol4  2013  [MP3|320 кб с]<Chillout, Chillstep, Ambient, Downtempo, Deep House, N
@@ -2234,130 +2340,6 @@ Savage - Starman Mix  by SpaceAnthony   2013  [MP3|320 кб с]<Spacesynth, Ital
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 705 549
-
-VA - City Dubstep Bring  2013  [MP3|256-320 кб c] <Dubstep, Beat, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Virtual Riot - So Baked 05:02
- 02. 1.8.7. Deathstep - Mechanized  Original Mix  04:13
- 03. Dubrocca - Garage Satisfaction 04:10
- 04. Virtual Riot Ft. Lisa Rowe - Mindreade 04:45
- 05. Kursa - Sdbn  Original Mix  04:34
- 06. Dead Battery, Lea Santee - Cut The Line  Naked Fish Remix  04:55
- 07. Filth Collins - Overload 05:05
- 08. Dead Battery, Dabin - Lost Ii  Original Mix  05:32
- 09. Dank  Usa  - Wonder Child 04:13
- 10. Fractal  Usa  - Urchin  Original Mix  05:25    Читать дальше...    Жанр: Dubstep, Beat, ElectroПродолжительность: 03:34:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:233EDC76BFE726FD04A110D8832747120350D2E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 705 436
-
-Мумий Тролль - Лучшее [5CD]  1997-2013  [MP3|320 кб с]<Альтернативный рок, бритпоп, рок-н-ролл
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-Мумий Тролль — советская и российская рок-группа из Владивостока. Образовалась в 1983 году. Группа была создана во Владивостоке её бессменным лидером и идеологом Ильей Лагутенко. Группа представляла Россию на конкурсе песни Евровидение 2001 и заняла 12 место.Жанр: Альтернативный рок, бритпоп, рок-н-ролл, поп-рокПродолжительность: 01:11:42
- 77. Золото и ладан  2008 
- 78. В этом свете  2008 
- 79. Ядерные станции  2008 
- 80. О, рай!  2008 
- 81. Весна  2008 
- 82. Фантастика  2008 
- 83. Круг замкнулся  2008 
- 84. California Dreaming  2009 
- 85. SOS Матросу!  2013     Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FA8597C0654F6EEC5D36C78C9DAC09C4EC44082D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 705 404
-
-РадиоЦех - Не дала  club   2013  [MP3|128 кб с]<Club>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-1. РадиоЦех&Bueno Clinic-Сексопiл  club 
-2. РадиоЦех&PSY-Опа сало жру  club 
-3. РадиоЦех-Вiдпусти  club 
-4. РадиоЦех-Качаем любовь  club 
-5. РадиоЦех-Лiто-Весна  club 
-6. РадиоЦех-Лето-любовь  club 
-7. РадиоЦех-Не дала  club 
-8. РадиоЦех-Не плач Олiса  club-disco 
-9. РадиоЦех-Полiглот  club-disco 
-10. РадиоЦех-Пружино dens  club     Читать дальше...    Жанр: ClubПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:60CA6DA1034AFBE63E04875A9EC88FE6EDD784F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 705 069
-
-VA - The Best World Ballads-18  2013  [MP3|111-320 кб с]<Pop, Rock, Blues, Rap, R n B>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001 Colbie Caillat-I Never Told You 3:55
-002 David Bowie-Thursday s Child 5:22
-003 Johnny Hates Jazz-Man With No Name 4:00
-004 Lene Marlin-Faces 3:34
-005 Saybia-The Second You Sleep 4:17
-006 Marc Terenzi-Forever Will Always Be 4:05
-007 Faith Hill-Cry 3:47
-008 Mat Kearney-Never Be Ready 3:36
-009 U2-With Or Without You 4:54
-010 Sinead O Connor-Jealous 4:17    Читать дальше...    Жанр: Pop, Rock, Blues, Rap, R n BПродолжительность: 17:48:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:72B879204198B8451BFBEF24AE470E213E53C535
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_705069.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

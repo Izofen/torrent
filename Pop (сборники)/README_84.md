@@ -1,4 +1,80 @@
 ﻿
+###  Публикация: 1 141 594
+
+London Grammar - Truth Is A Beautiful Thing  2017  Deluxe [FLAC|Lossless|tracks] <Indie-Pop, Alt
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Rooting for You [04:29]
+02. Big Picture [04:41]
+03. Wild Eyed [04:28]
+04. Oh Woman Oh Man [04:37]    Читать дальше...    Жанр: Indie-Pop, AlternativeПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:50507A91EC85B22AE476ED62EB2C4499B111B9CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1141594.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 141 545
+
+Ottawan & Pam N  Pat - 2 Albums, 2 Single  1980, 1981  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+“17 миллионов дисков продано за 3 года... ” - так начинается биография одной из наиболее популярных дискогрупп. “OTTAWAN”, всегда находился под большим влиянием лидер-вокалиста по имени PAT, полное имя которого - Jean-Baptiste Patrick.
+В общей сложности группа провела 45 недель с 4-мя синглами в чартах Великобритании и 126 недель с 5-ю синглами в чартах Германии.     Читать дальше...    Список альбомов:
+1980 - Ottawan - D.I.S.C.O.
+1981 - Ottawan - Ottawan 2
+1981 - Pam n  Pat  ex Ottawan  - To Be Superman - It s All Music    Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3180F6A6045ADFCEF14020ED96017D2DD8A3837F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1141545.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 141 366
+
+Shaw - DISCOver Me  1976  LP [MP3|320 Kbps] <Funk-Soul, Soul-Jazz, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. More  4:37 
+02. Our Day Will Come  4:13 
+03. I Walk Alone  5:40 
+04. Surrey with the Fringe On Top  4:47     Читать дальше...    Жанр: Funk-Soul, Soul-Jazz, DiscoПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:50EB19B995A4220740B5195774E420A9F9A80651
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1141366.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 141 194
 
 Katy Perry - Witness  2017  [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1916,79 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132415.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 132 295
-
-Julio Iglesias - Mexico & Amigos  2017  [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 12. Usted  Con Diego Torres   3:29 
- 02 12. Jurame  Con Juan Luis Guerra   4:08 
- 03 12. Ella  Con Sin Bandera   3:46 
- 04 12. Fallaste Corazon  Con Placido Domingo   4:01     Читать дальше...    Жанр: Pop, LatinПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AAE210015FF37147B5E9634BF7C651A54716F51D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132295.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 132 277
-
-Katy Perry - Chained to the Rhythm  2017  Single [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Chained to the Rhythm  feat Skip Marley   3:58 
-02. Chained to the Rhythm  Instrumental    3:58 Жанр: PopПродолжительность: 00:07:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D0960CC8DCD70146C3FC4FE2E7D591058AEB6D73
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132277.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 132 179
-
-PLS PLS - LP LP  2013  [MP3|256 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Circles
-02. On Off On
-03. Pigs
-04. WCA    Читать дальше...    Жанр: Indie Pop Rock, Electronic Rock, SynthpopПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D04CFE789AABB6F1B38B1B00F2F1B739D0ED7149
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132179.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 682 591
+
+VA - Cafe Del Mar XIX  Volumen Diecinueve   2CD   2013  [MP3|320 кб с]<Downtempo, Loun
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. DоNote - Sylvia [04:27]
+ 02. Space Designers - Nothing Really Matters [05:00]
+ 03. Ziller - Pearl & Dean [04:53]
+ 04. James Bright - Be [05:34]
+ 05. Silent Way - Pretty Good [04:50]
+ 06. Lux - Golden [04:54]
+ 07. No Logo - Matter of Time [04:13]
+ 08. Kinobe - Lotus Eater [05:03]
+ 09. Aromabar - Renegade [04:56]
+ 10. Hazy J - Our Way [05:05]    Читать дальше...    Жанр: Downtempo, Lounge, ChillOutПродолжительность: 04:17:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5F95B3B1157E75E84F69A2506C90CBD6D65A71E5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 682 208
+
+VA - Только новинки от VANOVLAD 50 50 vol.1  2013  [MP3|128-320 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1.Houseshaker feat. Amanda Blush - Light The Sky  Radio Edit 
+2.Harris & Ford vs. Gordon & Doyle feat. Lisah - Das Geht Boom  Shag Ragga   Radio Edit 
+3.AlunaGeorge - Best Be Believing
+4.Афродита - Мелодия Лета  Radio Edit 
+5.Эльбрус Джанмирзоев - Напоминание
+6.Жанна Фриске - Плачь И Умоляй
+7.Kike Rodriguez & McMesie - Toca Disfrutar
+7.Kaira - Besame  Radio Edit 
+8.Young Cash feat. Akon - Around My Way
+9.Юлия Беретта - Подруга-Крокодил    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:15:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A18524CFE086389F34021733327CA2FAA44B98D3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 682 057
+
+VA - Радио DFM - D Чарт - Top-30  19.07.2013  [MP3|128-320 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Daft Punk feat. Pharell Williams - Get Lucky
+02. Mind Vortex - Alive
+03. Lana Del Rey - Summertime Sadness  Cedric Gervais Remix 
+04. David Guetta Feat. Ne-Yo & Akon - Play Hard
+05. Calvin Harris feat. Ellie Goulding - I Need Your Love
+06. One Republic - If I Lose Myself  Alesso rmx 
+07. Mia Martina - Tu Me Manques  Missing You 
+08. Dino MFU feat. Slick Beats - On Your Name  DFM MIX 
+09. Avicii vs. Nicky Romero - I Could Be The One
+10. Naughty Boy feat. Sam Smith - La La La    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:59:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:782ADD5207FD954B53318F2055CC2979A5BB8DCC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 682 015
+
+VA - Best of Dance Clubs  Beach Summer Collection 30 Hot Tracks Ibiza   2013  [MP3|320 кб 
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Key Tronics Ensemble - Calypso of House - Sicania Soul Introspective Mix  06:01 
+02. DN3 - Big Bottle  06:37 
+03. Double Dee, Dany - Found Love - Keith & Supabeatz Remix  05:10 
+04. Ltj Xperience - I Don t Want This Groove to Ever End  08:39 
+05. Jestofunk, Cece Rogers - Can We Live - Soul Chemistry Mix  05:56 
+06. Black Mighty Wax - Pull Down - Ltj Xperience Remix  07:23 
+07. United Peace Voices - Maritsema  04:24 
+08. Lipstick - 80s Pop - DJ Leg Remix  06:36 
+09. Low Fidelity Jet Set Orchestra - Ride the Sun  03:49 
+10. Ltj Xperience - Funk Is On  09:02     Читать дальше...    Жанр: Funky,Club House,Deep HouseПродолжительность: 02:55:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EF6A7865E033A56EACA19080C06EB7B0BB102610
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 681 971
 
 VA - German Top 100 Single Charts  22.07.2013  [MP3|128-320 кб с]<Club, Dance, Pop, Vocal>
@@ -2294,124 +2418,6 @@ VA - Удачный Хит  2013  [MP3|256 кб с]<Pop>
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:6E2C696A8D74E5A87CC8497D3C1E0543B2073071
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 673 193
-
-Xiao Bin - Saxophone  2003  [MP3|320 кб с]<Instrumental, Saxophone>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. - From The First To Now
-02. - He Must Love You A Lat
-03. - You Are My Love
-04. - Laugh Off
-05. - I Really Love You
-06. - My Sweet Heart
-07. - I Don t Love You Any More
-08. - The Price Of Love
-09. - Only
-10. - River Of The Blue    Читать дальше...    Жанр: Instrumental, SaxophoneПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0B984353EC262040D689014AD6153FA9F543B896
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 673 190
-
-VA - Now! The Ultimate Collection  2013  2CD [MP3|~245 кб с  V0 ]<Pop, Rock>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Swedish House Mafia - Save The World  3:32 
-02. Black Eyed Peas - I Gotta Feeling  4:50 
-03. Asaf Avidan - One Day   Reckoning Song  3:32 
-04. Avicii - Levels  3:18 
-05. Lmfao - Party Rock Anthem  4:22 
-06. Stromae - Alors On Danse  3:34 
-07. Ne Yo - Beautiful Monster  4:11 
-08. Timbaland - Apologize  3:05 
-09. N.E.R.D. - She Wants To Move  3:34 
-10. Gorillaz - Feel Good Inc  3:41     Читать дальше...    Жанр: Pop, RockПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 672 713
-
-VA - Energy Mastermix Vol.7 - The Best In Club & Dance  2013  [MP3|320 кб с]<Club, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Imagine Dragons - Radioactive  The Dirty Tees Mix   5:28 
-02. Empire Of The Sun - Alive  3:24 
-03. Avicii - X You  Radio Edit   3:17 
-04. Duke Dumont - Need U  100% Жанр: Club, DanceПродолжительность: 01:20:05
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 672 705
-
-VA - The Closer I Get to You  2004  [MP3|320 кб с]<Instrumental, Saxophone>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. The Closer I Get to You		04:56
-02. Can You Feel the Love Tonight		04:25
-03. All at Once		05:00
-04. Truly		05:33
-05. I Do  Cherish You 		04:49
-06. Killing Me Softly With His Song		03:39
-07. My Cherie Amor		04:44
-08. Feel Like Makin  Love		04:48
-09. Crazy for You		04:59
-10. One More Night		05:00    Читать дальше...    Жанр: Instrumental, SaxophoneПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A77ECC22BBD6AD498E6CA923735D13C9801A2E33
 ```
 
 <div id="header" align="center">

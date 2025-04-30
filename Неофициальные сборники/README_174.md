@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 981 797
+
+VA - Best Ballads Of Love  2016  [MP3|320 кб с] <Lyric, Pop, Rock, Ballad>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Ray Wilson - Wait For Better Days
+002. Gavin DeGraw - Belief
+003. Plumb - Restored
+004. Ben Moody - Nothing Left Of Me    Читать дальше...    Жанр: Lyric, Pop, Rock, BalladПродолжительность: 07:41:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:88B5C3FD9814DE368F885FF7DBB8B6D249BCCCD5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_981797.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 981 796
+
+VA - Color Climax - Porn Music From The Library  1975  [MP3|192 кб с] <Electronic, Adult Sound
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Mike Vickers - In the Beginning  02:30 
+02. Clark Gault - Silhouette  04:36 
+03. C. Adamowic - Creme De Menthe  04:17 
+04. Keith Mansfield - Before Summer Ends  04:40     Читать дальше...    Жанр: Electronic, Adult SoundtrackПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8ECFB2901C8E210B491CA39DFF9DB815B85D9272
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_981796.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 981 776
+
+VA - Private Lounge Cafe, Vol. 4  25 Delicious Lounge Anthems   2016  [MP3|320 кб с] <Down
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Lind Variante - Costante - Original Mix  05:01 
+02. Spa - Come to Love - Original Mix  04:55 
+03. Leo & Roby Ruini - La Suite - Original Mix  05:25 
+04. Backroom Barn - Sweet Dream - Original Mix  03:16     Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F6B5CF6FA6BEACD691DE2A3C93053414503B3ED5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_981776.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 981 533
+
+VA - Absolute Dance Hits Vol.2  2016  [MP3|320 кб с] <Dance, Club, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Alex Blue & Judith - Dance  Extended Mix  [04:20]
+02. Overtune - How Does It Feel  Clubbticket Remix  [05:27]
+03. Pulsedriver & Tiscore - My Love  Topmodelz Remix  [04:39]
+04. Carolina Marquez - Summerlove Right Now  Na Na Na   Bruno Mayron Remix  [05:17]    Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 05:14:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B3162403F12682BE90DDA5EADDCC9E8E462E8625
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_981533.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 981 482
 
 VA - Exquisite Deephouse  2016  [MP3|320 кб с] <Deep House>
@@ -1894,106 +1994,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976299.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 976 266
-
-VA - Trance Desire Volume 59  2016  [MP3|320 кб с] <Trance, Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Denise Rivera - Perfect Ending  Dart Rayne & Yura Moonlight Extended   06:18 
-02. Yuri Kane feat. Sopheary - Obsession  Original Mix   07:47 
-03. Beat Service & Neev Kennedy - Not This Time  Original Mix   07:09 
-04. Masoud feat. Aneym - No More  Original Mix   07:35     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 01:04:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:12B7A1498190AAC94248145C478F24AFB5299B27
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976266.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 976 162
-
-VA - The Fitness Club House and Deep House Beats for Running  2016  [MP3|320 кб с] <House, Dee
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Harmonique - Rockstar - Original Mix
-02. Alex & Chris - Nightbird
-03. Brass - Brother
-04. Brass - You Have Control    Читать дальше...    Жанр: House, Deep HouseПродолжительность: 01:20:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B6FE014FED39D3086F00FB1672CF63995D17ABF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976162.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 976 148
-
-VA - Super Bomb Electro 54  2015  [MP3|320 кб с] <Electro House, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. 22Bullets - It s Time  Original Mix   4:33 
-02. Alvaro & D-Wayne - Take U  Original Mix   4:20 
-03. Apashe, Sway - I m a Dragon  Jaycen A mour Remix   5:18 
-04. Apster - Get Down Like That  Original Mix   4:09     Читать дальше...    Жанр: Electro House, ElectroПродолжительность: 03:37:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0286981BE50AFD711C1F090A07F4F240BC65119E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976148.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 976 136
-
-2011stress - With eyes closed again  NNM   2016  [MP3|320 кб с] <Electronic, Synth-pop, Cl
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Turquoise
-02. Drowning in your eyes
-03. Bubble - Mania 2
-04. Jane Bond    Читать дальше...    Жанр: Electronic, Synth-pop, Classical CrossoverПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F5DFE8FE3BF34E1CD5BED18EE5A75B9E16D754B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976136.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

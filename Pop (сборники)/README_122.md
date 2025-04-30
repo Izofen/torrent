@@ -1,4 +1,106 @@
 ﻿
+###  Публикация: 697 989
+
+Milli Vanilli - Girl You Know It’s True: The Best Of Milli Vanilli  2013  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Girl You Know It s True  03:19 
+02. All Or Nothing  03:21 
+03. Baby Don t Forget My Number  04:09 
+04. I m Gonna Miss You  03:59 
+05. Ma Baker  04:24 
+06. Boy In The Tree  03:11 
+07. Can t You Feel My Love  03:33 
+08. Dance With A Devil  03:12 
+09. Is It Love  03:22 
+10. Money  04:10     Читать дальше...    Жанр: PopПродолжительность: 01:08:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:68934D8A12505F03AC4852E11C6078188375A4D3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_697989.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 697 835
+
+VA - Nova Tunes 2.8  2013  [FLAC|Lossless]<Electronic, Lo-Fi, Funk, Soul, Pop, Reggae>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Skarra Mucci Ft Delroy Wilson - Movie Star [4:17]
+02. Lady - Get Ready [4:04]
+03. Nu - Man O To  Daniel s Edit  [3:40]
+04. James Blake - Life Round Here [3:32]
+05. La Femme - La Femme [3:01]
+06. Major Lazer - Jessica  Featuring Ezra Koenig  [4:12]
+07. Jabberwocky Ft Elodie Wildstars - Photomaton [4:36]
+08. Winston McAnuff & Fixi - Garden Of Love [3:32]
+09. Husbands - Dream [3:33]
+10. Ezechiel Pailhes - Matin [3:00]    Читать дальше...    Жанр: Electronic, Lo-Fi, Funk, Soul, Pop, ReggaeПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C574F36D27222125C1D4E4FF11728B0B3B198090
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 697 692
+
+Madonna - MDNA World Tour  Live   2013  [MP3|320 кб с]<Dance, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1
+Продолжительность: 00:59:35
+    01. Virgin Mary  Intro   05:46 
+    02. Girl Gone Wild  03:57 
+    03. Revolver  03:52 
+    04. Gang Bang  05:54 
+    05. Papa Don t Preach  01:50 
+    06. Hung Up  03:47 
+    07. I Don t Give A  05:27 
+    08. Best Friend  Video Interlude   03:19     Читать дальше...    Жанр: Dance, PopПродолжительность: 00:55:14
+    01. Justify My Love  Video Interlude   03:34 
+    02. Vogue  04:08 
+    03. Erotic Candy Shop  04:40 
+    04. Human Nature  04:08 
+    05. Like a Virgin Waltz  05:15 
+    06. Love Spent  04:47 
+    07. Nobody Knows Me  Video Interlude   03:36 
+    08. I m Addicted  04:42 
+    09. I m a Sinner  06:45     Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B56D4C98D2800D10177E827168FCD2B91CDD2AC4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 697 639
 
 Madonna - Best Of Dubtronic Remixes  2013  [MP3|320 кб с]<Dance, Pop>
@@ -2254,84 +2356,6 @@ Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_678856.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 678 670
-
-Анжелика Варум - Сумасшедшая  2013  [FLAC|image + .cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Сумасшедшая  [04:30]
- 02. Настоящий ты [04:46]
- 03. Я всегда с тобой [04:41]
- 04. Нарисуй любовь [04:35]    Читать дальше...    Жанр: PopПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 678 580
-
-Dido - 3 альбома  2001-2005  [FLAC|Lossless]<Pop, Vocal, Ballad>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Жанр: Pop, Vocal, BalladФормат: track + cueПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_678580.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 678 277
-
-Слава - Одиночество  2013  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Одиночество-сука  3:03 
-02. Крик моей души  3:34 
-03. Люди любят  3:15 
-04. SEX не любовь  3:32 
-05. Расскажи мне, мама  3:19 
-06. Я и ты  дуэт со Стасом Пьехой   3:49 
-07. Стань сильней  3:30 
-08. Лас Вегас  2:52 
-09. Не жди меня  4:04 
-10. Невозможный мой  3:30     Читать дальше...    Жанр: PopПродолжительность: 01:08:29
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

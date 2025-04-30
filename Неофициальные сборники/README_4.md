@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 754 754
+
+VA - This Is Halloween (2024) 2CD [MP3|320 Kbps] <Rock, Pop>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+01. Michael Jackson - Thriller [05:57]
+02. Ray Parker Jr. - Ghostbusters [04:01]
+03. AC/DC - Highway to Hell [03:28]
+04. Harry Belafonte - Banana Boat (Day-O) [03:03](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 11:40:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:655634DB373FA72E29BE91D1A72405EA34B4AC74
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754754.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 702
+
+Euromartina - Compilation (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01.  Voyage of Love
+ 02.  Horse Whispers
+ 03.  Beautiful World
+ 04.  Sounds of Flowers(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F413E389416A0B4F5D225BB4E0837A00B21A1F56
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754702.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 660
+
+VA - Red System Records presents ... CD 1 (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Ai Talking - Enchanted Mystery
+02. Falco/ Red System - Rock Me Amadeus
+03. Ai Talking - The World of Dreams
+04. Red System - Blind Passion(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 03:13:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:08B1D69ADA4F400F25DE8E09BAD434D1CE30C323
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754660.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 754 635
+
+VA - Music News For Forum vol.031 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Girls Aloud - Love Machine (Jax Jones Y2J Remix) (02:49)
+ 002. Ace - Tunimenen (03:14)
+ 003. AGAYAN - Все по классике (01:51)
+ 004. Akon - Akon's Beautiful Day (02:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:17:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0F60E6B6A9C388D51D83DFD81D1342DF1DF33FCA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754635.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 754 577
 
 VA - Riffing To The Top (2024) [MP3|320 Kbps] <Rock, Hard Rock, Hardcore>
@@ -1893,106 +1993,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1747067.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 747 002
-
-Big Blues Revival - Compilation (2024) [MP3|320 Kbps] <Blues>
-Неофициальные сборники
-Jazz, Blues, Soul (сборники)
-
-###  Подробнее
-
-01. My Babe (Willie Dixon) [03:19]
-02. Я забываю [03:53]
-03. Тонечка (Городской Романс) [05:37]
-04. Bring It On Home [05:44](   Читать дальше...   )Жанр: BluesПродолжительность: 05:26:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:746FA0BCF896A5AFEDEA741066E3188E0585FD97
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1747002.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 746 897
-
-VA - Music News For Forum vol.018 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Маша Журавлева - Забываю Обо Всем (02:42)
- 002. Akha - Первое Свидание (02:42)
- 003. Akord - Ultimul Bilet (03:44)
- 004. Aleksia - Я Люблю Тебя (02:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:50:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4B09EDBF7CACEA3BCB69BEEFED5190081B696D42
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746897.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 746 827
-
-VA - Record Super Chart 31.08.2024 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Ella Henderson & Rudimental - Alibi (3:04)
-02. ZERB & The Chainsmokers - Addicted (feat. Ink) (2:32)
-03. Artemas - I Like The Way You Kiss Me (Burnt) (2:42)
-04. Girl On Couch feat. Billen Ted - Man In Finance (G6 Trust Fund) (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0C4AC9AE57C148561B44E6EAD41893B05D283AFB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746827.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 746 555
-
-VA - compilation  part 117  Electronic Assorted compilation (2024) [MP3|320 Kbps] <Electronic>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Aurora Night - Elegy for Eternity
-02. Aurora Night - Remnants of the Past
-03. Aurora Night - Tears of Time
-04. Dj Aurm - Flower(   Читать дальше...   )Жанр: Electronic, Chillout MusicПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E98ACE2888AF82AA90060765CBA459CB14EA1D86
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746555.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

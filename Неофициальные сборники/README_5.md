@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 747 002
+
+Big Blues Revival - Compilation (2024) [MP3|320 Kbps] <Blues>
+Неофициальные сборники
+Jazz, Blues, Soul (сборники)
+
+###  Подробнее
+
+01. My Babe (Willie Dixon) [03:19]
+02. Я забываю [03:53]
+03. Тонечка (Городской Романс) [05:37]
+04. Bring It On Home [05:44](   Читать дальше...   )Жанр: BluesПродолжительность: 05:26:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:746FA0BCF896A5AFEDEA741066E3188E0585FD97
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1747002.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 746 897
+
+VA - Music News For Forum vol.018 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Маша Журавлева - Забываю Обо Всем (02:42)
+ 002. Akha - Первое Свидание (02:42)
+ 003. Akord - Ultimul Bilet (03:44)
+ 004. Aleksia - Я Люблю Тебя (02:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:50:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4B09EDBF7CACEA3BCB69BEEFED5190081B696D42
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746897.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 746 827
+
+VA - Record Super Chart 31.08.2024 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Ella Henderson & Rudimental - Alibi (3:04)
+02. ZERB & The Chainsmokers - Addicted (feat. Ink) (2:32)
+03. Artemas - I Like The Way You Kiss Me (Burnt) (2:42)
+04. Girl On Couch feat. Billen Ted - Man In Finance (G6 Trust Fund) (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0C4AC9AE57C148561B44E6EAD41893B05D283AFB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746827.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 746 555
+
+VA - compilation  part 117  Electronic Assorted compilation (2024) [MP3|320 Kbps] <Electronic>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Aurora Night - Elegy for Eternity
+02. Aurora Night - Remnants of the Past
+03. Aurora Night - Tears of Time
+04. Dj Aurm - Flower(   Читать дальше...   )Жанр: Electronic, Chillout MusicПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E98ACE2888AF82AA90060765CBA459CB14EA1D86
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746555.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 746 545
 
 VA - TOP Non-Stop 2010-2019 - Deep House. Volume 8 (2024) [MP3|192-320 Kbps] <Deep House, Progressiv
@@ -1894,106 +1994,6 @@ VA - Music News For Forum vol.003 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738245.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 738 229
-
-VA - part 100 velvet saxophone compilation (2024) [MP3|320 Kbps] <Easy Listening, Saxophone>
-Неофициальные сборники
-Instrumental/New Age/Meditative/Relax (сборники)
-
-###  Подробнее
-
-001. Fausto Danieli (F.Papetti) Et Son Orchestre - Adieu, Jolie Candy
-002. Sil Austin - Danny Boy
-003. Le Valedon - Don't Let Me Be Lonely
-004. George Saxon - A Woman in Love(   Читать дальше...   )Жанр: Easy Listening, SaxophoneПродолжительность: 05:03:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CBD9CAC9A53E9B09752F33E7870DF9341AE6F7E3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738229.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 737 787
-
-VA - Compilation part 99 Electronic (2024) [MP3|320 Kbps] <Electronic>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Azimov - Believe
-02. Davit Barqaia - Broken Heart
-03. Hamidshax - My Heart Hurts
-04. Davit Barqaia - My Hope(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:27:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:46286BCF249A7BE55DCF9CF196C63F044EDD8B91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737787.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 737 759
-
-VA - Music News For Forum vol.002 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Sofi Tukker - Hey Homie (03:10)
- 002. AASTRO - Теперь Внутри (02:09)
- 003. Adelina - Непонятно (02:54)
- 004. ADUSHKINA - Воскресенье (02:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:25:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CC4045F6033AB5437CDB29F2964BE379CA1DE0D1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737759.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 737 751
-
-VA - Compilation part 98 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. Euromartina - Ocarina Song
-02. Mode-One - Lady of the Night
-03. Euromartina - Midnight Riders
-04. Talking Blue - Back to Life(   Читать дальше...   )Жанр: Dance, EurodiscoПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0F1B9CDFAC5997F62C7BA01A36DD00B4D891FD79
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1737751.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

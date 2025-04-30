@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 734 440
+
+Стас Михайлов - MP3 Play   2CD    2013  [MP3|320 кб с]<Шансон, Pop>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+CD1				CD2
+01. Живи и знай			41. Только ты
+02. Я верю			42. За воротами времени
+03. Есенину			43. Свет звезды
+04. Ах, как хочется ещё пожить	44. Живой
+05. Белая берёза		45. Ты моя
+06. За женщин всех		46. Ты одна
+07. Женщина-вамп		47. Игрок
+08. Где-То Там			48. Звездой на небо
+09. Берега мечты		49. Уходим понемногу    Читать дальше...    Жанр: Шансон, PopПродолжительность: 05:19:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA35CB1FF06ADAF5CF427E587BA29C9C8E4D7F95
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_734440.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 734 294
+
+VA - Новогодний. Празднуем, гуляем c  Dfm!  2013  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Pulse - Танцуй Со Мной
+002. Мариетта - Далеко
+003. Aston Coles feat. OG - Without You  Radio Mix 
+004. DJ Smash feat. Craig David - Good Time  Original Mix 
+005. Antonio Mellifluous feat. Andrew Mastilias & Syntheticsax - Concert LoverS
+006. Smoke & AmaLoa feat. Ай - Q - Я Не Вернусь
+007. Ленинград - Рыба  DJ Илья Лавров remix 
+008. Bb Brunes - Stereo
+009. Clubraiders feat. Adline Owens - Canвt Stop My Love  Club Edit 
+010. Damien J Carter, Matt Devereaux, Michael Maze - Dare  DJ Cross Mix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:26:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E08C40C38D41B544BE14992AF059E80CBCCF711
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 734 115
+
+VA - 100 Classic Christmas Songs  2013  [MP3|320 кб с]<Retro, Pop>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+001. Gene Autry - If It Doesn t Snow On Christmas Day
+002. Jackson Bull Moose - I ll Be Home for Christmas
+003. Eve Boswell - The Christmas Tree
+004. Dickie Valentine - Snowbound for Christmas
+005. Elvis Presley - I ll Be Home for Christmas
+006. Bobby Darin - Christmas Auld Lang Syne
+007. Alma Cogan - Christmas Cards
+008. Jimmie Rodgers - It s Christmas Once Again
+009. Kay Starr - The Man With the Bag
+010. Perry Como - C-h-r-i-s-t-m-a-s    Читать дальше...    Жанр: Retro, PopПродолжительность: 04:24:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA48AA00A2821FDCA189445A243CE3B4CEF9C7CC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 733 986
+
+VA - Русские Турбо Новинки 2014  2013  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Тина Кароль - Намалюю Тоб  Version 2013 
+002. Оксана Ковалевская - Без Любви
+003. Шахзода - Давай До Свидания
+004. Dani Lemann - Кабриолет
+005. Монако Пройецт - Американо
+006. Инфинити - Только для тебя
+007. Рино - Радио
+008. Татьяна Буланова - Ток по телу
+009. Anton Pavlovsky feat. Jizz - Я Тебя Не Люблю  Grigoriy Leps Cover Mix 
+010. Пропаганда - До Луны На Метро  Harisma Remix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:58:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:07AAAB8D227CC7C615A039C85153F9F808C6A530
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 733 971
 
 VA - Пираты Финского Залива. Радио DFm#5  2013  [MP3|128 кб с]<Pop, Dance>
@@ -2334,130 +2458,6 @@ VA - Лучший хит. Музыка в дорогу  2013  [MP3|256 кб с]<
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:2B9DF4CEA266BA6E00383301FF45738E885872B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 725 985
-
-VA - Новая Зарубежная Дискотека  2013  [MP3|256 кб с]<Pop, dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Alex Ferrari - Gatinha Assanhada  Official Remix 2013 
-002. Sean Kingston - Ordinary Girl
-003. Marc Anthony - Vivir Mi Vida
-004. Sidney Samson Feat. Will.I.Am - Better Than Yesterday  Radio Edit 
-005. Taylor Swift feat. Ed Shreeran - Everything Has Changed
-006. Avicii feat. Adam Lambert & Nile Rodgers - Lay Me Down
-007. Cassie feat. Ester Dean - Bad Bitches
-008. Madcon feat. Kelly Rowland - One Life  Radio Edit 
-009. Essonita & K.I.R.A. - Tonight  Original Mix 
-010. Lyum er - Fly    Читать дальше...    Жанр: Pop, danceПродолжительность: 06:15:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C468E972E26C583F5208D4A7845FD50BF908AD11
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_725985.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 725 661
-
-VA - Русский хит-парад 80х !!!  2012  [MP3|128 кб с]<Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001 Владимир Маркин - Я готов целовать песок
-002 Верасы - Малиновки заслыша голосок
-003 Юрий Лоза - Плот
-004 Веселые ребята - Розовые Розы
-005 Алла Пугачева и Владимир Кузьмин - Две звезды
-006 Санкт-Петербург - Очарована, околдована
-007 Игорь Николаев - Старая мельница
-008 Электроклуб и Ирина Аллегрова - Темная лошадка
-009 Виктор Резников - Спасибо, родная
-010 Владимир Маркин - Сиреневый туман    Читать дальше...    Жанр: ПопПродолжительность: 12:22:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1DA5847BF6BCCBF89FA7D18AF51EE58B86B6D806
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 725 592
-
-VA - Популярные песни года  2013  [MP3|256 кб с]<Pop,Dance>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. NikitA - Полет Над Землей
-02. Время и Стекло - Harmonica
-03. ВИА Гра - Не Ведая Преград
-04. МакSим - Кошка
-05. Дима Билан - Улетаю
-06. Нюша - Наедине  DJ Stylezz Official Remix 
-07. Ежевика - Не Покидай Меня  Dj Fisun Remix 
-08. Полина Гагарина - Навек
-09. Ева Польна - Молчание
-10. Евгения Власова - Киев-ОдессаЖанр: Pop,DanceПродолжительность: 06:02:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6AF33200C761F9053BC064A1074A40CCDF016A9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 725 535
-
-VA - More Christmas 2013  3CD   2013  [MP3|177-287 кб с]<Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. George Michael - December Song  I Dreamed Of Christmas   03:32 
-02. TV-2 - Fra Alle Os Til Alle Jer  04:22 
-03. Bossen Og Bumsen - Op Til Jul  04:16 
-04. Gnags - Gnags  Julesang  03:34 
-05. Anne Linnet - Nu Det Jul  03:18 
-06. Sren Sko - Have Yourself A Merry Little Christmas  04:16 
-07. Stewart Stardust - Jule P Vesterbro  04:23 
-08. Shakin  Stevens - Merry Christmas Everyone  03:39 
-09. Otto Brandenburg - Sren Banjomus  02:52 
-10. Shu-Bi-Dua - Rap Jul  04:01     Читать дальше...    Жанр: PopПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:34FAB4FE96BA91A0C457549D3D3B84195B6DAA11
 ```
 
 <div id="header" align="center">

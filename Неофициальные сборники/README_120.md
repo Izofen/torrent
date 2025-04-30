@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 149 219
+
+VA - Beatport Top 100 House June  2017  [MP3|320 Kbps] <House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Route 94 - House & Pressure 05:10
+002. CamelPhat, Elderbrook - Cola  Original Mix  06:53
+003. Andy Toth, Billy Love - Thrillseekers  Chuck Daniels Remix  07:07
+004. Illyus & Barrientos - Takin  Over  Original Mix  06:28    Читать дальше...    Жанр: HouseПродолжительность: 10:47:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2AF567E0D5A2363A25C6793F8DA37B8E1DE8BA43
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1149219.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 149 215
+
+VA - Deep In My Soul: Deep House Mix July  2017  [MP3|320 Kbps] <Deep House, Dance, Electro>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+001. Stube - Spinning Around 06:20
+002. al l bo - Deep In My Soul  DJ Magnum Remix  04:43
+003. Performative Mode - Egged On 06:16
+004. Alex Kenji & Luca Guerrieri Ft. Tito - You & I  Original Mix  06:00    Читать дальше...    Жанр: Deep House, Dance, ElectroПродолжительность: 10:34:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D431CBE4FE6185B131FCF73BF714CB1EFBFA27E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1149215.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 149 210
+
+VA - Beatport Top 100 Downloads June  2017  [MP3|320 Kbps] <Electro, Indie, Nu Disco и другие>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Route 94 - House & Pressure  Original Mix  05:10
+002. CamelPhat, Elderbrook - Cola  Original Mix  06:56
+003. Gene Farris, Riva Starr, Dennis Cruz - Play  Original Mix  06:36
+004. Solardo - On The Corner  Original Mix  07:11    Читать дальше...    Жанр: Electro, Indie, Nu Disco и другиеПродолжительность: 10:51:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AFCD308029D26736B6558BD516403DBCE7D7FE8D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1149210.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 149 204
+
+VA - Rock Republic: Solid Album Of Rock  2017  [MP3|192-320 Kbps] <Rock, Hard Rock, Alternative>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+001. Kiss - Forever
+002. Survive This! - Down
+003. The Vision Bleak - Spirits of the Dead
+004. Emerson, Lake & Palmer - I Believe In Father Christmas    Читать дальше...    Жанр: Rock, Hard Rock, AlternativeПродолжительность: 10:04:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:92F2953F52EA05FC6BC46513283F445CF002639D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1149204.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 149 199
 
 VA - Heavy Cabbalism  2017  [MP3|192-320 Kbps] <Metall, Hard Rock, Alternative>
@@ -1897,106 +1997,6 @@ VA - Italo & Space Vol.39  2017  [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobe
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1144463.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 144 323
-
-VA - Moving Dance: Summer Longplay  2017  [MP3|320 Kbps] <Pop, House, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001.  Kygo & Ellie Goulding - First Time  3:14
-002.  Alice Merton - No Roots  3:56
-003.  Alan Walker - Tired  feat. Gavin James   3:12
-004.  Jason Derulo feat. Nicki Minaj & Ty Dolla Sign - Swalla  3:37    Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 08:28:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DBA07DCCE6F1CA8ADC7E12BE4CBEC873294A910C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1144323.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 144 100
-
-VA - DJ Radio Show Latino RnB  2017  [MP3|192-320 Kbps] <RnB, Hip Radioshow>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-001. Alexis Ayaana Feat. Quavo - Bad Enough 04:06
-002. Dj Jay Rock - Intro 00:12
-003. Kent Jones - Counting Stars 03:43
-004. Kevin Ross - Long Song Away 04:33    Читать дальше...    Жанр: RnB, Hip RadioshowПродолжительность: 08:06:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF192EBCD6CE78B46BE61F2F171CC0761F74222C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1144100.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 144 008
-
-Zucchero - Hybrid of Zucchero Sugar Fornaciari  2017  [MP3|192-320 CBR,VBR Kbps] <Rock, Pop Rock
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Diamante
-02. Va pensiero
-03. Menta E Rosmarino
-04. Cosi Celeste    Читать дальше...    Жанр: Rock, Pop Rock, BluesПродолжительность: 04:35:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BCA883292DE3457A42088335F8FC8E5C0CDB7D26
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1144008.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 143 923
-
-VA - Diamond Euphoria: Night House Party  2017  [MP3|320 Kbps] <House, Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001.  Deep Spirit - Lonely 2K16  Club Edit   3:25
-002.  Moonrider - Resurrection  Radio Edit   3:39
-003.  Arctic Motion - Black & White  Radio Edit   3:33
-004.  Miguel Alcobia - We Get It Right Sometimes  Radio Edit   3:12    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 07:42:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2BB6F1989719F3CAF4F15DD5534AC713A0BDB718
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1143923.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

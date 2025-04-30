@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 986 921
+
+VA - Radio 538 Hitzone 76  2016  [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Major Lazer feat. Nyla & Fuse ODG - Light It Up  Remix   2:47 
+02. Justin Bieber - Sorry  3:20 
+03. Coldplay - Adventure Of A Lifetime  3:43 
+04. Matt Simons - Catch & Release  Deepend Remix   3:15     Читать дальше...    Жанр: Top 40, Pop, Rock, Indie, Electronic, R&B, Soul, Ballad, Hip Hop, Electronic, Dance, Dancepop, Trance, Electro, Pop Rock, Hip Hop, Pop RapПродолжительность: 02:36:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C8130C562489909069FD946FB8D3752196A05BC3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986921.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 986 904
+
+Sia - This Is Acting  2016  Japan Deluxe Edition [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Bird Set Free
+ 02. Alive
+ 03. One Million Bullets
+ 04. Move Your Body    Читать дальше...    Жанр: PopПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FBC4410E61C1A07AF25C5B4779E56135FE585324
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986904.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 986 871
+
+VA - KuschelRock: Lovesongs Of The 90 s  2016  Special Edition [FLAC|Lossless|WEB-DL|tracks] <
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Sinéad O Connor - Nothing Compares 2 U  1990  - 5:09
+02. Oasis - Wonderwall  1995  - 4:13
+03. Faith No More - Easy  1992  - 3:06
+04. Extreme - More Than Words  Single Version   1991  - 4:00    Читать дальше...    Жанр: Top 40, Ballad, Pop, Soul, Rock, Alternative Rock, Pop Rock, Soft Rock, R&B, Reggae Pop, Stage & Screen, VocalПродолжительность: 02:41:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:332159396F66FCD27B14BDADCC1634994B8AA624
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986871.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 986 677
 
 VA - The Best Of The 80 s Volume II  1998  [FLAC|Lossless|tracks + .cue] <Pop Rock, Disco, Sof
@@ -1908,81 +1983,6 @@ Eurodance, Euro-House, Technopop  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976905.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 976 844
-
-VA - Дискотека СССР - Сборник поп-музыки  2005  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Михаил Муромов - Яблоки на Снегу  4:16 
-02. С.Васюта И Гр.  Сладкий Сон  - На Белом Покрывале Января  5:26 
-03. Империя - Поезд на Ленинград  4:47 
-04. Рома Жуков - Я люблю вас, Девочки  4:56     Читать дальше...    Жанр: PopПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F8DC166CDB0E7D622F49DC82AE4F1B5060CB25FC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976844.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 976 428
-
-Tracey Thorn  Everything But The Girl  - Love And Its Opposite  2010  [FLAC|Lossless|image +
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Oh, The Divorces! [04:15]
- 02. Long White Dress [03:53]
- 03. Hormones [03:07]
- 04. Kentish Town [03:29]    Читать дальше...    Жанр: Pop, ElectronicПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97834C4BF5FD8E09DD2D8FA2D99CAAB906480457
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976428.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 976 378
-
-Everything But The Girl - Walking Wounded  1996  Remastered, 2015, Edsel Records, Deluxe Edition
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Before Today  4:18 
-02. Wrong  4:37 
-03. Single  4:39 
-04. The Heart Remains A Child  3:50     Читать дальше...    Жанр: Downtempo, House, Electro, Drum n Bass, PopПродолжительность: 02:33:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:95092861A71AD2FDDBD81D1106042E49905499D7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976378.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

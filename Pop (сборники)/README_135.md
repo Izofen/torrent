@@ -1,4 +1,73 @@
 ﻿
+###  Публикация: 295 462
+
+Наталья Ветлицкая - Deluxe Collection (2004) [APE|Lossless]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01.Жанр: Pop ||Продолжительность: 01:19:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3AE5839C1C887DEED0C7B1BFFAB39E6EFB08F150
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_295462.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 294 605
+
+Chilly - Ultimate Collection  Non-Stop  2010  [FLAC|Lossless]<Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Sunshine Of Your Love :: 6:29
+02. Play Me A Classic Symphony :: 2:54
+03. We Are The Popkings :: 4:02
+04. Doll Queen :: 2:26    Читать дальше...    Жанр: DiscoПродолжительность: 01:20:04
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_294605.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 293 241
+
+Dee D. Jackson - Space And Time  2010  [FLAC|Lossless]<Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+Жанр: DiscoПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_293241.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 292 390
 
 Tony Christie - Welcome To My Music  1991  [FLAC|Lossless]<Pop>
@@ -2068,77 +2137,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_214008.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 213 790
-
-Кар-Мэн - Нитро (2008) [APE|Lossless]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-1.Марсианка
-2.Детка
-3.Дискотека
-4.Точка-Тире(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F692AE19257562B59E1068BC922FA224CB0EB3E0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_213790.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 212 006
-
-Чернильное небо - Дискография   2001-2010  [MP3|320 kbps]<POP>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Вокал: Екатерина Лазарева, Сергей Дядюн
-Слова, музыка и аранжировка: Сергей Дядюн
-В настоящее время работа над проектом закрыта.Жанр: POPПродолжительность: 09:57:06
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_212006.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 211 566
-
-Блестящие - 7 альбомов  1997-2006  [MP3|320 kbps]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:07:09
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

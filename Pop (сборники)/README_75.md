@@ -1,4 +1,78 @@
 ﻿
+###  Публикация: 1 207 695
+
+На-На - По накатанной  2018  EP [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Тук-тук
+2. По накатанной
+3. 10 днейЖанр: PopПродолжительность: 00:10:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F3A6E9AA3A7AA892F875F0410E14E61C8674850
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207695.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 207 602
+
+Eros Ramazzotti - Duets  2017  Compilation [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Eros Ramazzotti feat. Tina Turner - Cose Della Vita  Can t Stop Thinking Of You  4:50
+02. Eros Ramazzotti feat. Nicole Scherzinger - Fino All estasi 3:46
+03. Eros Ramazzotti feat. Giorgia - Inevitabile 3:56
+04. Eros Ramazzotti feat. Anastacia - I Belong To You  Il Ritmo Della Passione  4:26    Читать дальше...    Жанр: PopПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B3237C933BC43E6328A7E7ECFE07673E60CC813
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207602.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 207 545
+
+Руслана - Дикі Танці  2003  [FLAC|Lossless|image + .cue]<Pop, Folk>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Ой заграй ми, музиченьку
+02. Знаю я
+03. Плєс
+04. Аркан    Читать дальше...    Жанр: Pop, FolkПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:78C588391433016AE89F9EBDBF787F9B9D26C156
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207545.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 207 543
 
 Алсу - Алсу  1999  Переиздание, 2001, J.R.S. [FLAC|Lossless|image + .cue]<Pop>
@@ -1914,78 +1988,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1201807.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 201 676
-
-Людмила Сенчина - Золушка  1975  Remastered, 2001, Melodiya Record Company Europe [MP3|320 Kbps]
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Памяти исполнительницы посвящается.01. Золушка  3:45 
-02. Ты дождись меня  3:12 
-03. Я к тебе не вернусь  3:45 
-04. Ты  3:03     Читать дальше...    Жанр: Pop, VocalПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:00AB6A9B42CF64DB5800A96B1D6A8A8B7B7C2E97
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1201676.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 201 468
-
-VA - 2018 Grammy Nominees  2018  [FLAC|Lossless|tracks] <Pop, Hip Hop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-В этом году вручать Grammy будут в воскресенье, 28 января, в 19:30 вечера  по местному времени  и не в Лос-Анджелесе. Впервые за 15 лет самая большая ночь музыки возвращается в Нью-Йорк  в Мэдисон-Сквер-Гарден. Но как всегда за несколько дней до этого звездного часа музыки выпускается диск с основными номинантами. Обычно награждение Grammy происходит в середине февраля,     Читать дальше...    01. Bruno Mars - 24K Magic   3:46 
-02. Kelly Clarkson - Love So Soft   2:52 
-03. Luis Fonsi & Daddy Yankee - Despacito  Feat. Justin Bieber   Remix    3:50 
-04. Kendrick Lamar - Humble   2:58     Читать дальше...    Жанр: Pop, Hip HopПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA517C035B706A6FBDBCE67F6A1E8DABBB8D1FED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1201468.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 201 104
-
-Mylene Farmer  - Rolling Stone  2018  Single [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Mylène Farmer - Rolling StoneЖанр: PopПродолжительность: 03:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:42E772B1CDEC0AA2B5DA567532496388BFEA2033
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1201104.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

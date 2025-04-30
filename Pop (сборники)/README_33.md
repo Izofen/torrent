@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 475 066
+
+The Veronicas - Godzilla  2021  [FLAC|Lossless|tracks + .cue] <Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Godzilla  3:25 
+02. Kaleidoscope  3:41 
+03. In My Blood  3:18 
+04. In It To Win It  2:13     Читать дальше...    Жанр: Pop RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9175D4227983794209264812AFF6A0C189E8A374
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475066.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 475 015
+
+VA - 100 Greatest Women in Pop  2021  Explicit [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+001. Cher - Believe  3:59 
+002. Ashnikko - Daisy  2:26 
+003. Jess Glynne - Don t Be So Hard On Yourself  3:31 
+004. All Saints - I Know Where It s At  4:53     Читать дальше...    Жанр: PopПродолжительность: 06:03:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E4CBCD25618CCF6BA61AAB9A10BAAFEEE4DAD6E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475015.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 474 932
+
+VA - At My Worst - Chilled Pop  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Pink Sweat$ - At My Worst  2:50 
+02. Joel Corry, MNEK - Head & Heart - Acoustic Version  3:38 
+03. Charlie Puth, Selena Gomez - We Don t Talk Anymore  3:37 
+04. Griff - Good Stuff  3:13     Читать дальше...    Жанр: Pop, Easy ListeningПродолжительность: 02:46:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70D1C87CE01D0D7830D8DF4B52D977BB78514980
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474932.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 474 892
 
 Systematic - Love Is The Answer  2021  [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
@@ -1906,82 +1981,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1469075.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 896
-
-Los Havtanos - Иди ко мне  2020  [MP3|320 Kbps] <Latino, Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Los Havtanos - музыкальная группа, совместный авторский проект Евгения Хавтана, лидера группы «Браво», московской певицы Яны Блиндер и профессиональных кубинских музыкантов — исполняет авторскую музыку в стиле латино.1. Интро
-2. Иди ко мне
-3. Города
-4. Чудесная страна    Читать дальше...    Жанр: Latino, PopПродолжительность: 00:23:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E66FBAB7908F44743CEA812A3158CA871DD0DE2D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468896.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 818
-
-Paul Mauriat & His Orchestra, Duke Ellington & His Orchestra - Songs That Define a City; Paris, Volu
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Sous Le Ciel De Paris, Padam Padam  Medley Remastered  [00:02:47]
-02. La Vie En Rose  Remastered  [00:02:32]
-03. C est Si Bon  Remastered  [00:01:47]
-04. I Love Paris, Paname  Medley Remastered  [00:03:17]    Читать дальше...    Жанр: Soul-Jazz, Big Band, Soul, Easy ListeningПродолжительность: 01:20:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C7999405C20FA0475812FC5A84A7F42B8E418C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468818.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 468 783
-
-Paul Mauriat & His Orchestra - Paul Mauriat plays the Beatles & Mamy Blue  2014  Compilation, Re
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Paul Julien André Mauriat  4.03.1925 – 3.11.2006  был руководителем и дирижером французского эстрадного оркестра Le Grand Orchestre de Paul Mauriat, который исполнял легкие эстрадные мелодии. Каталог звукозаписи Paul Mauriat насчитывает более 1000 названий, а его альбомы разошлись по всему миру в количестве более 40 млн копий.
-Английский лейбл Vocalion представляет     Читать дальше...    01. Eleanor Rigby  2:15 
-02. My Sweet Lord  3:01 
-03. Yesterday  2:34 
-04. Hey Jude  3:10     Читать дальше...    Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8BF164839EB341E118B1717F6473C38438FF2087
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1468783.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

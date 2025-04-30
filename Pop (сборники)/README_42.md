@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 402 460
+
+VA - Euromania Vol. 1  2001  Compilation [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Modern Talking - Brother Louie  Remix   6:59 
+02. Fancy - Gimme A Sign  3:32 
+03. Scotch - Disco Band  6:34 
+04. C.C. Catch - Heaven And Hell  6:28     Читать дальше...    Жанр: Euro-Disco, Italo-Disco, EuropopПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B79A1951678DDC5BDBFA01F188D11439247A84EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1402460.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 402 378
+
+VA - Оcean Feeling: Luftige Sommer-songs  2016  Limited Special Edition [FLAC|Lossless|tracks +
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Лето на излёте, а отдохнуть под хорошую музыку хочется всё больше. Представляю этакий океанический сборник  его подзаголовок: воздушные летние песни  для расслабления и хорошего настроения.  Немцы со свойственной им основательностью включили в него действительно запоминающиеся треки, да ещё снабдили достаточно обстоятельным буклетом с описанием действующих лиц и полной     Читать дальше...    01. Andrea Bourani - Ultraleicht   4:23 
+02. Glasperlenspiel - Geiles Leben   3:31 
+03. Alvaro Soler - El Mismo Sol   3:00 
+04. Katy Perry - The One That Got Away   4:18     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B09EADB7B3411C3D376B798655DFE75F6970F663
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1402378.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 402 293
+
+The Difference - High Fly  1979  LP [MP3|320 Kbps] <Funk, Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. High Fly  Poporompompo   4:14 
+02. Searchin   4:20 
+03. Hey Lover  3:56 
+04. Tell Me  5:07     Читать дальше...    Жанр: Funk, Soul, DiscoПродолжительность: 00:24:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:175D451FCDD141AF05EEAD4926FAA7F6498A72D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1402293.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 402 273
 
 VA - From Russia With Italo Disco  2015  10CD, Full Set Limited Edition [FLAC|Lossless|tracks +
@@ -1917,81 +1992,6 @@ La Bionda - итальянский музыкальный дуэт братье�
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1396160.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 395 498
-
-Alan Sorrenti - 2 Albums  1979, 1980  LP [MP3|320 Kbps] <Electronic, Pop, Pop Rock, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. L unica Donna Per Me  3:45 
-02. Per Sempre Tu  4:35 
-03. Dancing In My Heart  2:54 
-04. Provaci  3:16     Читать дальше...    Жанр: Electronic, Pop, Pop Rock, DiscoПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E6ED796CC383B83013594B943CDF93558E58D5D4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395498.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 395 402
-
-Jason Mraz - Look For The Good  2020  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Look For The Good  05:10 
- 02. Make Love  05:36 
- 03. My Kind  04:57 
- 04. Good Old Daze  04:12     Читать дальше...    Жанр: PopПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E3B409C049444FC594387FFFCFE9484FA289C2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395402.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 394 909
-
-VA - Love Pop 2020 [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Jack Johnson - Better Together  03:28 
-02. Maroon 5, SZA - What Lovers Do  03:14 
-03. Elias Boussnina - Closer  02:58 
-04. Oh Wonder - Body Gold  03:04     Читать дальше...    Жанр: PopПродолжительность: 02:40:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9BFB08B95E9C9B07238CC54462AF89193135135B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1394909.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

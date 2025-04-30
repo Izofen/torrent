@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 246 172
+
+VA - Hits Rewind 90s  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Brandy, Monica - The Boy Is Mine  Radio Edit 
+02. Alannah Myles - Black Velvet
+03. En Vogue - Don t Let Go  Love 
+04. Donna Lewis - I Love You Always Forever    Читать дальше...    Жанр: PopПродолжительность: 02:23:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:823190FF63BCECFBC11D4876B28BC7145B5F4DCC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246172.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 246 168
+
+Екатерина Шаврина - Ой мороз, мороз...  2001  [FLAC|Lossless|image + .cue]<Pop, Retro, Folk>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Ой, мороз, мороз
+02. Как у наших ворот
+03. Кабы Волга - матушка
+04. Заставил меня муж    Читать дальше...    Жанр: Pop, Retro, FolkПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F1FDE44BE7D7C5F31B45DEB89BEDD06B239C54C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246168.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 246 167
+
+Акула  Оксана Почепа  - Без любви  2002  [FLAC|Lossless|image + .cue]<Pop, Dance>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Полюби
+02. Девочка
+03. Я так хочу
+04. Рада    Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6E0E8ED2816D2EFAD2BE5EFE8C8BE76C5FA9363E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246167.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 246 165
 
 Любовные истории - Любовные истории  2004  [FLAC|Lossless|image + .cue]<Рор>
@@ -1917,81 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241501.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 241 488
-
-ВИА Путiна - Отмечаем, зажигаем  2005  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Отмечаем, зажигаем  3:15 
-02. Рублёвка  2:57 
-03. Москва  2:53 
-04. Пенсия  2:39     Читать дальше...    Жанр: PopПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1AFAB950AEDCD539182005902B96E8D9443AA825
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241488.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 241 479
-
-RSF - RSF  2018  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Leftfield>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-1. Valentino  6:12 
-2. Michael  4:10 
-3. Chez Konrad  6:01 
-4. Beduine  6:32     Читать дальше...    Жанр: Italo-Disco, LeftfieldПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:29D44F8EAF75B03DA2568B0600F84AE5FD06427E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241479.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 241 477
-
-RSF - RSF  2018  [MP3|320 Kbps] <Italo-Disco, Leftfield>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-1. Valentino  6:12 
-2. Michael  4:10 
-3. Chez Konrad  6:01 
-4. Beduine  6:32     Читать дальше...    Жанр: Italo-Disco, LeftfieldПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3F27B143BD7BD1281BA48BC1C269FCAE8751BF1A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1241477.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

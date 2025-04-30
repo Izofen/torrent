@@ -1,4 +1,625 @@
 ﻿
+###  Публикация: 717 240
+
+Браво - Bravo  1987  Finland [FLAC 2.0 24 192|Image  Vinyl-Rip ] <Rock n Roll, Beat, R
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Группа была основана в 1983 году гитаристом Евгением Хавтаном и ударником Павлом Кузиным, покинувшими группу «Постскриптум» из-за стилевых разногласий. Вокалисткой нового коллектива стала Жанна Агузарова, известная под псевдонимом Иванна Андерс. К группе присоединились саксофонист Александр Степаненко и басист Андрей Конусов. Дебютный концерт «Браво» 18 марта 1984     Читать дальше...    A1.  Кошки  Koshki   :: 02:50
+A2.  Медицинский Институт  Meditsinskij Institut   :: 02:36
+A3.  Верю Я  Verju Ja   :: 03:03
+A4.  Ленинградский Рок-Н-Ролл  Leningradskij RockNroll   :: 02:26    Читать дальше...    Жанр: Rock n Roll, Beat, RockabillyФормат: Vinyl, LP, AlbumПродолжительность: 00:27:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 716 987
+
+Форум - Белая Ночь  1987  [FLAC 2.0  24 192|Image  Vinyl-Rip ]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+A1. Белая ночь  С. Романов  4:19
+A2. Какая нелепость...  Л. Дербенев  3:52
+A3. Беда  С. Романов  3:10
+A4. Улетели листья...  Н. Рубцов  4:14
+A5. Островок  М. Рябинин  3:21Жанр: PopФормат: Vinyl, LP, AlbumПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AAA2EA8063865892E3AA860E5878E7F7A98F8F48
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_716987.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 716 509
+
+Lou Reed & Metallica - Lulu  2011  UK & Europe 2LP [FLAC 2.0 24 192|Image  Vinyl-Rip ]<R
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+После того, как альбом  Lulu  был опубликован в сети, ситуация вышла из под контроля! В интервью, проведённом  USA Today  Лу Рид сказал, что фанаты гигантов метала мечтают  подвергнуть пыткам и убить  его - даже несмотря на то, что ещё не слышали сам альбом. Одними письмами тут не обходится, множество форумов и конкретно фан-форумов Metallica сейчас кишат такими агрессорами  Метбаш не исключение . Из музыкантов Metallica, в защиту Лу Рида выступил Ларс Ульрих. Он считает, что совместный альбом превзошёл все его ожидания. Он не скрывает своего пристрастия к творчеству Лу Рида и большого уважения к нему, как к музыканту.  Это то, что они, фанаты - никогда не слышали. Никто не чувствует рифму и не передаёт стихи так, как это делает Лу Рид. Не каждый это поймёт, но я считаю, что запись просто фантастическая!  Возможно, фишка альбома - в глубинном лирическом смысле, которым проникнут каждый текст пластинки. Пока музыканты не выложили альбом в сеть, они выкладывали тексты своих     Читать дальше...    A1.  Brandenburg Gate  :: 04:22
+A2.  The View  :: 05:21
+A3.  Pumping Blood  :: 07:23
+A4.  Mistress Dead  :: 06:55
+B1.  Iced Honey  :: 04:38
+B2.  Cheat On Me  :: 11:30
+B3.  Frustration  :: 08:37
+C1.  Little Dog  :: 08:03
+C2.  Dragon  :: 11:13
+D1.  Junior Dad  :: 19:32Жанр: Rock, Hard RockФормат: 2xVinyl, LP, AlbumПродолжительность: 01:27:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EFD24D5A6E4CF200C049AD11379F8402DC842798
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 716 249
+
+Valerie Dore - The Legend  1986  [FLAC 2.0 24 192 | image  Vinyl-Rip ]<Italo Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. The Battle
+02. Bow And Arrow
+03. The Wizard
+04. King Arthur
+05. The Magic Rain
+06. Guinnevere
+07. Lancelot
+08. On The Run
+09. The Sword Inside The Heart
+10. The End Of The StoryЖанр: Italo DiscoПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8DA85728B6956A03A72752B3BB0E3C0F8786621E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 715 392
+
+Peter Gabriel - II  Scratch   1978  W.Germany [WavPack 2.0 32 96|Image  Vinyl-Rip ]<Pr
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Peter Gabriel - второй студийный альбом британского рок-музыканта Питера Гэбриэла, был выпущен в 1978 году. Как и в случае с дебютным диском, на обложке был лишь эпоним музыканта, без какого-либо названия. Дабы ориентироваться в хронологии Гэбриела, альбом получил неофициальное название - «Peter Gabriel 2» или «Царапины»  Scratch , опять-таки ориентируясь на его обложку. Гитарист Роберт Фрипп выступил в качестве продюсера записи, его влияние особенно заметно в использовании технологии Frippertronics на треке «Exposure». Альбом не имел таких же хороших продаж, как первый диск музыканта, но достиг 10 позиции в чарте Великобритании. Композиция «Mother of Violence» был написана Питером в соавторстве с его первой женой Джилл Гэбриэл. Эта пластинка изначально задумывался как часть абстрактной музыкальной трилогии: вместе с альбомами Exposure Роберта Фриппа и Sacred Songs Дэрила Холла  все три диска были спродюсированы Фриппом .A1.  On The Air  :: 05:33
+A2.  D.I.Y.  :: 02:34
+A3.  Mother Of Violence  :: 03:26
+A4.  A Wonderful Day In A One-Way World  :: 03:36
+A5.  White Shadow  :: 05:18
+B1.  Indigo  :: 03:34
+B2.  Animal Magic  :: 03:30
+B3.  Exposure  :: 04:17
+B4.  Flotsam And Jetsam  :: 02:22
+B5.  Perspective  :: 03:29    Читать дальше...    Жанр: Progressive Rock, Art RockФормат: Vinyl, LP, AlbumПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD8F0F46D10AD2487FA3889AC779AA32CA77EC12
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 714 947
+
+Coldcut - What`s That Noise?  1989  US [FLAC 2.0 24 96|Image  Vinyl-Rip ]<Breaks, Breakbea
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Пожалуй, одним из самых заметных и самых известных электронных лейблов на сегодняшний день является британская формация Ninja Tune. Отцами-основателями лейбла являются экс-преподаватель искусств Джонатан Мор и программист Мэтт Блэк. Эти двое работают вместе с момента рождения эсид-хауса  середина восьмидесятых . Свела их судьба на передачах тогда еще пиратской радиостанции «Kiss FM», где Мэтт и Джонатан стали вести авторскую программу «Solid Steel Show». Однако на тривиальном ди-джействе парочка не останавливается. «Следующим шагом каждого ди-джея является создание собственной музыки», - сказал как-то раз Paul Oakenfold. Так или иначе, Мэтт и Джонатан создают группу, которая получает название Coldcut. Пластинка What’s That Noise? - дебютный студийный альбом английского дуэта.A1. People Hold On  Feat. Lisa Stansfield  :: 03:54
+A2. Fat  Party And Bullshit  :: 04:34
+A3.  I’m  In Deep  Feat. Mark E. Smith  :: 05:22
+A4. My Telephone  Feat. Lisa Stansfield  :: 05:26
+A5. Theme From «Reportage» :: 01:44
+A6. Which Doctor? :: 04:48
+B1. Stop This Crazy Thing  Feat. Junior Reid  :: 05:56
+B2. No Connection :: 03:34
+B3. Smoke Dis One  Feat. Queen Latifah  :: 05:43
+B4. Beats & Pieces :: 05:59    Читать дальше...    Жанр: Breaks, Breakbeat, DowntempoФормат: Vinyl, LP, AlbumПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CBE283072D806151063ECB7348CB01F9B1EA6E59
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 714 550
+
+Evanescence - Fallen  2003  Limited Edition  2013, Wind-Up  [FLAC 2.0 24 192|image+.cue <5
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01.  Going Under    3:35 
+02.  Bring Me To Life    3:57 
+03.  Everybody s Fool    3:16 
+04.  My Immortal    4:24 
+05.  Haunted    3:07 
+06.  Tourniquet    4:38 
+07.  Imaginary    4:17 
+08.  Taking Over Me    3:50 
+09.  Hello    3:40 
+10.  My Last Breath    4:08     Читать дальше...    Жанр: Alternative Rock, Goth Rock, Nu MetalПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A411E3A3647B79B236D43186D197D3563F5E912
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 714 184
+
+Genesis - We Can t Dance  1991  UK [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Prog Rock, Pop Ro
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+We Can’t Dance - четырнадцатый студийный альбом британской прог-рок-группы Genesis, выпущенный в 28 октября 1991 года. Диск стал последним, записанным с участием Фила Коллинза, который вскоре после его записи покинул группу и занялся сольной карьерой. We Can’t Dance частично возвращает слушателя к эстетике ранних Genesis. Более острый, с яркими гитарными партиями и более живыми барабанами  чем на Invisible Touch , альбом является наиболее сильной работой Genesis за последние 10 лет. Наряду с остроумными и яркими поп-балладами группа демонстрирует свою подзабытую сторону, рассказывая не стеснённые в продолжительности мрачноватые истории в «Driving the Last Spike» и «Dreaming While You Sleep» и в закрывающем альбом инструментале «Fading Lights». Альбом стал четырежды платиновым в США.A1. No Son Of Mine :: 06:39
+A2. Jesus He Knows Me :: 04:16
+A3. Driving The Last Spike :: 10:08
+B1. I Can t Dance :: 04:01
+B2. Never A Time :: 03:50
+B3. Dreaming While You Sleep :: 07:14
+C1. Tell Me Why :: 04:59
+C2. Living Forever :: 05:41
+C3. Hold On My Heart :: 04:37
+D1. Way Of The World :: 05:39    Читать дальше...    Жанр: Prog Rock, Pop Rock, Soft RockФормат: Vinyl, 2xLP, AlbumПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF49A3E5F5185A302AA8CBBFFDC3674747376CA1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 714 172
+
+Genesis - Invisible Touch  1986  Canada [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Prog Rock, Pop
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Альбом  Invisible Touch  - тринадцатый студийный альбом британской прогрок-группы Genesis, является первым, наиболее вобравшим в себя черты коммерческого периода творчества группы. На предыдущем диске Genesis коллектив окончательно освободился от арт-роковых мотивов, которые, хоть и в небольших количествах, присутствовали на  Duke   1980  и  Abacab   1981 , а данная работа закрепила и упрочила их новый стиль. Конечно, этот альбом не сравнится с классическими шедеврами Genesis, но, если пытаться судить о нем не в контексте предыдущих работ, то можно сказать, что он не так уж и плох, как многие говорят. Все-таки придется признать, что до банального поп-рока группа не скатилась. Альбом провёл 96 недель в британских чартах и стал самым успешным релизом группы в США.A1. Invisible Touch :: 03:29
+A2. Tonight Tonight Tonight :: 08:53
+A3. Land Of Confusion :: 04:46
+A4. In Too Deep :: 04:58
+B1. Anything She Does :: 04:09
+B2. Domino :: 10:44
+B3. Throwing It All Away :: 03:51
+B4. The Brazilian :: 04:50Жанр: Prog Rock, Pop Rock, Soft RockФормат: Vinyl, LP, AlbumПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:64B202A0C14CD65C16DE13126670B18A3E02D4A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 713 925
+
+Genesis - Three Sides Live  1982  Netherlands [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Pop Rock
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+В 1982 году группа Genesis выпустила двойной концертный альбом Three Sides Live. Американская версия содержит три стороны концертного материала  откуда взялось название  и одну сторону студийного материала. Студийный материал содержит песню Paperlate, ещё одну композицию, где использована духовая секция Earth, Wind and Fire. В Великобритании все три песни со стороны Paperlate ранее были выпущены миниальбомом 3x3. 1982 год закончился концертом, на котором группа выступала с Гэбриэлом и Хаккетом, прошедшем на сцене Milton Keynes Bowl под названием Six of the Best  Шестеро из Лучших . Концерт был наспех организован для того, чтобы собрать деньги для проекта Гэбриэла WOMAD, который на тот момент страдал от материальных трудностей.A1. Turn It On Again :: 05:23
+A2. Dodo :: 07:19
+A3. Abacab :: 08:48
+B1. Behind The Lines :: 05:48
+B2. Duchess :: 06:50
+B3. Me & Sarah Jane :: 06:05
+B4. Follow You, Follow Me :: 05:00Жанр: Pop Rock, Prog Rock, Classic RockФормат: Vinyl, LP, Album, Live, GatefoldПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:01838829EC8E6C07081DCAB1029C6CAFD616A843
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 713 864
+
+Мастер - Мастер  1988  Мелодия USSR [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Metal, Heavy Met
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+«Мастер» - советская и российская метал-группа, играющая в стилях трэш-метал и хэви-метал. Является одной из «корневых» и наиболее успешных групп на отечественной металл-сцене. Основатели - Алик Грановский, а также Андрей Большаков, игравший в группе до 1993 года. В отличие от «Арии», «Мастер» начал играть в стиле Спид-метал. В конце 80-х этот жанр находился на пике популярности благодаря таким исполнителям, как Metallica, Megadeth , Anthrax , Slayer и Accept. Тематика текстов «Мастера» имела актуальный в перестроечные годы остросоциальный характер, что позволило группе быстро добиться широкой известности.A1. Берегись :: 03:56
+A2. Руки прочь :: 05:12
+A3. Щит и Меч :: 04:50
+A4. Еще раз ночь :: 05:33
+B1. Воля и Разум :: 04:17
+B2. Встань, страх преодолей :: 04:06
+B3. Храни меня :: 06:00
+B4. Кто кого? :: 02:48
+B5. Мастер :: 04:01Жанр: Metal, Heavy MetalФормат: Vinyl, LP, AlbumПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AAA1AB1BBA823C79DD6B88672E0F7DCB1BB90678
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 713 827
+
+Genesis - Abacab  1981  Canada [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Pop Rock, Prog Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Одиннадцатый альбом Genesis выпущен группой 14 сентября 1982 года. Он занимал в хит-параде Англии первое место несколько недель, а вообще продержался около семи месяцев. И Abacab становится дважды платиновым в США. Довольно интересный альбом, хотя немного странноватый. Так легко, как последующие 3 работы он не воспринимается. Да, многим не нравится то, что Genesis в 80-х резко сменили музыкальный курс, но я не воспринимаю это как предательство и опопсение, хотя, как мы знаем, в это время менялись не только они. Те же Queen, к примеру...A1. Abacab :: 07:02
+A2. No Reply At All :: 04:39
+A3. Me And Sarah Jane :: 06:01
+A4. Keep It Dark :: 04:30
+B1. Dodo   Lurker :: 07:30
+B2. Who Dunnit? :: 03:23
+B3. Man On The Corner :: 04:26
+B4. Like It Or Not :: 04:57
+B5. Another Record :: 04:27Жанр: Pop Rock, Prog RockФормат: Vinyl, LP, AlbumПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:762EB880B9C8AF0BBFC1645F0586C5EFDF9774A4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 713 456
+
+The Beatles - The Beatles  White Album   1968  US Reissue Remastered Stereo 2012 [FL
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+The Beatles - десятый студийный альбом The Beatles и единственный двойной релиз группы. Альбом, выпущенный в 1968 году, более известен как «Белый альбом» из-за своей белой обложки, на которой нет ничего, кроме названия альбома  а на ранних виниловых и дисковых изданиях - ещё и серийного номера  и которая была разработана художником Ричардом Гамильтоном. Альбом был первым, который The Beatles записали и выпустили после смерти менеджера группы Брайана Эпстайна. Изначально его планировалось назвать A Doll’s House  рус. Кукольный домик , но после того, как вышел альбом группы Family под названием Music in a Doll’s House  рус. Музыка в кукольном домике , название было изменено. В 1997 году альбом The Beatles был помещён на 10-ю позицию в опросе «Музыка тысячелетия», проведённом HMV, Channel 4, The Guardian и Classic FM. В 1999 году в аналогичном опросе журнала Q альбом попал на 7-е место в опросе «100 лучших британских альбомов всех времён». В 2001 году альбом стал 11-м лучшим альбомом всех времён по версии телеканала     Читать дальше...    A1. Back In The U.S.S.R. :: 02:45
+A2. Dear Prudence :: 03:49
+A3. Glass Onion :: 02:17
+A4. Ob-La-Di, Ob-La-Da :: 03:07
+A5. Wild Honey Pie :: 00:52
+A6. The Continuing Story Of Bungalow Bill :: 03:12
+A7. While My Guitar Gently Weeps :: 04:43
+A8. Happiness Is A Warm Gun :: 02:42Жанр: Pop Rock, Psychedelic Rock, Rock & RollФормат: 2 x Vinyl, LP, Album, Reissue, Remastered, Stereo  |Продолжительность: 01:32:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0422D5598FBD60CD08A6C16A57C19516D88AF4B3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 713 216
+
+Genesis - …And Then There Were Three…  1978  Repress Canada [FLAC 2.0 24 192|Image  Vinyl-
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+И вот их осталось трое... От них ушли такие коренные музыканты как Питер Гэбриел и Стив Хэккет. Хотя, если к отсутствию первого к этому времени уже более менее все привыкли, то уход главного гитариста всё-таки ощущается. Хотя это не говорит о том, что альбом плохой. Наоборот, он получился очень интересным и разноплановым. Очень удачно выдержан баланс между лирическими песнями и боевиками. Но всё-таки Хэккета им не хватает. В некоторых моментах так и хочется услышать его гитару, а то альбом получается какой-то клавишно-ударный. ...And Then There Were Three... - девятый студийный альбом британской прогрок-группы Genesis, выпущенный 23 марта 1978 года. Этот альбом стал первым, записанным в формате трио  Бэнкс, Коллинз, Резерфорд , что и отражено в названии альбома. Первый альбом группы, получивший платиновый статус в США.A1. Down And Out :: 05:25
+A2. Undertow :: 04:45
+A3. Ballad Of Big :: 04:50
+A4. Snowbound :: 04:31
+A5. Burning Rope :: 07:09
+B1. Deep In The Motherlode :: 05:15
+B2. Many Too Many :: 03:32
+B3. Scenes From A Night s Dream :: 03:30
+B4. Say It Alright Joe :: 04:21
+B5. The Lady Lies :: 06:07    Читать дальше...    Жанр: Pop Rock, Prog Rock, Classic RockФормат: Vinyl, LP, Album, RepressПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:01F08833D64C7C26FE16F1AADB5AB660754E04FF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 712 913
+
+Genesis - Wind & Wuthering  1976  US [WavPack 2.0 32 96|Image  Vinyl-Rip ]<Art Rock, Prog
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Wind & Wuthering  в переводе с англ. Ветер и буря  - восьмой студийный альбом британской прог-рок-группы Genesis, выпущенный 27 декабря 1976 года. Этот альбом стал последним альбомом группы, в записи которого принимал участие гитарист Стив Хэкетт. Лучшие композиции альбома очень мелодичны. Их мелодичность, особенно в инструментальных проигрышах, дает ощущение печальной, светлой грусти, наводит на философские размышления. Tony Banks сказал, что Wind & Wuthering один из двух его самых любимых альбомов Genesis. Steve Hackett так же заявил, что он  очень любит  этот альбом. Дизайном обложки занималась студия «Hipgnosis» Сторма Торгесона.A1. Eleventh Earl Of Mar :: 07:43
+A2. One For The Vine :: 09:58
+A3. Your Own Special Way :: 06:18
+A4. Wot Gorilla :: 03:19
+B1. All In A Mouse s Night :: 06:38
+B2. Blood On The Rooftops :: 05:26
+B3. Unquiet Slumber For The Sleepers... :: 02:21
+B4. ...In That Quiet Earth :: 04:52
+B5. Afterglow :: 04:08Жанр: Art Rock, Prog RockФормат: Vinyl, LP, AlbumПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1DC983DDF5F8A143C8507D8B39C444B2E3A555B6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 712 895
+
+Genesis - A Trick Of The Tail  1976  1st Press UK [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Ar
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A Trick of the Tail - седьмой студийный альбом британской прог-рок-группы Genesis, выпущенный в 20 февраля 1976 года. A Trick of the Tail стал первым альбомом группы, записанным после ухода основного вокалиста Питера Гэбриэла, вместо которого все вокальные партии исполнил Phil Collins. Его голос, вначале очень похожий на голос Габриэла, вскоре стал отчетливо узнаваем из десятков других, приобретя характерные, чисто «коллинзовские» оттенки и интонации. Особенно ему удавались средне-темповые пьесы с приглушенно бархатным звуком ударных. Они резко выделялись из всего материала Genesis и составили впоследствии музыкальную основу его сольных альбомов. Альбом был признан лучшим альбомом 1976 в Англии и в мире, однако коммерческого успеха не имел. Дизайном обложки занималась студия «Hipgnosis» Сторма Торгесона.A1. Dance On A Volcano :: 05:57
+A2. Entangled :: 06:25
+A3. Squonk :: 06:28
+A4. Mad Man Moon :: 07:36
+B1. Robbery, Assault And Battery :: 06:16
+B2. Ripples :: 08:05
+B3. A Trick Of The Tail :: 04:34
+B4. Los Endos :: 05:50Жанр: Art Rock, Prog RockФормат: Vinyl, LP, Album, GatefoldПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5EADB3E62B2291586F21630C6AA4F8A108A49BBA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 712 825
+
+Genesis - Selling England by the Pound  1973  US Promo copy [FLAC 2.0 24 192|Image  Vinyl-
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Selling England by the Pound  в пер. с англ. Распродавая Англию по фунту  - пятый студийный альбом британской прог-рок-группы Genesis, записанный и выпущенный в 1973 году. Он последовал за альбомом Foxtrot и был пиком коммерческой успешности коллектива эпохи Гэбриэла, в Великобритании он занял третью позицию в чарте. К 1990 году альбом достиг планки золотого в США. На обложке альбома изображена картина Бетти Суонвик «Сон». В оригинале на картине не было газонокосилки, музыканты попросили Суонвик добавить её как аллюзию на песню «I Know What I Like». Композиция «More Fool Me» стала второй для Фила Коллинза как вокального исполнителя после For Absent Friends с альбома Nursery Cryme.A1. Dancing With The Moonlit Knight :: 08:06
+A2. I Know What I Like  In Your Wardrobe  :: 04:09
+A3. Firth Of Fifth :: 09:40
+A4. More Fool Me :: 03:15
+B1. The Battle Of Epping Forest :: 11:57
+B2. After The Ordeal :: 04:17
+B3. The Cinema Show Aisle Of Plenty :: 12:48Жанр: Art Rock, Prog RockФормат: Vinyl, LP, Album, Promo CopyПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7EAB6DEFB385441C2A9D031093FD054DFC6F533A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 712 798
+
+Genesis - Live  1973  1st Press UK [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Art Rock, Prog Ro
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Альбомы Foxtrot  1972  и Selling England By The Pound  1973  окончательно вывели Genesis в высшую лигу английской рок-музыки. В 1973 предприимчивый Стрэттон-Смит смикшировал записи концертов в Лестере и Манчестере и выпустил альбом. “Genesis Live”, ставший отличным отчетом о развитии группы. Накануне 1972 Peter Gabriel начал экспериментировать на сцене с различными визуальными и театральными эффектами, используя фантастические костюмы и маски, благодаря чему Genesis впоследствии завоевали себе репутацию первооткрывателей этого стиля. Неудовлетворенный своими музыкальными способностями, Габриэл стал настаивать на спектакле, поэзии, поэтическом представлении. Он придал концертам Genesis атмосферу таинственности «нового» средневековья.A1. Watcher Of The Skies :: 08:40
+A2. Get  Em Out By Friday :: 09:15
+A3. The Return Of The Giant Hogweed :: 08:18
+B1. Musical Box :: 11:00
+B2. The Knife :: 09:46Жанр: Art Rock, Prog RockФормат: Vinyl, LP, Album, LiveПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A0C9E8E258C7904596C14EE0AF86811F62DCA18
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 712 768
+
+Genesis - Foxtrot  1972  1st Press UK [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Art Rock, Prog
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Foxtrot - четвёртый студийный альбом британской прогрессив рок-группы Genesis, выпущенный 6 октября 1972 года. Альбом, записанный в так называемом «классическом составе»  Бэнкс, Гэбриэл, Коллинз, Резерфорд и Хэкетт  и первый альбомом, вошедший в «Топ-20» в Великобритании. Состав: Питер Гэбриэл - вокал, флейта, гобой, ударные; Стив Хэкетт - гитара; Тони Бэнкс - орган, клавишные, меллотрон, акустическая гитара, бэк-вокал; Майк Резерфорд - бас-гитара, акустическая гитара, виолончель, бэк-вокал; Фил Коллинз - барабаны, ударные, бэк-вокал.A1. Watcher Of The Skies :: 07:22
+A2. Time Table :: 04:46
+A3. Get  Em Out By Friday :: 08:35
+A4. Can-Utility And The Coastliners :: 05:43
+B1. Horizons  :: 01:38
+B2. Supper s Ready :: 22:56
+Тpeк лист:
+B2-1		 Lover s Leap
+B2-2		 The Guaranteed Eternal Sanctuary Man
+B2-3		 Ikhnaton And Itsacon And Their Band Of Merry-Men    Читать дальше...    Жанр: Art Rock, Prog RockФормат: Vinyl, LP, AlbumПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:53378E7BEBE6DA6F4DFA091D82C24DFB529FD578
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 712 529
+
+Paul McCartney - Pipes Of Peace  1983  UK [WavPack 2.0 32 96|Image  Vinyl-Rip ]<Soft Rock,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Pipes of Peace  рус. Трубы мира  - пятый сольный студийный альбом Пола Маккартни, выпущенный в 1983 году. Будучи выпущен после пользовавшегося большим успехом альбома Tug of War, Pipes of Peace был принят публикой также довольно неплохо и многие песни из него стали хитами, однако музыкальные критики приняли альбом значительно прохладнее, чем Tug of War. Когда альбом был издан, многие критики отметили, что Pipes of Peace подобен своему предшественнику, альбому Tug of War, во многих отношениях. Альбом также был спродюсирован Джорджем Мартином; в альбоме присутствовали две песни, созданные в сотрудничестве с одним и тем же артистом  в Tug of War - со Стиви Уандером; в этот раз соавтором стал Майкл Джексон ; продолжилось сотрудничество при записи с Ринго Старром, с экс-гитаристом группы «10cc» Эриком Стюартом; в записи части материала участвовал Денни Лэйн.A1.  Pipes Of Peace  :: 03:53
+A2.  Say Say Say  :: 03:56
+A3.  The Other Me  :: 03:58
+A4.  Keep Under Cover  :: 03:07
+A5.  So Bad  :: 03:24
+B1.  The Man  :: 03:57
+B2.  Sweetest Little Show  :: 02:54
+B3.  Average Person  :: 04:31
+B4.  Hey Hey  :: 02:56
+B5.  Tug Of Peace  :: 02:53    Читать дальше...    Жанр: Soft Rock, Pop RockФормат: Vinyl, LP, Album, GatefoldПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB26A48FE70CA4FFE54C1B3599AA16FA5591BB8E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 710 452
+
+Animotion - Strange Behavior  1986  Canada [FLAC 2.0 24 192|image  Vinyl-Rip ]<Synth-Pop,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Выведенный на первый план монотонный ритм электронных ударных, пульсирующий синтезаторный бас, приятная электроника - то гипнотическая, то атакующая, и дополняющие картину мощные рубленые гитарные риффы, больше характерные, надо заметить, для американского  стадионного рока  - такова группа ANIMOTION, которая вряд ли может впечатлить необыкновенными коммерческими победами, ее смело можно вписывать в графу под шапкой  исполнители одного хита . Карьера этого американского ансамбля со странным названием если и может чему-нибудь научить, так единственно тому, что может случиться с группой, волею судьбы вознесенной на гребень успеха, но не обладающей ни интересными идеями, ни творческой самостоятельностью для удержания и развития его. Изданный в национальном масштабе сингл  Obsession  стал суперхитом, когда весной 1985 поднялся в американскую  Top-10 , где занял 6-е место.A1. I Want You :: 04:37
+A2. I Engineer :: 04:15
+A3. Strange Behavior :: 03:58
+A4. Stealing Time :: 03:53
+A5. Anxiety :: 04:15
+B1. Out Of Control :: 03:29
+B2. Stranded :: 03:20
+B3. The Essence :: 04:08
+B4. One Step Ahead :: 03:34
+B5. Staring Down The Demons :: 04:14Жанр: Synth-Pop, Pop RockФормат: Vinyl, LP, AlbumПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70BC052B8663FD2F1927F0D1149D5B425DBF9E80
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 710 422
 
 Б.Г. - Русский альбом  1992  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Рок>
@@ -1683,623 +2304,6 @@ Perpetuum Mobile, musical joke, op.257    Читать дальше...    Жан
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:C196E5C32BA967205F0EE63F5A0E65E018A83EFD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 685 314
-
-ABBA - Super Trouper  1980  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Disco Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Super Trouper [4:12]
-A2 The Winner Takes It All [4:54]
-A3 On And On And On [3:41]
-A4 Andante, Andante [4:39]
-A5 Me And I [4:58]
-B1 Happy New Year [4:26]
-B2 Our Last Summer [4:22]
-B3 The Piper [3:28]
-B4 Lay All Your Love On Me [4:37]
-B5 The Way Old Friends Do [3:24]Жанр: Disco PopПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E5185B505EE7C1AA31EAE5A0A5F7C184C901B4F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 685 280
-
-ABBA - Voulez - Vous  1979  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Disco Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 As Good As New [3:26]
-A2 Voulez-Vous [5:12]
-A3 I Have A Dream [4:47]
-A4 Angeleyes [4:25]
-A5 The King Has Lost His Crown [3:38]
-B1 Does Your Mother Know [3:15]
-B2 If It Wasn t For The Nights [5:12]
-B3 Chiquitita [5:27]
-B4 Lovers  Live A Little Longer  [3:33]
-B5 Kisses Of Fire [3:19]Жанр: Disco PopПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44648A52BDA7A5C6BC8F7FDA07DEA50C03605BF5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 685 265
-
-ABBA - The Album  1977  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Disco Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Eagle 5:49
-A2 Take A Chance On Me 4:00
-A3 One Man One Woman 4:32
-A4 The Name Of The Game 4:56
-B1 Move On 4:43
-B2 Hole In Your Soul 3:45
- The Girl With The Golden Hair  - 3 Scenes From A Mini-Musical -
-B3-A Thank You For The Music 3:51
-B3-B I Wonder  Departure  4:32
-B3-C I m A Marionette 4:06Жанр: Disco PopПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:246AAEF6CB0445576B5C65EB46759510F44A4FA0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 685 194
-
-Lester Paul Orchestra - Tenor Saxophone Mood Collection  1975  2LP Japan, RCA Records [FLAC 2.0
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Harlem Nocturne
-A2. Danny Boy
-A3. I Left My Heart In San Francisco
-A4. Stardust
-A5. Ebb Tide
-A6. Autumn Leaves
-B1. Broken Promises
-B2. Red Sails In The Sunset
-B3. The Lonely One
-B4. Days Of Wine And Roses    Читать дальше...    Жанр: Instrumental  Saxophone , Easy ListeningПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:940A1D28994A6481F2D033F3871684705B5822B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 685 142
-
-ABBA  Bjorn, Benny, Agnetha & Frida  - Waterloo  1974  [FLAC 2.0 24 192|image  Vinyl-Rip
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Waterloo [2:47]
-A2 Sitting In The Palmtree [3:40]
-A3 King Kong Song [3:16]
-A4 Hasta Manana [3:13]
-A5 My Mama Said [3:17]
-A6 Dance  While The Music Still Goes On  [3:16]
-B1 Honey, Honey [2:57]
-B2 Watch Out [3:48]
-B3 What About Livingstone [2:58]
-B4 Gonna Sing You My Lovesong [3:42]    Читать дальше...    Жанр: Disco PopПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1EA831736BC7CBC1409BAF3908A74F0DC1339D57
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 684 963
-
-Styx - Equinox  1975  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Progressive Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Light Up [4:23]
-A2. Lorelei [3:23]
-A3. Mother Dear [5:32]
-A4. Lonely Child [3:53]
-B1. Midnight Ride [4:25]
-B2. Born For Adventure [5:17]
-B3. Prelude 12 [1:21]
-B4. Suite Madame Blue [6:36]Жанр: Progressive RockПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A6D0C6C77DB1A6723558B4068DECE40FAD25B9C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 684 896
-
-Styx - Grand Illusion  1977  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Progressive Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. The Grand Illusion [4:39]
-A2. Fooling Yourself [5:31]
-A3. Superstars [4:04]
-A4. Come Sail Away [6:11]
-B1. Miss America [5:05]
-B2. Man In The Wilderness [5:50]
-B3. Castle Walls [6:00]
-B4. The Grand Finale [2:00]Жанр: Progressive RockПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6505D116A4A638D3660539C646711A4BE8BA433A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 684 807
-
-Алексей Рыбников - Звезда И Смерть Хоакина Мурьеты  1978  2LP [FLAC 2.0 24 96|tracks  Vinyl-
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-23. Клятва Хоакина  1:34 
-24. Месть Хоакина  2:31 
-25. Вторая ария Смерти  3:41 
-26. Воспоминание о Родине  1:27 
-27. Шествие к могиле Тересы  2:07 
-28. Эпилог  1:44 Жанр: Рок-операПродолжительность: 00:13:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C72128B3BD9CBE0989130F6D940446C3C1935766
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 682 733
-
-Zaz - Recto verso  2013  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Chanson Francaise>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. On ira  2:59 
-02. Comme ci, comme ca  2:44 
-03. Gamine  3:09 
-04. T`attends quoi  3:18 
-05. Ensemble  3:53 
-06. Deterre  2:41 
-07. Toujours  3:08 
-08. Si je perds  3:03 
-09. Je Rentre  5:07 
-10. Si  2:37     Читать дальше...    Жанр: Chanson FrancaiseПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9476165F63532C30558A90BBA0F74D4290730D2C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 681 638
-
-Riccardo Fogli - Collezione  1982  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Storie Di Tutti I Giorni
-02. E  L amore
-03. Che Ne Sai
-04. Non Mi Lasciare
-05. Alla Fine Di Un Lavoro
-06. Malinconia
-07. Io No
-08. Scene Da Un Amore
-09. Ti Amo Pero
-10. L amore Che VerraЖанр: PopПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E80001DF57E0E71D8EF849C5C43EB0F44BB2C0D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 681 256
-
-Shocking Blue - The Best Of  1986   Japan  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Venus
-02. Hot Sand
-03. Deamon Lover
-04. Never Release The One You Love
-05. Blossom Lady
-06. Shocking You
-07. Long Lonesome Road
-08. Never Marry A Railroad Man
-09. Mighty Joe
-10. Inkpot    Читать дальше...    Жанр: RockПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D6B479BD20CA0A3C9227983611CAD8A65C154534
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 680 927
-
-Planet P Project – Planet P  1983  [APE 2.0 24 192|tracks  Vinyl-Rip ]<Progressive Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Static [4:10]
-A2. King For A Day [3:55]
-A3. I Wont Wake Up [3:45]
-A4. Top Of The World [4:33]    Читать дальше...    Жанр: Progressive RockПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ED5AB61891CAA9D775D72B75817588B02CE65779
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_680927.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 680 050
-
-Uriah Heep - The Magician`s Birthday  1972  [APE 2.0 24 96|image  VinylRip ]<Hard Rock P
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Sunrise [4:08]
-A2. Spider Woman [2:30]
-A3. Blind Eye [3:39]
-A4. Echoes In the Dark [4:57]
-A5. Rain [4:05]
-B1. Sweet Loraine [4:21]
-B2. Tales [4:14]
-B3. The Magician`s Birthday [10:30]Жанр: Hard Rock ProgressiveПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB7D26887AD3689A5B75806B1D1D3B8D5C7443A7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 679 122
-
-Slade - Wall Of Hits  1991  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Classic Rock Rock & Roll
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Get Down And Get With It [3:50]
-A2 Coz I Luv You [3:32]
-A3 Look Wot You Dun [2:51]
-A4 Take Me Bak  Ome [3:13]
-A5 Mama Weer All Crazee Now [3:44]
-A6 Gudbuy T Jane [3:31]
-A7 Cum On Feel The Noize [4:27]
-A8 Skweeze Me Pleeze Me [4:29]
-A9 My Friend Stan [2:41]Жанр: Classic Rock Rock & Roll GlamПродолжительность: 01:06:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BCAD9BE33F4AA889D453EEC4BE61D6E25E2E443E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 678 950
-
-Slade -You Boyz Make Big Noize  1987  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Classic Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Love Is Like A Rock [3:41]
-A2 That s What Friends Are For [3:17]
-A3 Still The Same [4:14]
-A4 Fools Go Crazy [3:20]
-A5 She s Heavy [2:35]
-A6 We Won t Give In [3:38]
-B1 Won t You Rock With Me [3:49]
-B2 Ooh La La In L.A. [3:51]
-B3 Me And The Boys [2:40]
-B4 Sing Shout  Knock Yourself Out  [3:11]    Читать дальше...    Жанр: Classic RockПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:88105E627AE8FE59C140CC8865EB342C9F502B24
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 678 829
-
-Dark Tranquillity - Construct  2013  [FLAC 2.0 24 96 | tracks  Vinyl-Rip ]<Melodic Death M
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 For Broken Words
-A2 The Science Of Noise
-A3 Uniformity
-A4 The Silence In Between
-A5 Apathetic
-
-B1 What Only You Know
-B2 Endtime Hearts
-B3 State Of Trust
-B4 Weight Of The End    Читать дальше...    Жанр: Melodic Death MetalПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE5707FA398A1C1EDFDE17D65AAEAABDC1A77EA7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 678 422
-
-Rockets - Imperception  1984  [APE 2.0 24 192|image  Vinyl-Rip ]<Space Rock, New Wave>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Under The Sun [4:34]
-A2. After The Fire [4:27]
-A3. A Million Miles Away [5:31]
-A4. Wrong Place, Right Time [3:38]
-B1. Contact [4:55]
-B2. Someone New [3:55]
-B3. Private Network [4:16]
-B4. Freedom [5:01]Жанр: Space Rock, New WaveПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F7ECFAD5ECC9798AB581906B0EF9E1246875165
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 678 360
-
-Rockets - Atomic  1982  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Space Rock, New Wave>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Atomic [4:06]
-A2. Some Other Place, Some Other Time  [4:52]
-A3. Star Vision [5:51]
-A4. Run To The Stars [4:41]
-B1. Future Game [4:55]
-B2. Light Speed Junky [3:32]
-B3. The Martian Way [5:18]
-B4. Radio Station  [5:28]Жанр: Space Rock, New WaveПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A236AFD3BAA0C34C9CD532858BCD7B550EFCECBD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 678 061
-
-Rockets - Pi 3,14  1981  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Space Rock, New Wave>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Radiate [4:44]
-A2. Imagine E.S.P. [5:04]
-A3. Ziga Ziga 999 [4:04]
-A4. Hypnotic Reality [3:54]
-B1. Ideomatic [4:16]
-B2. Video Addict [5:01]
-B3. Astro Storm [5:28]
-B4. King Of The Universe [4:10]Жанр: Space Rock, New WaveПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BAC02E3CEA306DB4F91EFCC24BE5F7135DB27756
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 677 840
-
-Slade - Slade In Flame  1974  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Glam Rock Rock & Roll>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Glam Rock Rock & RollПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B910A87E95E5C39AEED52011781DDAE2022C47E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_677840.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 677 688
-
-Rockets - Plasteroid  1979  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Space Rock, New Wave>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Electric Delight [5:10]
-A2. Astral World [4:24]
-A3. If You Drive [4:46]
-A4. Legion Of Aliens [3:37]
-B1. Anastasis [4:35]
-B2. Cosmic Feeling [5:47]
-B3. Atlantis Town [4:13]
-B4. Back To Your Planet [4:00]Жанр: Space Rock, New WaveПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:48F0E1A63541DBB5BC3F7CECD966C391B0604843
 ```
 
 <div id="header" align="center">

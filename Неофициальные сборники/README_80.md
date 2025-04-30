@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 302 917
+
+VA - German Top 40 DBC Deutsche Black Charts 17.05.2019  2019  [MP3|320 Kbps] <Rap, Hip-Hop, R&B
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+01. Blueface - Thotiana  feat. Cardi B, YG   Remix 
+02. MERO - Wolke 10
+03. Chris Brown - Wobble Up
+04. dj spanish fly - Bailemos    Читать дальше...    Жанр: Rap, Hip-Hop, R&BПродолжительность: 02:09:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C04427484660FAAC6EF9CFF035D109B499261858
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302917.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 302 834
+
+VA - ЕвроХит Топ 40 Europa Plus 17.05.2019 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.Ariana Grande - 7 Rings  2:58 
+02.Aaron Smith feat. Luvli - Dancin  Krono Remix   3:17 
+03.Keanu Silva - King Of My Castle  Don Diablo Edit   2:53 
+04.Mabel - Don t Call Me Up  2:58     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9EF5E72DD6D182F267EF25268BE1FCC54F9B5BE5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302834.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 302 757
+
+Joy Harjo - Sweet Dreams  Collection   2019  [MP3|~245 Kbps  V0 , CBR ] <Native american
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Barrett Martin, Joy Harjo - An American Sunrise
+02. Joy Harjo - Eagle Song
+03. Joy Harjo - For Anna Mae Pictou Aquash
+04. Joy Harjo - Morning Song    Читать дальше...    Жанр: Native american, Folk, WorldПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5DF8667D0C0AD45A930E8D2172DB816D753D0263
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302757.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 302 720
+
+Sophie Zelmani - The best  1995-2019  Compilation Album [MP3|320 Kbps] <Pop, Rock, Singer songwr
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+Нас окружает море музыки, и не видно краёв ему, и особую ценность имеют редко попадающиеся жемчужины,- об ещё одном таком открытии расскажу Вам:01. Before The Day s Gone
+02. Bitter Kind  New Song 
+03. Breeze
+04. Churchbell    Читать дальше...    Жанр: Pop, Rock, Singer songwriterПродолжительность: 02:15:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6416BFF38C20AD3DA42A21EF1FD4EBB5DC0B7B2B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1302720.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 302 692
 
 VA - NOW 100 Hits Classic Rock  2019  [MP3|320 Kbps] <Rock>
@@ -1896,106 +1996,6 @@ VA - Русское Радио. Лучшее  2019   2019   от DON Music [MP3|
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1298371.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 298 343
-
-VA - The Official UK Top 40 Singles Chart 26.04.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Lil Nas X - Old Town Road
-02. Meduza, GOODBOYS - Piece Of Your Heart
-03. Lewis Capaldi - Someone You Loved
-04. Billie Eilish - bad guy    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:06:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:26CCF2FEBEDC8CE9F95E429199E22574120478FB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1298343.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 298 307
-
-VA - Drum and Bass Pro V.03  2019  Compiled by GvertO [MP3|320 Kbps] <Drum and bass, Neurofunk>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Dilemma - Limbo Original Mix  [6:39]
-02. oneBYone - Sorry  Original Mix  [4:14]
-03. Bensley - Kilauea [5:24]
-04. AKOV - Blind  Moon Mix  [4:47]    Читать дальше...    Жанр: Drum and bass, NeurofunkПродолжительность: 02:46:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:664B0268E501E7650FBA0B0471F6588327ADD843
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1298307.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 298 259
-
-VA - Shazam Хит-парад Russia Top 100 Апрель  2019  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Billie Eilish - bad guy  3:14 
-002. Aaron Smith feat. Luvli - Dancin  Eugene Star Remix   5:30 
-003. Ilkay Sencan - Do It  3:51 
-004. Artik & Asti feat. Артем Качер - Грустный дэнс  3:20     Читать дальше...    Жанр: PopПродолжительность: 05:21:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:57D94C3F5D1E72A7068445174E8C9C7172680492
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1298259.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 298 231
-
-VA - ЕвроХит Топ 40 Europa Plus 26.04.2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Ava Max - Sweet But Psycho  3:07 
-02. Ariana Grande - 7 Rings  2:58 
-03. Aaron Smith feat. Luvli - Dancin  Krono Remix   3:17 
-04. Lil Peep & XXXTentacion - Falling Down  3:16     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:07:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4062B2F593AA8619D722A3AECEC63FE588DE7762
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1298231.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

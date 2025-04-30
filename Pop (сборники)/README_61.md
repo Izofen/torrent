@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 289 263
+
+Patrick Norman - Sweet Sweet Lady  1978  LP [MP3|320 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Sweet Sweet Lady  4:59 
+02. Bring Back The Love  5:19 
+03. Paradise  6:08 
+04. Loving You  6:26     Читать дальше...    Жанр: DiscoПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E797FE3C3C02B032CC14578BDA574B4B58FF456
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1289263.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 289 184
+
+Bonnie Tyler - Between The Earth And The Stars  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Hold On 3:18
+02. Battle Of The Sexes  with Rod Stewart  3:47
+03. Slow Walk 3:13
+04. Seven Waves Away 3:45    Читать дальше...    Жанр: PopПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D680196EF0D5809C1372D9DF017C5EE26229DA46
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1289184.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 289 170
+
+Леонид Агутин - 50  2018  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Я тебя не вижу
+02. Самба  feat. Willie Key 
+03. Две минуты жизни
+04. Она не вернётся    Читать дальше...    Жанр: PopПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:36C5D02E15C992EA67CE6C6900F3AAEB2D971FDB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1289170.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 289 163
 
 Анжелика Варум - На Паузу  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1916,81 +1991,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1284976.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 284 936
-
-Voggue - 2 Albums  1981, 1983  LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. I Love To Dance  5:02 
-02. Loverboy  5:25 
-03. Heart On The Line  2:42 
-04. Presto Changeo  4:14     Читать дальше...    Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D8C4947C85C2F0F0189270D060A2E911113B7538
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1284936.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 284 899
-
-Vera Lynn - Something To Remember - Wartime Memories  1995  Mono [FLAC|Lossless|image + .cue] <J
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01 Something To Remember You By
-02 Yours
-03 Wish Me Luck As You Wave Me Goodbye
-04 I ll Pray For You    Читать дальше...    Жанр: Jazz, PopПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EA55B983594AC6245942BF59FC8CA98DACB6C8EE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1284899.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 284 650
-
-Mariah Carey - MTV Unplugged  1992  EP [FLAC|Lossless|image + .cue] <Hip Hop, Soul, RnB>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Emotions
-02. If It s Over
-03. Someday
-04. Vision Of Love    Читать дальше...    Жанр: Hip Hop, Soul, RnBПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C757F38E77B4A7C634FCECE83DADD99C9C32B28D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1284650.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

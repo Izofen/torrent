@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 113 968
+
+VA - 90s Stars Comeback  2017  [MP3|320 Kbps] <Dance, Progressive, Electro, Vocal, Trance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Lane Mccray & Djane Monique – Sweet Dreams  Radio Mix  03:58
+02. Linda Rocco & Andy Stead – You Make Me Feel Good  Radio Mix  04:03
+03. Bg The Prince Of Rap – No Limits  Randy Norton Edit  04:05
+04. Ice Mc – Out Tonight  G-Lati & Mellons Remix  04:45    Читать дальше...    Жанр: Dance, Progressive, Electro, Vocal, TranceПродолжительность: 02:34:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA22AA6BC9B61A38B9867D552F675B31E19C3839
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1113968.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 113 951
+
+Chris Bell - 30 most slow Blues  2017  [MP3|320 Kbps] <Blues>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+01. Two Jobs
+02. Ain t Seen Nothing
+03. Cold-Hearted Woman
+04. Deli Man    Читать дальше...    Жанр: BluesПродолжительность: 02:03:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9A40C66424303404EA549397902990E1065462EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1113951.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 113 921
+
+VA - Yoga Springtime Relaxation: Best of Chillout and Beach Cafe Music  2017  [MP3|320 Kbps] <Do
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Arcade Lounge - Angels - Faith in Love Mix
+02. System of Prime - Riding the Waves - Miami Now Mix
+03. Helen Taylor - Ibiza Del Mar - Lights Down Low Mix
+04. Off The Road - Slowmotion - A Reason to Shop in Pink Mix    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D1F944750205310FBE38E3E7CC684BD5C1053D0C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1113921.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 113 688
+
+VA - Empire Records - Golden Drum 2  2017  [MP3|320 Kbps] <Dubstep, Drum & Bass>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. X Ambassadors - Nervous
+02. Zoon r - Rask
+03. DisasZt - Till The Sun Comes Up
+04. High Contrast - Remind Me    Читать дальше...    Жанр: Dubstep, Drum & BassПродолжительность: 01:32:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D332DC8E538A4943B8F82D09A64C5139803A1477
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1113688.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 113 685
 
 VA - Empire Records - Dancenudisco 12  2017  [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
@@ -1893,106 +1993,6 @@ VA - Empire Records - ANDRS Parody 2  2017  [MP3|320 Kbps] <Club>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1110345.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 110 321
-
-VA - Ultimate Hits Hottest Moves  2017  [MP3|320 Kbps] <Dancehall, Latin, Reggae, R&B, Hip Hop,
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. R3hab Ft Verite - Trouble  Dirty-Short Edit  - 8A 02:22
-02. Ariana Grande Feat Future - Everyday  Transition 90-66   Clean  03:47
-03. Jolivi - Love Who You Wanna Love  Flrivn & Nikki X Remix  04:42
-04. Kungs Ft Ephemerals - I Feel So Bad  Hem Remix  04:00    Читать дальше...    Жанр: Dancehall, Latin, Reggae, R&B, Hip Hop, Electro, Future Bass, Trap, Indie DanceПродолжительность: 07:41:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2A23FE200220648BDB4B0CFF12B1E6B781074487
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1110321.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 110 312
-
-VA - Зайцев.Нет: Музыка весны  2017  [MP3|192-320 Kbps] <Поп, Рок, Рэп, Шансон>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-В данный плейлист включены самые весенние композиции - от классических произведений Шопена и Микаэла Таривердиева до современной R&B-музыки Rihanna и хип-хопа Kendrick Lamar. Широкий спектр жанров объединяет одно желание: поскорее избавиться от зимних оков и настроиться на ритм самого безумного и яркого времени года.01.  Рок-Острова - Весна  4:11
-02.  Frank Sinatra - It Might As Well Be Spring  3:17
-03.  5 nizza - Весна  4:20
-04.  Гарик Сукачев и Неприкасаемые - За окошком месяц май  4:08    Читать дальше...    Жанр: Поп, Рок, Рэп, ШансонПродолжительность: 03:05:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ADBB87AD7A91509976325D107539DA46C43D5136
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1110312.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 110 309
-
-VA - Music For Everyone - Tropical House Vol.1  2017  [MP3|320 Kbps] <House, Tropical House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-1. Deep Chills - Lighthearted  Original Mix 
-2. Lost Kings feat. Katelyn Tarver - You  OutaMatic Remix 
-3. Tobu & Jordan Kelvin James - Summer Breeze  Original Mix 
-4. The Chainsmokers feat. ROZES - Roses  Chambo Remix     Читать дальше...    Жанр: House, Tropical HouseПродолжительность: 01:47:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3532E2FE2ED659764C7407DF2BE2B0AD8F9DE4D2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1110309.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 110 212
-
-VA - Music for your Car  2017  [MP3|320 Kbps] <Dance , House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Florian Picasso - This Is Our Time  Original mix  3:34
-002. 2K Feat Adina - Be the 1  Radio Edit  3:13
-003. Milana May - Relationship  Original Mix  4:05
-004. Chassio - Let the Monkeys Out  Radio Edit  2:55    Читать дальше...    Жанр: Dance , HouseПродолжительность: 05:56:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0E77309932F4FB5532745038013BB46226597A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1110212.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

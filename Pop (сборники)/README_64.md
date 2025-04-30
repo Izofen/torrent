@@ -1,4 +1,78 @@
 ﻿
+###  Публикация: 1 271 560
+
+Neoton Familia - Marathon  1980  1998, Remastered, Gong [FLAC|Lossless|tracks + .cue] <Pop, Disc
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Don Quijote  4:06 
+ 02. Egy Huszas Eleg  3:37 
+ 03. Marathon  5:27 
+ 04. Korben-jaras  3:45     Читать дальше...    Жанр: Pop, Disco, 70s, 80sПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7E35C485AB971956E9A0E2DB4649910B20BE4E01
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271560.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 522
+
+Velvet - 2 Альбома  2006, 2009  [FLAC|Lossless|tracks + .cue] <Pop, Eurodance, Euro-House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+Альбомы:
+Finally - 2006
+The Queen - 2009Жанр: Pop, Eurodance, Euro-House |Продолжительность: 01:32:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:62D51E111FB534771097BD86372F5B8938B066C4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271522.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 439
+
+Jessie J - This Christmas Day  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Santa Claus Is Comin’ to Town
+02. Man With The Bag
+03. Rockin’ Around the Christmas Tree
+04. Jingle Bell Rock    Читать дальше...    Жанр: PopПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6273FEC8D63DB1F9D5723E91AA104324D0B37DC4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271439.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 271 418
 
 VA - Союз 3 альбома  1995 - 1997  [FLAC|Lossless|image + .cue]<Pop>
@@ -1923,81 +1997,6 @@ CD01:
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265833.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 265 811
-
-VA - 100 Hits – The Best Dance Album  2018  5CD [MP3|320 Kbps] <Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD01:
-01. Eric Prydz - Call On Me
-02. Armand Van Helden Feat. Duane - You Don t Know Me
-03. Roger Sanchez - Another Chance    Читать дальше...    Жанр: DanceПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C446A27DFE00C5DAC2EBEC68ED3E746A6780B324
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265811.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 265 753
-
-Blow - Vertigo  2018  Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Synthwave
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Vertiges  3:11 
- 02. New Moon Walker  3:18 
- 03. Green Unicorn  3:07 
- 04. Fall in Deep  3:40     Читать дальше...    Жанр: Electronic, Pop, Synthwave, DowntempoПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C4DD4860FDD69EDC1504B8BFB0F7E91A2BD06C54
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265753.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 265 672
-
-Mary Wilson - Mary Wilson  1979  LP [MP3|320 Kbps] <Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Red Hot  6:06 
-02. I ve Got What You Need  5:05 
-03. You Make Me Feel So Good  5:47 
-04.  I Love A  Warm Summer Night  4:07     Читать дальше...    Жанр: Funk Soul, DiscoПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:275EC3EE6AA3A37AE4ED860989B5E62398AF5F12
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265672.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

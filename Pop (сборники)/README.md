@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 793 539
+
+VA - The Finest 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01 Sonic Soul Orchestra Feat. Phebe Edwards - Deeper Love (John Morales M+M Church Mix)(07:14)
+02 Yam Who, Jaegerossa Feat. Suki Soul - Take You There (DJ Mark Brickman Extended Club Mix)(06:54)
+03 Ray Hayden, Krewcial - Real Love (Extended Mix)(06:18)
+04 Jaegerossa - The Big Red(07:00)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 02:39:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D4088288D96CB85D5CAE20DDFF8E90A3EF7C8663
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1793539.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 793 349
+
+VA - Classic Road Trip Songs 100 Hits (2025) [MP3|320 Kbps] <Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Bruno Mars - Treasure
+02. Coldplay - Paradise
+03. Climie Fisher - Love Changes (Everything)
+04. Stevie Nicks - Edge of Seventeen (2016 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:40:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ECA1B95F7293C1D45095D3187C1ACE58A0E5FD86
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1793349.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 793 149
+
+Валерий Меладзе - Всё так и было (1999) Reissue, 2003, Iceberg Music [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Всё так и было - четвёртый студийный альбом певца Валерия Меладзе, который вышел в 1999 году. Альбом переиздавался в 2002, 2003, 2009 и 2015 годах, но только в переиздании 2003 года к 11 трекам альбома был добавлен бонус-трек, записанный Меладзе в составе группы Диалог. Рок-группа Диалог была создана при Николаевской областной филармонии Кимом Брейтбургом, который (   Читать дальше...   )01. Мечта (3:01)
+02. Всё так и было (3:28)
+03. Красиво (4:44)
+04. Рассветная (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E246BE9809E91484B3146A685629BE099FC87C4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1793149.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 792 171
 
 VA - Pop Legends (2000) [OGG Vorbis|480 Kbps] <Pop>
@@ -1920,81 +1995,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1777464.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 777 463
-
-VA - Retro Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Bruno Mars - 24K Magic (3:45)
-02. Pet Shop Boys - Go West (2003 Remaster) (5:04)
-03. Ed Sheeran - Shape of You (3:53)
-04. Madonna - Hung Up (5:36)(   Читать дальше...   )Жанр: PopПродолжительность: 02:24:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:390435BADA7DFDF8DDF443FB35F851D21D3FB6D5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1777463.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 777 205
-
-Michael Gray (Reflex) - Больше чем жизнь (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Тюльпаны [00:04:09]
-02. На одной орбите [00:02:46]
-03. Любовь - Ракета [00:03:05]
-04. Больше чем жизнь [00:03:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:11B64C2A833351C38892887C25ECA793FCAF94B4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1777205.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 776 717
-
-Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Irréel 2 [00:03:19]
-02 - Abracadabra [00:03:20]
-03 - Mes nuits [00:03:04]
-04 - Démon [00:02:16](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B78860EB53A6109B652CAE0CC0FD0C91D9E4746
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776717.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

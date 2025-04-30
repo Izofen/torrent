@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 326 889
+
+VA - Epic Landscapes: Relax Line Music  2019  [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Sonata Kay - Desperate To Forget
+002. 52 - Go For A Swim
+003. The Sura Quintet - Shared Moments
+004. Francesco Digilio - Aphrodite    Читать дальше...    Жанр: Chillout, Lounge, DowntempoПродолжительность: 11:10:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FB3574D5AD328FE18A92A06A34F54CD60C998072
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326889.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 326 829
+
+VA - Autumn Festival Popular Dance Music  2019  [MP3|320 Kbps] <Dance, Pop, House, Club>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Kapoor - Zen
+002. Stedwart - Sunset Loving
+003. Trigger Finger - Guest List
+004. Steve Murrell - 2 Am    Читать дальше...    Жанр: Dance, Pop, House, ClubПродолжительность: 12:34:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B4DC80F213928FAEDDED426BA57F860F1C81E622
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326829.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 326 808
+
+VA - Hot Line Miami: Mixed Emotions  2019  [MP3|320 Kbps] <Club, Dance House, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Motot4 - Good Day
+002. Ava  It  - Focus
+003. Myrt - Reboot
+004. Thereby - The Arsonist    Читать дальше...    Жанр: Club, Dance House, ElectroПродолжительность: 09:33:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EC4687049ADFB0217D838722FBACAAA7E40C5855
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326808.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 326 767
+
+VA - Radio DFM Top D-Chart Сентябрь 2019 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. C-BooL - Catch You 3:13
+02. SAINt JHN - Roses  Imanbek Remix  3:58
+03. Gamper & Dadoni feat. Emily Roberts - Bittersweet Symphony 3:15
+04. Shawn Mendes & Camila Cabello - Senorita 3:11    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:37:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4D874DD7AFC22AE9C8E1995DB7EF86A20905993F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1326767.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 326 758
 
 VA - German Top 100 Single Charts 20.09.2019 [MP3|320 Kbps] <Pop>
@@ -1894,106 +1994,6 @@ VA - не Громкие новинки недели 33  2019  [MP3|320 Kbps] <P
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1323399.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 323 232
-
-VA - Rock Amber Class  2019  [MP3|320 Kbps] <Alternative, Hard Rock, Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Oasis - D you Know What
-002. Riverkinn - Kenophobic
-003. Plan B - Sepia
-004. Peter Hall - Andante Manefestations    Читать дальше...    Жанр: Alternative, Hard Rock, RockПродолжительность: 10:42:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:12367929E514CB7CA3C6BA90772FB0B9E1079263
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1323232.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 323 117
-
-VA - Ambrosium  2019  [MP3|320 Kbps] <R&B, Soul>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Katbrownsugar - Turn It Up
-002. Becky G - Dollar
-003. Lethal Lipps - Wrong Nigga
-004. Michael Kiwanuka - Money    Читать дальше...    Жанр: R&B, SoulПродолжительность: 11:45:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:39C9811BCA7A84B9CD3BD0D49D1220B1E8A0E8AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1323117.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 323 095
-
-VA - Global Dance Party: August 2019  2019  [MP3|320 Kbps] <Dance, Pop, House, Club>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Robert Db - Women Of America  Original Mix 
-002. Mepo - Message  Original Mix 
-003. Gorkiz - Dust  Original Mix 
-004. Harmoníe - Elegua    Читать дальше...    Жанр: Dance, Pop, House, ClubПродолжительность: 08:34:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE03F1515EA97FEF873BD942D131242F7C5F8CC2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1323095.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 323 049
-
-VA - Самые Скачиваемые Треки Интернета Осень 2019 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-1.Макс Корж - 2 типа людей  4:15 
-2.Тима Белорусских - Найду тебя  3:24 
-3.HammAli & Navai - Прятки  3:13 
-4.Billie Eilish - bad guy  3:14     Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:28:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BDB2D96CA05687DBDD823B76BF314125D7B40E3B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1323049.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

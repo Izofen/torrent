@@ -1,4 +1,82 @@
 ﻿
+###  Публикация: 868 824
+
+Celine Dion - The Colour Of My Love  1994  [FLAC|Lossless]<Pop, Ballad>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Power Of Love 5:43 
+02. Misled 3:32 
+03. Think Twice 4:48 
+04. Only One Road 4:49 
+05. Everybody s Talkin  My Baby Down 4:02     Читать дальше...    Жанр: Pop, BalladПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:100FB7A68A6AC5DDF700B683FD5597368B57964A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 868 737
+
+Demis Roussos - Morning Has Broken  2008  [FLAC|Lossless]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+1. Morning Has Broken
+2. Tous les  Je Vous Aime 
+3. Oxygen
+4. Too Many Dreams
+5. Les Mots Qui Font Peur    Читать дальше...    Жанр: PopПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E1A7F6D516B50E7AACCBFB67E73FA3A4F2FA8EC3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 868 438
+
+Iowa - Export  2014  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Я сошла с ума
+02. Мама
+03. Радость
+04. Улыбайся
+05. Одно и то же    Читать дальше...    Жанр: PopПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BB55F9F8A2E470C8B5B0D2585C43C9EE568CEEFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_868438.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 868 262
 
 C.C. Catch - Classics  1989  [FLAC|Lossless]<Disco, Eurodance>
@@ -2183,90 +2261,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 856 206
-
-Mark Medlock & Dieter Bohlen - You Can Get It  2007  Maxi-Single [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. You Can Get It  Single Version 	3:33
-2. You Can Get It  Modern Mix 	3:33
-3. You Can Get It  Karaoke Version 	3:33Жанр: PopФормат: CD, Maxi-Single, EnhancedПродолжительность: 00:18:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:74C16578FFB84CFB0ECDD51B95C23724C90F10E2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_856206.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 855 091
-
-Savage - The Original Maxi-Singles Collection  2014  [FLAC|Lossless]<Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Don t Cry Tonight  12  Version 
-02. Only You  12  Version 
-03. Radio  12  Version 
-04. A Love Again  Special Remix 
-05. Fugitive  12  Version 
-06. Time  12  Version 
-07. Love Is Death  Extended Version 
-08. Celebrate  Military Mix 
-09. I m Losing You  Extended Version 
-10. So Close  Long Version     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9B8C6D76DD1478A1C0EE40DF154A62468BF89C62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_855091.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 854 587
-
-ВИА  Весёлые Ребята  - ВИА  Весёлые Ребята   2000  [MP3|320 кб с]<Pop, Ретро>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Люди встречаются  В. Гаваши - О. Жуков 
-02. Летние каникулы  П. Слободкин - И. Резник 
-03. Как прекрасен этот мир  Д. Тухманов – В. Харитонов 1972 г. 
-04. Ни минуты покоя  В. Добрынин - Л. Дербенев 
-05. Я к тебе не подойду  Д. Тухманов – Л. Дербенев, И. Шаферан запись 1973 г. 
-06. Отчего  Ю. Антонов - Т. Сашко   How Do You Do - Mouth & MacNeal  Van Hemert - Van Hoof 
-07. Алёшкина любовь  С.Дьячков - О. Гаджикасимов запись 1969 г. 
-08. А ты люби её, свою девчонку  Д. Тухманов - М. Ножкин  с кв. Аккорд      Читать дальше...    Жанр: Pop, РетроПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2C1C044B1CD59536652F46DC8E84AA7C28E441CF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_854587.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

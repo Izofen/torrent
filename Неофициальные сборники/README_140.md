@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 084 161
+
+VA - Alternative Classic Rock  2016  [MP3|320 Kbps] <Alternative, Progressive, Hard Classic Rock
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001.Anathema - Restless Oblivion 8:02
+002.Iced Earth - Last December 3:24
+003.Black Sabbath - The Illusion Of Power  Feat. Ice-T  4:54
+004.Down - Lifer 4:36    Читать дальше...    Жанр: Alternative, Progressive, Hard Classic RockПродолжительность: 09:05:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7D695CA3D53C0B0DE8F4ADBCA5AF1B83A6E170C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084161.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 084 152
+
+VA - Зимний шансон года Часть 2  2016  [MP3|256 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001.Виктор Тартанов - Юность 3:45
+002.Сборная Союза - Виноваты Закаты 4:18
+003.Алексей Босота - Одна Лишь Ночь 3:31
+004.Сергей Сорос - Знаешь Я Твой 4:13    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D89DF90252A94CCA3429EDC2AC114196B26C191
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084152.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 084 148
+
+VA - Новогодняя дискотека Русского радио  2016  [MP3|256-320 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Швец - Новый Год  Marta Ray Remix 
+002. Дана Соколова - Разведи Небо
+003. Дядя Жора & Бигуди Шоу - С Новым Годом!
+004. Мулат - Включила Заднюю    Читать дальше...    Жанр: PopПродолжительность: 05:54:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:14935189309C85B226C58A945EFA739D2B92C40D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084148.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 084 014
+
+VA - Новая сотка от Европы Плюс. Версия 50 50  2016  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001.Naaz - Escape 2:45
+002.Filatov & Karas Feat. Masha - Лирика 2:56
+003.Согдиана - Подснежник 4:29
+004.Лизабэт - Забери Меня 3:14    Читать дальше...    Жанр: PopПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A009B8DF29BB7FD4A9430DF1D4FC5341E32E195C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084014.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 084 005
 
 VA - Застольные Золотые хиты Шансон. версия №6  2016  [MP3|256 Kbps] <Шансон>
@@ -1894,106 +1994,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1080979.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 080 968
-
-VA - Resident Advisor Top 50 Charted Tracks November  2016  [MP3|320 Kbps] <Microhouse, Chicago,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Vaal - Wander To Hell  Locked Groove Remix  06:27
-02. Charles Fenckler - Stellar Acid  Original Mix  07:11
-03. Monoloc - Muted 07:14
-04. Rampa - Necessity  Original Mix  07:49    Читать дальше...    Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:21:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C515F3A98FA5A855B333677341E56804970CD5CC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1080968.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 080 963
-
-VA - Зайцев.Нет - Лучшие Новинки Декабря  2016  [MP3|160-320 Kbps] <Поп, Dance, Rock>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01.Альбина - Я люблю тебя 3:58
-02.Imagine Dragons - Levitate 3:18
-03.DNCE - Good Day 3:39
-04.Jukebox trio feat. Burito - Спешите любить 3:42    Читать дальше...    Жанр: Поп, Dance, RockПродолжительность: 03:24:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C096F97400B99D447929C7D0DB81280514C4DC0C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1080963.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 080 945
-
-VA - Specialist Galactic Trance  2016  [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Alex Larichev - Smile Me  Original Mix  7:27
-002. Beat Service & Susana - Reach The Sun  Original Mix  7:42
-003. Lee Osborne - Omission  Original Mix  7:17
-004. Chris Cockerill & Red Sky - Closing In  Original Mix  7:31    Читать дальше...    Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 11:59:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:782DA475382EB7B87266D10F4B6FA6BB9938BFB3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1080945.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 080 942
-
-VA - Blues Forever vol.65 - vol.68  2016  [MP3|320 Kbps] <Blues>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. The Joey Gilmore Band - Night Time Is The Right Time
-02. Rossington - Shame On Me
-03. Karise Eden - Back To Black
-04. Patric Williams - Little Wing    Читать дальше...    Жанр: BluesПродолжительность: 05:14:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F1A834E8A0793D5A8C683D6E74D2DE501B5A91C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1080942.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

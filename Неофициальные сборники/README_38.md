@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 487 120
+
+VA - Свежаки Лета Remix NNM  2021  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Антон Девяткин - Camry  3:44 
+02. Artik Asti - Фурия  DJ Prezzplay Radio Edit   3:30 
+03. Lucky Laura - Party Non Stop  D. Anuchin Radio Edit   2:45 
+04. Dj Slon - Джимми Джимми  Dj Prezzplay Radio Edit   2:41     Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:50:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:78F7C734FAADFAE33CAEBE4A8194E2B9102F83DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1487120.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 487 119
+
+VA - 410 Tracks Whiskey Blues Best of Blues Rock  2021  [MP3|320 Kbps] <Blues, Blues Rock>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Chris Duarte Group -.32 Blues  07:27 
+ 002. Tas Cru - 12 Step Woman  04:38 
+ 003. Andy Balcon - 52 Street Blues  03:57 
+ 004. Chef Eric Band - 1000 Nights  05:27     Читать дальше...    Жанр: Blues, Blues RockПродолжительность: 12:55:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:98302C50B2F5521E3408AB96F65014F0778CDCD2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1487119.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 487 074
+
+VA - Trance Energy: Emotional Electro Mix  2CD   2021  [MP3|320 Kbps] <Trance, Progressive,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+CD 01:
+
+01. Blackstorm - Crystal Skies
+02. Evolving Suns Audio - Outside The Box    Читать дальше...    Жанр: Trance, Progressive, UpliftingПродолжительность: 11:17:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7E3C33910184DC3673FD84C3A9D6DC4D22FC2F87
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1487074.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 487 073
+
+VA - Tropical Jungle Club  2021  [MP3|320 Kbps] <Drum & Bass, Jungle>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Dynamite MC - It s Just What Lovers Do
+002. Amplify - Omg
+003. Brusten - In Motion
+004. Fushara - The Rave    Читать дальше...    Жанр: Drum & Bass, JungleПродолжительность: 08:08:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A640BD378EEB20A04796AE0857B45763D819375B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1487073.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 487 072
 
 VA - The Melancholy Blues  2021  [MP3|320 Kbps] <Blues, Soul>
@@ -1894,106 +1994,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482213.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 482 164
-
-VA - 100 Greatest Alternative 80s  2021  [MP3|320 Kbps] <Rock, Alternative>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. The Smiths - How Soon Is Now?  2008 Remaster 
-02. Joy Division - Love Will Tear Us Apart  2010 Remaster 
-03. Pixies - Monkey Gone to Heaven
-04. New Order - Blue Monday    Читать дальше...    Жанр: Rock, AlternativeПродолжительность: 07:04:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:942E4B6A5E937898A7D7E14B6B1CA4ECD651B824
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482164.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 482 088
-
-VA - Beatport Psychedelic Trance: Sound Pack #316  2021  [MP3|320 Kbps] <Psychedelic Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Algorithium - Unplugged
-002. Tartaruz - Matrix Of Lies
-003. Eat Static - Implant
-004. Ketamane - Lonely Walk    Читать дальше...    Жанр: Psychedelic TranceПродолжительность: 12:41:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90AD1383C14B0B4935F2F524E9D2D94A1A1A3790
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482088.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 482 081
-
-VA - Beatport Tech House: Sound Pack #313  2021  [MP3|320 Kbps] <Tech House, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Julian Iannone - Eclipse
-002. Greg Delon - Cezar
-003. Rex The Dog - Crasher
-004. Roc - Vocalicious    Читать дальше...    Жанр: Tech House, ElectroПродолжительность: 11:56:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2C5AE8A85813AE54232847688DBDE4348C5EC767
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482081.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 482 080
-
-VA - Rock covers  2021  [MP3|320 Kbps] <Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Nirvana - The Man Who Sold The World  4:21 
-02. Frank Carter & The Rattlesnakes - Nothing Breaks Like a Heart  3:30 
-03. Jeff Beck, Johnny Depp - Isolation  5:14 
-04. Halestorm - Get Lucky  3:08     Читать дальше...    Жанр: RockПродолжительность: 06:05:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F4E878C1144CBFC34531B926F4964EF9BFA6B022
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1482080.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

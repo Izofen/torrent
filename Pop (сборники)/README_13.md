@@ -1,4 +1,77 @@
 ﻿
+###  Публикация: 1 671 004
+
+David A. Stewart Featuring Candy Dulfer - Lily Was Here  1989  [OGG Vorbis|480 Kbps] <Electronic
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. David A. Stewart feat. Candy Dulfer - Lily Was Here
+02. David A. Stewart feat. Candy Dulfer - Lily Was Here  Space Centre Medical Unit Hum 
+03. David A. Stewart feat. Candy Dulfer - Lily Robs The BankЖанр: Electronic, JazzПродолжительность: 00:15:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:66C0E19543B78F471427F70F663B70438E92D6E5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1671004.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 670 975
+
+VA - Bravo Hits 8  1994  2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Mo-Do - Eins, Zwei, Polizei
+02. The B.C. 52 s - The Flintstones
+03. Masterboy - Feel The Heat Of The Night
+04. Fun Factory - Take Your Chance    Читать дальше...    Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:32:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0545688C1C68C455B929E8A93E02416A7AFDBB64
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670975.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 670 627
+
+Gina T. - Tokyo By Night  1990  [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Gina T. - Tokyo By Night  The Geisha Groove Mix 
+02. Gina T. - Tokyo By Night  Instrumental Version 
+03. Gina T. - Tokyo By Night  Single Edit Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 00:13:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:56D79AE694152165B0765349271EDEEC70C29561
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1670627.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 670 434
 
 VA - Dos Décadas Dance 2  2002  5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
@@ -1914,81 +1987,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1654776.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 654 400
-
-Silent Circle - Best Of Silent Circle Volume II (1993) [FLAC|Lossless|tracks + .cue] <Eurodance, Ita
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. Hideaway - Man Is Coming (Instrumental)
-02. Touch In The Night
-03. Moonlight Affair
-04. Love Is Just A Word (Long Mix)(   Читать дальше...   )Жанр: Eurodance, Italo-DiscoПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:28E735F6C30F07D802847CAFAFA927F95D1AEF0D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1654400.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 653 452
-
-VA - Vintage Café - The Remixes Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lo
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Anakelly - Speed of Sound (Ronan Remix) (3:25)
-02. Asonne - Flowers (Javier Penna Remix) (2:18)
-03. Nikko Mad - Die for You (3:13)
-04. No.On - What a Wonderful World (Krister Remix) (1:35)(   Читать дальше...   )Жанр: Pop, Easy Listening, LoungeПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B364E341A02468A565BA41A302E515CF0F2B47D4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653452.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 653 447
-
-VA - Zumbadance Workout (2023) [MP3|320 Kbps] <Pop, Latin, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Don Omar - Zumba (4:24)
-02. Feid - Niña Bonita (3:07)
-03. Daddy Yankee - Con Calma (3:13)
-04. J Balvin - In Da Getto (2:10)(   Читать дальше...   )Жанр: Pop, Latin, DanceПродолжительность: 02:51:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6CE5B615F5A259695930AF37D26CF6792CDE2E92
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653447.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

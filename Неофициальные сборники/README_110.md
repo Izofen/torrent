@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 193 582
+
+VA - Hard Rock Division Vol.03  2017  [MP3|320 Kbps] <Hard Rock, Alterhative>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Cheap Trick - Outro
+002. Harman Frank - Roaring Thunder
+003. Rainbow - Snake Charmer
+004. Dream Evil - Blind Evil    Читать дальше...    Жанр: Hard Rock, AlterhativeПродолжительность: 09:03:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E1E66B4992AA614A7C5C096C09D2DEE17224C3D6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1193582.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 193 464
+
+VA - Remix Voyage Vol.2  2017  [MP3|320 Kbps] <Pop, House, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Sergey Sirotin & Golden Light Orchestra  -  Around The World  Johnny Beast Remix   5:41
+02.  ABBA Revival Band  -  Super Trouper  Dance Remixed Version   3:34
+03.  Alan Walker  -  Sing Me To Sleep  DJ Oneon Remix   3:46
+04.  Donna Summer  -  Nice To See You  Radio Club Version   3:27    Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 06:48:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A34F1DDAFC720AF86DC9D514CCF58A3493B5620
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1193464.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 193 389
+
+VA - German Top 100 Single Charts 22.12.2017 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Camila Cabello - Havana  feat. Young Thug 
+004. Justin Bieber - Friends    Читать дальше...    Жанр: PopПродолжительность: 05:43:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B9E24DF8E433E6955301EA829B50BF78876EF5A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1193389.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 193 276
+
+VA - Remix Voyage Vol.1  2017  [MP3|320 Kbps] <Pop, House, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  Hi-Fi  -  Седьмой Лепесток  DJ Golden Love Remix   3:21
+02.  Лариса Черникова  -  Да ты не смейся  Sergey Litvinov Reboot   3:27
+03.  B.G. The Prince Of Rap  -  Never Give Up  B.M. Project Eurodance Remix   4:26
+04.  Liz Project  -  Моя подруга  DJ Sergey Litvinov Remix   3:53    Читать дальше...    Жанр: Pop, House, DanceПродолжительность: 06:27:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7FB765EF3A50FD2730F79B2DC89CC1432601BC0E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1193276.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 193 206
 
 VA - De Top 100 Aller Tijden 1973  Radio Veronica   2017  [MP3|320 Kbps] <Pop, Rock>
@@ -1894,106 +1994,6 @@ VA - Good Story Rock And Roll  2017  [MP3|256-320 Kbps] <Rock and Roll>
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1189692.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 189 581
-
-VA - Absolute 80s Unwind  3 CD   2017  [MP3|320 Kbps] <New Wave, Blue-Eyed Soul, Reggae и др
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-CD1:
-01. Cyndi Lauper - Time After Time 04:02
-02. Fleetwood Mac - Little Lies 03:39
-03. Toto - Africa 04:22    Читать дальше...    Жанр: New Wave, Blue-Eyed Soul, Reggae и другиеПродолжительность: 03:58:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D9EE6A5AAB9860A6C36BD8625D5949E18C3CB36
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1189581.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 189 574
-
-VA - Dance Charts - Dance 50  Dazu Tanzt Ganz Deutschland   26.11.2017  [MP3|192-320 Kbps] <
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Stereoact, Voyce - So soll es bleiben
-02. Alan Walker - The Spectre
-03. Ofenbach vs. Nick Waterhouse - Katchi
-04. Robin Schulz & Hugel - I Believe Im Fine    Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:27:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:24A005795D75DD12D09B541988F527C7FE696C3D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1189574.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 189 565
-
-VA - По волне моей памяти 2: Том33  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Рок
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Жанна Агузарова и  Браво   -  Верю я  3:04
-02.  Браво  -  Вася  3:17
-03.  Любэ  -  Там за туманами  3:49
-04.  Неприкасаемые  -  За окошком месяц май  4:09    Читать дальше...    Жанр: Поп, РокПродолжительность: 02:07:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F336CAE4C36B5A88D2A8CB7436B5A9339DD6ACCA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1189565.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 189 556
-
-VA - По волне моей памяти 2: Том32  Compiled by Виктор31RUS   2017  [MP3|320 Kbps] <Поп, Рок
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  А-Студио  -  Солдат любви  3:55
-02.  Браво  -  В пятницу вечером  3:13
-03.  Дискотека Авария  -  Некуда деваться  3:46
-04.  Любэ  -  Песня о друге  3:04    Читать дальше...    Жанр: Поп, РокПродолжительность: 02:05:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F0FFCAD286611854C22756125575EE092401C41F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1189556.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 252 711
+
+VA - School Days - The Ultimate Collection  2018  5CD [MP3|320 Kbps] <Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 01:
+01. Human League - Don t You Want Me
+02. Soft Cell - Tainted Love
+03. Madness - Baggy Trousers    Читать дальше...    Жанр: Pop, RockПродолжительность: 05:42:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AF3C20AE2CA6A32678517142C9FDA75377855F8B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252711.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 252 614
+
+Loreen - Ride  2017  [FLAC|Lossless|tracks] <Pop, Electronic, Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01.  71 Charger  4:12 
+02. Dreams  4:40 
+03. Jupiter Drive  5:25 
+04. Fire Blue  4:20     Читать дальше...    Жанр: Pop, Electronic, RockПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4D5798B45B1C36A9BFF3EA407A5D3ACDAFFAEF3F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252614.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 252 343
+
+Carol Lloyd - Score  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Score  4:11 
+02. Sundown To Sunrise  4:32 
+03. Plans For Tomorrow  6:52 
+04. Shake Me Wake Me  3:51     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E6F576A66C4EED2946D1B59D48D832733CE477D8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252343.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 252 244
 
 VA - Italian Lover Sexual Hits  2017  [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop>
@@ -1912,81 +1987,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246277.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 246 172
-
-VA - Hits Rewind 90s  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Brandy, Monica - The Boy Is Mine  Radio Edit 
-02. Alannah Myles - Black Velvet
-03. En Vogue - Don t Let Go  Love 
-04. Donna Lewis - I Love You Always Forever    Читать дальше...    Жанр: PopПродолжительность: 02:23:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:823190FF63BCECFBC11D4876B28BC7145B5F4DCC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246172.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 246 168
-
-Екатерина Шаврина - Ой мороз, мороз...  2001  [FLAC|Lossless|image + .cue]<Pop, Retro, Folk>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Ой, мороз, мороз
-02. Как у наших ворот
-03. Кабы Волга - матушка
-04. Заставил меня муж    Читать дальше...    Жанр: Pop, Retro, FolkПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F1FDE44BE7D7C5F31B45DEB89BEDD06B239C54C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246168.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 246 167
-
-Акула  Оксана Почепа  - Без любви  2002  [FLAC|Lossless|image + .cue]<Pop, Dance>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Полюби
-02. Девочка
-03. Я так хочу
-04. Рада    Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6E0E8ED2816D2EFAD2BE5EFE8C8BE76C5FA9363E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246167.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 854 836
+
+VA - Дискотека 2015 - Танцуют Все!  2014  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Александр Шоуа  ex. Непара  - Я и Ты
+02. Enrique Iglesias & Gente De Zona & Descemer Bueno - Bailando
+03. Ёлка - Нарисуй Мне Небо
+04. Clubhunter - Together Again  Turbotronic Radio Edit 
+05. Coldplay - A Sky Full Of Stars
+06. Mark Sixma - Adagio For Strings
+07. Монако Project - Давай Влюбимся В Следующий Раз
+08. Turbotronic - Big Dada
+09. Инфинити - Крылья
+10. The Script - Superheroes    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:09:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0294586519CFAC6AA99778425FC4B527CB774458
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_854836.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 854 773
+
+VA - Русские Новинки Vol.161  2014  [MP3|320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Марсель - Как Жаль  DJ Balashov Remix 
+002. Даша Суворова - Пеналы
+003. DJ Nejtrino & DJ Yonce feat. Elia - Moscow Night
+004. Карандаш feat. Пицца - Отражение
+005. Лена Катина - Just A Day
+006. Xuman - K.O.
+007. Alien24 - Fantom
+008. Александр Панайотов - Ванильное Небо
+009. Трио S-Klass - Леди Вамп
+010. Тимати - Где Ты    Читать дальше...    Жанр: PopПродолжительность: 06:02:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F60E6AA43F6FB477FB7B4839DE51385326E4AB4A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_854773.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 854 771
+
+VA - Русские Новинки Vol.160  2014  [MP3|320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Тимати feat. Павел Мурашов - Приём-приём
+002. K.Melody - Образ Твой
+003. Лерика и Александр Ревва - Мир Танцует С Нами
+004. Alien24 - Hypnosis
+005. Баста и Смоки Мо - Старая Школа
+006. Сосо Павлиашвили и Леонид Агутин - Больше Нет Слез
+007. Alex Kafer & Lera feat. Ural DJs - Алешка
+008. A-Sen feat. DJ Nejtrino & DJ Baur - Я Рисую  Extended Mix 
+009. Блокбастер - Девушка-печаль
+010. Александр Лир - Дневник Памяти    Читать дальше...    Жанр: PopПродолжительность: 06:02:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C108F338BCF0E6D0FD7CC68CCB0E9CEFA986F0E6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_854771.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 854 769
+
+VA - Зарубежные Новинки Vol.175  2014  [MP3|320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Faith Evans feat. Keke Wyatt - Make Love
+002. Ed Sheeran - Make It Rain
+003. Griz feat. Orlando Napier - A Fine Way To Die
+004. Eli & Fur - Turn The Lights Down
+005. Fabolous feat. French Montana - Ball Drop
+006. Camila feat. Ricky Martin - Perdon
+007. Marilyn Manson - Deep Six
+008. Nicki Minaj - I Lied
+009. Jodeci feat. B.o.B. - Nobody Wins
+010. Mark Ronson feat. Kevin Parker - Daffodils    Читать дальше...    Жанр: PopПродолжительность: 06:23:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F8CF7DE6D413FA0DDA1671EB6C328E25FA632B7E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_854769.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 854 766
 
 VA - Atmospheric & Progressive Breaks Vol.7 [Compiled by Zebyte]  2014  [MP3|320 кб с]<Atmosph
@@ -2314,130 +2438,6 @@ Electronic (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:4B000597766C2B0EE923581E247C7266550E66F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 851 020
-
-VA - Marys Jazzlounge Vol 2  2014  [MP3|320 кб с]<Jazz, Downtempo, Chillout, Lounge>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Alessandro Garofani- Mary s Jazzlounge, Vol. 2 - DJ Mix - Continuous DJ Mix
-02. Maximillion-Bolero rosso
-03. Axel Kuhn-The Swing Samba
-04. Naoki Kenji-Don t Know the Words
-05. Pier-O-Red Sunset
-06. Slackwax- Horny
-07. Tape Five-A Bossa Love
-08. Alex Cortiz- Mindwalk
-09. Kokoz- Ohm - Kenichiro Nishihara Remix
-10. Kruse-More & More - Nick Arara s Bonus Edit    Читать дальше...    Жанр: Jazz, Downtempo, Chillout, LoungeПродолжительность: 02:30:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E6EC46E1B6440B0F86B504B2A232FC3CC098153F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 851 014
-
-VA - Future Garage Vol.22  2014  [MP3|192-320 кб с]<Future Garage>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Hijaq - Be With Me This Winter [05:21]
-02. E.Lemental - Frozen [04:23]
-03. Synthetic Epiphany - Ancients [04:09]
-04. Tropics - Blame  Pensees Remix  [04:16]
-05. Feverkin - Sinking  Feat. Nori  [03:51]
-06. Herbert - It s Only  Kubrick s Cube Remix  [04:52]
-07. Vacant - Let Go [04:02]
-08. Asterisms - Stay Together [03:37]
-09. Lorn - Batty s Theme [04:08]
-10. Pensees - Chronicle [07:13]    Читать дальше...    Жанр: Future GarageПродолжительность: 02:17:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FDBDA033450091B4042F50001536599D8939FF4D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_851014.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 851 002
-
-VA - Музыкальные новинки. Сборник 50 50  2014  [MP3|320 кб с]<Pop, Dance>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Лолита - Ожидание 03:29
-002. Hoodie Allen - Get It On The Low 03:42
-003. Артём Артемидов - Живи 03:27
-004. A-Sides Feat. Spikey Tee - Reminisce 05:35
-005. Пицца - Море-Море 03:30
-006. Paloma Faith - Beauty Remains 03:36
-007. Иван Дорн - Весна 03:26
-008. Nickelback - What Are You Waiting For 03:40
-009. Sakis Rouvas - Pio Psila 03:42
-010. Степан Вовкун - Я Кохаю Тебе А Ти 03:29    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:17:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A5FE9B800777FFBCB160D56595F50D4BDD01D3E7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 850 995
-
-VA - TOP 100 Зайцев Нет. Декабрь  2014  [MP3|256-320 кб с]<Pop, Dance, House, Chanson, Rock, R
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. DJ Noiz feat. Asti - Зацелую  Radio Mix  03:15
-02. Hudson Mohawke - Chimes 02:03
-03. Papa Roach - Face Everything & Rise 02:03
-04. Потап и Настя - Манго 02:24
-05. 30.02 - Примером 02:26
-06. Inna - Faded  So Good to Me  02:39
-07. 30.02 - Когда я увижу море 02:49
-08. Елена Князева и Лок Дог - Вино 02:49
-09. Kavabanga feat. Depo & Kolibri - Солнечный Зайчик 02:53
-10. Avallo, Cvpellv, White Gangster - Touch It 03:02    Читать дальше...    Жанр: Pop, Dance, House, Chanson, Rock, Rap, Hip-HopПродолжительность: 06:20:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A0B9E332FB0635F475ADCF06DFACFFDE8E11A1A7
 ```
 
 <div id="header" align="center">

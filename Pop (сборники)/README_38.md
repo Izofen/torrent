@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 437 213
+
+Группа «Экспресс» - Застольные песни, часть 2  2020  [MP3|320 Kbps] <Pop, Folk>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Выйду на улицу
+2. Марусенька
+3. Верила, верила, верю
+4. Милый мой дедочек    Читать дальше...    Жанр: Pop, FolkПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:907F4B5E1AF427A4F6446186AEEADC5E6347B224
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1437213.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 437 106
+
+VA - From Sweden With Love - The Next Generation  2006  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Knife   Silent Shout 04:53
+02. Peter Bjorn and John   Young Folks 04:39
+03. Vapnet   Färjemansleden 03:35
+04. Timo Räisänen   Let s Kill Ourselves a Son 03:15    Читать дальше...    Жанр: PopПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE62E4DC44BAACFF6CBCE60A359D3901C3841F57
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1437106.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 437 002
+
+Karizma Duo - Late Night Karizma  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Sail On  4:03 
+02. Dream a Little Dream of Me  3:14 
+03. Feel  3:15 
+04. Mandy  2:50     Читать дальше...    Жанр: PopПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1A9C20263B498DDA335B04A93872C9D5C8FDFB60
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1437002.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 436 356
 
 Deborah Washington - Any Way You Want It  1978  LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -1919,81 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1427613.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 427 605
-
-Sade - Diamond Life  1984  Epic CD 26044 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Conte
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Smooth Operator  5:00 
- 02. Your Love Is King  3:59 
- 03. Hang on to Your Love  6:01 
- 04. Frankie’s First Affair  4:38     Читать дальше...    Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59B53123FDFE2394FF0D92FC9E99CF7C5745C07C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1427605.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 427 579
-
-Limelight - Love Me Forever  2020  [MP3|320 Kbps] <Electronic, Italo-Disco, Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Love Me Forever  Intro    1:55 
-02. Summer Lovers   6:14 
-03. Say That You Love Me   6:03 
-04. Our Day Will Come   6:36     Читать дальше...    Жанр: Electronic, Italo-Disco, Euro-DiscoПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E2EC479DCA5ADCCA9D8DDFC311A2FE6D48EF9ABA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1427579.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 427 414
-
-VA - Pop 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Chelsea Cutler - Sad Tonight  2:58 
-02. blackbear - hot girl bummer  3:08 
-03. BENEE, Gus Dapperton - Supalonely  3:43 
-04. Conan Gray - Maniac  3:05     Читать дальше...    Жанр: PopПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E1696D132054A353A22BCCE9D1CB0D342CAC3D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1427414.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

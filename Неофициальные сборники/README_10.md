@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 691 389
+
+VA - Sonatas For The Soul  2024  [MP3|320 Kbps] <Neoclassic, Classic, New Age>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Volpe Dj Ago - Spring In Dresden01. Volpe Dj Ago - Spring In Dresden [01:05]
+02. Davez - Piano Melody [01:28]
+03. Otto A Totland - Letin [03:17]
+04. Charmolipi - Roads [03:53]    Читать дальше...    Жанр: Neoclassic, Classic, New AgeПродолжительность: 03:52:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5ACC941B654B3C30AB5D1D5EFAE93D010C888CDD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1691389.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 691 334
+
+VA - Mega Dance Hits Collection  1990-2001  [MP3|320 кб с] <Eurodance, Euro-House, Pop, Techno
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+0001. Mr. John - It s Not Too Late  Extended Club Version 
+0002. King Of Paradise - Give Me Your Love  My Desire Mix 
+0003. Space Master - World Of Confusion  Extended Mix 
+0004. DJ Bobo - Respect Yourself  B+B Remix     Читать дальше...    Жанр: Eurodance, euro-house, pop, technoПродолжительность: 465:02:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:14329F610744D7CFA4E296740B526D00046D2B2C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1691334.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 690 826
+
+VA - Лучшие песни Радио DFM за 2023 год  2024  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Miley Cyrus - Flowers  3:20 
+002. David Guetta feat. Anne-Marie x Coi Leray - Baby Dont Hurt Me  2:20 
+003. Purple Disco Machine feat. Kungs - Substitution  3:01 
+004. Tiesto - Lay Low  2:33     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 05:11:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70FA2CFE3B6DF22C28FDBBD8DF7E5BAD42FBA2FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1690826.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 690 573
+
+Muvi - Compilation  2024  [MP3|320 Kbps] <Electronic>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.  Zara
+ 02.  Paradise
+ 03.  Kiss Me
+ 04.  Need Help Me Friend    Читать дальше...    Жанр: ElectronicПродолжительность: 01:34:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:68E5B9FD9298EE8B6DA0C8B7A8900BDD3C4C036B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1690573.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 690 566
 
 VA - Лучшие песни Наше радио за 2023 год  2024  [MP3|320 Kbps] <Rock>
@@ -1894,106 +1994,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679669.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 637
-
-VA - Western Mood  2023  2CD  [MP3|320 Kbps] <Country>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Brandy Clark - Buried [03:06]
-02. Madeline Edwards - Mama, Dolly, Jesus [02:45]
-03. The Highwomen - The Chain [04:52]
-04. Monroe Crossing - There s No Place Like Home For The Holidays [03:00]    Читать дальше...    Жанр: CountryПродолжительность: 07:45:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2463E934379525D6E1430039D0AFCBB3ACE2062F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679637.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 503
-
-VA - Музыка для машины Vol.44  2023  [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. 3-ий Январь - Спой Со Мной  02:37 
-02. Юлия Беретта - Диско  03:27 
-03. Сергей Одинцов - Мы Вдвоем  04:06 
-04. D.I.P Project - Сочинять Сны  Dance Mix   03:43     Читать дальше...    Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F50E9010CCD2FD7C98FDF1FF6637F5E0A31BEFE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679503.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 228
-
-VA - Music News vol.318  2023  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Emmett Zetto feat. Talentless - Sexy  01:47 
- 002. 7 Skies - Tokyo777  03:01 
- 003. Adil - Сердце Мое  02:48 
- 004. ADRIAN HIS - London  02:26     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 11:43:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EBBF3C67EB2B1182C6D944D2648B7AC29088F431
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679228.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 163
-
-VA - Музыка для машины Vol.43  2023  [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Anthony Keyrouz Feat. & Offrami & Jeannette - Tell Me How  Techno   01:52 
-02. Сослан Джиоев - Снова  03:18 
-03. Нана Тибилова - Брат И Сестра  03:55 
-04. Shallou - Losing Focus  03:34     Читать дальше...    Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:41:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:32C327A307DAF99162C01A5A862DBF9A49AA94C0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679163.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

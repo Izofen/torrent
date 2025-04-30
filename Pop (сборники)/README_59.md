@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 295 688
+
+Лолита - Лучшее  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Шпилька-каблучок
+2. Пошлю его на
+3. Ориентация Север
+4. Я    Читать дальше...    Жанр: PopПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE3F11C16E5B217627A152F1487F78CF9B161BDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295688.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 295 663
+
+VA - 100 Greatest Number Ones  2019  [MP3|320 Kbps] <Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+001. Clean Bandit - Solo  feat. Demi Lovato   3:42 
+002. Rudimental - These Days  feat. Jess Glynne, Macklemore & Dan Caplen   3:31 
+003. Lukas Graham - 7 Years  3:57 
+004. Charlie Puth - Marvin Gaye  feat. Meghan Trainor   3:10     Читать дальше...    Жанр: Pop, RockПродолжительность: 06:16:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B0D04D46B248934E84592E570E03FCC48A8BD599
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295663.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 295 618
+
+Анжелика - Над Облаками  2003  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Над Облаками
+02. Я Люблю
+03. Запрещу Тишину
+04. Дождь    Читать дальше...    Жанр: PopПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AEE90612EED2ABCF2625738E1F8EE6C48F66A440
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1295618.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 295 505
 
 VA - The Definitive Harem Records 12     1997  2CD [MP3|320 Kbps] <Electronic, Disco, Hi-NRG
@@ -1916,78 +1991,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1292557.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 292 480
-
-Sumeria - Golden Tears  1977  LP [MP3|320 Kbps] <Electronic, Downtempo, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Dance And Leave It All Behind You  4:47 
-02. The Encounter  5:27 
-03. Cosmic Traveller  2:58 
-04. Somewhere, Elsewhere  4:42     Читать дальше...    Жанр: Electronic, Downtempo, DiscoПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6E55389E4B1B32A6B9C327FB93976A13D948B2F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1292480.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 292 458
-
-Amy Correia - Christmas in L.A.  2000  Single [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Christmas in L.A.  feat. The Tinseltown Tabernacle Choir   4:15 Жанр: PopПродолжительность: 00:04:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7AEFDE6CA5AFE1F41EFCD6BFC457C5CB071053B6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1292458.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 292 353
-
-Artik & Asti - 7  Part 1   2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Забудешь
-2. Грустный дэнс  feat. Артём Качер 
-3. Под гипнозом
-4. По проспектам    Читать дальше...    Жанр: PopПродолжительность: 00:24:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F919D76329266C3F709DDD8F368F4FC8FB58CCC8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1292353.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

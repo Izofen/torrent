@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 600 258
+
+VA - Best of the Best 2022 [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Taylor Swift - Anti-Hero  3:20 
+02. TALK - Run Away to Mars  3:33 
+03. Yung Gravy - Betty  Get Money   2:26 
+04. Reve - CTRL + ALT + DEL  2:37     Читать дальше...    Жанр: PopПродолжительность: 01:56:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0E142EB8F37901D5CD9E2161D793A6BC5207E99B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600258.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 600 224
+
+Jonasu - Cutting Through Noise  2022  [FLAC|Lossless|WEB-DL|tracks] <Dance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Why Don t We
+02. Black Magic
+03. On My Mind
+04. All Night & Every Day    Читать дальше...    Жанр: DanceПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2CFBC8E81C48F66BEBB751FEC36E26CFCF8E683D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600224.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 600 176
+
+Michael Kistanov - All About You and Me  2022  [MP3|320 Kbps] <Pop-Rock, Folk>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - The Story Has Just Begun [00:04:08]
+02 - I Fell in Love with You [00:03:25]
+03 - Happy Days [00:03:18]
+04 - We Just Lived [00:03:46]    Читать дальше...    Жанр: Pop-Rock, FolkПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7855F089C1F5444DC8FA7151647F616674731A00
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600176.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 600 154
 
 Manizha - Колыбель для повзрослевшего  2022  [MP3|320 Kbps] <Alternative Pop, Ethno Pop, Electro
@@ -1912,80 +1987,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591510.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 386
-
-Michael Jackson - Thriller 40  1982  2022, Epic Legacy [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Wanna Be Startin  Somethin   6:03 
-02. Baby Be Mine  4:20 
-03. The Girl Is Mine  3:42 
-04. Thriller  5:58     Читать дальше...    Жанр: PopПродолжительность: 02:38:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:997957B30EEBC900F244824D0D3704C1009B3EE4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591386.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 338
-
-Dead Blonde - 3 альбома, 6 синглов  2020-2022  [MP3|320 Kbps] <Pop  Поп>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2020 - Пропаганда
-2021 - Княжна из хрущёвки
-2022 - Сплетница    Читать дальше...    Жанр: Pop  ПопПродолжительность: 01:48:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14E9D34ECD698F5B6B90839CB8A841DFCC4A853F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591338.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 069
-
-Tempo Rubato - Music  85  1985  LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Music  85  19:02 
-02. Don t Stop The Classics  10:45 
-03. Let s Stay Together  7:28 Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C692B64CC6D4268CFAA9A47005C144CD5DBB58E0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591069.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

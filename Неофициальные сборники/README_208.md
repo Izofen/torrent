@@ -1,4 +1,124 @@
 ﻿
+###  Публикация: 798 318
+
+VA - В Шансоне. Выпуск 11  2014  [MP3|256 кб с]<Шансон, Авторская песня>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Сергей Пестов - Шиза
+02. Лешиморы - Чурбан-Оглы
+03. Игорь Май - Далеко
+04. Эдвард Айдынов - В Ресторане
+05. Рождество - Цветы Для Маши
+06. Виктор Тюменский - Взлететь
+07. Артур Алибердов - Грешная
+08. Граф Гагарин - Детка
+09. Сергей Гвоздика - Зима И Весна
+10. Олег Гетманский - Жить Не Любя    Читать дальше...    Жанр: Шансон, Авторская песняПродолжительность: 06:03:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A005829E1F61183BDE329FBFD2A30845B73F989
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 798 315
+
+VA - Фитнес Хит  2014  [MP3|320 кб с]<Dance, Pop, House, Rock, Drum & Bass>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. B-Case - Lucky L [03:41]
+02. Cascada - Blink [03:51]
+03. Fort Minor - Remember The Name Feat. Styles [03:50]
+04. Enrique Iglesias - 3 Letters  feat. Pitbull  [03:55]
+05. Linkin Park - A Light That Never Comes  feat [03:51]
+06. Knife Party - Internet Friends  VIP Жанр: Dance, Pop, House, Rock, Drum & BassПродолжительность: 04:33:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A73639CE8FC4130643FC8D47E279E049860844C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 798 043
+
+VA - Летний Хит-Релиз  2014  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Ангелия - Неразлучные
+02. Dj Saha Dith Feat. Винтаж - Позови Меня
+03. Indira - Не Стирай Меня
+04. Ани Лорак - Оранжевые Сны
+05. Дима Билан - Малыш
+06. Izabella - Под Солнцем
+07. Девушки Эйнштейна - Парни
+08. Reflex - Лето На Окна
+09. Полина Гагарина - Нет
+10. Анна Седокова Feat. Sender - Между Нами    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:13B7F6D8F23AE7F35DF1F615C40990CDCADA9FB9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 798 041
+
+VA - 100 Лирических песен для Любимой  2014  [MP3|256 кб с]<Pop, Dance, Disco, R&B>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. A-Ha - Lifelines
+02. No Doubt - Don t Speak
+03. Ten Sharp - You
+04. Chris Rea - Lookin For The Summer
+05. Emma Bunton - Life In Mono
+06. Johnny Mathis - Feelings
+07. Joan Osborne - One of us
+08. Wye Oak - Civilian
+09. Gazebo - I Like Chopin
+10. Clare Teal - Paradisi Carouse    Читать дальше...    Жанр: Pop, Dance, Disco, R&BПродолжительность: 07:11:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9DF424F85930078F19CCA2388B53EC84F56D70C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 798 040
 
 VA - Фитнес Хит Vol.2  2014  [MP3|320 кб с]<Club, House, Electro, Trance, Pop, Rock>
@@ -2330,124 +2450,6 @@ VA - Need For Speed - Летний Выпуск  2014  [MP3|320 кб с]<Dance, 
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_795338.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 795 331
-
-VA - Авто Звук. Музыка для Комфортной езды  2014  [MP3|320 кб с]<House, Dubstep, Drum & Bass>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Vogel - Night City  Makeup and Vanity Set Remix 
-02. Mochipet, Ben Samples - The Battle of Dinotropolis
-03. Jerry Ropero, Eddy Cabrera, Terri B - Soul Heaven  Peter Brown Mix 
-04. Chad Tyson - Don t give A Damn!  Original Mix 
-05. Torha, Earstrip - S.W.A.G  Original Mix 
-06. Klangkarussell - Fallin Sonnentanz  Ronnsn Bootleg 
-07. Sander Van Doorn & Firebeatz - Guitar Track  Kayliox Remix 
-08. Steve Brian - Brooklyn Bazar  Original Mix 
-09. Queen - We Will Rock You  Dean Cohen Remix 
-10. Cielo - Erotica  Deep in vogue mix     Читать дальше...    Жанр: House, Dubstep, Drum & BassПродолжительность: 09:28:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B75622AD4D33FB86209B6A17F37AEB2E097D4022
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 795 327
-
-VA - Музыка Для Тренировок  2014  [MP3|128-320 кб с]<Pop, Dance, RnB, Rap, Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. 30 Seconds To Mars - Attack
-02. Young Jeezy Feat. Kanye West - I Put On
-03. Vnv Nation - Off Screen
-04. The Weeknd - Wicked Games Girls Vocal Dubstep Remix
-05. The Stone Roses - Love Spreads
-06. The Pussycat Dolls - Jai Ho Dj Fisun Extended Remix
-07. Pulp - Common People
-08. Pink - Blow Me
-09. Mario - Let Me Love You
-10. Ghost Loft - So High    Читать дальше...    Жанр: Pop, Dance, RnB, Rap, RockПродолжительность: 06:42:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B78D238AF2ED68FDB53A33784B28055DF0E64982
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 795 319
-
-VA - Top 100 Dance Party  2014  [MP3|320 кб с]<Pop, Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Sasha Lopez Feat. Radio Killer - Perfect Day  Andrew Beat Remix 
-02. Jake Dile & Jon Spoon - Play The Music  E playerz Remix Edit 
-03. Ron Rockwell - Back On My Knees  Whiteburg Edit 
-04. Stereofunk - 4 Da Ladies  Tagteam Terror Remix 
-05. Talkbox - No Consciousness  Fernando Mello Remix 
-06. Davis Redfield Feat. Carl Man - Music Gods  Original Mix 
-07. Jose Spinnin Cortes - Lentamente  Jose Spinnin Cortes Remix 
-08. Lancelot Feat. Ngaiire - Truth  Original Mix 
-09. Antoine Clamaran - Breaking Into My Heart  Original Mix 
-10. Rezarin - Revelation  Digital Affliction Remix     Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 09:11:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F89AC7395729CF8FFE2C6CCC182EECA762184FAE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 795 070
-
-VA - Heavy Gaming Vol.01 - 18  2014-2015  [MP3|128-320 кб с]<Rock Metal>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Frank Klepacki - Hell March  Command & Conquer Red Alert  [00:06:22]
-02. C. PortwinT. StasicaF. Love - Instability  Hunter The Reckoning  [00:02:32]
-03. Yoshihiro Sato - High Powered Drivin  Cyber Org  [00:04:27]
-04. Pentakill - Last Whisper  League Of Legends  [00:03:37]    Читать дальше...    Жанр: Rock MetalПродолжительность: 17:53:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A142F9F0D1E4F3CF6CD02048DC5B7931D2FF8EC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_795070.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

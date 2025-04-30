@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 000 495
+
+VA - Дискотека 2016 Dance Club Vol.150 от NNNB  2016  [MP3|192-320 кб с] <Club, Dance  Trance,
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Calvo feat. Gigi - Made For Us  Radio Edit 
+02. Alexandra Stan - Ecoute
+03. DJ Emil Rocks - Feel of freedom  P.R. Project Remix 
+04. Stage Rockers & Dessy Slavova - Go Away  Radio Edit     Читать дальше...    Жанр: Club, Dance  Trance, House, Dubstep, Pop,  Breaks, Trap,  Bass, Chill OutПродолжительность: 10:10:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:245981881C9D2467F2AC6ECD8EA645A582D97179
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000495.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 456
+
+VA - Sailing Out Lounge  2016  [MP3|320 кб с] <Lounge, Chillout>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Don Gorda Project - Surfing Emotional Waves  05:45 
+02. Aquarius - The Midnite Call  05:59 
+03. Spiridion - Jazztrain  05:36 
+04. Enrico Donner - Golfinhos  05:57     Читать дальше...    Жанр: Lounge, ChilloutПродолжительность: 01:27:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D47D6B01B2C3B854FE7593CC794AFC08E69B0894
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000456.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 449
+
+VA - Old Time Rock And Roll  2016  [MP3|320 кб с] <Rock and Roll, Blues Rock, Country>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. The Blue Notes - My Hero
+002. Del Shannon - The Swiss Maid  Radio Version 
+003. Little Richard - Can t Believe You Wanna Leave
+004. Perez Prado and His Orchestra - Cherry Pink and Apple Blossom White    Читать дальше...    Жанр: Rock and Roll, Blues Rock, CountryПродолжительность: 04:11:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:051FC6F560D3A090BAA19D1B7372FBE9E4594A20
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000449.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 391
+
+VA - Euro House Flowers Melody  2016  [MP3|264-320 кб с] <House, Tribal, Bigroom, Future House
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Don Diablo - Tonight  Extended Mix  03:57
+002. Breathe Carolina & Shanahan Feat. Haliene - Stars & Moon  Apek Remix  03:25
+003. Cj Stone Feat. Jonny Rose - Wait Up For Me  Radio Edit  03:31
+004. Jota M - Acariciame Y Besame   New Remix   04:17    Читать дальше...    Жанр: House, Tribal, Bigroom, Future House, Nu-DiscoПродолжительность: 07:58:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:27AEEE56B103FC9EA90D8FBC8E38C361706C5132
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000391.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 000 298
 
 VA - Шансон Удачный 8  2016  [MP3|256 кб с] <Shanson>
@@ -1894,106 +1994,6 @@ VA - Самые Лучшие. Медленные Песни Vol.2  2016  [MP3|32
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996516.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 507
-
-VA - Sentimental Dialoguel: Rock Blues Classic  2016  [MP3|320 кб с] <Blues, Rock Blues>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Jimmy Witherspoon - Good Rocking Tonight
-002. Rush - Cold Fire
-003. B.B. King. Ruth Brown - You re the Boss
-004. Neil Young And Crazy Horse - Blue Eden    Читать дальше...    Жанр: Blues, Rock BluesПродолжительность: 10:12:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1795BDFD860B5FD2DAABB85649C36B4D045F5F08
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996507.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 496
-
-Андрей Вох - Чё дают?  1987  [MP3|320 кб с] <Шансон, Авторская и Военная песня  сборники >
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Вступление
-02. Письмо проститутки в журнал Огонек  Не ради шутки 
-03. Старый дом
-04. Банда самосовцев    Читать дальше...    Жанр: ШансонПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C52CFB49F0A252A615595F413C6476B192D34EF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996496.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 492
-
-VA - Lounge Lux Smiel: Italian Set 80-90s  2016  [MP3|320 кб с] <Disco, Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Adriano Celentano - Il Tuo Bacio E  Come Un Rock
-002. Camaleonti - L Ora Dell Amore
-003. Cugini Di Campagna - Anima Mia
-004. Bobby Solo - Una Lacrima Sul Viso    Читать дальше...    Жанр: Disco, Pop, DanceПродолжительность: 05:54:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05EA3F7C4547054C26BE5DE7C59DC91C644F57FB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996492.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 474
-
-VA - За друзей. Легендарные хиты 90х  2016  [MP3|320 кб с] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Владимир Черняков - За друзей
-02. Михаил Круг - Владимирский Централ
-03. Иван Кучин - Человек В Телогрейке
-04. Геннадий Жаров и группа Амнистия 2 - Ушаночка    Читать дальше...    Жанр: ШансонПродолжительность: 03:59:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:69B7A184A17B1E06F50DA188E5FEB6F1C317E10B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996474.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

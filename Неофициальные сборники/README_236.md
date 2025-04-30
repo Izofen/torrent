@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 555 638
+
+VA - Эксклюзив осенних хитов  2012  [MP3|128-320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Alena Barcelona feat. GTM - life - Ты не знаешь слова Нет  Ночной Мир Project Club Mix 
+02. Олеся Астапова - Я И Ты  Версия 2012 
+03. The Scene & Selena Gomez - Love you like a love song  The Alias radio edit 
+04. DJ Niki feat. Soda - Она Не Ты  Radio Edit 
+05. Точка G Feat. Funky Flo - Я Убита, Ты Попал  Dance Version 
+06. Инфинити - Другая  Tony Kart & Andy Groove feat. DJ Pavel Velchev Remix 
+07. Градусы - Время мое
+08. Soda - Разлука
+09. Clark Owen feat. Лена Катина - Melody
+10. Юлия Беретта - Такси    Читать дальше...    Жанр: PopПродолжительность: 06:09:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7AA23FF39274F91D56C4CAF4AEAF44154923BC0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_555638.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 555 447
+
+VA - Kiss FM - Top-40  02.10.2012  [MP3|320 кб с]<Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Armin van Buuren - Orbion
+ 02. Parachute Youth - Can t Get Better Than This  Original Mix 
+ 03. Gotye - Somebody That I Used To Know  Dberrie Rmx 
+ 04. Florence & The Machine - Spectrum  Calvin Harris rmx 
+ 05. Dada Life - Happy Violence  Vocal Extended Mix 
+ 06. Orjan Nilsen - Amsterdam  Original Mix 
+ 07. W&W & Bree - Nowhere To Go  Shogun Rmx 
+ 08. Armin Van Buuren - We Are Here To Make Some Noise
+ 09. Skrillex & Members of The Doors - Breakn  A Sweat  Zedd Rmx 
+ 10. Zedd & Matthew Koma - Spectrum  Armin Van Buuren Rmx     Читать дальше...    Жанр: DanceПродолжительность: 03:34:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3BFF615AD91BD9BD5CEE688F128B6971C4F77DD7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_555447.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 555 337
+
+VA - Хиты 2012 Русский Шторм  2012  [MP3|112-320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001.  A.R.M.I.Ya - Клянусь
+ 002.  A-Dessa - Fire  Нет Wifiя Mix 
+ 003.  Aleksandr Shoua  Ex. Nepara  - Солнце Над Моей Головой
+ 004.  Alena Barcelona Ft Gtm-Life - Ты Не Знаешь Слова Нет  Ночной Мир Project Club Mix 
+ 005.  Alexey Romeo & Алина Артц - Прекрасная Ложь  With Love Remix 
+ 006.  Alina Artc - Со Мной По Другому Нельзя
+ 007.  Alyosha  Alesha  - Твои Слова
+ 008.  Ana Baston - Страшная
+ 009.  Andreas - Дым...Твоя Любовь
+ 010.  Andy Groove Ft. Danila Rastv & Женя Юдина - Для Нас  Ivan Art Remix Жанр: PopПродолжительность: 12:24:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90D23948A59E9BAB0309B8037A85B011854C1CAA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_555337.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 555 213
+
+VA - Инструментальная музыка  2012  vol. № 93 [MP3|320 кб с]<Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Mario Battaini - Storielle Del Bosco
+02. McCartney - Ebony And Ivory
+03. Анс. Арсенал - Танго
+04. Armik - Santa Barbara
+05. G.Marradi - Angelitos Negros
+06. А.Шишков -  Серебрянный лотос
+07. Arabian Night - Cinema
+08. Fitoussi - Words
+09. Jo Courtin - Le Plus Beau Tango Du Monde
+10. Е.Дога - Мелодии из кинофильмов    Читать дальше...    Жанр: InstrumentalПродолжительность: 01:55:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:09ADEB0B54F5FE048BA1E52B7DAA5140AB2826E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_555213.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 554 735
 
 VA - Инструментальная музыка  2012  vol. № 90 [MP3|320 кб с]<Instrumental>
@@ -2257,130 +2381,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_545045.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 544 905
-
-VA - Вояж Зарубежной Музыки Осени  2012  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Flo Rida ft. Sia - Wild Ones
-002. Cascada - Night Nurse  Ryan Thistlebeck Vs. Dan Winter Radio Edit 
-003. Mario Lopez - I Can Stand It  Move Town Radio Edit 
-004. Shaka Ponk - My Name Is Stain
-005. Mike Candys feat. Evelyn & Patrick Miller - 2012  If The World Would End 
-006. Jay Sean - Im All Yours
-007. Mandinga - Te Quiero
-008. Simon From Deep Divas feat. Goody - Disco dancer
-009. Britney Spears - Look Who s Talking Now
-010. Chris Parker - Space    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:51:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:120F61F69D01DB32AC15126A24AEFDD3D5941660
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_544905.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 544 707
-
-VA - Cafe Music. Collection  9CD   1999-2005  [MP3|192-320 кб с]<Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
- 4:49  01. Love s Theme
- 4:20  02. You Will Remember Whom You Lonely
- 4:18  03. Lilac
- 3:37  04. Gather Around With Deep Feeling
- 4:48  05. Loving You Very Much
- 4:43  06. The Naval Port Night
- 3:10  07. Waving The Girl Of Wings
- 4:28  08. That Stretch Of Sea
- 3:56  09. Snow
- 4:35  10. Depend On    Читать дальше...    Жанр: InstrumentalПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87DF02817E81C80E0545E07CEBEB7F588A2DD9E6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_544707.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 544 665
-
-VA - Горячая Сотка Новинок 50 50  2012  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Hi-Fi - Земляничный Дождь  Новая Версия 
-02. Maroon 5 - One More Night
-03. Galla - NY Лето  Нью-Йоркское Лето 
-04. Mc Lion - Breathing  Dance Mix 
-05. Ksenona - Далеко-Далеко
-06. Nas feat. Mary J. Blige - Reach Out
-07. Pulse - Ты Убиваешь Меня
-08. Rita Ora - Roc The Life
-09. Vetra-N - Долго Нельзя
-10. The Cataracs - Roll The Dice    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:11:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7FD5A64E91D3C879347FA2F4156B0A7587C040C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_544665.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 544 658
-
-VA - Europa Plus 100 50 50  2012  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01 Катя Лель - Одна под прицелом
- 02 David Guetta feat. Ne-Yo & Akon - Play Hard
- 03 Нервы - Май Bay
- 04 Wisin & Yandel feat. Jennifer Lopez - Follow the leader
- 05 Serebro - Мальчик
- 06 Loreen - Euphoria
- 07 Отпетые мошенники - Руссо туристо
- 08 Nickelback - When we stand together  DJ Noiz Bootleg 
- 09 Чи-Ли - Океан
- 10 Roman Bellezzo & Slam DJs feat. Irene - Frozen    Читать дальше...    Жанр: PopПродолжительность: 05:53:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:00F0C20AF675175659C8E8EAC0CA5E8513FEEC43
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_544658.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

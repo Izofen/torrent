@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 638 032
+
+VA - Best Road Trip 10's Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights                                                [03:21]
+   02. Maroon 5 - What Lovers Do                                                   [03:19]
+   03. OneRepublic - Counting Stars                                                [04:16]
+   04. Imagine Dragons - Thunder                                                   [03:07](   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 05:45:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5BDBB06EE2BC7F1921A4EF4EE2C6ECA027A45146
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1638032.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 637 860
+
+VA - Perfect Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballads>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+1. Ed Sheeran - Perfect
+2. Benson Boone - In the Stars
+3. Coldplay - The Scientist
+4. Omar Apollo - Evergreen (You Didn’t Deserve Me at All)(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F6D3A62FFB3DC5A01589D6F62EE1943FDCF829BF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1637860.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 637 836
+
+Michael Jackson - Number Ones  2003  [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Don t Stop  til You Get Enough  2003 Edit 
+02. Rock With You
+03. Billie Jean
+04. Beat It    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:19:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5E6AB19D2B2D9D7C090190FBAE1A3F35CE8235FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1637836.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 637 499
 
 Right Said Fred - The Singles (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1922,81 +1997,6 @@ CD1
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627409.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 405
-
-VA - Bravo Hits Vol. 120 (2023) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Hip Hop, Ballad>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1
-01. Central Cee - LET GO
-02. SZA - Kill Bill
-03. Alok & James Arthur - Work With My Love(   Читать дальше...   )Жанр: Synthpop, Dance, Hip Hop, BalladПродолжительность: 01:07:28 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6465E226C89B13045813E01CCB9D6AD53A4F0E23
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627405.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 398
-
-VA - Bravo Hits Vol. 121 (2023) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Hip Hop, Ballad>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1
-01. Metro Boomin, The Weeknd & 21 Savage - Creepin'
-02. Raye & 070 Shake - Escapism.
-03. Coi Leray - Players(   Читать дальше...   )Жанр: Synthpop, Dance, Hip Hop, BalladПродолжительность: 01:13:19 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:53A76F90E7DFE898CC38B63D7D17C480BEC32180
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627398.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 365
-
-Menderes - Sieger der Herzen  Das Beste aus 20 Jahren   2023  [MP3|320 Kbps] <Dance Pop, Eur
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Er liebt dich nicht [00:03:11]
-02 - Nimm Anlauf [00:03:38]
-03 - Der hellste Stern der Welt [00:02:56]
-04 - Sieger der Herzen [00:03:04]    Читать дальше...    Жанр: Dance Pop, EuropopПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2E691DD5D36E7C93DA54DEED4D7EE26B6F55F017
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627365.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 569 526
+
+Blue System - Twilight  1989  [OGG|485 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Magic Symphony	3:34
+02. Love Me On The Rocks	3:27
+03. Save Me	3:45
+04. Nobody Makes Me Crazy  Like You Do 	3:27    Читать дальше...    Жанр: DiscoПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A4BCE8DE1D74C18400A2C7CD2C120CC7030D4E33
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569526.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 569 429
+
+Blue System - Body Heat  1988  [OGG|485 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Under My Skin	3:34
+02. Do You Wanna Be My Girlfriend	3:58
+03. Titanic 650604	3:27
+04. Love Suite	3:22    Читать дальше...    Жанр: DiscoПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B15520A32E31E884DD1E6C8CE21B4649950DB5A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569429.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 569 371
+
+Fancy - Flames Of Love  1988  [OGG|485 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Flames Of Love  4:03 
+02. Moscow Is Calling  5:13 
+03. I Can t Live Without You  Lonely Nights   5:38 
+04. What s Your Name, What s Your Game  3:56     Читать дальше...    Жанр: DiscoПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:27385158364DCC7A939426063F3766E06269BEBB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569371.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 569 370
 
 Vanessa Mai - Metamorphose  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1904,81 +1979,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1556478.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 556 384
-
-VA - Feelin  Good  2004  2xCD [FLAC|Lossless|image + .cue] <Pop, Rock, Disco>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD - 1:
-01. Billy Idol - Hot in the City
-02. Spice Girls - Say You ll Be There
-03. KC and The Sunshine Band - That s the Way  I Like It     Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 02:19:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:071754BBFA20739759F608C0A81AD71E713E487F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1556384.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 555 826
-
-Дора - MISS  2022  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Розовые волосы
-2. Автопилот
-3. Заставь
-4. La bohème    Читать дальше...    Жанр: PopПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:74CF23AFB6D8371C4F7EFD9CC3F1CC0576681EE8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555826.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 555 803
-
-Christina Aguilera - Aguilera  2022  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Ya Llegué [00:03:03]
-02 - Pa Mis Muchachas  feat. Nathy Peluso, Becky G, NICKI NICOLE  [00:03:36]
-03 - Somos Nada [00:03:01]
-04 - Santo  feat. Ozuna  [00:03:03]    Читать дальше...    Жанр: PopПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:10BBFBA1EC23459B07518708CBF16FFEDF4CA02A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1555803.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 117 252
+
+VA - Весенние заводные хиты  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Сандра Круглова - Сверху 3:06
+002. Dato - Если Это Не Любовь 4:27
+003. Bazhen Sysoev Feat. Dj Seat - Наркотик 3:07
+004. Милан Савич - Так И Скажи 3:10    Читать дальше...    Жанр: PopПродолжительность: 06:03:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:10AE26D7D1D6CB089BF860FA0005693DD0B4B3E8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117252.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 117 250
+
+VA - Музыкальный подарок на радио Europa Plus выпуск № 2  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Alina Tan - Зажигай 3:27
+002. Алексей Кабанов - Странные 4:05
+003. Глаза - Это Он Мама 3:29
+004. Алекса Пол - Запах От Dior 3:11    Читать дальше...    Жанр: PopПродолжительность: 06:06:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9900654CA811424AE3F546C4017DED18D200628F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117250.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 117 247
+
+VA - 100-ка популярных весенних хитов на Europa Plus  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Миша Майер - Вспоминай 3:29
+002. Сергей Бузин - За Тобой 3:37
+003. Гейдар Багиров - На Глубинах 3:38
+004. Алсу - Я Пойду Чуть-Чуть Поплачу 3:37    Читать дальше...    Жанр: PopПродолжительность: 06:03:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:185F879C53B0C266866033F45A1FBB52D22698CB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117247.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 117 244
+
+VA - Весенняя танцевальная вечеринка. Версия № 8  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Глюкоза - Без Тебя 3:44
+002. Яков Самодуров - Стану Первым 3:42
+003. Emin - Ты Же Не Знаешь 3:42
+004. Никита Ломакин - 3000 Карат 3:44    Читать дальше...    Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2304DAD5E223E23944A16A76167666F09D98E221
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117244.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 117 241
 
 VA - Музыкальный презент хорошей музыки от Европы Плюс. Версия № 5  2017  [MP3|256 Kbps] <Pop>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1113991.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 113 968
-
-VA - 90s Stars Comeback  2017  [MP3|320 Kbps] <Dance, Progressive, Electro, Vocal, Trance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Lane Mccray & Djane Monique – Sweet Dreams  Radio Mix  03:58
-02. Linda Rocco & Andy Stead – You Make Me Feel Good  Radio Mix  04:03
-03. Bg The Prince Of Rap – No Limits  Randy Norton Edit  04:05
-04. Ice Mc – Out Tonight  G-Lati & Mellons Remix  04:45    Читать дальше...    Жанр: Dance, Progressive, Electro, Vocal, TranceПродолжительность: 02:34:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA22AA6BC9B61A38B9867D552F675B31E19C3839
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1113968.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 113 951
-
-Chris Bell - 30 most slow Blues  2017  [MP3|320 Kbps] <Blues>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Two Jobs
-02. Ain t Seen Nothing
-03. Cold-Hearted Woman
-04. Deli Man    Читать дальше...    Жанр: BluesПродолжительность: 02:03:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9A40C66424303404EA549397902990E1065462EB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1113951.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 113 921
-
-VA - Yoga Springtime Relaxation: Best of Chillout and Beach Cafe Music  2017  [MP3|320 Kbps] <Do
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Arcade Lounge - Angels - Faith in Love Mix
-02. System of Prime - Riding the Waves - Miami Now Mix
-03. Helen Taylor - Ibiza Del Mar - Lights Down Low Mix
-04. Off The Road - Slowmotion - A Reason to Shop in Pink Mix    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D1F944750205310FBE38E3E7CC684BD5C1053D0C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1113921.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 113 688
-
-VA - Empire Records - Golden Drum 2  2017  [MP3|320 Kbps] <Dubstep, Drum & Bass>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. X Ambassadors - Nervous
-02. Zoon r - Rask
-03. DisasZt - Till The Sun Comes Up
-04. High Contrast - Remind Me    Читать дальше...    Жанр: Dubstep, Drum & BassПродолжительность: 01:32:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D332DC8E538A4943B8F82D09A64C5139803A1477
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1113688.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

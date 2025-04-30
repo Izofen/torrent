@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 068 419
+
+VA - LUXEmusic: Dance Super Chart Vol.92  2016  [MP3|320 Kbps] <House, Electro House, Mash Up, C
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. ACDC - T.N.T  DJ Zarubin Radio Edit   3:46
+02. Madonna - Frozen  A-Mase Nu Disco Remix   5:32
+03. USB и Илья Зудин - Губы Губы  Oleg Perets Club Remix   4:26
+04. Елена Князева - Сильная  DJ Noiz Remix   3:01    Читать дальше...    Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 03:40:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2CD76B4CB6DBA3E5B305069ADC17284027D4E906
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068419.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 068 407
+
+VA - Extra Trance: Bonus [10]  2016  [MP3|320 Kbps] <Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Lostly - Galaxy of Blue  Extended Mix   6:38 
+02. Solarstone - Herald  Transwave Remix   7:26 
+03. Darren Porter - Human  Extended Mix   7:05 
+04. Formal One & Sarah Lynn - In Winter  Progressive Mix   4:36     Читать дальше...    Жанр: TranceПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9343AD853F988F5F006ACB558A166C282ACC8AC4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068407.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 068 390
+
+VA - Trance Traveling 82  Mixed By VNP   2016  [MP3|320 Kbps] <Trance, Melodic, Emotional, V
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Ana Criado - Vulnerable  Denis Kenzo Remix   6:15
+02. Reskide - Drawbridge  Extended Mix   3:45
+03. Moonlight Tunes - You Will Find The Way  Original Mix   4:45
+04. Mardven - Aim  Extended Mix   3:08    Читать дальше...    Жанр: Trance, Melodic, Emotional, Vocal, Energy, ProgressiveПродолжительность: 04:03:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:18954690368FF110B788E44119789DB13C74C19E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068390.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 068 382
+
+VA - Ballermann Karnevals Hits 2017  2016  [MP3|~245 Kbps] <Pop, Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Lorenz Buffel - Johnny Dapp
+02. Tim Toupet - Nein, nein, nein, nein - Sind wir nicht gewesen
+03. Peter Wackel - Die Nacht von Freitag auf Montag  DJ Fosco Mix Edit 
+04. Tobee - Aua im Kopf    Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 02:13:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3C0D4CD1C352C52E6393346902682848573CD023
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1068382.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 068 361
 
 VA - Музыкальный заряд  #2  2016  [MP3|256~320 Kbps] <Pop>
@@ -1897,106 +1997,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065709.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 065 701
-
-Yello - 100 Best Hits  6CD   1980-2016  [MP3|320 Kbps] <Electronic, Synth-Pop, Downtempo>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Blue Green  1980  05:23
-002. Eternal Legs  1980  04:16
-003. She`s Got A Gun  1981  03:43
-004. Tub Dub  1981  01:45    Читать дальше...    Жанр: Electronic, Synth-Pop, DowntempoПродолжительность: 06:47:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F49CF7C50D2FCC329EE462E8F141FA4185FC42C2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065701.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 065 697
-
-VA - No Other Way: Hard Rock Digest  2016  [MP3|320 Kbps] <Alternative, Hard Rock, Metall>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. EverEve - The House Of The Rising Sun  The Animals 
-002. At Vance - Eye of The Tiger  Survivor 
-003. Volbeat - Black Rose
-004. Pellek - I Know You Don t Know    Читать дальше...    Жанр: Alternative, Hard Rock, MetallПродолжительность: 10:55:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4032CCD96A14294D4B2FF74BE53F7E025E3C9DD4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065697.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 065 696
-
-VA - Club Dance Ambience Vol.91  2016  [MP3|320 Kbps] <House, Electro House, Mash Up, Club, Danc
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Bo Ca Da - This Is Love  Original Mix   6:38
-002. Dante - Под Кожу  D&S Project Radio Remix   2:49
-003. Michael Jackson - Bad  Necola & Duxe Remix   4:11
-004. Sia - Move Your Body  Alan Walker Remix   3:38    Читать дальше...    Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 07:41:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0733E4B5339E7C199297620A78A180C56B58E3A0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065696.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 065 562
-
-VA - Горячий хитовый драйв. Сборник 3  2016  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Пицца - Назад
-002. Jason Derulo - Get Ugly
-003. Сара Окс - Для Тебя
-004. Маша Ru - Ноль-Ноль    Читать дальше...    Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E241EC4C0EEC670F3B0C54672D45ABA714923077
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065562.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

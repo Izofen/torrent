@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 225 595
+
+Восток - Все небо  1996  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Миражи 3:30
+02. Все небо 3:03
+03. Только дождь 3:42
+04. Огонек в ночи 3:08    Читать дальше...    Жанр: PopПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B4DBCDE83470E11FC94881624E376CD70205060E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225595.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 225 498
+
+Анна Герман - Grand Collection  2005  [FLAC|Lossless|image + .cue] <Эстрада, Ретро>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Надежда  3:41 
+02. Не спеши  3:25 
+03. Когда цвели сады  4:48 
+04. Эхо любви  3:06     Читать дальше...    Жанр: Эстрада, РетроПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE8A54FF44D2B35EB65A240E4E0A87E734BDDA18
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225498.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 225 417
+
+Syreeta - The Essential  2001  Compilation [FLAC|Lossless|image + .cue] <Soul, Disco, Funk>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1	Spinnin & Spinnin 
+2	Your Kiss Is Sweet
+3	Harmour Love
+4	Come And Get This Stuff    Читать дальше...    Жанр: Soul, Disco, FunkПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BCC0C0C612AE0771C1521E0FC67C8443D918608C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225417.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 225 340
 
 Marian Hill - Unusual  2018  [MP3|320 Kbps] <Alternative Pop, Electronic, Minimalist>
@@ -1923,81 +1998,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219064.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 037
-
-Donna Summer - The Dance Collection  1987  Reissue, Mercury, 2013 [MP3|320 Kbps] <Electronic, Fu
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-A Compilation Of Twelve Inch Singles  Сборник двенадцатидюймовых синглов 01. I Feel Love  8:15 
-02. With Your Love  7:34 
-03. Last Dance  8:14 
-04. MacArthur Park Suite  17:35 :    Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:37FF6FA137FD6A9CDCC8D33FC4AB29D408A73AA7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219037.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 973
-
-Инна Маликова & Новые Самоцветы - 12  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Склеим
-2. Зелёные глаза
-3. Раны
-4. Ты моей никогда не будешь    Читать дальше...    Жанр: PopПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A4B34CF810522EC79B6824A4A23814BAA51256DC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218973.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 782
-
-VA - Ministry Of Sound I Love Acoustic  2018  3CD [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Sigala & Paloma Faith - Lullaby
-02 - Jax Jones, RAYE - You Don t Know Me - Acoustic Version
-03 - Stormzy, Wretch 32, Aion Clarke, Aion - Blinded By Your Grace, Pt. 2  Acoustic 
-04 - Not3s, Mabel - My Lover - Radio Edit    Читать дальше...    Жанр: PopПродолжительность: 03:35:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D097931383994319CFEC5F2D523F5BA09CD067A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218782.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

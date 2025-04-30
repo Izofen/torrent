@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 164 522
+
+VA - Record Super Chart #502  2017  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01.  Don Diablo - Momentum  3:28
+02.  Lucas & Steve vs. Mike Williams & Curbi - Let s Go  4:11
+03.  Kokab - Got U  Ready Or Not   Amice Remix   4:08
+04.  Axwell & Ingrosso - More Than You Know  3:21    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 02:05:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CE27415A0183EFAC5FBFF3A1BD8696F0A3A08896
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1164522.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 164 448
+
+VA - Billboard Hot 100 Singles Chart  16.09.2017  [MP3|192-320 Kbps] <Pop, Dance, Euro, Indie, F
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Taylor Swift - Look What You Made Me Do
+002. Luis Fonsi feat. Daddy Yankee - Despacito
+003. Cardi B - Bodak Yellow
+004. DJ Khaled feat. Rihanna & Bryson Tiller - Wild Thoughts    Читать дальше...    Жанр: Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 05:50:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6D317EF6398FA1F31FA377ACF2D37711D48C80DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1164448.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 164 440
+
+VA - Romantic Songs of Autumn  2017  [MP3|320 Kbps] <Pop, Rock, RnB>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Rag n Bone Man - The Fire
+002. Lana Del Rey Feat.The Weeknd - Lust For Life
+003. John Mayer - Never On The Day You Leave
+004. Zara Larsson - Endless    Читать дальше...    Жанр: Pop, Rock, RnBПродолжительность: 07:48:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE499482123E1F7BB8362B173FA568F4DE9A1CFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1164440.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 164 377
+
+VA - Школьные годы чудесные  2017  [MP3|192-256 Kbps]<Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01 - Мария Пахоменко - Школьный вальс
+02 - Утро школьное, здравствуй! - Детский хор п у В. Соколова
+03 - Здравствуй, песня - Девчонка из квартиры сорок пять
+04 - Детская хор-студия  Пионерия  п у Г. Струве - Школьный корабль    Читать дальше...    Жанр: PopПродолжительность: 01:44:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C5B14BB1643126B54F16A861871D049FA9EA5AB3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1164377.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 164 182
 
 VA - Лабиринты любви  2017  [MP3|256-320 Kbps] <Pop>
@@ -1895,106 +1995,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1159650.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 159 449
-
-VA - Oldies 70 s  2017  [MP3|320 Kbps] <Disco, Pop, Rock>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. America - A Horse With No Name 4:09
-02. Sister Sledge - We Are Family 3:19
-03. Foreigner - Feels Like the First Time  Edit  3:28
-04. Frankie Valli - Grease 3:21    Читать дальше...    Жанр: Disco, Pop, RockПродолжительность: 03:14:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:82A851303DDCB205C6A165C1CFF31C96339B5344
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1159449.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 159 418
-
-VA - EuroHit Top 40 Europa Plus  18.08.   2017  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01.  Dua Lipa - Blow Your Mind  2:59
-02.  The Chainsmokers & Coldplay - Something Just Like This  4:08
-03.  Kokab - Got U  Ready Or Not   3:12
-04.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:15:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E3590AA323890EEEFD5C7C95D931D4C8DB3F1E7F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1159418.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 159 416
-
-VA - Soul Deep 08: Smooth Jazz Review  2017  [MP3|320 Kbps] <Smooth Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001.  Anita Baker - My Funny Valentine  5:06
-002.  Jazz 2 More - Soulsamba  6:58
-003.  Lo Greco Bros - Friendly Pressure  4:39
-004.  South Froggies - Dub Jazz  3:50    Читать дальше...    Жанр: Smooth JazzПродолжительность: 08:14:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:416117E4AB0CA26EC2335D1961F4EA9E535FD07D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1159416.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 159 374
-
-VA - Master Dance Collection Of EDM Music  2017  [MP3|320 Kbps] <Club, Dance, Electro House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Flauschig - ...Und bequem
-002. Djane Housekat Feat. Rameez - 38 Degrees  Club Mix 
-003. Tiesto vs. Konih - Adagio For 9MM  I.GOT.U & MESZI SMASH 
-004. Mr Matt - Alcoholic Party  Original Mix     Читать дальше...    Жанр: Club, Dance, Electro HouseПродолжительность: 08:24:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0408C28389AFDDF7871EDF99EF73AF0024C55E64
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1159374.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

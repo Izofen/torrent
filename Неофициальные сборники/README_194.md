@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 862 127
+
+VA - Best-of-ka Super-Hits  2015  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Lena Katina - Fed Up 03:17
+002. Би-2 Feat. Elizaveta And Валерий Гаина - Музыка Без Причин 04:35
+003. Meghan Trainor - Lips Are Movin 03:02
+004. Global Deejays - Kids 05:43
+005. Samoel Feat Tiana - Не Вспоминай Не Жди 04:06
+006. Keen  V - Ca Va Le Faire 03:09
+007. Tokio Hotel - The Heart Get No Sleep 03:50
+008. Alisa Geliss - Winter Is Here 03:08
+009. Jay Sean - Tears In The Ocean  Candle Light Version  03:23
+010. DJ Prostyle feat. Jay Sean - One Night 03:06    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:21:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B0DC71CCBEF6DEEEADBC24BB7BC9C318E502F74D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 862 035
+
+VA - Любимая музыка для твоей тачки  2015  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Тина Кароль - Мы Не Останемся Друзьями
+002. Dami Im - Heart So Dry
+003. Iggy Azalea & Rita Ora - Black Widow
+004. Mikaela Coco - Used To Know
+005. B Robin - Sleep On It
+006. Би-2 Feat. Elizaveta And Валерий Гаина - Музыка Без Причин
+007. Jessica Mauboy - Can I Get A Moment
+008. St1m - Закон Стаи
+009. Professor Green Feat. James Craise - Dead Man s Shoes
+010. Иван Дорн - Номер 23    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:13:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F05DDB039B5BE68F3ADDF889850229C8D2CA2648
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 862 029
+
+VA - Популярные треки. Зимний Top 100 - 3  2015  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Юлия Беретта - С Новым Годом Друзья
+002. Peking Duk Feat. Safia - Take Me Over
+003. Инфинити - Мое Счастье
+004. Мері - Goodbye Russia
+005. Иракли - Не Любишь
+006. David Heartbreak Feat. Skylar Grey - Tonight
+007. Dj Noiz Feat. Asti - Зацелую
+008. Emin - Начистоту
+009. Magic! - I Would
+010. 140 Ударов В Минуту - А Я Иду По Осени    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:12:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:67D9FD9563584E015CF934EA16F2FA9773432B1E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 862 023
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72  Зарубежный выпуск - 6   2015  [MP3|320
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. C.C.Catch - Stay  Maxi Version 
+02. Monte Kristo - Lady Valentine  Extended Vocal 
+03. Fun Fun - Colour My Love  Club Mix 
+04. Culture Beat - Mr.Vain  Vain Mix 
+05. Level 42 - Lessons In Love  Remix 
+06. Joy - Japanese Girls  Sky Mix 
+07. Bad Boys Blue - Save Your Love  12   Mix 
+08. T.Ark - How Old Are You  12   Vinyl Maxi 
+09. Fancy - L.A.D.Y.O.  Extended Version 
+10. DJ s Project - Birthday Girl  DJ-Dance Mix     Читать дальше...    Жанр: Eurodance, Dance, DiscoПродолжительность: 04:39:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:47EB84B3DD38EB430C48AE9A8F5C153FEDEE1145
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 862 017
 
 VA - Дискотека 80-90 годов по - новому от Виталия 72  Зарубежный выпуск - 5   2015  [MP3|317
@@ -2272,125 +2396,6 @@ Electronic  сборники
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:B5279FE5458CE4A7F3DE088236182945390D0D78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 858 551
-
-VA - Voices in my Head Volume 76  2015  [MP3|320 кб с]<Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Aaron Camz & Alana Aldea - Lead To You  Original Mix  [08:26]
-002. Andrew Cash & Starchaser feat. Danny Claire - All Mine  Luigi Lusini Edit  [09:26]
-003. Stonevalley feat. Shannon Hurley - Something To Say  Original Mix  [06:31]
-004. The Thrillseekers feat. Stine Grove - Anywhere With You  Club Mix  [06:37]
-005. Tritonal & Kaeno - Azuca  Club Mix  [06:08]
-006. Aeris feat. Jess Morgan - What Do You Feel?  Re:Locate vs. Robert Nickson Banging Remix  [08:09]
-007. Yahel & Liya - Creatures  Paul     Читать дальше...    Жанр: Vocal TranceПродолжительность: 02:58:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:070EB33BAA300C7B82B7E986D7D56371D344D6E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 858 549
-
-VA - Distant Hunter 100 Hits Remixed  2015  [MP3|239-320 кб с]<Bigroom, Progressive, Electro,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Dj Nell & Dj Kam Ft. Musa - Keep On Falling  Original Mix  06:26
-002. Lost Witness ft. Three Faces - Eternal  Mino Safy Remix  06:48
-003. Jetride - Set Free  Original Mix  07:51
-004. Audiocells & Eskova - Breathing  Rene Ablaze Remix Remix  07:17
-005. Feel & Elles de Graaf - Shadows  The Sound Of Without You   Original Mix  05:23
-006. Botnek & 3LAU - Vikings  Audio  04:30
-007. Disco Fries - Ramuh  Original Mix  05:58
-008. Aazar - Rundat  Original Mix  03:32
-009. Thomas Newson & Jaz Von     Читать дальше...    Жанр: Bigroom, Progressive, Electro, Trance, DutchПродолжительность: 09:13:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:626F841E37888974E1EB6B1BCD43C10FE588564C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 858 543
-
-VA - Любимые зимние хиты  2015  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Movetown Feat. Ray Horton - Here Comes The Sun
-002. Тина Кароль - Я Не Беру Трубку
-003. Bahh Tee - Снежинки
-004. Nikita - Химия
-005. И.Маликова - Новогодний снег
-006. Дискотека Авария - Новогодняя  A-One & T-Paul Remix 
-007. Zip92 feat. Archi - M - Не Забуду
-008. Джиган - #НадоПодкачаться
-009. Дима Билан - Малыш
-010. Mad Mark - Bella Vita    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:15:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5FD72C929EB2B4B0026B4336D2ED2220D513B36B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 858 541
-
-VA - Новые Клубные Хиты 5  2015  [MP3|320 кб с]<Club, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Droptek Feat. Isabel Higuero - Killing Time  Original Mix  04:23
-02. Craiv - Enter The Dark  Original Mix  04:39
-03. Chay Ell & The Jay - Colossal  Original Mix  04:43
-04. Senda - Very Bad  Original Mix  04:45
-05. Jason Derulo - Wiggle  Dj Nejtrino & Dj Stranger Remix  04:38
-06. Notixx - Off The Wall  Original Mix  04:27
-07. Dekon Vs. Mars2mars - Analogue  Original Mix  04:41
-08. Deadmau5 - Ghosts  n  Stuff  Feat. Rob Swire  Chuckie Remix 06:03
-09. Deadmau5 - Sofi Needs A Ladder  Pig&dan Remix      Читать дальше...    Жанр: Club, DanceПродолжительность: 04:53:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:257FA73848661C68BADAB1EF0D4177EFFA1F518F
 ```
 
 <div id="header" align="center">

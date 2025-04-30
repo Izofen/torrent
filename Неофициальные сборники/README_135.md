@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 097 973
+
+VA - 100 пудовые зимние хиты на Europa Plus. Версия 6  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Алсу - Я Пойду Чуть-Чуть Поплачу 3:37
+002. Santey Feat. Emelie Cyreus - Naked Souls 3:29
+003. Чаян Фамали - Моделька 3:31
+004. Mona - Счастье 3:21    Читать дальше...    Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C79BA18218AFCE6A4ECA972296A970771ECDC9AB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1097973.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 097 912
+
+ZZ Top - Greatest Hits  2017  2CD [MP3|320 Kbps] <Hard Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Sharp Dressed Man
+02. Leila
+03. Poke Chop Sandwich
+04. I Need You Tonight    Читать дальше...    Жанр: Hard RockПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FDC6A39B54C8A3F69BF17CD8B4055885149796A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1097912.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 097 755
+
+VA - Songbird Voices Of Romance  2017  [MP3|320 Kbps] <Jazz, Vocal, Easy Listening>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+1. Nina Landis - Songbird 3:22
+2. Christopher Cross - Arthur s Theme  Best That You Can Do  4:25
+3. Kathy Troccoli - Dance With Me 4:25
+4. Matt Belsante - Nothing Can Change This Love 3:48    Читать дальше...    Жанр: Jazz, Vocal, Easy ListeningПродолжительность: 01:02:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B802BCEF0795BA021F8A85A7A010022A287DD84
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1097755.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 097 735
+
+VA - Шансон года. Лучшие блатные хиты выпуск №4  2017  [MP3|256 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Максим Олейников - Я Тебя Нашел 2:42
+002. Климм - Не Было  И Нет 5:03
+003. Игорь Тузов - Никогда Бродяга Не Сдавайся 6:12
+004. Игорь Латышко - Ты Неповторимая 3:42    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7D381D17C0290FF3306BA7568AFF0EAC3313CD4E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1097735.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 097 681
 
 VA - Снежный хит-парад. Сто русских хитов. Выпуск №5  2017  [MP3|256 Kbps] <Pop>
@@ -1897,106 +1997,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1095320.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 095 218
-
-VA - Europa Plus: Top 100 Хит-Презент  2017  [MP3|256 Kbps] <Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Star Pilots - Only For Tonight.
-002. Hego Feat. Yaya - Change.
-003. Kat Graham - Baby.
-004. Franky - Люди Не Боги.    Читать дальше...    Жанр: PopПродолжительность: 06:07:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E2396A9E54BB23F965A0DC5E89B0F85813B7538E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1095218.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 095 190
-
-VA - Neon Lights Dance Club  2017  [MP3|224-320 Kbps] <Dance, Club, Electro House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Maddix & Jayden Jaxx - Voltage
-002. Tsaho - Love In Da House
-003. Finchman - Wake Up At Seven Two
-004. Naxwell - The Game  Radio Mix     Читать дальше...    Жанр: Dance, Club, Electro HouseПродолжительность: 08:49:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:08433FB0FBA12C3794709E1F9E53891928B5ECA1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1095190.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 095 187
-
-VA - Trance Mission: Best Of 2016  Mixed by DJ Feel   2017  [MP3|320 Kbps] <Trance, Energy,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.  Yoel Lewis feat. Sivan - Caesarea  Extended Mix   3:05
-02.  Alan Walker - Faded  Dash Berlin Remix   2:37
-03.  Above & Beyond feat. Alex Vargas - Sink The Lighthouse  Maor Levi Remix   3:52
-04.  Simon Lee & Alvin - Xcelerate  Extended Mix   2:47    Читать дальше...    Жанр: Trance, Energy, Emotional, Vocal, Uplifting, ProgressiveПродолжительность: 04:00:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C54CD2158C02E481B8AE822145B349F19155420A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1095187.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 095 101
-
-VA - Романтический Сборник: Русский Популярный Хит  2017  [MP3|192-320 Kbps] <Pop, Lyric>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Татьяна Маркова - На сердце боль
-002. Ани Лорак - Ты Ещё Любишь
-003. Катя Данилова - Сама
-004. Наргиз - Ты - моя нежность    Читать дальше...    Жанр: Pop, LyricПродолжительность: 08:18:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EDC2D757AA0CD745097AB29C26F8EF7C4DC9B451
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1095101.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

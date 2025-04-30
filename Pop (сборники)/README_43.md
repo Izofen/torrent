@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 395 498
+
+Alan Sorrenti - 2 Albums  1979, 1980  LP [MP3|320 Kbps] <Electronic, Pop, Pop Rock, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. L unica Donna Per Me  3:45 
+02. Per Sempre Tu  4:35 
+03. Dancing In My Heart  2:54 
+04. Provaci  3:16     Читать дальше...    Жанр: Electronic, Pop, Pop Rock, DiscoПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E6ED796CC383B83013594B943CDF93558E58D5D4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395498.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 395 402
+
+Jason Mraz - Look For The Good  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Look For The Good  05:10 
+ 02. Make Love  05:36 
+ 03. My Kind  04:57 
+ 04. Good Old Daze  04:12     Читать дальше...    Жанр: PopПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7E3B409C049444FC594387FFFCFE9484FA289C2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395402.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 394 909
+
+VA - Love Pop 2020 [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Jack Johnson - Better Together  03:28 
+02. Maroon 5, SZA - What Lovers Do  03:14 
+03. Elias Boussnina - Closer  02:58 
+04. Oh Wonder - Body Gold  03:04     Читать дальше...    Жанр: PopПродолжительность: 02:40:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9BFB08B95E9C9B07238CC54462AF89193135135B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1394909.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 394 801
 
 VA - Acoustic Sing Along  2020  [MP3|320 Kbps] <Pop>
@@ -1917,81 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389166.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 389 164
-
-Виктория Черенцова - 10 дней  2016  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Мама  3:32 
-02. Если б  3:10 
-03. Боль сильна  3:24 
-04. За всё тебя простила  2:48     Читать дальше...    Жанр: PopПродолжительность: 00:32:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:79F3931E23C0DA881DEDF8476E45CA41CBEECFA0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389164.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 388 945
-
-Виктория Черенцова - Кукуруза  2019  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. До завтра, Москва  3:52 
-02. Я люблю тебя  3:29 
-03. Будь со мной  3:35 
-04. Танцуй  3:42     Читать дальше...    Жанр: PopПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:93EC362F0B6C38889AFC6DCEBF487E110CB29875
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388945.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 388 870
-
-Savage - Before: 1983 - 1986 Demo Collection  2020  [FLAC|Lossless|image + .cue] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Don t Cry Tonight  Early Demo 1983 
-02. Only You  Very First Demo 1984 
-03. Radio  All My Life   Demo 1983 
-04. Fugitive  Let Me Go   Demo 1984     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A8C3FB24527C2814895AC8A5B2C305BAF9389A90
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1388870.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

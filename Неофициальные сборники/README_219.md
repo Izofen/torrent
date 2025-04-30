@@ -1,4 +1,116 @@
 ﻿
+###  Публикация: 739 511
+
+Roxette - 25 Best Songs  2012  [MP3|~245 кб с]<Pop, Rock>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. The Look 1988
+02. Joyride 1991
+03. How Do You Do! 1992
+04. Neverending Love 1986    Читать дальше...    Жанр: Pop, RockПродолжительность: 01:42:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:97B93C35286A569607E97DB663AD6C388420C7DC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_739511.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 739 442
+
+Александр Малинин - MP3 Play  2013  [MP3|320 кб с]<Поп>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Если бы не ты
+02. Нет пути назад
+03. Вьюга
+04. Моя Россия    Читать дальше...    Жанр: ПопПродолжительность: 04:46:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E2B927FC369E654DDB47436B91ABF88AEF2F34E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 739 419
+
+VA - Дискотека 2013 Dance Club Vol. 122 [Новогодняя!]  2013  [MP3|320 кб с]<Club, Pop, Dance,
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01. Афродита - Новый Год
+02. Emilia & Lazar - Dame Tu Amor
+03. Иван Дорн vs. Slider and Magnit feat. Марсель - Праздник К Нам Приходит  Sergei KrasilnikoV SK Новый Год Mash-Up Plus 
+04. Milena feat. D.I.P Project - Aura  Original Version 
+05. Turbotronic - Do It  Extended Mix 
+06. Aruba ICE & Greysound - Новогодняя 2014  Original Mix 
+07. Enrique Iglesias feat. Gente De Zona & Descemer Bueno - Bailando
+08. Поющие Трусы - Ничего не помню  Новогодняя 
+09. DJ Favorite and Laura Grig feat. Garik Moshennik - С Новым Годом 2014  Radio Edit 
+10. Jam & Spoon ft. Plavka vs David May & Amfree - Right In The Night  Rico Bernasconi Remix     Читать дальше...    Жанр: Club, Pop, Dance, Trance, House, Rap & Hip-hop, Dubstep, Chillout, TrapПродолжительность: 12:37:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:88D174558847218BA4482E5955064CB4A4F8387D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 739 399
+
+VA - Музыкальная олимпиада. Музыка для двоих.  2 CD   2013  [MP3|320 кб с]<Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+###  Подробнее
+
+01. Xandria - The Dream is Still Alive  4:17 
+02. Markize - Poussieres de Vie  4:15 
+03. Doro - Tausend Mal Gelebt  4:17 
+04. Eclipse Sol-Air - Schizophilia  4:34 
+05. Battle Beast - Savage And Saint  5:39 
+06. Lumsk - Hostnat  3:40 
+07. Diablo Swing Orchestra - Kevlar Sweethearts  4:23 
+08. Picture Me Broken - If I Never Wake Again  5:00 
+09. Van Canto - Master of the Wind  6:09 
+10. Apocalyptica - Broken PiecesЖанр: RockПродолжительность: 01:15:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EA21BB5C7F279352274FF7F86B446D31CEED7E53
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_739399.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 739 225
 
 VA - Gallery Stranger Dreams  2013  [MP3|320 кб с]<Trance>
@@ -2331,130 +2443,6 @@ VA - Снегопад Зарубежных Хитов  2013  [MP3|256 кб с]<P
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:94F60BA6E5EEB1B32C8B9F503BF75454EDD80442
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 734 440
-
-Стас Михайлов - MP3 Play   2CD    2013  [MP3|320 кб с]<Шансон, Pop>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-CD1				CD2
-01. Живи и знай			41. Только ты
-02. Я верю			42. За воротами времени
-03. Есенину			43. Свет звезды
-04. Ах, как хочется ещё пожить	44. Живой
-05. Белая берёза		45. Ты моя
-06. За женщин всех		46. Ты одна
-07. Женщина-вамп		47. Игрок
-08. Где-То Там			48. Звездой на небо
-09. Берега мечты		49. Уходим понемногу    Читать дальше...    Жанр: Шансон, PopПродолжительность: 05:19:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BA35CB1FF06ADAF5CF427E587BA29C9C8E4D7F95
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_734440.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 734 294
-
-VA - Новогодний. Празднуем, гуляем c  Dfm!  2013  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Pulse - Танцуй Со Мной
-002. Мариетта - Далеко
-003. Aston Coles feat. OG - Without You  Radio Mix 
-004. DJ Smash feat. Craig David - Good Time  Original Mix 
-005. Antonio Mellifluous feat. Andrew Mastilias & Syntheticsax - Concert LoverS
-006. Smoke & AmaLoa feat. Ай - Q - Я Не Вернусь
-007. Ленинград - Рыба  DJ Илья Лавров remix 
-008. Bb Brunes - Stereo
-009. Clubraiders feat. Adline Owens - Canвt Stop My Love  Club Edit 
-010. Damien J Carter, Matt Devereaux, Michael Maze - Dare  DJ Cross Mix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:26:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E08C40C38D41B544BE14992AF059E80CBCCF711
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 734 115
-
-VA - 100 Classic Christmas Songs  2013  [MP3|320 кб с]<Retro, Pop>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Gene Autry - If It Doesn t Snow On Christmas Day
-002. Jackson Bull Moose - I ll Be Home for Christmas
-003. Eve Boswell - The Christmas Tree
-004. Dickie Valentine - Snowbound for Christmas
-005. Elvis Presley - I ll Be Home for Christmas
-006. Bobby Darin - Christmas Auld Lang Syne
-007. Alma Cogan - Christmas Cards
-008. Jimmie Rodgers - It s Christmas Once Again
-009. Kay Starr - The Man With the Bag
-010. Perry Como - C-h-r-i-s-t-m-a-s    Читать дальше...    Жанр: Retro, PopПродолжительность: 04:24:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BA48AA00A2821FDCA189445A243CE3B4CEF9C7CC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 733 986
-
-VA - Русские Турбо Новинки 2014  2013  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Тина Кароль - Намалюю Тоб  Version 2013 
-002. Оксана Ковалевская - Без Любви
-003. Шахзода - Давай До Свидания
-004. Dani Lemann - Кабриолет
-005. Монако Пройецт - Американо
-006. Инфинити - Только для тебя
-007. Рино - Радио
-008. Татьяна Буланова - Ток по телу
-009. Anton Pavlovsky feat. Jizz - Я Тебя Не Люблю  Grigoriy Leps Cover Mix 
-010. Пропаганда - До Луны На Метро  Harisma Remix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:58:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:07AAAB8D227CC7C615A039C85153F9F808C6A530
 ```
 
 <div id="header" align="center">

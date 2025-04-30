@@ -1,4 +1,98 @@
 ﻿
+###  Публикация: 1 256 084
+
+VA - ЕвроХит Топ 40 Europa Plus 19.10.2018  2018  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Calvin Harris & Dua Lipa - One Kiss 3:35
+02. David Guetta feat. Sia - Flames 3:15
+03. Clean Bandit feat. Demi Lovato - Solo 3:41
+04. The Chainsmokers feat. Emily Warren - Side Effects 2:57    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:13:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D724ACDDDC12B28541EA1D4995699AE71F0120D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1256084.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 256 059
+
+Linkin Park - In The End  2018  Cover, Remix [MP3|320 Kbps] <Trap, Dream House, Trance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. In The End ★ Cover Tommee Profitt feat Jung Youth & Fleuri In ★ Mellen Gi Trap RemixЖанр: Trap, Dream House, TranceПродолжительность: 00:03:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:006875F63C699B631A0F17D0988220CA58ABA5DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1256059.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 256 011
+
+VA - German Top 100 Single Charts 22.10.2018  2018  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Bonez MC & RAF Camora - 500 PS
+002. Bonez MC & RAF Camora - Kokain  feat. Gzuz 
+003. Bonez MC, RAF Camora - Nummer unterdrückt
+004. Dynoro & Gigi D Agostino - In My Mind    Читать дальше...    Жанр: PopПродолжительность: 05:31:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DEFD88C77389D1F0192CB59FEF92C9A5DB1A8407
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1256011.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 255 868
+
+Technotronic - Pump Up The Jam  2018  Remix [MP3|320 Kbps] <Club, Dance, Rap>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. Pump Up The Jam ★ KaktuZ RemixЖанр: Club, Dance, RapПродолжительность: 00:03:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1E1C00252CE730DBE607D9C056F762CCDE886025
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1255868.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 255 733
 
 VA - Age Of Rebelion: Rock Revue  2018  [MP3|320 Kbps] <Rock>
@@ -1891,106 +1985,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252015.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 251 902
-
-VA - Saturday Night Party  2018  [MP3|320 Kbps] <Dance, Pop, Electro House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Le Sisters - Everybody
-002. Audioboy - Still Love Me  Radio Edit 
-003. Yuhniversia - Infection
-004. De Munari - This Is Dance    Читать дальше...    Жанр: Dance, Pop, Electro HouseПродолжительность: 10:41:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:56FBED5A3C05121B25347D56CBFF98AD8A14A119
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1251902.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 251 876
-
-VA - New Music Releases Week 35 of 2018  2018  [MP3|320 Kbps] <Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Troye Sivan - This This
-002. West Coast Massive, Brayton Bowman - High & Low
-003. The Faim - A Million Stars
-004. Tash Sultana - Cigarettes    Читать дальше...    Жанр: DanceПродолжительность: 08:45:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E5B18DE39235D6785038D2B4A48B13077AA9E365
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1251876.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 251 865
-
-VA - New Music Releases Week 34 of 2018  2018  [MP3|320 Kbps] <Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Radiant Children - Tryin 
-002. Ozuna - Ibiza  Feat. Romeo Santos 
-003. Conor Matthews - Inside Out
-004. R3hab, Sofia Carson - Rumors  With Sofia Carson     Читать дальше...    Жанр: DanceПродолжительность: 10:40:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BAF735D0553C8F187060406D681E9E0958ACCE56
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1251865.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 251 840
-
-VA - Осенний Роман: Сборник Шансона  2018  [MP3|320 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Александр Вестов - Я Буду Ждать Тебя
-002. Илья Яббаров - Отпускаю
-003. Сборная Союза - Мой Друг
-004. Климм - Позови За Собой    Читать дальше...    Жанр: ШансонПродолжительность: 11:20:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CCB934DF352061E702FA0EEFE100DAED02DF150F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1251840.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

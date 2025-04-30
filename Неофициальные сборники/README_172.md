@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 990 357
+
+Дуэт - Вадим Медин и Сергей Холодов - Третий концерт  1976  [MP3|194-216 кб с] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Вступление
+02. От злой тоски, не матерись...
+03. На кладбище
+04. Дураки    Читать дальше...    Жанр: ШансонПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A14A647F11FEDD98A8164FE59B59EEE2786426F7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_990357.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 990 240
+
+VA - Лучшие хиты дискотек. 50 50  2016  [MP3|256 кб с] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. 30.02 - Я Верю
+002. Flo Rida - My House
+003. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби
+004. Lawson - We Are Kings    Читать дальше...    Жанр: PopПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F6A7023E8DFB21A4965ECFFB28DF3BBA3E70CE3F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_990240.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 990 185
+
+VA - Music Box DFM Vol.4  2016  [MP3|256 кб с] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Bryan Adams - You Belong To Me.mp3
+002. Lana Del Rey - High By The Beach.mp3
+003. Lunchmoney Lewis - Whip It!.mp3
+004. One Direction - Drag Me Down.mp3    Читать дальше...    Жанр: PopПродолжительность: 06:17:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87159E3DAA1A8B7E26BBAC0F13496E7CB7EE7EDD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_990185.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 990 132
+
+VA - Super Dance Party vol.6  2016  [MP3|320 кб с] <Club , Dance , House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Alan Walker - Faded  Salazar Pakyo Remix Club Edit 
+02. Javi Reina Feat. Jonny Rose - My Time  Dj Tht Edit 
+03. Klaas Feat. Jelle Van Dael - Far Away  Original Mix 
+04. Maestro Harrell feat. Posso - True  Radio Edit     Читать дальше...    Жанр: Club , Dance , HouseПродолжительность: 05:26:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70520EF0DD95782352EFBC7E84EDD18B45F158E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_990132.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 990 100
 
 VA - Italo & Space Disco Vol. 3  2016  [MP3|320 кб с] <Italo Disco, Spacesynth>
@@ -1890,106 +1990,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986272.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 986 244
-
-VA - Record Super Chart № 423  2016  [MP3|320 кб с] <Club House, Electro House, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-1. KSHMR, Marnik - Bazaar!
-2. Sander Van Doorn, Moti - Lost
-3. Jay Hardway - Electric Elephants
-4. DJ Smash feat. Ridley - Lovers 2 Lovers    Читать дальше...    Жанр: Club House, Electro House, DanceПродолжительность: 01:25:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:20BCBEE6632450AC9CA95623FF55379A712CF1F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986244.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 986 059
-
-VA - Рок впрок 5  2016  [MP3|320 kbps] <Рок, Поп-Рок>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Мэнчестер - Бей в барабан
-02. Электропартизаны - Пока не поздно
-03. Иваново Детство - С тобой
-04. Альтависта - За несдавшихся врагу    Читать дальше...    Жанр: Рок, Поп-РокПродолжительность: 03:11:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E1A4A08D1906D64DB2C4D1C0F1FA02F96E2E509
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986059.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 985 896
-
-VA - Снежная лавина популярных хитов радио Шансон  2016  [MP3|256 kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Централ - Весна
-02. Михаил Мартынов - Королева
-03. Роман Алешин - Встреча
-04. Юрий Герляйн - А За Окнами Дождь    Читать дальше...    Жанр: ШансонПродолжительность: 06:11:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6020BCDA043913B061971E1F5867D54C03F2D746
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_985896.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 985 873
-
-VA - Sunrise Lovers Vol 1: 20 Relaxing Lounge Tunes  2016  [MP3|320 kbps] <Downtempo, Chillout,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-1. Jessica Hathaway - Africanism Look  Bonus Track  03:23
-2. Sarah Martin - Little Expression 03:54
-3. Lounge Surfers - Fairground 06:09
-4. James Walden - Guitar Dreams 04:20    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90AA6CAB88D54FE93B1ECCB5C94F939948B2E7A9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_985873.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

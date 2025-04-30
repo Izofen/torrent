@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 438 549
+
+Supermax - Greatest Hits  2012  [FLAC|Lossless] <Rock, Pop-Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Bango Bongo  5:44 
+02. Lovemachine  7:42 
+03. Be What You Are  2:54 
+04. It Ain t Easy  4:18     Читать дальше...    Жанр: Rock, Pop-RockПродолжительность: 02:38:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED97532341B85CAF867273D369617AAF1694CB6C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_438549.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 432 853
+
+Борис Моисеев - 15 альбомов  1996-2009  [MP3|128-320 kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1 – Этa Боль
+2 – Небо на Двоих  дуэт с гр.Ассорти 
+3 – Песенка Золушка
+4 – Лебеди  дуэт с К.Кирьяновым     Читать дальше...    Жанр: Pop
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A647A195110C481B27C5C34FC553CB3FBBBB5C88
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_432853.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 432 684
+
+C.C.Catch - 25th Anniversary Box  5CD   2011  [MP3|320 kbps] <Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Жанр: DiscoПродолжительность: 00:53:17
+01. House Of Mystic Lights  4:10 
+02. Strangers By Night  4:54 
+03. Heartbreak Hotel  2:48     Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B7BCD7FBE1E7CE5D953CE49B03134DC7DCEDE38B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 431 586
 
 Добры Молодцы - Лучшее  2011  [FLAC|Lossless]<Pop>
@@ -2024,75 +2099,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_296455.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 295 462
-
-Наталья Ветлицкая - Deluxe Collection (2004) [APE|Lossless]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.Жанр: Pop ||Продолжительность: 01:19:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3AE5839C1C887DEED0C7B1BFFAB39E6EFB08F150
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_295462.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 294 605
-
-Chilly - Ultimate Collection  Non-Stop  2010  [FLAC|Lossless]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Sunshine Of Your Love :: 6:29
-02. Play Me A Classic Symphony :: 2:54
-03. We Are The Popkings :: 4:02
-04. Doll Queen :: 2:26    Читать дальше...    Жанр: DiscoПродолжительность: 01:20:04
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_294605.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 293 241
-
-Dee D. Jackson - Space And Time  2010  [FLAC|Lossless]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-Жанр: DiscoПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_293241.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

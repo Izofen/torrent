@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 366 378
+
+VA - Beatport Chillout: Electro Sound Pack #28  2020  [MP3|320 Kbps] <Chillout, Lounge, Downtemp
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Maximilien - Crazy Vocoding
+002. Chris Le Blanc - Into My Dream  Original Mix 
+003. Ambrozia - Velvet  Peter Martin Remix 
+004. Ticane - Altitude    Читать дальше...    Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:01:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E7A2423F28009551AAEAA213778FF6922D84C910
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366378.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 377
+
+VA - Alone With You: Deep House Extended Set  2020  [MP3|320 Kbps] <Deep House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Abel A Beat - The Deep Eyes  Original Mix 
+002. Action Alexi - Beautiful Life
+003. Albin Lee Meldau - I Need Your Love  Just Kiddin Remix 
+004. Bautista Orol - Latinoamerica    Читать дальше...    Жанр: Deep HouseПродолжительность: 11:31:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EDF4F207EE4FEEBC01A06229A10E47CC24043D5B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366377.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 374
+
+VA - B машину ремиксы Vol. 1  2020  [MP3|320 Kbps] <House, Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. 2 Маши - Инея  ASSEL Remix 
+02. DJ Antoine & Тимати feat. Григорий Лепс - London  Stereoact Remix 
+03. Hammali & Navai - Фары Туманы  Izzamuzzic Remix 
+04. Александр Пушной & Rammstein  Passkeeper Remix     Читать дальше...    Жанр: House, Pop, DanceПродолжительность: 03:40:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:50CAC48E24F260FEC9FCF2FC64439D4663D6D6EA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366374.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 295
+
+VA - Beatport Electro House: Sound Pack #23  2020  [MP3|320 Kbps] <Electro House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Evgenii Grachev - Few  Original Mix 
+002. Jhon Bernal - Patience  Original Mix 
+003. Carda Feat. Sophia - For A Little
+004. Kevin Brand - Falling For You    Читать дальше...    Жанр: Electro HouseПродолжительность: 11:36:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5FFD3AD4D307AB3DBEA08CC83A86E5BA3C627259
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366295.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 366 294
 
 VA - Bass Pantheon  2020  [MP3|320 Kbps] <Drum & Bass>
@@ -1895,106 +1995,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1361369.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 361 301
-
-VA - Дискотека 2020 Deep House - The Best Vol.7 от NNNB  2020  [MP3|320 Kbps] <Deep House, Nu Di
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Diego Power - Don t Look at Me  Original Mix   5:08 
-02. Serge Legran - Love me like crazy  4:19 
-03. TRITICUM - Waiting For  Original Mix   3:06 
-04. A. Rassevich, Susie Johnson - The Dice  5:13     Читать дальше...    Жанр: Deep House, Nu Disco, OtherПродолжительность: 38:50:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:67076521951D0D0F6C9FECDA807B75355E192AA8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1361301.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 361 176
-
-VA - 100 Greatest Dance Anthems  2020  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Stardust - Music Sounds Better With You  Radio Edit  4:21
-002. Donna Summer - I Feel Love 3:45
-003. Daft Punk - One More Time 5:20
-004. Inner City - Good Life  Original 12  Mix  4:05    Читать дальше...    Жанр: Pop, DanceПродолжительность: 08:36:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7CAF170D6AABDC9DC8B9259E886DB29CB190168
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1361176.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 360 935
-
-VA - Romantic Souls: Popular Lyric Collection  2020  [MP3|320 Kbps] <Pop, Lyric>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Neron - Decomposing
-02. Hilaa - Naked
-03. Cassidy Janson - Fairytale
-04. 1Team - Not Afraid    Читать дальше...    Жанр: Pop, LyricПродолжительность: 04:26:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F22459538E085772FF8FAB7D0E9598CCFF29C413
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1360935.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 360 932
-
-VA - Sentimental Blues  2020  [MP3|204-320 Kbps] <Blues, Lyric>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Lost Soules - Can t Get Enough Of Her Sweet Stuff
-002. Erja Lyytinen - Stolen Hearts
-003. Sue Foley - Come To Me  Featuring Charlie Sexton 
-004. Gracie Curran & Friends - Ernestine    Читать дальше...    Жанр: Blues, LyricПродолжительность: 08:00:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EE7DEE3793D57CC210CC8F682F9804C40BA19B77
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1360932.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

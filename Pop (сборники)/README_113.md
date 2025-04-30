@@ -1,4 +1,90 @@
 ﻿
+###  Публикация: 830 563
+
+Мальвина - 2 альбома  1990  [MP3|192 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+1990 - Магнитный альбом
+1990 - НочьЖанр: ПопПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E83BFD1CDFC4FE53F7F0E63313F030AD80F9AB7F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_830563.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 830 219
+
+Jessie Ware - Tough Love  2014  Deluxe Edition [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Tough Love
+ 02. You & I  Forever 
+ 03. Cruel
+ 04. Say You Love Me
+ 05. Sweetest Song
+ 06. Kind Of...Sometimes...Maybe
+ 07. Want Your Feeling
+ 08. Pieces
+ 09. Keep On Lying
+ 10. Champagne Kisses    Читать дальше...    Жанр: PopПродолжительность: 00:58:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6BD298560243052DF8C8E8FDBE5CD0390A637AA1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 830 103
+
+VA - NRJ Hit Music Only 2014 Vol. 2  2014  [FLAC|Lossless]<Top 40, Pop, Electronic, Dance, Club,
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. David Guetta feat. Sam Martin - Lovers On The Sun  3:24 
+02. Coldplay - A Sky Full Of Stars  Radio Edit   3:55 
+03. Charli XCX - Boom Clap  2:48 
+04. Fréro Delavega - Sweet Darling  2:42 
+05. Iggy Azalea feat. Charli XCX - Fancy  3:17 
+06. Nico & Vinz - Am I Wrong  4:04 
+07. Indila - Run Run  3:44 
+08. Hardwell & Joey Dale feat. Luciana - Arcadia  3:14 
+09. Fly Project - Toca Toca  Radio Edit   2:46 
+10. Tal - Marcher au soleil  3:21     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Electronic, Dance, Club, House, Synthpop, R&B, Soul, Reggaeton, ZoukПродолжительность: 02:13:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9E94A9864363078BDBF44E402BB1E2D7BB6713F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 830 015
 
 Tokio Hotel - Kings Of Suburbia  2014  [FLAC|Lossless]<Pop Rock, Alternative Rock, Electronic>
@@ -2285,99 +2371,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812632.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 436
-
-VA - Playlist Hits 2014 Vol.2   2014  3CD [MP3|320 кб с]<Club, EuroDance, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Indila - Derniere Danse
-02. Tom Odel l - Another Love
-03. OneRepublic - Counting Stars
-04. Cats On Trees - Sirens Call
-05. Cris Cab - Liar Liar
-06. Katy Perry - Unconditionally
-07. Milky Chance - Stolen Dance
-08. Zaz - Si
-09. Skip The Use - Nameless World
-10. Keen’V - Petite Emilie    Читать дальше...    Жанр: Club, EuroDance, PopПродолжительность: 03:36:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D7787B1BA52F36B02E45492FA4C1C20F05548FA1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 385
-
-Luv - You re The Greatest Luver  1996  [MP3|320 кб с]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. You re The Greatest Lover 2:53
-02. Casanova 3:51
-03. U.O.Me 2:56
-04. My Number One 3:14
-05. Shoes Off  Boots On  3:08
-06. Don Juanita De Carnaval 3:12
-07. Trojan Horse 3:24
-08. Louis Je T Adore 3:42
-09. Don t Let Me Down 2:36
-10. Eeny Meeny Miny Moe 2:53    Читать дальше...    Жанр: DiscoПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F1B390227AFD9A5C1905B9E24AF14714E2019760
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812385.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 382
-
-Luv  - Gold  1993  [MP3|320 кб с]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. You re The Greatest Lover 2:52
-02. U.O.Me 2:58
-03. Trojan Horse 3:25
-04. My Man 3:05
-05. Eeny Meeny Miny Moe 3:00
-06. Ooh, Yes I Do 2:59
-07. I Like Sugar Candy Kisses 3:37
-08. Dream, Dream 3:30
-09. One More Little Kissie 3:47
-10. Life Is On My Side 2:38    Читать дальше...    Жанр: DiscoПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C97A14B469B5B1AA0C901BA579BD65366966F34F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812382.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

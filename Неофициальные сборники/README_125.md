@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 132 221
+
+VA - Dancefloor Sweetest Anthems  2017  [MP3|320 Kbps] <Twerk, Reggaeton, G House, Fusion, Urban
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Geko - Drunk On You  Clean  02:59
+002. Zedd & Alessia Cara - Stay  ShadowReD Remix  Clean 03:39
+003. Skiavo & Vindes - KNAS 2k17  Original Mix  Clean 03:26
+004. M83 vs Kygo & Selena Gomez - It Ain t Midnight  DJ Nasa Mashup  Clean 03:58    Читать дальше...    Жанр: Twerk, Reggaeton, G House, Fusion, Urban, Moombahton, Trap, Electro, DancehallПродолжительность: 09:45:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5BAD725B444E9492CF3B5F7C469A3C9D79CBC9D3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132221.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 132 208
+
+VA - 90 s Eurodance  2017  [MP3|320 Kbps] <Eurodance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  2 Unlimited - The Real Thing  3:41
+02.  La Bouche - Be My Lover  Radio Edit   3:59
+03.  Alexia - Me And You  Radio Version   4:06
+04.  Robert Miles - Children  Radio Edit   4:07    Читать дальше...    Жанр: EurodanceПродолжительность: 03:49:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E2B052CA50DB7F14F05B776C6649395DF3007F98
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132208.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 132 178
+
+VA - Ham!d Production April  2017  [MP3|192-320 Kbps] <Pop, House, Trance, Dance>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01.  Aly & Fila - Beyond The Lights  Extended Mix   7:46
+02.  Black M - French Kiss  3:41
+03.  C-Bool - Never Go Away  3:49
+04.  Maroon 5 & Future - Cold  Sak Noel Remix   3:46    Читать дальше...    Жанр: Pop, House, Trance, DanceПродолжительность: 03:17:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:38B89D718673A676FD4C49E826ACF2300519B651
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132178.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 132 116
+
+VA - Empire Records - Space Disco  2017  [MP3|320 Kbps] <Nu-Disco>
+Неофициальные сборники
+Прочее (сборники)
+
+###  Подробнее
+
+01.  Alex Di Lecce - Hot Shot  Francesco Caramia Remix   5:16
+02.  MV Edit - 80s Reloaded  Extended Mix   7:31
+03.  Neo Mind & Irina Wiggle - Take Me To The Stars  Paolo Madzone Zampetti Disco Mix   6:41
+04.  Asters - Jupiter  3:52    Читать дальше...    Жанр: Nu-DiscoПродолжительность: 01:47:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FCD35492D250E8BEDC8EC695FE0E9C477B04CF65
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132116.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 132 098
 
 VA - Горячая весенняя танцплощадка выпуск № 2  2017  [MP3|256 Kbps] <Pop>
@@ -1891,106 +1991,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1129878.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 129 829
-
-VA - German Top 100 Single Charts 01.05.2017  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-001. Luis Fonsi – Despacito  feat. Daddy Yankee 
-002. Ed Sheeran – Shape of You
-003. Burak Yeter – Tuesday  feat. Danelle Sandoval 
-004. Jason Derulo – Swalla  feat. Nicki Minaj Ty Dolla ign     Читать дальше...    Жанр: PopПродолжительность: 05:56:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05DC35AE439E8042C625B15DC69E119C1869AD77
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1129829.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 129 814
-
-VA - Music Of Dreams: Original Relax Mix  2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-001.  Deep Sleep Hypnosis Masters - Massage Music  3:26
-002.  Xerxes & Phoenix - Scarecrow  4:04
-003.  351 Lake Shore Drive - Frozen Heart  6:51
-004.  Marga Sol - Ibiza Blue  5:03    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:37:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5FBCB06225BF76480A8009B7EBA71D379865F91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1129814.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 129 773
-
-VA - Nostalgia Collection  Volume Second   2017  [MP3|320 Kbps] <Pop, Rock, Disco>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001.  Francis Goya - Nostalgia  3:53
-002.  Liza Minelli - Cabaret  3:37
-003.  Boyz II Men - End Of The Road  5:54
-004.  SuperMax - Camillo  4:05    Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 10:25:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:143CBF4077D35A42828E80B9808BA903E8A3EF9C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1129773.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 129 696
-
-VA - Nostalgia Collection  Volume One   2017  [MP3|320 Kbps] <Pop, Rock, Disco>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001.  Demis Roussos - From Souvenirs To Souvenirs  2:38
-002.  F.R.David - Words  3:28
-003.  Enigma - Principles Of Lust  4:13
-004.  Earth, Wind & Fire - Fantasy  3:48    Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 09:34:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E912F2350EEED93428E62175E7ABF41CFEC12C6B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1129696.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

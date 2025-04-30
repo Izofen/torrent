@@ -1,4 +1,80 @@
 ﻿
+###  Публикация: 1 260 299
+
+Rasmus Seebach - Ingen Kan Love Dig I Morgen  2013  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Sandstorm
+02. Øde Ø
+03. I Min T-Shirt
+04. Olivia    Читать дальше...    Жанр: PopПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F252AEB212B8D73022D1BB00171280D60AF497D9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260299.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 252
+
+VA - Top Of The Pops  1978  2018  Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+После довольно продолжительного перерыва продолжаю серию путешествий по победителям топов прошлого века  ссылки на предыдущие релизы смотрите внизу .
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители     Читать дальше...    CD1
+01. John Travolta & Olivia Newton-John - You re The One That I Want   2:51 
+02. ABBA - Take A Chance On Me   4:04 
+03. Boney M - Rivers Of Babylon   4:16     Читать дальше...    Релиз состоялся: 16.03.2018Жанр: 1970s, pop, rockПродолжительность: 02:50:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:362B0C2798C78EA930A6E4AF85C16C4DED8A7913
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260252.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 157
+
+VA - 90s 00s and 10s Love Songs  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Meg Birch - One Last Time
+02. The Shaken Bakers - Love Will Keep Us Alive
+03. Shannon & Keast - Yours
+04. Karizma Duo - A Thousand Miles    Читать дальше...    Жанр: PopПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:00AAB8A708D1AE7DAA2982034F8BA620C4CEC1A0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260157.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 260 089
 
 VA - Die Deutschen Disco Charts - Die Hits Des Jahres  2018  3CD [MP3|320 Kbps] <Schlager>
@@ -1913,81 +1989,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252718.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 252 711
-
-VA - School Days - The Ultimate Collection  2018  5CD [MP3|320 Kbps] <Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD 01:
-01. Human League - Don t You Want Me
-02. Soft Cell - Tainted Love
-03. Madness - Baggy Trousers    Читать дальше...    Жанр: Pop, RockПродолжительность: 05:42:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF3C20AE2CA6A32678517142C9FDA75377855F8B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252711.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 252 614
-
-Loreen - Ride  2017  [FLAC|Lossless|tracks] <Pop, Electronic, Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.  71 Charger  4:12 
-02. Dreams  4:40 
-03. Jupiter Drive  5:25 
-04. Fire Blue  4:20     Читать дальше...    Жанр: Pop, Electronic, RockПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4D5798B45B1C36A9BFF3EA407A5D3ACDAFFAEF3F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252614.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 252 343
-
-Carol Lloyd - Score  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Score  4:11 
-02. Sundown To Sunrise  4:32 
-03. Plans For Tomorrow  6:52 
-04. Shake Me Wake Me  3:51     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E6F576A66C4EED2946D1B59D48D832733CE477D8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252343.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

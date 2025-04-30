@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 752 071
+
+Mylene Farmer - Nevermore (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Prologue
+02. Du temps
+03. Peut-être toi
+04. Libertine(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2768C3395C25DC545B4361E884B85017F7884D71
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1752071.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 752 065
+
+E-Rotic - Level Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Maxxx (Radio Edit Remastered)
+02. You Hooked Me Up (Radio Edit)
+03. Out Of My Life (Radio Edit)
+04. My Heart Is Ticking Like A Bomb (Radio Edit Remastered)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C992FC5167A5551BE172596E6B6E4CFC097E58E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1752065.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 752 031
+
+Michael Buble - The Best of Buble (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Feeling Good (3:56)
+02. Haven't Met You Yet (4:05)
+03. Sway (3:08)
+04. Everything (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:51FD3E903D399F4B823E8F3EDA9023621FED4ABD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1752031.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 751 865
 
 Modern Talking - Modern Talking 40 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop, Euro Dance
@@ -1916,81 +1991,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746455.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 746 305
-
-EMIN - Столько лет спустя (2024) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Каменное сердце
-2. Такая одна
-3. Океан
-4. Столько лет спустя(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:734D9F070B4D613687FC4143F8EF2E4AAB7A3BEF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746305.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 746 274
-
-Игорь Николаев - Летние хиты нашей молодости (2024) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Выпьем за любовь
-2. 18 лет
-3. Мельница (remake)
-4. Родные люди(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4BE9965C71CB120FBA261E2054E69ADE5905B150
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746274.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 746 273
-
-Поющие гитары - Поющие гитары (2024) Live [MP3|320 Kbps] <Pop, Retro>
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-1. Не ломай черёмухи (Live)
-2. Из-за острова на стрежень (Live)
-3. Смуглянка (Live)
-4. Мотокросс (Live)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FC1B7FEA984BD8C422C105AB3B11B5F0292CBE0E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746273.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

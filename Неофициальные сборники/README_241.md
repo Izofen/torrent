@@ -1,4 +1,119 @@
 ﻿
+###  Публикация: 502 710
+
+VA - Наше Радио 200 Хитов  2012  [MP3|128 кб с]<Rock>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Сплин - Страшная секрет
+002. Земфира - Деньги
+003. Танцы минус - Нна
+004. Би-2 - Девушки
+005. Святослав Вакарчук - Адреналін
+006. Гарик Сукачев и Неприкасаемые - Долго-долго!
+007. Noize MC - Вселенная Бесконечна
+008. Мара - Головокружения  Я Голосую За Мэра-Гея! 
+009. Ночные Снайперы - Гугл  Google 
+010. Браво - Нет Предела    Читать дальше...    2012Жанр: RockПродолжительность: 12:35:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B694D41CC36BBEE9D17B363A319A08F922911D91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_502710.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 502 675
+
+VA - Классный Muzon Best Hits  2012  [MP3|192-320 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Armin Van Buuren Pres. Gaia - Status Excessu D  Radio Edit 
+02. Ian Carey, Snoop Dogg, Bobby Anthony - Last Night  Rhab Remix 
+03. Dj Niki & Mc Kako$ - Make Love  Special Radio Version 
+04. Taio Cruz feat. Flo Rida - Hangover
+05. ATB feat. Jansoon - Move on
+06. Gilles Luka Feat Niusha - Plus Pres
+07. Flo Rida feat. Christina Aguilera - Good Feeling  Official Remix 
+08. Pulsedriver vs. Djs Form Mars - Youth Of The Nation  DJ Gollum Edit 
+09. Dj Erohin & Marq Markuz - Dj, Kill Me By Yo Music
+10. David Guetta feat. Flo Rida & Nicki Minaj - Where Them Girls At    Читать дальше...    2012Жанр: PopПродолжительность: 05:59:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:39A346E88933CC98F99066CCC47A46E6037FCB2C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_502675.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 502 648
+
+VA - Авто хит. Динамит 101.2 FM  2012  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Клипsа - Это я.
+002. Вельвеt - Прости.
+003. Ж. Фриске - А на море белый песок.
+004. П. Гагарина - Любовь под солнцем.
+005. Лера Лера - Леди.
+006. Ю. Морозова - Скучаю  DJ Vitalik Vitamin mix .
+007. Точка G - Полетели за мной.
+008. Е. Отрадная - Оревуар.
+009. Данко - Ломаная линия.
+010. Валерия - Кривое зеркало.    Читать дальше...    2012Жанр: Pop, DanceПродолжительность: 05:53:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A8157A7C0217A88F583A0D3559EEC6660FAD1EE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_502648.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 502 584
+
+VA - Инструментальная музыка  2012  vol. № 52 [MP3|320 кб с]<Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:00:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A6D3053025617FAF24BAC7CD616E25A09354D27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_502584.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 502 507
 
 VA - Українські Народні Пісні: Українська Гулянка  2011  [MP3|128,320 кб с]<Folk>
@@ -2158,112 +2273,6 @@ Instrumental New Age Meditative Relax  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_493633.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 493 621
-
-VA - Инструментальная музыка  2012  vol. № 29 [MP3|320 кб с]<Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:39:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DD63D75D6F617B87ECAFBEBDF7FA9CD14BBAB40F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_493621.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 493 088
-
-VA - Лучшие Хиты Радио Дача Часть 8  2012  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001 Юрий Шатунов - А лето цвета
-002 ВИА Гра - Диско
-003 Денис Майданов feat. Филипп Киркоров - Стеклянная любовь
-004 Наташа Королева - Небеса
-005 София Ротару и Николай Басков - Я найду свою любовь
-006 Чай Вдвоем - Улетай
-007 Наталья Бучинская - Река любви
-008 Валерий Меладзе - Потерян и не найден
-009 Ирина Билык - Мы будем вместе
-010 Андрей Бандера и Рада Рай - Догорит костер  новая версия 2012Жанр: PopПродолжительность: 06:15:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:11FEAAE8A02F87A7C0C4B856A499AF7A60FC068F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_493088.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 493 063
-
-VA - Клубный Хит в Машину! Vol.1  2012  [MP3|320 кб с]<Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Luis Lopez feat. Adena - Lay Me Down  Extended Mix 
-02. Groove Breaks - Hands In The Ayer  Original Mix 
-03. Andrea Del Vescovo feat. Jay - Ibiza  Extended Mix 
-04. Phoenyx & Kunala - Feel  Original Mix 
-05. Marc Simz feat. Naomi Striemer - This Is Love  Radio Edit 
-06. Will.I.Am ft. JLO & Mick Jagger - Go Hard  R3hab vs The Eye Remix 
-07. Aura Dione - Geronimo  DJ RICH-ART Remix 
-08. Taito vs. Benny G - Make A Move  Original Mix 
-09. Инфинити - Другая  Extended Mix 
-10. Pascal & Pearce feat. Juliet Harding - Disco Sun2012Жанр: Dance, ClubПродолжительность: 05:02:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:23587A09C11746AB2404814DD123E34810AD4AD4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_493063.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 493 040
-
-VA - Песни Великой Победы  10CD   2012  [MP3|320 кб с]<Ретро, военные песни>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-2012Жанр: Ретро, военные песниПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:68139F67A9D024CF579DF4D6CC9D56DE43CE5304
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_493040.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

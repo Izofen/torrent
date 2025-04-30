@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 027 416
+
+VA - Chill House Diamonds Vol 4  2016  [MP3|320 кб с] <House, Future Jazz, Downtempo>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Cool Vibe Orchestra - In the Choose  Night Voice Mix  [04:02]
+ 02. Diego Dee - Sweet on My Suite  Dee Dee Mix  [03:46]
+ 03. Fresh Fusion - Gentre Free  Original Mix  [03:40]
+ 04. Electric Fantasy - Farfiza  Onda Nueva Chill Mix  [03:56]    Читать дальше...    Жанр: House, Future Jazz, DowntempoПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6BD60DBF136A9E6ED1D0DE9B86311F92A90249F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1027416.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 027 407
+
+VA - Guitar Collection 5  2016  [MP3|320 кб с] <Instrumental, Acoustic, Blues-Rock>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Mick Abrahams - Dragonfly    03:18
+002. Morcheeba - Public Displays Of Affection    03:08
+003. Neal Schon - El Matador    03:51
+004. Mark Knopfler & Evelyn Glennie - Altamira    02:59    Читать дальше...    Жанр: Instrumental, Acoustic, Blues-RockПродолжительность: 07:58:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0F40BFA95CC9D194F46037F519E54B5B7FC2B794
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1027407.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 027 243
+
+VA - I Love Ballads - Part VIII  2016  [MP3|256 кб с] <Rock, Pop, Chanson>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Enrique Iglesias - Mmacita
+02. Christina Milan - When You Look At Me
+03. Chris De Burgh - Snow Is Falling
+04. Celine Dion - I m Alive    Читать дальше...    Жанр: Rock, Pop, ChansonПродолжительность: 01:52:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:01118101F2A1C37CF4E497CC37F1281FC34B2FE5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1027243.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 027 234
+
+VA - New Age: Deep Sleep Lullabies  2016  [MP3|320 кб с] <Downtempo, Chillout, Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Lucinda Luvaas - Drifting Off to Sleep
+02. Ryan Rapsys - Inland Serenity
+03. Suzanne Schnite - Adrift
+04. Piotr Janeczek - Lost Souls    Читать дальше...    Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:03:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B60B4EEAF442FAA05C6FBC0D05BAD55663ED2AB6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1027234.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 027 217
 
 VA - I Love Ballads - Part VII  2016  [MP3|256 кб с] <Rock, Pop, Chanson>
@@ -1894,106 +1994,6 @@ VA - Хит сезона  радио Шансон  2016  [MP3|256 кб с] <Ша
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1024396.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 024 363
-
-VA - Neuro House Version Driver  2016  [MP3|264-320 кб с] <Electronic, House, Progressive, Fun
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Tom And Collins - Obsessed  Vijay And Sofia Remix  05:42
-02. Zir Rool - Belii  Original Mix  07:31
-03. Vic Flairs - Algebraic Expression  Original Mix  09:18
-04. WeRWolvz - When I See You  Original Mix  04:45    Читать дальше...    Жанр: Electronic, House, Progressive, FunkyПродолжительность: 08:36:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5EE875299283CF27F083115061F1B518466C2E90
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1024363.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 024 340
-
-VA - Pure Instrumental Music  2016  [MP3|320 кб с] <Electronic,Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Ac G - Summer Lawns  03:53 
-02. BGPONE - Introspektiv  04:33 
-03. Da Jungle - Mystical Fever  05:01 
-04. Christian Loeser - Sternenlied  03:07     Читать дальше...    Жанр: Electronic,InstrumentalПродолжительность: 01:51:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9A964E716F2FCDBC1735E7F1BF298734334B5518
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1024340.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 024 201
-
-VA - Love Therapy: Romantic Piano and Instrumental  2016  [MP3|320 кб с] <Downtempo, Chillout,
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Toni Verde - Heroes of Galaxy - Main Theme
-02. LifeBlood - Essence
-03. Toni Verde - Piano Moods
-04. Josh Freeman - A Cup of Tea    Читать дальше...    Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:970BFB6077868C91A98931D42DE89EBCF31BB7B6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1024201.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 024 196
-
-VA - Жаркое Хитовое Лето  2016  [MP3|256 кб с] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. АГОНЬ - Лето
-02. Влад Топалов - Я Помню
-03. НеАнгелы - С Днём Рождения
-04. Afrojack - Unstoppable    Читать дальше...    Жанр: PopПродолжительность: 06:18:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7B3181E46769E33998060392DF8BBC31BE418853
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1024196.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

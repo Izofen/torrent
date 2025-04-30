@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 537 235
+
+VA - Smooth Jazz: Variations On A Melancholy Theme  2CD   2022  [MP3|320 Kbps] <Smooth Jazz,
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+Чувственность вокала, утонченность и элегантность саунда, соло клавишных, плавность и гармоничность мелодии - все это делает Smooth Jazz тем, каким мы его любим.CD 01:
+
+01. Mindi Abair - Home
+02. Marcin Wasilewski Trio - Vashkar    Читать дальше...    Жанр: Smooth Jazz, Relax RomanticПродолжительность: 09:51:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CE9D870E8EEA9F206A398850A2335737A49B07CC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537235.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 537 229
+
+VA - The Lion Reggae  2022  [MP3|320 Kbps] <Reggae, Riddim, Reggaeton, Dub>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+Неспешный темп и размеренный ритм Регги создает особую атмосферу, способствующую умиротворению и благостному состоянию душевного настроения. Здесь четко прослеживается стремление к гармонии, духу мира, где основная идея это полное отсутствие негатива, стремление к примирению с собой и окружающими, полный релакс и успокоение.001. Chaka Demus - Build Bridges
+002. Gondwana - Volver A Sentir
+003. Press Kay - Live Your Lies
+004. Dreadlock Tales - Stop Meddling    Читать дальше...    Жанр: Reggae, Riddim, Reggaeton, DubПродолжительность: 08:04:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:374D3D2BDCA8E9D88E3D8CCAC329CF5C4DFFDF99
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537229.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 537 221
+
+VA - NME Essential Synthpop Hits  2022  [MP3|320 Kbps] <Synthpop, Electropop, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+В окно уже стучится весна, просыпается природа, проскальзывают тёплые, солнечные лучики. Первое пробуждение от всего спящего, немного заторможенного, новые краски жизни, новые эмоции и новые впечатления. Именно под это весеннее настроение прекрасно гармонирует музыка сборника под названием  NME Essential Synthpop Hits .001. Grape Milk - Jellyfish Murder Spree
+002. Flux Pavilion - Partial Fugue In B Minor
+003. Hot Chip - Hand Me Down Your Love
+004. Yello - Rush For Joe    Читать дальше...    Жанр: Synthpop, Electropop, DanceПродолжительность: 07:05:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F269518C78630292D9B3D80531026921BA3D39B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537221.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 537 218
+
+VA - My Soul And Song: Rock Blues Compilation  2022  [MP3|320 Kbps] <Blues, Rock Blues>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+Блюз баллады - это по настоящему та музыка, что всегда можно назвать откровенной, которую можно назвать простой и изысканной вместе с тем, которая является понятной всеми и любимой всеми. Представляем вам лонгплей из 110 отменных зарубежных рок блюз баллад. У Вас будет 110 разнообразных романтических треков, многие из которых вы, может даже, услышите впервые или     Читать дальше...    001. Shemekia Copeland - Uncivil War
+002. Vidar Busk - Goindown South
+003. Spirits Having Fun - Plastic Party Perfect
+004. Jaye Hammer - Shes My Baby Forever    Читать дальше...    Жанр: Blues, Rock BluesПродолжительность: 07:52:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:38EE042D7F4807CDDFA65FFC5526263E326B934E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537218.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 537 214
 
 VA - Hipster Punk  Hipster Punk  [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
@@ -1893,106 +1993,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532594.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 532 588
-
-VA - Metal Playlist  2022  [MP3|320 Kbps] <Rock, Metal>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Slipknot - Duality
-02. Satyricon - Commando
-03. Manowar - Kings of Metal
-04. Avenged Sevenfold - Nightmare    Читать дальше...    Жанр: Rock, MetalПродолжительность: 04:57:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:31C2B544B5DDA7F5469A192F7057A992F5FEB8A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532588.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 532 538
-
-VA - Зайцев.нет Лучшие новинки Февраля  2022  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. CAPTOWN - С любовью  2:05 
-02. INSAF, Альба Рябова - Пополам  3:32 
-03. KOTOIN - Raksha  Original Mix   3:15 
-04. NILETTO - Angels  2:43     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3F445573DBB12BAB5E474E2917DB3669A43FEF08
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532538.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 532 477
-
-VA - Country: New Folk Music  2022  [MP3|320 Kbps] <Country, Folk, Blues>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Это музыка является наследием творчества первых колонистов - переселенцев из Европы в Новый свет, представляя собой характерное смешение фольклора различных европейских народностей, которые были широко представлены в колониальной Америке. Впоследствии полюбившаяся музыка обрела широкую популярность и нашла себе применение в балладах американских ковбоев.001. Johnny Cash - The Caretaker
-002. Chris Janson - Beer Me
-003. Brothers Osborne - It Ain t My Fault
-004. Diplo - Hometown    Читать дальше...    Жанр: Country, Folk, BluesПродолжительность: 09:00:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B05FAE4CEE3B62695AFE81C946B4B80D31EFD5A0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532477.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 532 473
-
-VA - Formed Of Clay  2022  [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-:Если вам симпатизирует авторский креативный полет души, и вы без опасения приемлете чрезвычайно разную музыку и при том цените качество и профессионализм, то убедительно рекомендуем обратить внимание на релиз  Formed Of Clay  и вы не останетесь разочарованы.001. Urfaust - Vom Freien Tode
-002. K2 - Bad Luck Attitude
-003. Stormruler - Culling Of The Blood Moon
-004. Ishvara - Shape Of A Void To Come    Читать дальше...    Жанр: Hard Rock, Metal, HardcoreПродолжительность: 10:23:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C2228909EDB2FE36653C7CFF1C06C269E99409D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1532473.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

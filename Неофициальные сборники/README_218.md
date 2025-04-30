@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 747 029
+
+VA - Хит за Хитом  2014  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Эдуард Изместьев  экс-Андрей Бандера  - Не летай беда вокруг
+02. Игорь Мешкой - Украду тебя
+03. Сергей Родня - Срок
+04. Поспелов Ростислав и МАСтер - Цыганская-хулиганская
+05. Алексей Брянцев - Без тебя
+06. Лукьяновка - Скрипка
+07. Сергей Порт и Марина Вальдман - Богиня
+08. Алексей Созонов - Корабли уходят
+09. Александр Жданов - Поединок
+10. Денис Мафик - ПапаЖанр: ШансонПродолжительность: 06:21:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2CFB3E642663A46E503F63108E7AFB9972BB0050
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 747 006
+
+VA - Топ 100 Самых Лучших Хитов 80-х Зайцев Нет  2014  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Михаил Муромов - Яблоки на снегу
+002. Mr. President - Coco Jambo
+003. Moon Ray - Comanchero
+004. Heath Hunter - Revolution In Paradise
+005. Modo - Ein, Cvei, Polizei
+006. Gazebo - I Like Chopin
+007. Modern Talking - Brother Louie
+008. Рома Жуков - Мишель  Ural Dance Mix 
+009. Форум - Белая ночь
+010. Мираж - Звёзды нас ждут    Читать дальше...    Жанр: Pop, DanceПродолжительность: 08:26:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:78C3BB3870703B82832DC3D0DD0C8B6155A78F6B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_747006.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 746 939
+
+VA - Дискотека 80-90х. Новогодняя Discoночь 4  2013  [MP3|256-320 кб с]<Retro, Pop, Dance, Roc
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Божья Коровка - Камушек
+002. Captain Jack - Captain Jack
+003. Мираж - Я Больше Не Прошу
+004. E-Type - Fight In Back
+005. И. Корнелюк - Дожди
+006. Chris Norman & Suzi Quatro - Stumblin`in
+007. Веселые Ребята - Я К Тебе Не Подойду
+008. Pet Shop Boys - Always On My Mind
+009. Самоцветы - Увезу Тебя Я В Тундру
+010. Dj Paul - Rainbow In The Sky    Читать дальше...    Жанр: Retro, Pop, Dance, RockПродолжительность: 06:58:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0B8E0FB0554ADDDA69F996FD3290B5EF75CB4610
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 746 796
+
+VA - Клубняк в Авто Top 50 Special Selected  2014  [MP3|320 кб с]<Club>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Storm Queen - Look Right Through  MK Vocal Extended 
+02. Calvin Harris feat. Ayah Marar - Thinking About You  Laidback Luke Remix 
+03. 2 Unlimited - Get Ready  Steve Aoki Extended Mix 
+04. Hardwell & MAKJ - Countdown
+05. Dimitri Vegas & Like Mike Vs Sander van Doorn - Project T  Martin Garrix Remix 
+06. Sono - Flames Get Higher  Dirty Disco Youth Remix 
+07. Ahzee - Born Again  Original Extended Mix 
+08. Mr. Black feat. Esthera Sarita - Loud
+09. Stefan Dabruck - Acid Phase
+10. Micha Moor - Phunk!Жанр: ClubПродолжительность: 03:01:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:38FA7B4A79CBC18B36526D74299DF057A545CD16
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 746 725
 
 VA - Golden Saxophone 2014  2014  [MP3|320 кб с]<Instrumental, Sax>
@@ -2303,118 +2427,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 739 511
-
-Roxette - 25 Best Songs  2012  [MP3|~245 кб с]<Pop, Rock>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. The Look 1988
-02. Joyride 1991
-03. How Do You Do! 1992
-04. Neverending Love 1986    Читать дальше...    Жанр: Pop, RockПродолжительность: 01:42:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97B93C35286A569607E97DB663AD6C388420C7DC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_739511.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 739 442
-
-Александр Малинин - MP3 Play  2013  [MP3|320 кб с]<Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Если бы не ты
-02. Нет пути назад
-03. Вьюга
-04. Моя Россия    Читать дальше...    Жанр: ПопПродолжительность: 04:46:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2E2B927FC369E654DDB47436B91ABF88AEF2F34E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 739 419
-
-VA - Дискотека 2013 Dance Club Vol. 122 [Новогодняя!]  2013  [MP3|320 кб с]<Club, Pop, Dance,
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Афродита - Новый Год
-02. Emilia & Lazar - Dame Tu Amor
-03. Иван Дорн vs. Slider and Magnit feat. Марсель - Праздник К Нам Приходит  Sergei KrasilnikoV SK Новый Год Mash-Up Plus 
-04. Milena feat. D.I.P Project - Aura  Original Version 
-05. Turbotronic - Do It  Extended Mix 
-06. Aruba ICE & Greysound - Новогодняя 2014  Original Mix 
-07. Enrique Iglesias feat. Gente De Zona & Descemer Bueno - Bailando
-08. Поющие Трусы - Ничего не помню  Новогодняя 
-09. DJ Favorite and Laura Grig feat. Garik Moshennik - С Новым Годом 2014  Radio Edit 
-10. Jam & Spoon ft. Plavka vs David May & Amfree - Right In The Night  Rico Bernasconi Remix     Читать дальше...    Жанр: Club, Pop, Dance, Trance, House, Rap & Hip-hop, Dubstep, Chillout, TrapПродолжительность: 12:37:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:88D174558847218BA4482E5955064CB4A4F8387D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 739 399
-
-VA - Музыкальная олимпиада. Музыка для двоих.  2 CD   2013  [MP3|320 кб с]<Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-01. Xandria - The Dream is Still Alive  4:17 
-02. Markize - Poussieres de Vie  4:15 
-03. Doro - Tausend Mal Gelebt  4:17 
-04. Eclipse Sol-Air - Schizophilia  4:34 
-05. Battle Beast - Savage And Saint  5:39 
-06. Lumsk - Hostnat  3:40 
-07. Diablo Swing Orchestra - Kevlar Sweethearts  4:23 
-08. Picture Me Broken - If I Never Wake Again  5:00 
-09. Van Canto - Master of the Wind  6:09 
-10. Apocalyptica - Broken PiecesЖанр: RockПродолжительность: 01:15:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EA21BB5C7F279352274FF7F86B446D31CEED7E53
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_739399.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

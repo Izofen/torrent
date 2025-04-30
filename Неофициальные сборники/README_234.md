@@ -1,4 +1,122 @@
 ﻿
+###  Публикация: 599 154
+
+VA - Рок в Авто  vol. 7   2013  [MP3|320 кб с]<Hard Rock, Heavy Metal, Power Metal, Nu Met
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Blue Stahli - Doubt
+ 02. The Bloody Beetroots feat. Refused - New Noise
+ 03. Within Temptation - What Have You Done  feat. Keith Caputo 
+ 04. DefRage - Puddle Of Nirvana    Читать дальше...    Жанр: Hard Rock, Heavy Metal, Power Metal, Nu Metal, Alternative metal, Electronic RockПродолжительность: 05:04:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4DABC8A16E501AB7C0604E2F3BE2B1A52CB700B2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_599154.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 598 867
+
+VA - Итоговый Независимый Хит–Парад - «Чартова Дюжина 2012»  2012  [MP3|128-320 кб с]<Rock, Pu
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+14. Ю-Питер - 10 шагов*  4:51 
+ 15. Кукрыниксы - Хрустальный мир  4:15 
+ 16. Би-2 - Девушки  3:45 
+ 17. Пилот - Сумасшедшим жить легко*  4:00 
+ 18. Оргия Праведников - Наша Родина - СССР  3:51 
+ 19. ДДТ - Напиши мне, напиши  5:43 
+ 20. Король и Шут - Счастье  3:24 
+ 21. Земфира - Деньги  3:37 
+ 22. Ночные Снайперы - Что мы делали прошлым летом  2:49 
+ 23. Чайф - Для Него  4:24     Читать дальше...    Жанр: Rock, Punk-Rock, Folk-Rock, Soft-RockПродолжительность: 05:44:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8580217263D144F1BD0069F9295EEEBBA2501E17
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_598867.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 598 302
+
+VA - Дискотека 80-х. Лучшее  2013  [MP3|320 кб с]<Disco>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001.Facts & Fiction - Love Game  feat.Jerome 
+002.Michael Jackson - Pretty Young Thing
+003.Hank Shostak - Don T Tell Me
+004.Curacao - You
+005.Stage - Can t Get You Out Of My Mind
+006.Jessica - Chinese Magic
+007.Boney M - Let It All Be Music
+008.Thomas Anders - Soldier
+009.Fancy - Fools Cry
+010.Ricchi E Poveri - Malinteso    Читать дальше...    Жанр: DiscoПродолжительность: 08:23:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D2715D1FB34AC72196F9005EA5DEB6C290FACAC3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_598302.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 597 920
+
+VA - Aqua Trance Volume #01 - #31  2012-2013   Обновляемая  [MP3|320 кб с]<Uplifting Tranc
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Продолжительность: 03:03:49
+
+01. Cathy Burton & Omnia - Hearts Connected  Skytech Remix  [07:53]
+ 02. Ana Criado & Ronski Speed - Afterglow  Ronski Speed Remix  [08:32]
+ 03. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase  Original  [11:01]
+ 04. Daniel Wanrooy - Dog Day Afternoon [06:01]
+ 05. Dash Berlin feat. Emma Hewitt - Like Spinning Plates  Club Mix  [05:39]
+ 06. Dub Effect feat. Mix Usha - Perfect Love [05:40]
+ 07. Kenneth Thomas feat. Colleen Riley - The Heart Speaks  Damian William Remix  [06:31]
+ 08. Ian Betts - Under Below  Original Mix  [08:06]    Читать дальше...    Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:16:44
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 597 714
 
 VA - Модный Зимний Выпуск  2012  [MP3|256 кб с]<Pop>
@@ -2272,130 +2390,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_576375.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 576 358
-
-VA - MAXI. Лучшие хиты для убойной вечеринки  2012  [MP3|320 кб с]<Pop, Dance, Club>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-01. That s Right - Innamorati  Radio Edit 
-02. Оксана Ковалевская - А Девочке Хочется
-03. Alex Megane - Turn Me On  Radio Edit 
-04. Allexinno feat. Starchild - Joanna  Radio Edit 
-05. Paul Van Dyk feat. Plumb - I DonСЌt Deserve You  Radio Edit 
-06. Xilent - Touch Sound
-07. Dirty Deejays - In The Club  Radio Edit 
-08. Inna - J Adore  Radio Edit 
-09. YarosLOVE - Again
-10. DJ Kuba & Ne!tan ft. Heidi Anne - Be My Baby  Radio Edit     Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 04:53:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1EDA85CD512CEF3D786611226AFCD8957D18B6E4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_576358.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 576 346
-
-VA - Самые популярные осенние песни  2012  [MP3|320 кб с]<Pop, Rap, Rock, Dance, Club, House>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. 5sta Family - Вместе Мы
-02. ADELE - Rolling in the Deep
-03. Adele - Skyfall
-04. Alex Clare - Too Close
-05. Alex Ferrari - Bara Bara Bere Bere
-06. Alex Gaudino feat. Taboo
-07. Amelia Lily - You Bring Me Joy  Full Single Version   2012 
-08. Arash feat. Sean Paul - She Makes Me Go
-09. Aura Dione Feat. Rock Mafia - Friends
-10. Azuro feat. Elly - Je Ne Sais Pas  R.I.O. Remix     Читать дальше...    Жанр: Pop, Rap, Rock, Dance, Club, HouseПродолжительность: 06:18:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B8D40526F17930C36891E9D1FC2D750ED3BD7B57
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_576346.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 576 082
-
-VA - DubStep - Pro V.4  2012  [MP3|320 кб с]<DubStep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Adventure Club feat. Kai - Need Your Heart  Minnesota Remix 
-02. Opiuo - Fizzle Tickler  Original Mix 
-03. Ludovico Einaudi - Ascolta  Flaer Smin 3D Chillout Remix 
-04. Carousel - Let s Go Home  Sound Remedy Remix 
-05. Xilent feat. Shaz Sparks - Universe
-06. The XX - Angels  TrapZillas Remix 
-07. Citizen Cope - Lifeline  Figure Remix 
-08. Total Recall feat. Mark McKenzie - Never Let Go  Subsonik Remix 
-09. Krewella - Alive  Pegboard Nerds Remix 
-10. Vexare - Polar    Читать дальше...    Жанр: DubStepПродолжительность: 04:33:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:875D4613F74F9E176293DEA39A531B87991183FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_576082.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 575 891
-
-VA - Наше Радио: Лучшее и Новое  2012  [MP3|128 кб с]<Рок>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-002. Кукрыниксы - Хрустальный Мир
-003. Сплин - Страшная Тайна
-004. Антитела - Смотри В Меня
-005. Сансара - Любящие Глаза
-006. Lunchbox - Стальная Нить
-007. Алиса - Ангел
-008. Король И Шут - Христова Невеста
-009. Конец Фильма - На Все 100роны
-010. Ддт - Напиши Мне, Напиши
-011. Василий К. & Интеллигенты - Баллада Об Уходе В Рай    Читать дальше...    Жанр: РокПродолжительность: 12:35:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6BB5935F92B7790E8BCB5B239685AFB06709621A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_575891.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

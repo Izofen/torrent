@@ -1,4 +1,101 @@
 ﻿
+###  Публикация: 1 265 353
+
+Unknown Brain - Superhero  2017  feat Chris Linton [MP3|320 Kbps] <Electronic>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+1. Unknown Brain - Superhero ★ feat Chris LintonЖанр: ElectronicПродолжительность: 00:02:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8CE80BA7871C3D4A18CCC6736D1331268DC5A5F4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265353.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 265 323
+
+VA - THIS is the 60 s  2018  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Shirley Bassey - Goldfinger
+02. Matt Monro - Born Free
+03. Noel Harrison - Windmills of Your Mind
+04. Frankie Vaughan - There Must Be a Way    Читать дальше...    Жанр: PopПродолжительность: 05:09:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2BE09C0408E17D85BBE90604B82D6EC2D48C8E99
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265323.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 265 321
+
+VA - New Releases of the 24th Week of 2018  2018  [MP3|320 Kbps] <Pop, Tropical, Hip Hop, Reggae
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Luis Fonsi, Stefflon Don - Calypso
+002. Tofer Dolan - Baby Daddy
+003. Rudimental, Major Lazer, Anne-Marie, Mr Eazi - Let Me Live
+004. Mau Y Ricky, Becky G - Mal De La Cabeza    Читать дальше...    Жанр: Pop, Tropical, Hip Hop, ReggaeПродолжительность: 08:45:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A54AF428921A63DCB4348A8C2EF9FA97B0277899
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265321.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 265 315
+
+VA - Mixtape Electro House For Morning Awakeining  2018  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Benny Benassi - Everybody Needs A Kiss
+002. Aky - All For One
+003. Andrey Plavinskiy - 5Th Avenue
+004. Faulhaber Ft. Jake Reese - Savannah    Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 10:23:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F1A32CB853C4DFBE7EC299071F2913AA76237F6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1265315.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 265 312
 
 VA - Deep Movement: Techno Sound  2018  [MP3|320 Kbps] <Techno, Electronic>
@@ -1892,106 +1989,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260650.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 260 647
-
-VA - Frozen Beats  2018  [MP3|320 Kbps] <Bass, Drum and Bass, Dubstep>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Bcee - Surfacing
-002. Fox Stevenson - Bruises
-003. Carlito & Addiction - Rumours  Original Mix 
-004. Enta - Warped    Читать дальше...    Жанр: Bass, Drum and Bass, DubstepПродолжительность: 08:33:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:34661DAF1560D57E9A04ECD446A4202020FA285D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260647.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 260 644
-
-VA - Electronic Space  2018  [MP3|320 Kbps] <Electronic>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Bonfarado - Hot Cupboard
-002. Caterina Barbieri - How To Decode An Illusion
-003. Audion - Dem Howl
-004. Matt Sassari - Speshial    Читать дальше...    Жанр: ElectronicПродолжительность: 09:45:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D86F989BED3118B7409FA27D8BED7FD3EA497CE8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260644.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 260 642
-
-VA - An Olden Sea Of Prayers  2018  [MP3|320 Kbps] <Heavi, Black, Death Metall>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Tankard - Don t Bullshit Us!
-002. Leo - Baby Shark
-003. Pryamo - Explota
-004. Leo - Hollaback Girl    Читать дальше...    Жанр: Heavi, Black, Death MetallПродолжительность: 10:16:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75AFD071B5643BFF1837F0E8E95D8160D35A0068
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260642.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 260 392
-
-VA - New Age Style - Enigmatic 29  2018  [MP3|320 Kbps] <New age, Enigmatic>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Devaldi - Amaranthine  3:42 
-02. Grvty - Le Verset  4:00 
-03. David Thomas - Sacred Lotus  4:04 
-04. Black Ether - Life Is a Microchip  7:43     Читать дальше...    Жанр: New age, EnigmaticПродолжительность: 02:38:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:275EB81CC77DE4779A43874E52E373993A0BB7BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260392.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

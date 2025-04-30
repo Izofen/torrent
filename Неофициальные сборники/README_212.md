@@ -1,4 +1,127 @@
 ﻿
+###  Публикация: 782 691
+
+Юта - MP3 Play  2014  [MP3|320 кб с]<Поп, Рок>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Мел
+02. От большущего ума
+03. Авария
+04. Похмельная
+05. Чёрные стаи
+06. Мальчишка, ты чей
+07. Колыбельная
+08. Одна
+09. Мороз и лед
+10. Солнце мое    Читать дальше...    Жанр: Поп, РокПродолжительность: 04:32:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0FF9A141BB1FADE3785DC6EFF11BB51D4B1547CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 782 684
+
+VA - Unforgettable Melodies. Listen And Feel  2012  [MP3|320 кб с]<Instrumental>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+ 3:40  01. Vanessa Mae -  I  Can, Can  You 
+ 3:19  02. Richard Clayderman - A Comme Amour
+ 4:25  03. Yukie Nishimura - A Letter
+ 3:22  04. Paul Mauriat - Alla Figaro
+ 3:53  05. Bond - Allegretto
+ 2:38  06. Richard Clayderman - Ballade pour Adeline
+ 3:48  07. S.F.A - Beyond Hope
+ 4:18  08. Lindsey Stirling - Crystallize
+ 6:46  09. Vanessa Mae - DestinyЖанр: InstrumentalПродолжительность: 02:41:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:42673C65EC8DB8DBF65CF349A8A0B60DD8FAA612
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_782684.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 782 654
+
+VA - Большая Дискотека. Кумиры прошлых лет Vol.3  2014  [MP3|256 кб с]<Pop, Dance, Disco>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Fancy - Angel Eyes  03:43 
+002. Kylie Minogue - Turn It Into Love  03:36 
+003. Backstreet Boys - We ve Got It Goin On  03:38 
+004. Lian Ross - Say You ll Never  06:36 
+005. C.C.Catch - Don t Be A Hero  03:32 
+006. Bryan Adams - Victim Of Love  04:07 
+007. Silent Circle - Sib Dab Dua  03:02 
+008. Gloria Estefan - Cuts Both Ways  03:12 
+009. Expose - Point Of No Return  03:28 
+010. Al B. Sure! - Nite And Day  03:51     Читать дальше...    Жанр: Pop, Dance, DiscoПродолжительность: 06:40:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7FF8A12FB5327DB6E04A3837FDBCCC71F979248D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 782 600
+
+VA - Pioneer Discoteque  Пионерский лагерь. Дискотека   2013  [MP3|320 кб с]<80s Style, It
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Scotch -  Delirio Mind 1985
+02. Boney M -  Happy Song 1984
+03. Modern Talking -  Hey You 1986
+04. Bad Boys Blue -  Dance The Night Away 1986
+05. Blue System -  Gangster Love 1987
+06. Fancy -  Lady Of Ice 1986
+07. Joy -  Hello 1986
+08. Silent Circle -  Stop The Rain In The Night 1986
+09. Eddy Huntington -  USSR 1986
+10. Opus -  Life Is Live 1985    Читать дальше...    Жанр: 80s Style, ItaloDisco, DanceПродолжительность: 05:06:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:74403795639BCEE9DE5BD74E38313BEE47EA6BBE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_782600.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 782 523
 
 VA - Hits RFM  2014  [MP3|256 кб с]<Pop, Dance>
@@ -2290,121 +2413,6 @@ VA - Top Club Music World Hits 5414  2014  [MP3|254-320 кб с]<Club, Euro, Hou
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 777 620
-
-VA - Romantic collections of everything  1999  [MP3|128-256 кб с]<New Age, Pop, Enigmatic, Eas
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Жанр: New Age, Pop, Enigmatic, Easy ListeningПродолжительность: 06:45:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:43FFC65F6486E3912D857CFEB59CD7812EB7A755
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_777620.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 777 616
-
-VA - Очень Горячая Штучка Зарубежный Выпуск  2014  [MP3|256 кб с]<Pop, Dance, Club>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Chris Lake ft. Jareth - Helium  Radio Mix 
-02. Showtek - We Like To Party  Radio Edit 
-03. Lea Michele - To Find Yo
-04. Allexinno & Starchild - Samira
-05. Greg Gelis feat. Fabrizio Levita - Gravity
-06. Yellow Claw ft. Rochelle - Shotgun
-07. Hailing Jordan - Wolfhound
-08. Zedd ft. Matthew Koma & Miriam Bryant - Find You  Dave Aude Radio Mix 
-09. Deepside Deejays - In My Heart
-10. Thomas Newson ft. Angelika Vee - Dont Hold Us  Radio Edit     Читать дальше...    Жанр: Pop, Dance, ClubПродолжительность: 06:07:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DF6F46BD1223C3DDAC7FD4FD98460EBC36C0347
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 777 593
-
-Слава Шанс - Подборка треков Слава Шанс  2014  [MP3|192 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
- 1:58  01. Паровозики
- 3:15  02. Гуляли ЛяЛи
- 3:52  03. Летите журавли
- 2:57  04. Водочка
- 3:44  05. Гуляй братва
- 3:22  06. Как тебя забыть  с Ксюша 
- 2:46  07. Ай Лав Ю
- 4:40  08. Белым снегом
- 3:02  09. Танька Хулиганка
- 3:02  10. Город детства    Читать дальше...    Жанр: ШансонПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:69701B30660DEAFED084FD9C5D598D428D89F532
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_777593.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 777 331
-
-VA - The best music without slow  2014  [MP3|128-320 кб с VBR CBR]<New Age, Instrumental, En
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Chinmaya Dunster -  Right Samadhi
-02. Sarangi -  Sindhuli gadhi
-03. Terra Incognita -  Cala Violina  Ravi - Joshua 
-04. Chris James & Wendy Grace -  Crow
-05. Merlin s Magic - Rueckkehr In Den Fruehling
-06. David Wahler -  A Rose Distilled
-07. Medwyn Goodall -  The Crystal Shard
-08. Anugama - Arabic Journey
-09. VA-Osho -  Sandhya
-10. Jonn Serrie -  The Auran VectorЖанр: New Age, Instrumental, Enigmatic, Electronic, Chillout, Ambient, MeditationПродолжительность: 11:16:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:85A745903037E30C3966BAE3146386B3FD1CE59F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_777331.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

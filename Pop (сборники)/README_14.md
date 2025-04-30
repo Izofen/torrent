@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 654 400
+
+Silent Circle - Best Of Silent Circle Volume II (1993) [FLAC|Lossless|tracks + .cue] <Eurodance, Ita
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Hideaway - Man Is Coming (Instrumental)
+02. Touch In The Night
+03. Moonlight Affair
+04. Love Is Just A Word (Long Mix)(   Читать дальше...   )Жанр: Eurodance, Italo-DiscoПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:28E735F6C30F07D802847CAFAFA927F95D1AEF0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1654400.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 653 452
+
+VA - Vintage Café - The Remixes Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lo
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Anakelly - Speed of Sound (Ronan Remix) (3:25)
+02. Asonne - Flowers (Javier Penna Remix) (2:18)
+03. Nikko Mad - Die for You (3:13)
+04. No.On - What a Wonderful World (Krister Remix) (1:35)(   Читать дальше...   )Жанр: Pop, Easy Listening, LoungeПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B364E341A02468A565BA41A302E515CF0F2B47D4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653452.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 653 447
+
+VA - Zumbadance Workout (2023) [MP3|320 Kbps] <Pop, Latin, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Don Omar - Zumba (4:24)
+02. Feid - Niña Bonita (3:07)
+03. Daddy Yankee - Con Calma (3:13)
+04. J Balvin - In Da Getto (2:10)(   Читать дальше...   )Жанр: Pop, Latin, DanceПродолжительность: 02:51:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6CE5B615F5A259695930AF37D26CF6792CDE2E92
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653447.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 652 861
 
 Nel Oliver - Nel Oliver (1980) LP [MP3|320 Kbps] <Disco, Reggae, Funk/Soul>
@@ -1912,81 +1987,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1638140.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 638 032
-
-VA - Best Road Trip 10's Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights                                                [03:21]
-   02. Maroon 5 - What Lovers Do                                                   [03:19]
-   03. OneRepublic - Counting Stars                                                [04:16]
-   04. Imagine Dragons - Thunder                                                   [03:07](   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 05:45:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5BDBB06EE2BC7F1921A4EF4EE2C6ECA027A45146
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1638032.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 637 860
-
-VA - Perfect Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballads>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Ed Sheeran - Perfect
-2. Benson Boone - In the Stars
-3. Coldplay - The Scientist
-4. Omar Apollo - Evergreen (You Didn’t Deserve Me at All)(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 01:33:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6D3A62FFB3DC5A01589D6F62EE1943FDCF829BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1637860.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 637 836
-
-Michael Jackson - Number Ones  2003  [FLAC|Lossless|tracks + .cue] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Don t Stop  til You Get Enough  2003 Edit 
-02. Rock With You
-03. Billie Jean
-04. Beat It    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:19:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5E6AB19D2B2D9D7C090190FBAE1A3F35CE8235FB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1637836.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

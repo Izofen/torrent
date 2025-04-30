@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 621 910
+
+Romano - Vulkano Romano (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Schrei der Wildnis [00:03:31]
+02. Magical [00:02:21]
+03. Samurai (feat. Alexander Marcus) [00:02:05]
+04. Fetisch [00:02:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:294FB572208F05E6E18E129D23916939995911B2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621910.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 621 900
+
+VA - Mystera VI (2000) [OGG Vorbis|480 Kbps] <Electronic, Classical, Ambient>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Queen - Who Wants To Live Forever
+02. Enigma - Return To Innocence
+03. Rosenstolz - Amo Vitam
+04. Loreena Mckennitt - The Mummers' Dance(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A76310787E0051E155EF1537D674F96B5A01C599
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621900.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 621 837
+
+Lana Del Rey - Did you know that there's a tunnel under Ocean Blvd (2023) [FLAC|Lossless|tracks + .c
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Grants
+02. Did you know that there's a tunnel under Ocean Blvd
+03. Sweet
+04. A&W(   Читать дальше...   )Жанр: Alternative PopПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:363BCCE35E3F0D35B4A0B1006E07E3B577CD44AC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1621837.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 621 437
 
 Lana Del Rey - Did you know that there's a tunnel under Ocean Blvd (2023) [FLAC|Lossless|WEB-DL|trac
@@ -1918,81 +1993,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1615515.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 615 392
-
-VA - Romantic Collection: Лирика  1999  [OGG Vorbis|480 Kbps] <Pop, Folk, World, & Country>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Несчастный Случай-Генералы Песчаных Карьеров
-02 - Алсу-Зимний Сон
-03 - Моисеев Борис-Глухонемая Любовь
-04 - Пугачёва Алла-Не Отрекаются Любя    Читать дальше...    Жанр: Pop, Folk, World, & CountryПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0DB0C143EC757E40B39B97A2EF3C92EC56F5CFDC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1615392.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 615 279
-
-Adam Lambert - High Drama  2023  [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Holding Out for a Hero  03:50 
-02. Chandelier  03:44 
-03. Ordinary World  03:20 
-04. Getting Older  04:24     Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BC6EB9698B2326DE5A727D114645F9BCF92CC762
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1615279.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 614 989
-
-Tommy Seebach - Instrumental  2010  CD, Compilation [MP3|320 Kbps] <Electronic, Synth-pop, Disco
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Walk Don t Run  2:43 
-02. El Bimbo  2:45 
-03. Wipe Out  2:25 
-04. I Will Return  3:20     Читать дальше...    Жанр: Electronic, Synth-pop, Disco, SchlagerПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2E97BD1E4EBC2B839CC7A9FDF59DD1B77A0B4E07
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1614989.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

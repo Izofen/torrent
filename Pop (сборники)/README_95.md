@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 036 621
+
+ВИА Пламя - Золотые шлягеры  2003  [FLAC|Lossless|image + .cue] <Retro>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01.  Не надо печалиться   
+02.  На дальней станции сойду   
+03.  Снег кружится   
+04.  Детства последний звонок       Читать дальше...    Жанр: RetroПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A62DCE893DA76A4AC7A04249A604C913603D24F3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1036621.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 036 607
+
+ВИА Коробейники - Коробейники  2004  [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01.  Золотые купола   
+02.  Ой полным полна моя коробушка   
+03.  Калинушка   
+04.  Огромный мир       Читать дальше...    Жанр: Советская эстрада, РетроПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F648F70EE2309ABF99BF644EB75CADCE378BC1BD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1036607.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 036 589
+
+Savage Garden - Savage Garden  1997  2CD, Mixed [APE|Lossless|image + .cue] <Synth-Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. I Want You  Xenomania Funky mix 
+02. Break Me Shake Me  Broken mix 
+03. Santa Monica  Bittersweet mix 
+04. Tears of Pearls  Tears on the Dancefloor mix     Читать дальше...    Жанр: Synth-PopПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:215EA7CA71DC9F16EB2462780D8596EE2AA36C02
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1036589.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 036 532
 
 ABBA - The Album  1977  Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|image + .cue] <Pop>
@@ -1915,82 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030684.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 436
-
-Vivien Vee - 3 Albums  1979-1983  LP [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Итальянская исполнительница  Диско  и модель,  дебютировала в 1979 году как электронный диско - проект, подготовленный Клаудио Симонетти и Джанкарло МЭО.
-Ее песня  Give Me A Break    стала весьма популярной в американских танцевальных чартах, а песня  Higher  достигла № 36 - в итальянском чарте. Последний сингл вышел в 1989 году.01. Give Me A Break  8:57 
-02. It s Too Soon  9:13 
-03. Come Back  9:42 
-04. Finally Alone  6:26     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 01:46:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BE7971D1F654593695BA924C1862085C951EC05E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030436.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 414
-
-VA - Pavarotti & Friends For War Child  1996  [APE|Lossless|image + .cue] <Rock, Pop, Classical>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Eric Clapton • Luciano Pavarotti • East London Gospel Choir - Holy Mother
-02. Joan Osborne - Saint Teresa
-03. Elton John - I Guess That s What They Call It The Blues
-04. Liza Minnelli • Luciano Pavarotti - New York, New York    Читать дальше...    Жанр: Rock, Pop, ClassicalПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030414.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 030 261
-
-Whitney Houston - Greatest Hits  2010  2CD [FLAC|Lossless|image + .cue] <Rhythm & Blues, Soul>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. 	I Have Nothing 	04:54
-02. 	Didn t We Almost Have It All 	04:39
-03. 	Saving All My Love For You 	04:00
-04. 	All The Man That I Need 	03:59    Читать дальше...    Жанр: Rhythm & Blues, SoulПродолжительность: 02:35:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:33972A7B069BEC454B8192FDB46889A1E3661964
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1030261.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

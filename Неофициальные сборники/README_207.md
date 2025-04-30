@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 803 292
+
+VA - Only Chillout Vol. 01  2014  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Matthew Billings - Unplanned Detours  Original Mix   2:59 
+02. Frainbreeze - Leaving  Vocal Mix   2:41 
+03. Voice of Fractals - Its Never Too Late...  Original Mix   4:27 
+04. Rega Avoena - Earth Angels  Original Mix   5:08 
+05. DJ Artak feat. Sone Silver - I Feel Your Body  Original Mix   6:01 
+06. Ny-Lon feat. Caroline Regan - Without You  Original Mix   3:52 
+07. The Orange - Spiritus Amet  Original Mix   5:10 
+08. Alexander Muratovsky feat. Alla Lu - Keep on Dreaming  Original Mix   5:18 
+09. Soteira - Last Kiss of Vitalia  Original Mix   4:23 
+10. Vitalie Rotaru - Digital Feelings  Original Mix   3:59     Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A1662F6F156D696FDBFD058EC3C4B5751F61D0C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 803 276
+
+VA - Suanda Summer Vol.1  2014  [MP3|320 кб с]<Uplifting Trance, Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Roman Messer - Frozen - Alex M.O.R.P.H. Remix  6:57 
+02. NoMosk - Lost Soul - Radio Edit  4:33 
+03. Aimoon - Your Soul - Photographer Remix  7:00 
+04. Roman Messer - Frozen - Allen & Envy Radio Edit  5:00 
+05. Aurosonic - Tell Me Why - Club Dub Mix  7:10 
+06. Roman Messer - Imagination - Cold Rush Remix  7:04 
+07. Alekzander - Like A First Time - Adam Navel Remix  7:15 
+08. Mino Safy - Karama - Radio Edit  4:04 
+09. In Progress - Alive - Aimoon Remix  8:43 
+10. Alpha Duo - Interstate - Alekzander Remix  7:09 Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CAE97BCDC89DFFB7112EF3AF6A843024D2DAF772
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 803 168
+
+VA - Дискотека Руки Вверх!!! 50 50  2014  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Жасмин - Свадебные Истории
+02. Tiesto feat. DBX - Light Years Away
+03. Сергей Лазарев - 7 Wonders
+04. Lana Del Rey - West Coast  Ten Ven RMX 
+05. SpuTniK - Я Люблю Тебя
+06. Hardwell and Joey Dale feat. Luciana - Arcadia  Radio Edit 
+07. Татьяна Котова  Kottova  - Всё Будет Так, Как Хочешь Ты
+08. No Name - Understand
+09. Ирина Нельсон - Я За Тебя Молюсь
+10. Jennifer Lopez - Booty  feat. Pitbull     Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:09:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A71A2CB75BF2057A757AD0F4BCAB1B5FBB1B2BE2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 803 132
+
+VA - В Шансоне. Спецвыпуск Для Любимой  2014  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Юрий Брилиантов - Милая женщина
+02. Стас Михайлов - Всё для тебя
+03. Кабриолет - За глаза твои
+04. Семен Канада - Одиночество
+05. Евгений Росс - Милая, единственная, нежная
+06. Стас Михайлов - Королева
+07. Алексей Брянцев - Мне не хватает глаз твоих
+08. Александр Доля - Попутчица
+09. Трофим - Остров по имени счастье
+10. Владимир Тимофеев - Чужая женаЖанр: ШансонПродолжительность: 06:33:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B7503C9BA3A8522E7F41E4A5C5E35559A6C4FFC4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 803 126
 
 VA - Red, White & Blues Jazz  2014  [MP3|320 кб с]<Blues, Jazz>
@@ -2329,126 +2453,6 @@ VA - Annual X. Step   Aerobic Best Of  2011  [MP3|320 кб с]<Dance, House, Pop
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:742CD0C5604F401A165CCF595F2EECEB17803F64
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 798 318
-
-VA - В Шансоне. Выпуск 11  2014  [MP3|256 кб с]<Шансон, Авторская песня>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Сергей Пестов - Шиза
-02. Лешиморы - Чурбан-Оглы
-03. Игорь Май - Далеко
-04. Эдвард Айдынов - В Ресторане
-05. Рождество - Цветы Для Маши
-06. Виктор Тюменский - Взлететь
-07. Артур Алибердов - Грешная
-08. Граф Гагарин - Детка
-09. Сергей Гвоздика - Зима И Весна
-10. Олег Гетманский - Жить Не Любя    Читать дальше...    Жанр: Шансон, Авторская песняПродолжительность: 06:03:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A005829E1F61183BDE329FBFD2A30845B73F989
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 798 315
-
-VA - Фитнес Хит  2014  [MP3|320 кб с]<Dance, Pop, House, Rock, Drum & Bass>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. B-Case - Lucky L [03:41]
-02. Cascada - Blink [03:51]
-03. Fort Minor - Remember The Name Feat. Styles [03:50]
-04. Enrique Iglesias - 3 Letters  feat. Pitbull  [03:55]
-05. Linkin Park - A Light That Never Comes  feat [03:51]
-06. Knife Party - Internet Friends  VIP Жанр: Dance, Pop, House, Rock, Drum & BassПродолжительность: 04:33:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A73639CE8FC4130643FC8D47E279E049860844C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 798 043
-
-VA - Летний Хит-Релиз  2014  [MP3|256 кб с]<Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Ангелия - Неразлучные
-02. Dj Saha Dith Feat. Винтаж - Позови Меня
-03. Indira - Не Стирай Меня
-04. Ани Лорак - Оранжевые Сны
-05. Дима Билан - Малыш
-06. Izabella - Под Солнцем
-07. Девушки Эйнштейна - Парни
-08. Reflex - Лето На Окна
-09. Полина Гагарина - Нет
-10. Анна Седокова Feat. Sender - Между Нами    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:06:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13B7F6D8F23AE7F35DF1F615C40990CDCADA9FB9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 798 041
-
-VA - 100 Лирических песен для Любимой  2014  [MP3|256 кб с]<Pop, Dance, Disco, R&B>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. A-Ha - Lifelines
-02. No Doubt - Don t Speak
-03. Ten Sharp - You
-04. Chris Rea - Lookin For The Summer
-05. Emma Bunton - Life In Mono
-06. Johnny Mathis - Feelings
-07. Joan Osborne - One of us
-08. Wye Oak - Civilian
-09. Gazebo - I Like Chopin
-10. Clare Teal - Paradisi Carouse    Читать дальше...    Жанр: Pop, Dance, Disco, R&BПродолжительность: 07:11:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9DF424F85930078F19CCA2388B53EC84F56D70C9
 ```
 
 <div id="header" align="center">

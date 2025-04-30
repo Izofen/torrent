@@ -1,4 +1,76 @@
 ﻿
+###  Публикация: 1 072 538
+
+The Mike Theodore Orchestra - 2 Albums  1977,1979  Reissue, 1998, Westbound Records [MP3|320 Kbp
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Два альбома  Cosmic Wind + High On Mad Mountain  от американского продюсера, аранжировщика и писателя - Майкла Ричарда Теодора - на одном CD.1977 - Cosmic Wind:
+01. Belly Boogie  6:31 
+02. The Bull  6:40 
+03. Cosmic Wind  7:03     Читать дальше...    Жанр: Electronic, Disco, Funk-SoulПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E3C0BC82623862A8F764B6344588D034ED4E6329
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1072538.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 072 512
+
+VA - Танцевальный рай: Best DJ s, Vol. 3  2016  [MP3|320 Kbps] <Dance, Disco, Pop>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Major Lazer & Showtek - Believer
+02. Dimitri Vegas - Stay a While  Radio Edit 
+03. Hardwell - Eclipse
+04. Lost Frequencies - What Is Love 2016    Читать дальше...    Жанр: Dance, Disco, PopПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F509B417C268E5AABB6AD0FD05EDA111D07F5C33
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1072512.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 072 293
+
+Пётр Лещенко - Задушевный голос Родины 2010  2CD [MP3|320 Kbps] <Ретро>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+CD1Жанр: РетроПродолжительность: 02:36:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:12ED8BDB4400147DEB371CC67371FE305154A548
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1072293.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 072 271
 
 Sandra - The Very Best Of  2016  2CD, Compilation, Remastered [FLAC|Lossless|image + .cue] <Pop,
@@ -1917,81 +1989,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065845.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 065 789
-
-The Radio Dept. - Running Out Of Love  2016  [FLAC|Lossless|tracks] <Indie Pop, Synthpop, Dream
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Sloboda Narodu
-02. Swedish Guns
-03. We Got Game
-04. Thieves Of State    Читать дальше...    Жанр: Indie Pop, Synthpop, Dream PopПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4126E1E9F02A4FA0A3DEC888DAE837849F118C5F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065789.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 065 776
-
-Colbie Caillat - The Malibu Sessions  2016  [FLAC|Lossless|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Gypsy Heart
-02. Goldmine
-03. Cruisin 
-04. Like Tomorrow Never Comes    Читать дальше...    Жанр: PopПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BD3FA5B754D7A741284302FE34F74EF2366C44C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065776.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 065 663
-
-Евгений Гетманский - Легендарные песни Вокально-Инструментального Века  1994  [FLAC|Lossless|ima
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.Кто тебе сказал  В.Добрынин - Л.Дербенёв 
-02.Если любишь ты  Ю.Антонов - Л.Дербенёв 
-03.Нет тебя прекрасней  Ю.Антонов - И.Безладнова 
-04.Вот увидишь  В.Добрынин - И.Шаферан     Читать дальше...    Жанр: PopПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B68868077CDF00143204B8D1CB3AD254871046F6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1065663.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

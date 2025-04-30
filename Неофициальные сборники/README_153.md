@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 043 323
+
+VA - Зажги Под Летние Хиты 8  2016  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Аркадиас - Здравствуй Любовь Моя
+002. Slider & Magnit Feat. Penny Foster - Another Day In Paradise
+003. Агонь - Отпусти
+004. Karen Туз Feat. Gaya Khan - Сеньорита    Читать дальше...    Жанр: PopПродолжительность: 06:06:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE5AA5FC35BCA0664A2A363C4FE6F1ACED119D32
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1043323.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 043 319
+
+VA - Муз обоз №5  2016  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Fifth Harmony - No Way
+002. Интонация - Давление
+003. The Dollyrots - Little Medusa
+004. Sasha - Всего Лишь Три Слова    Читать дальше...    Жанр: PopПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5B83038C055D5814F38F4467622AAD5B9FB23DBA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1043319.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 043 316
+
+VA - La Terraza The Magic Of Lounge & Chill House Vol. 1  2016  [MP3|320 Kbps] <Downtempo, Chill
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Love Pacific Industries - Thinking Of You  4:57 
+02. Sunburn In Cyprus - Change  4:00 
+03. Mariana Lucy - Raining  4:11 
+04. Latin League - Mind & Soul  5:05     Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:32:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F4C36D209574FEE41735EE2E070959961D46877
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1043316.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 043 315
+
+VA - 100 Хитов Любимой Музыки  2016  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Medina - Good Enough
+02. Константин Меладзе - Кораблики
+03. Parson James - Slow Dance With The Devil
+04. Rabih - Habibi Hayati    Читать дальше...    Жанр: PopПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:700CA6F401D12D34B64B9CE619F4A68B7A65201D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1043315.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 043 312
 
 VA - Turbo mix World Hits №6  2016  [MP3|320 Kbps] <Pop>
@@ -1891,106 +1991,6 @@ Jazz, Blues, Soul  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1041587.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 041 571
-
-VA - Beatport Trance Pack  08.08.   2016  [MP3|320 Kbps] <Trance,  Progressive, Uplifting Tr
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Kaimo K, Sarah Russell  -  Why Can t You Love Me  Original Mix   6:50
-002. Amo R  -  Viracocha  False 9 Remix   4:44
-003. U-Mount  -  Guard  Original Mix   6:40
-004. Obi  -  Directions  Original Mix   7:05    Читать дальше...    Жанр: Trance,  Progressive, Uplifting TranceПродолжительность: 12:10:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14CC99A08A5137361324F34E6B757B0ADF933653
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1041571.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 041 546
-
-VA - Sexy Deephouse Selection  2016  [MP3|320 Kbps] <Deep House, House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. El Nicoya - Lo Que Mueves [00:06:56]
-02. Shivana Faction - Prime Position [00:07:38]
-03. Spiced Boogie - Upscale [00:05:59]
-04. Unexpected Marvel - Plug and Play [00:06:35]    Читать дальше...    Жанр: Deep House, HouseПродолжительность: 02:14:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B57D22D1B082E11DD46093C2CB3041F454D8F960
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1041546.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 041 541
-
-VA - Summer Hits 100 Empire  2016  [MP3|320 Kbps] <House, Progressive, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Jewelz & Sparks  -  Drip  2:34
-002. Jordi MB & Jason Rene  -  You  Extended Mix   4:16
-003. Dino Sor  -  Pump It Up  Original Mix   5:21
-004. John Legend  -  All Of Me  Tiesto s Birthday Treatment Remix   Radio Edit   4:12    Читать дальше...    Жанр: House, Progressive, DanceПродолжительность: 07:32:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A8517668D4C112BF828055CE7BCF62EB795414CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1041541.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 041 492
-
-VA - Running Hits Summer Edition  2016  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Mike Posner - I Took A Pill In Ibiza  Seeb Remix 
-02. Imany - Don t Be So Shy  Filatov & Karas Remix 
-03. Kygo feat. Parson James - Stole The Show
-04. Kungs & Cookin  On 3 Burners - This Girl    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:48:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CFF295C4439B42E60D04C5D0F9F5E747CCA09B78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1041492.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 412 532
+
+VA - Shazam Хит-парад Russia Top 100 Сентябрь  2020  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Bastard! - F..k That  3:38 
+002. MORGENSHTERN & Тимати - El Problema  Prod. Slava Marlow   2:17 
+003. Rauf & Faik & NILETTO - Если Тебе Будет Грустно  3:11 
+004. Moses & EMR3YGUL Feat. Alexiane - A Million On My Soul  Remix   3:26     Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:09:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3674C750C22CF1CD121AA5E1739E2A7548835854
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1412532.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 412 188
+
+VA - Music for You vol.13  2020  [MP3|320 Kbps] <Rock, Metal, Other>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Afterglow - Ephemeral  04:06 
+ 02. Agonize The Serpent - Amnesia  03:24 
+ 03. Wake Up Frankie - The Outlaw  04:05 
+ 04. We Set Signals - We Want You  03:18     Читать дальше...    Жанр: Rock, Metal, OtherПродолжительность: 03:12:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3383F9776FA49F7A3CD9E39CF088980E418201B0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1412188.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 411 967
+
+VA - Beatport Electro House: Sound Pack #174  2020  [MP3|320 Kbps] <Electro House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Joiodj - Don t Give Up
+002. Roby Barbieri - Erotic Soul
+003. Chris Geldard - Can You Feel It
+004. E1ghth Place - Glitching Out    Читать дальше...    Жанр: Electro HouseПродолжительность: 10:57:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C824FB5E8697757DAF37229D0C2625FAA89B520A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1411967.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 411 965
+
+VA - 101 Rock Blues Foundation  2020  [MP3|320 Kbps] <Blues, Rock Blues>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Shawn James - Haunted
+002. Freddie King - I Don t Know
+003. Harpdog Brown - Stiff
+004. Joanne Shaw Taylor - Jump That Train    Читать дальше...    Жанр: Blues, Rock BluesПродолжительность: 07:28:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9750984AC73B06D61D2F99247FF6E4F4BB71B295
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1411965.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 411 795
 
 VA - Silent Mutiny  Vol.03   2020  [MP3|320 Kbps] <Hard Rock, Hardcore>
@@ -1894,106 +1994,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1407490.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 407 353
-
-VA - Новички в попсе Vol 5  2020  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Adelya - Верь и доверяй себе  2:41 
-02. ANDI - Воспоминания  2:36 
-03. DAASHA - Истерики  2:11 
-04. Emmanuil - Ча Ча Ча  1:54     Читать дальше...    Жанр: PopПродолжительность: 02:24:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DEF90E856D9A3808EF86107415D6759DE9531FDC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1407353.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 407 222
-
-VA - Tears Of The Dragon  2020  [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. March - Challenger
-002. Ockra - In A Dream
-003. Backwater - Sweet Little Passion
-004. Crow Killer - Castigate    Читать дальше...    Жанр: Metal, Hard Rock, HardcoreПродолжительность: 09:00:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2302E88340A010A9A7932D90BC57F0ECEB808CDC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1407222.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 407 217
-
-VA - Ibiza Summer Trance Session  2020  [MP3|320 Kbps] <Trance, Progressive, Uplifting, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Joonas Hahmo - Glittersweet
-002. Aimoon & Audiocells - Aurora
-003. Sunmote - Sonata
-004. Sholan - Forbidden World    Читать дальше...    Жанр: Trance, Progressive, Uplifting, ElectroПродолжительность: 11:45:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6691CB6986331B048E0157E57B1170865B56CBDA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1407217.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 407 214
-
-VA - Beatport Drum And Bass: Electro Sound Pack #173  2020  [MP3|320 Kbps] <Drum & Bass, Electro
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Rumrolla - Whistle  Original Mix 
-002. Cutworx - Zen Champ
-003. Fruitful - Dark Arts
-004. Liveon - Basso Ostinato    Читать дальше...    Жанр: Drum & Bass, ElectroПродолжительность: 10:04:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2351DD5151573160C23E0741DD1A5AF1E667E9EB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1407214.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

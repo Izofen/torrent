@@ -1,4 +1,99 @@
 ﻿
+###  Публикация: 616 430
+
+Talking System - In My Backstreet Heaven  2008    2009 [WavPack|Lossless]<Pop, Synth-pop, Euro
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01.  In My  Backstreet Heaven [03:08]
+02. My Bed Is Too Big [03:24]
+03. Sexy Sexy Lover [03:39]
+04. Doctor Mabuse [04:52]
+05. Ready For The Victory [03:37]
+06. Lucifer [03:30]
+07. You Are Not Alone [03:43]
+08. Sorry Little Sarah [03:13]
+09. China In Her Eyes [03:46]
+10. Deja Vu [03:32]Жанр: Pop, Synth-pop, EurodanceПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_616430.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 616 146
+
+VA - Легенды советской эстрады 50-60гг. Коллекция от Ридерз Дайджест  5CD   2011  [MP3|320 к
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+CD 162. Течёт Волга  Л.Ошанин, М.Фрадкин  Л.Зыкина, академический хор русской песни
+63. Пора в путь - дорогу  С.Фогельсон, В.Соловьев-Седой  С.Яковенко, мужская группа хора Всесоюзного радио и телевидения
+64. Я люблю тебя, жизнь жизнь  К.Ваншенкин, Э.Колмановский] М.Бернес
+65. Подмосковные вечера  М.Матусовский, В.Соловьев-Седой  В.Трошин, женская группа Ансамбля песни Всесоюзного радио
+66. Когда весна придёт  А.Фатьянов, Б.Мокроусов  Н.Рыбников
+67. Весёлый марш высотников  В.Котов, Р.Щедрин  Н.Рыбников
+68. Когда поёт далёкий друг друг  Я.Хелемский, Б.Мокроусов  М.Бернес
+69. Вернулся на Родину  М.Матусовский, М.Фрадкин  Л.Кострица
+70. Огонёк  М.Исаковский  В.Нечаев
+71. Сядь со мною рядом  А.Коваленков, Д.Толмачев, С.Кац  В.Доронин    Читать дальше...    Жанр: поп, ретроПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C2D786866CB4F469D61B38B06787E82484C5CC86
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_616146.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 616 140
+
+VA - 2013 Grammy Nominees  2013  [FLAC|Lossless]<Pop, Dance, Club, Rock, R&B, Trance, House, Oth
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+В ближайшее воскресенье  10.02.2013  состоится 55 по счету  можно сказать юбилейная  церемония награждения премией Гремми  Grammy  - Американской академии звукозаписи, которая учреждена Ассоциацией звукозаписывающих компаний США 14 марта 1958 года.
+Премия является одной из самых престижных наград в современной музыкальной индустрии, которую можно сравнить с премией «Оскар» в кинематографе.
+В этот раз интерес к ней подогрели просьбой номинантам и ведущим не выходить на сцену обнаженными, а уж грудь сестры Джексона     Читать дальше...    1. The Black Keys - Lonely Boy  3:13 
+2. Kelly Clarkson - Stronger  What Doesn t Kill You   3:42 
+3. Taylor Swift - We Are Never Ever Getting Back Together  3:12 
+4. Gotye feat. Kimbra - Somebody That I Used to Know  3:28 
+5. Katy Perry - Wide Awake  3:39 
+6. Fun. feat. Janelle Monae - We Are Young  3:53 
+7. Florence + the Machine - Shake It Out  3:52 
+8. Pink - Try  4:01 
+9. Maroon 5 feat. Wiz Khalifa - Payphone  3:51 
+10. Carly Rae Jepsen - Call Me Maybe  3:13     Читать дальше...    Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2EEEC2E12DACAC69ADD761F4AEB193A2026C6B2C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 615 840
 
 Татьяна Буланова - Я не вернусь  2010  [MP3|320 кб с]<pop>
@@ -2334,93 +2429,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_593803.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 593 205
-
-Игорь Корнелюк - The Best  2012  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Будем танцевать
-02. Город, которого нет
-03. Дожди
-04. Я не могу так жить
-05. Месяц май
-06. Холодно
-07. Дым
-08. Милый
-09. Возвращайся
-10. Маленький дом    Читать дальше...    Жанр: PopПродолжительность: 01:17:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE99539C44F10EC7E2C4A5AFECE047C3070A1A91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_593205.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 592 175
-
-VA - 130 Original Hits - 70 s  2009  6CD[FLAC|Lossless]<Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.	Boney M - Painter Man	[03:19]
-02.	Hot Chocolate - Disco Queen	[03:10]
-03.	George McCrae - Rock Your Baby	[03:18]
-04.	Marshall Hain - Dancing In The City	[03:46]
-05.	Steve Harley & Cockney Rebel - Make Me Smile  Come Up And See Me 	[03:53]
-06.	Roy Wood - Forever	[04:19]
-07.	Gerry Rafferty - Baker Street 	[04:08]
-08.	Roxy Music - Virginia Plain	[02:58]
-09.	Electric Light Orchestra - Roll Over Beethoven  Single version 	[04:32]
-10.	The Move - Tonight	[03:18]    Читать дальше...    Жанр: Pop, RockФормат: 6*CD BoxSetПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA8C03C82A08A3FF73A3F308E8F5ACA986E2594A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_592175.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 591 935
-
-Аида Ведищева - Корабль воспоминаний  Лучшее   2007  2CD [APE|Lossless|image + .cue]<Retro>
-Pop (сборники)
-Советская эстрада, Ретро (Lossless)
-
-###  Подробнее
-
-1. Мелодия любви  Helms Norma, C.Morgan - Д.Чашников 
-2. Песенка вполголоса  С.Заславский - М.Пляцковский 
-3. Чёрный кофе  В.Шаинский - А.Алшутов 
-4. Помоги мне  А.Зацепин - Л.Дербенёв     Читать дальше...    Жанр: RetroПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:79DDBBB7363352903DBC9DB4E719190167B8C22A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_591935.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,97 @@
 ﻿
+###  Публикация: 812 436
+
+VA - Playlist Hits 2014 Vol.2   2014  3CD [MP3|320 кб с]<Club, EuroDance, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Indila - Derniere Danse
+02. Tom Odel l - Another Love
+03. OneRepublic - Counting Stars
+04. Cats On Trees - Sirens Call
+05. Cris Cab - Liar Liar
+06. Katy Perry - Unconditionally
+07. Milky Chance - Stolen Dance
+08. Zaz - Si
+09. Skip The Use - Nameless World
+10. Keen’V - Petite Emilie    Читать дальше...    Жанр: Club, EuroDance, PopПродолжительность: 03:36:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D7787B1BA52F36B02E45492FA4C1C20F05548FA1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 812 385
+
+Luv - You re The Greatest Luver  1996  [MP3|320 кб с]<Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. You re The Greatest Lover 2:53
+02. Casanova 3:51
+03. U.O.Me 2:56
+04. My Number One 3:14
+05. Shoes Off  Boots On  3:08
+06. Don Juanita De Carnaval 3:12
+07. Trojan Horse 3:24
+08. Louis Je T Adore 3:42
+09. Don t Let Me Down 2:36
+10. Eeny Meeny Miny Moe 2:53    Читать дальше...    Жанр: DiscoПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F1B390227AFD9A5C1905B9E24AF14714E2019760
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812385.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 812 382
+
+Luv  - Gold  1993  [MP3|320 кб с]<Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. You re The Greatest Lover 2:52
+02. U.O.Me 2:58
+03. Trojan Horse 3:25
+04. My Man 3:05
+05. Eeny Meeny Miny Moe 3:00
+06. Ooh, Yes I Do 2:59
+07. I Like Sugar Candy Kisses 3:37
+08. Dream, Dream 3:30
+09. One More Little Kissie 3:47
+10. Life Is On My Side 2:38    Читать дальше...    Жанр: DiscoПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C97A14B469B5B1AA0C901BA579BD65366966F34F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812382.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 812 380
 
 Luv - You re The Greatest Luver  1996  [FLAC|Lossless]<Disco>
@@ -2334,93 +2427,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:17BF0129B8DF38961D9AC957430518CC26C78FF6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 806 466
-
-Dschinghis Khan - The History of Dschinghis Khan & Millenium Mega Mixes  1999  [FLAC|Lossless]<D
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-1 The Story Of Dschinghis Khan Part 1  Extended Version 
-2 The Story Of Dschinghis Khan Part 2  Extended Version 
-3 Moskau  99  Rap Version feat. LTC 
-4 Dschinghis Khan  99
-5 Der Verrater
-6 Machu Picchu
-7 Corrida
-8 Samurai
-9 Rome  English Version 
-10 Klabautermann    Читать дальше...    Жанр: DiscoПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5631A9FEC5060E0A2DA5C0F101B0EFB044D057C5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_806466.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 806 441
-
-Mike Mareen - Dance Control  2006  [APE|Lossless]<Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Here I Am 5:12
-02. Cecilia  Remix  6:47
-03. Double Trouble 5:20
-04. Peace To Mankind 4:30    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6AD42193C20336889F0F8BBA4947A729370F090A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_806441.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 806 400
-
-Mike Mareen - Dance Control  1986  [FLAC|Lossless]<Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Love Spy  Salutation-Mix  8:40
-02. Here I Am  Megatrain-Mix  7:30
-03. Peace To Mankind 4:44
-04. Days I Remember 4:51
-05. Midnight Runners 3:37
-06. Agent Of Liberty 8:54
-07. Dancing In The Dark  Galactica Re-Mix  7:10
-08. Double Trouble  Zeppelin Re-Mix  6:37
-09. Cecilia 4:09
-10. Walkin  Highway 4:44    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FCA31FDC0C22287F2BDC62EEFA69E3029CD4AB8E
 ```
 
 <div id="header" align="center">

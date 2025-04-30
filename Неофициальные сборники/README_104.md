@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 213 454
+
+VA - ЕвроХит Топ 40 Europa Plus 16.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Imagine Dragons - Whatever It Takes
+02. Luis Fonsi, Demi Lovato - Echame La Culpa
+03. Jax Jones - Breathe  Ina Wroldsen 
+04. MARUV & Boosin - Drunk Groove    Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:17:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E883C4B09464CFE128226B9B85E4B50654EE5D3A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213454.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 213 418
+
+VA - Empire Records - Church  2018  [MP3|320 Kbps] <Pop, Pop-Rock>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Ocean Jet - Breaking The Stones
+02. X Ambassadors - Torches
+03. Lea Michele - Heavenly
+04. Jena Lee - Le Temps    Читать дальше...    Жанр: Pop, Pop-RockПродолжительность: 01:20:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7ACFA481797A6D8165525C8D0FD82960C8A7E8EF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213418.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 213 359
+
+VA - Зайцев.нет: Лучшие Новинки Марта  2018  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01.  T-Fest  -  Улыбнись Солнцу  3:39
+02.  Ёлка  -  Вот это да!  3:36
+03.  John Newman  -  Fire In Me  4:06
+04.  Jason Derulo  -  Colors  3:07    Читать дальше...    Жанр: PopПродолжительность: 03:44:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:22FE9A9B1CA83E4E70635B876E1805584920C1F1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213359.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 213 342
+
+VA - Neotrance Selected Works [Compiled by ZeByte]  2018  [MP3|320 Kbps] <Neotrance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Synasthesie - Lotus  Clawz Sg Remix  [07:19]
+02. Nick Devon - Skyline  Mallone s City Lights Remix  [07:25]
+03. Frankye Lova, Stephan Seddel - Unstable [08:15]
+04. Jos & Eli, Sean Doron, Jenia Tarsol - Amore [08:27]    Читать дальше...    Жанр: NeotranceПродолжительность: 04:59:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:876E9994534FC2E3C2CD6B3E5AACE69ED1E228F0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213342.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 213 324
 
 VA - The Best Lounge Vol.53  Compiled by Sergio   2018  [MP3|320 Kbps] <Downtempo, Chillout,
@@ -1893,106 +1993,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1209826.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 209 824
-
-VA - Chill Dance Music  2018  [MP3|320 Kbps] <Deep House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. 3 Doors Down - Here Without You
-002. Alastair Pursloe - 36 Degrees in the Shade
-003. AnatolliMal - Coordinates 06,02,15  Original Mix 
-004. Autograf feat. Lils - You Might Be  MICA Remix     Читать дальше...    Жанр: Deep HouseПродолжительность: 08:48:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C2582261E384123B43C858C53DFAB925B4C0A185
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1209824.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 209 816
-
-VA - Galactic Dream Synthspace Version  2018  [MP3|192-320 Kbps] <Synthspace, Synthwave, Electro
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Pavel Kuznetsov - Introduction
-002. SellorektLA Dreams - Evolution of Dreams
-003. Son of Mars - Orbital Voyage
-004. Secret Space - Space Odyssey    Читать дальше...    Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 08:20:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E77CCE5E7E3714914C58E6597F017F1D5602F9FC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1209816.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 209 772
-
-VA - De Top 100 Aller Tijden 1982  Radio Veronica   2017  [MP3|320 Kbps] <Pop, Rock, Disco>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
- De Top 100 Aller Tijden   Топ 100 на Все Времена  от голландской радиостанции  Radio-Veronica  .001. June Lodge & Prince Mohammed - Someone Loves You Honey  3:51 
-002. Ph.D - I Won t Let You Down  4:06 
-003. O. M. D. - Maid Of Orleans  4:08 
-004. Musical Youth - Pass The Dutchie  3:22     Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 06:32:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:04A6266A57A9F5A8508C313FD33473524154B2D6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1209772.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 209 763
-
-VA - Vocal Endless Story  2018  [MP3|320 Kbps] <Energy, Blissful, Uplifting>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Matt Bukovski & Andy Elliass & Arczi With Aneym - All I Can Do  Extended Mix  6:34
-02. Andy Moor & Michele C - We Can Be Free  Evan Pearce Remix  6:33
-03. Rene Ablaze Ft. Crystal Blakk - Torn Into Pieces  Extended Mix  7:11
-04. Sarah Lynn - Put You Together Again  Extended Mix  7:28    Читать дальше...    Жанр: Energy, Blissful, UpliftingПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7D440E783B59C3F11E9818248B75880C6A4F652
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1209763.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

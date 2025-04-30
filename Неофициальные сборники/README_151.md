@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 047 299
+
+VA - Реальные пацаны  2016  [MP3|320 Kbps] <Pop, Hip Hop, Soundtrack>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Евро  -  Колян  2:42
+02. Бака  -  Нига не гони  3:30
+03. Валерий Меладзе и Виа Гра  -  Океан и три реки  3:41
+04. Vavan  -  Мы ваще крутые  4:08    Читать дальше...    Жанр: Pop, Hip Hop, SoundtrackПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0A3E0A2FE32CD8C7FC8CC1DD57E1E2B488BB0503
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047299.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 047 266
+
+VA - The Best of 80-90 s  2016  [MP3|320 Kbps] <Pop, Techno, Dance>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Corona  -  The Rhythm Of The Night  4:24
+002. Cher  -  Believe  3:48
+003. ATB  -  9 Pm  Till I Come   2:42
+004. Alexia  -  Me And You  4:05    Читать дальше...    Жанр: Pop, Techno, DanceПродолжительность: 12:35:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E56668DEC413166638DED65F1AF595C691202221
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047266.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 047 250
+
+VA - Русский Хит от Зайцев.Нет  2016  [MP3|320 Kbps] <Поп, Рэп>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Мот - На Дне
+02. Сати Казанова - Радость, привет
+03. Джиган - Любовь-наркоз  feat. Стас Михайлов 
+04. Iowa - 140    Читать дальше...    Жанр: Поп, РэпПродолжительность: 02:58:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E141F13323EC290BB42BFFECF42534A94F5A6F67
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047250.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 047 232
+
+VA - Breathe We Love The 90s  2016  [MP3|320 Kbps] <Dance, Hip-Hop, Rock>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Nine Inch Nails - Hurt 06:16
+02. Michael Hutchence - The Passenger 04:36
+03. Fatboy Slim - Praise You 05:23
+04. Cradle Of Love - Billy Idol 04:39    Читать дальше...    Жанр: Dance, Hip-Hop, RockПродолжительность: 05:21:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0DD8128D6E825F263EB3CC2D2B94BC9522436779
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1047232.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 047 229
 
 VA - Massive Vocal, Euro, Dance Hits  2016  [MP3|179~320 Kbps] <Pop, Eurodance>
@@ -1897,105 +1997,6 @@ Rock, Alternative, Punk, Metal  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1045031.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 045 014
-
-VA - The Latest Summer Hits  2016  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Lalla - Season Of Love  Astero Remix 
-02. Mia Martina vs Saxattack - Tu Me Manques  DJ Kapuzen & DJ Micky Rossa Mashup 
-03. DiscoVer vs Kirillich & Pride - Paradise Side  Markiza Mash Up 
-04. A-Ha - Take On Me  Yastreb Radio Edit     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:40:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CBB0BDA32F07F02A5960F4ADF473AB7CE4370425
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1045014.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 045 002
-
-VA - The Italian Smooth Jazz All-Starz  2016  [MP3|320 Kbps] <Smooth Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-01. Rocco Ventrella - Swagger  feat. Greg Manning, Michele Violante, Andre Berry & Gorden Campbell   04:11 
-02. Renato Falaschi - Following My Soul  feat. Claude Salmieri, Philippe Gonnand, Remy Roux-Probel & Pat West   05:05 
-03. Papik - S. Francisco Mood  feat. Nerio Poggi, Massimo Satta, Alessandro Sanna, Alessandro Pizzonia, Simone Talone & Fabio     Читать дальше...    Жанр: Smooth JazzПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:41DC37339AE6CCFFB9D6276F0BDAB07F287095C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1045002.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 044 993
-
-VA - Club Dance Ambience Vol.83  2016  [MP3|320 Kbps] <Dance, Club, Club House, House, Electro H
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001.ABBA - Gimme Gimme Gimme  Maurice West Bootleg 
-002.ADAGIO & ANIELLO - Just The Funk  Extended Mix 
-003.ADAGIO & ANIELLO - Just The Funk  Original Mix 
-004.Alekseev - Снов Осколки  Shnaps Remix     Читать дальше...    Жанр: Dance, Club, Club House, House, Electro House, ElectroПродолжительность: 07:17:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0463769933C8D350B4FF2F1F8824F9A4009D8A93
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044993.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 044 982
-
-VA - Авто Хит на радио Шансон 6  2016  [MP3|256 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Кест & Олег Безъязыков - Не Из Золота
-002. Макс Волга - Я Маленький Человек
-003. Михаил Бородин - Старый Альбом
-004. Стас Михайлов - Девочка Лето    Читать дальше...    Жанр: ШансонПродолжительность: 06:10:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5E48314162FD4BE16468BDD0D8C672E65C1437B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1044982.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

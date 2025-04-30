@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 339 444
+
+VA - Take On Me: 80s Anthems - The Ultimate Collection  2019  5CD [MP3|320 Kbps] <Pop, Disco, Ro
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 01:
+
+01.A-Ha - Take On Me
+02.Nena -  99 Red Balloons    Читать дальше...    Жанр: Pop, Disco, RockПродолжительность: 06:18:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:22A65875B2588A5913C13DCEC7200C50D6A2AA2F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339444.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 339 269
+
+VA - Top 40 Latino Caliente  The Ultimate Top 40 Collection   2019  [FLAC|Lossless|tracks +
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+CD1:
+01. Luis Fonsi - Despacito
+02. Shakira feat. El Cata - Rabiosa
+03. Alvaro Soler - La Cintura    Читать дальше...    Жанр: Latin Pop, Electro, DanceПродолжительность: 02:22:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0263335B4E170A0FFE5560642EBAAB646693FD17
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339269.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 339 268
+
+Мохито - Refresh  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Разрывай танцпол
+2. Незаменимых нет
+3. Smoking My Life
+4. Жёлтое такси    Читать дальше...    Жанр: PopПродолжительность: 00:32:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD799A64A536762FECED71765AC1D4EF87A67115
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339268.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 339 057
 
 VA - Now That s What I Call Music! 104  2019  2CD, UK Series[FLAC|Lossless|WEB-DL|tracks] <Pop
@@ -1917,81 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1333437.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 333 408
-
-Cigarettes After Sex - Cry  2019  [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie-Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Don t Let Me Go  04:22 
-02. Kiss It Off Me  04:29 
-03. Heavenly  04:48 
-04. You re the Only Good Thing in My Life  04:35     Читать дальше...    Жанр: Dream Pop, Indie-PopПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F481A578CADDE397028D9256EDBB014C0C7D642F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1333408.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 333 278
-
-СашаЧ - СашаЧ  1999  MDM Studio [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Ты Сегодня Не Придешь
-02. Танцует Лето
-03. Белый Кораблик
-04. Музыка Дождя    Читать дальше...    Жанр: PopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC65A93A281C49D1E4064D87C79EB070D5889BB0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1333278.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 333 134
-
-Andre Morgunoff & Keyorchestra - The Very Best Of  2007  [FLAC|Lossless|tracks + .cue] <Pop, Ele
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. North Land
-02. Bouquet Of Fantasies
-03. E-SoundTrack
-04. Duduk    Читать дальше...    Жанр: Pop, ElectronicaПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5CB0D9CB88FC4240CF005DA2BBACF6A7DEEEC029
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1333134.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

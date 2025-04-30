@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 334 576
+
+VA - Radio Record Представляет Electro House  2011  [MP3|256 kbps]<Club-House>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Atb Feat. Kate Louise Smith - Where You Are  Club Version 
+02. Captain Jack - Freak You  Radio Mix 
+03. Madcon Feat. Maad Moiselle - Outrun The Sun  Cosmic Dawn Club Mix 
+04. The Lonely Island Feat. Santigold - After Party
+05. Selena Gomez & The Scene - Who Says  Dave Aude Club Mix 
+06. R.I.O. - Miss Sunshine
+07. Marcus Maison & Will Dragen - Machu Picchu  Short Mix 
+08. Tritonal Feat. Bethany - Sometimes I Wish
+09. Clare Maguire - The Shield And The Sword  Almighty Club Mix 
+10. Britney Spears - Trip To Your Heart  Alekos Retrovirus Club Mix     Читать дальше...    Жанр: Club-HouseПродолжительность: 08:30:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:17D9D874CB3E25BA1C4788EBA9492EDF1864C148
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 334 177
+
+VA - Дискотека Студии Мираж Часть 4  2011  [MP3|256 kbps]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Мираж - Музыка Вновь Зовет
+02. Рома Жуков & Lady D - Переливы
+03. Татьяна Буланова И Николай Каблуков - Обещай  Dj Савраска Remix 
+04. Partyfon Project - Дискотека
+05. Наталия Гулькина - Я Назову  Твое Имя 
+06. Марина Журавлева - Только Не Ты
+07. Гоголь Моголь - Диско-Ночь
+08. Верка Сердючка - Dolce & Gabbana
+09. Натали - Недоступен
+10. Мираж  Светлана Разина  - Учитель    Читать дальше...    Жанр: PopПродолжительность: 12:30:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:70F3DA5F102D440FF27A3198247651CC728B7F76
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 334 104
+
+VA -  Besame mucho  Концерт одной песни  2011  [MP3|128 kbps]<Bolero,Jazz>
+Неофициальные сборники
+Jazz, Blues, Soul (сборники)
+
+###  Подробнее
+
+1.  Banda machos 	2:54
+2.  The Beatles 	2:35
+3.  Betty Johnson 	3:22
+4.  Cal Tjader  	5:22
+5.  Cesaria Evora 	4:55
+6.  Charo 	        4:30
+7.  Connie Francis 	2:45
+8.  Dalida 	        4:35
+9.  Dave Brubeck 	5:54
+10. Flamingos   	3:11    Читать дальше... Жанр: Bolero,JazzПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 333 755
+
+VA - BEST of TRANCE HITS  2011  [MP3|192-320 kbps]<Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Above & Beyond pres. OceanLab - I Am What I Am  Lange Remix 
+02. Armin van Buuren feat. Jaren - Unforgivable
+03. B.E.D - Lay Me Down  6Am Club Mix 
+04. Dash Berlin ft. Emma Hewitt - Waiting  Vocal Mix 
+05. First State Feat Tiff Lacey - Where Do We Go  Original Mix 
+06. Guru Josh feat. Lauren Rose - Frozen Teardrops  Da Brozz Melody Remix 
+07. Jamie Jo - U Turn Me On  Lenny B Remix 
+08. Josh Gabriel pres. Winter Kills - My Friend  Josh Gabriel Remix 
+09. KeeMo & Tim Royko - Beautiful Lie feat. Cosmo Klein  Inpetto Remix 
+10. Lange feat Sarah Howells - Out of the Sky  Kyau and Albert Mix     Читать дальше...    Жанр: TranceПродолжительность: 02:00:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E8062A8D5109857BF41A5CDCDAF87C8A017854B9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_333755.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 333 579
 
 VA - Vocal Trance Collection Vol.60  06.05.2011  [MP3|320 kbps]<Vocal Trance,Trance>
@@ -1911,94 +2035,6 @@ Electronic (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:60AF0243AB3284294E80656A491FF6970E4AE0E7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 308 580
-
-VA - Чумачечая Весна  2011  [MP3|256 kbps]<Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:34:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6178FA16C41C55FF33BF2B904C9D5FBC91C977B5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 308 574
-
-VA - Дискотека Арлекина №10  2011  [MP3|128 kbps]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:48:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02E272E3923AF6937F8E1EBED651146D30A2274E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 308 460
-
-VA - Хит-парад от студии Союз 50 50  2011  [MP3|128 kbps]<Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:58:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CAA52525C5B9F3E417FA3D6252AC8489021E47BA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 308 263
-
-VA - Best-Of-ка DFm 50x50 №12  2011  [MP3|256 kbps]<Pop>
-Неофициальные сборники
-Pop (сборники)
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:34:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:531AECFB22BE72E35BCB25949685784AA13F8785
 ```
 
 <div id="header" align="center">

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 906 932
+
+Space - Лучшие хиты  2014  [MP3|320 кб с]<Electronic>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Magic Fly
+02. Symphony
+03. Tango In Space
+04. Just Blue    Читать дальше...    Жанр: ElectronicПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1BF1C8E532599B07216D1EF0D54AAE0035569D68
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906932.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 906 848
+
+VA - Дискотека забытых хитов  зарубежная  - 12  2015  [MP3|247 - 290 кб с]<Pop, Disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Jilly - Touch Me  06:01 
+02. Annabelle - In Your Arms  06:16 
+03. Country & Town - Yo Yo  05:32 
+04. Art Fine - Dark Silence  07:59     Читать дальше...    Жанр: Pop, DiscoПродолжительность: 04:03:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:449DBB197F54075AEEA7832E5B58A73E0DDCC631
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906848.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 906 841
+
+VA - My Favourite Hits of 1976  14CD   2015  [MP3|320 кб с]<Electronic, Chanson, Funk, Dis
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Nazareth - Somebody To Roll  03:53 
+002. ABBA - Dancing Queen  03:48 
+003. Smokie - I ll Meet You At Midnight  03:15 
+004. Boney M. - Daddy Cool  03:27     Читать дальше...    Жанр: Electronic, Chanson, Funk, Disco, Pop, Rock, Blues RockПродолжительность: 16:45:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F4E5C4E2E221B0483692EF12B9729246AE82465
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906841.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 906 811
+
+VA - Лирика по венам. Первая доза  2015  [MP3|320 кб с]<Rap, Hip-Hop>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+01. Денис RiDer - Будущая
+ 02. DJ HaLF & SERPO - Мономир
+ 03. Serpo - 24 часа
+ 04. Андрей Леницкий - Никогда    Читать дальше...    Жанр: Rap, Hip-HopПродолжительность: 03:48:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0BAF0AAA443FEDEF1193EFE5AA6E1177490E9ACB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_906811.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 906 810
 
 Алексей Фролов - гр. Condor [MP3|320 kbps]<Romantic Rock>
@@ -1907,106 +2007,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_893006.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 890 937
-
-Dj Ikonnikov - Synth Dance Non Stop Mix Vol. 01 - 13  2009-2015  [MP3|320 кб с]<Electronic, Sp
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Ernesto - Unforgettable Decade
-02. Antilles - Longing For The Spring
-03. Bogyo - High Volume In Spaсe
-04. Galaxion - Adventure    Читать дальше...    Жанр: Electronic, SpaceSynthПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E9FA93013EAEDAF04F1910ED68505F6961909D3B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_890937.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 884 065
-
-VA - In Da Club Vol.82  2015  [MP3|320 кб с]<Trance, Vocal Trance, Classic Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Hoyaa - Android  Original Mix 
-002. Umek & Beltek - Army Of Two  Jay Lumen Main Stage Remix 
-003. Markus Schulz & Dennis Sheperd - Go!  Original Mix 
-004. Luke Bond feat. Emel - Amaze  Original Mix     Читать дальше...    Жанр: Trance, Vocal Trance, Classic TranceПродолжительность: 01:50:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:37F707CFD3E298F2C04B20878CFBF5DFD6AF6B50
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 883 886
-
-(OST) Toy Story 2 - Buzz Lightyear to the Rescue [DC] (Swallow Studios) (1991) [MP3|320 кб/с]<Score>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-Рип был сделан на основе оригинального образа игры01. Title Screen
-02. Andy's House
-03. Andy's Neighbourhood
-04. Mini-Boss Theme(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:12A5B3CF561AE65D2ED0A03712615B7F1EB4A2C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_883886.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 883 577
-
- OST  Battle Formula   Super Spy Hunter [NES Famicom]  Naoki Kodaka   1991  [MP3|320
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Рип был сделал на основе FLAC версии, из сборника01. Stage 1, 4 First Half
-02. Stage 1, 4 Latter Half
-03. Stage 2, 6 First Half
-04. Stage 2, 6 Latter Half    Читать дальше...    Жанр: ScoreПродолжительность: 00:07:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F8178D8B8A9B2496FD97A683E30F340AEACAED5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_883577.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

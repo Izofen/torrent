@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 972 056
+
+VA - The Best Of Alterportal HITS  2015  [MP3|256- 320 кб с] <Alternative, Metal, Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+1. Enter Shikari - Anaesthetist
+2. Periphery - Alpha
+3. Папа Роач - Дьявол
+4. Blue Stahli - Not Over Til We Say So  feat. Emma Anzai of Sick Puppies     Читать дальше...    Жанр: Alternative, Metal, RockПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9DEC7DA452A0AC451A45714AC6FE6C78E5CE1648
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_972056.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 971 991
+
+VA - EuroHit Top 40 - Итоговый выпуск  2015  [MP3|320 кб с] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Sam Smith - I m Not The Only One  04:00 
+02. Charli XCX - Boom Clap  02:47 
+03. Gorgon City & Katy Menditta - Imagination  03:00 
+04. Ellie Goulding - Love Me Like You Do  04:11     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:18:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C165C19C7F78A65440BF91F6359FDE13A895750
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_971991.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 971 877
+
+VA - Top 100 Deep House  December   2016  [MP3|302-320 кб с] <House, Indie Dance, Nu Disco
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. AKA AKA & Thalstroem - Faces  Teenage Mutants Remix 
+02. Alex Preda, Amber Long - DNA Matching feat. Amber Long  Arnas D Dub Remix 
+03. ALEXANDER AUREL - SHOUT  Original mix 
+04. Alexander Hristov & Wallmers - Let`s Go Retro  Original Mix     Читать дальше...    Жанр: House, Indie Dance, Nu DiscoПродолжительность: 10:18:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5B09E9C5405AB4EFC76A2E5C24F1E204FAA393C8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_971877.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 971 870
+
+VA - Explosion Samples Tropic House  2016  [MP3|230-320 кб с] <Tech House, Soulful, Nu Disco,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Ka One & St-Sene - Page Not Found 05:58
+002. Fred P - Slow Euphoria 07:03
+003. Herron - Feet First 05:26
+004. Lnrdcroy - Donny On The River 02:47    Читать дальше...    Жанр: Tech House, Soulful, Nu Disco, Progressive, Tropical HouseПродолжительность: 11:36:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7267BBE320242DE7FF234E034729D3B3D0E37136
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_971870.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 971 867
 
 VA - Resident Advisor Top 100 Charted Tracks Of 2015  2016  [MP3|245-320 кб с] <Electronica, T
@@ -1895,106 +1995,6 @@ Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_968170.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 967 936
-
-VA - Sunlight Project: Vocal Trance Solar Mix  2015  [MP3|320 кб с] <Vocal, Progressive Trance
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. IRA Ft. Sarah Russell - Constant Invasions  Genesis Remix 
-02. Lange ft. Ilseviolin - Violin s Revenge  James Dymond Remix 
-03. Sunlight Project - I Keep Calling You  original mix 
-04. Tritonal feat. Cristina Soto - Piercing Quiet  Super8 & Tab Remix     Читать дальше...    Жанр: Vocal, Progressive TranceПродолжительность: 07:52:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A31DDD83E45475364E7ECD54D6FE211DDF426019
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967936.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 967 753
-
-VA - The Best Of Surf Rock & Spaghetti Western  2015  [MP3|224-320 кб с] <Country, Instrumenta
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Dick Dale - Miserlou [02:14]
-02. Merv Griffin With Charles Grean Orchestra - House Of Horrors [01:57]
-03. The Woodies - Diamonds [02:24]
-04. Barbacoa - Gorilla Monsoon [01:56]    Читать дальше...    Жанр: Country, Instrumental, Surf Rock, Spaghetti WesternПродолжительность: 02:37:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59D11285A418DD48CA3CE3129D6EF8A5180F4166
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967753.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 967 736
-
-VA - Стая белых голубей. Академия хитов шансона  2015  [MP3|256 кб с] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Геннадий Ура - Эх босяцкая ты доля
-002. Александр Яременко - Хорошо
-003. Павел Яцюк - Электричество
-004. Виктор Петлюра - Мужские cлёзы    Читать дальше...    Жанр: ШансонПродолжительность: 06:38:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F5409201D5FDD07626D352F377F04D7022D2BAA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967736.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 967 684
-
-VA - Chill Out  2015  [MP3|320 кб с] <Downtempo, Chillout, Lounge>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Sylvain Poge - Three Nights of Siddaharta [04:39]
-02. Fowler And Branca - Way Out West [04:45]
-03. Aung Win - Thi Lar Mjei Jan [03:10]
-04. Gioari - Progression Dance Between Earth and Sky [06:39]    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:49:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DD310095D21FD336C22753AAB20BB72D3C10F1AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_967684.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

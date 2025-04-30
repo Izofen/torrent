@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 385 765
+
+VA - Beatport Psychedelic Trance: Sound Pack #92  2020  [MP3|320 Kbps] <Psy, Goa Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Djcincinati - Psychestral
+002. DJ Mula - Voltage Drips
+003. Alaska - Ethnic Techno
+004. Uza Trance - Gayatri Mantra    Читать дальше...    Жанр: Psy, Goa TranceПродолжительность: 13:01:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E15DCB02C3D4B071EA530760FE15F8E6110572C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385765.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 385 615
+
+VA - Music News vol.8  2020  [MP3|320 Kbps] <Progressive Rock, Rock, Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Asammuell - Всем Для Тебя  03:03 
+ 02. Asking Alexandria -  Lorazepam  04:02 
+ 03. Asking Alexandria - All Due Respect  03:55 
+ 04. Asking Alexandria - Antisocialist  03:36     Читать дальше...    Жанр: Progressive Rock, Rock, PopПродолжительность: 03:20:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C320B9F8734E8845E90CDD71C48B7754448ABF18
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385615.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 385 558
+
+VA - Beatport Drum & Bass: Electro Sound Pack #91  2020  [MP3|320 Kbps] <Drum & Bass, Bass, Bass
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Sullen - Can t Escape
+002. Hothead - Dark Side
+003. Shodan - Gobsmacked
+004. Drum Boss - Core  Original Mix     Читать дальше...    Жанр: Drum & Bass, Bass, BasslineПродолжительность: 10:33:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B93DB1CF9BAF63C2CEE32EE0942E74D95FDFFDD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385558.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 385 509
+
+VA - 100 Tracks Love Ballads Playlist Spotify  2020  [MP3|320 Kbps] <Rock, Pop, Alternative>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. Bryan Adams -  Everything I Do  I Do It For You  6:33 
+2. Bon Jovi - Bed Of Roses  6:32 
+3. Bryan Adams - Please Forgive Me  5:55 
+4. Bon Jovi - Always  5:53     Читать дальше...    Жанр: Rock, Pop, AlternativeПродолжительность: 06:56:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:51C107EC038C6245605ADA771C26C6ABC8CB64BC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1385509.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 385 474
 
 Jeff Beck - 100% Jeff Beck  2020  [MP3|320 Kbps] <Rock, Blues Rock>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383071.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 070
-
-VA - Classic Latin  2020  [MP3|320 Kbps] <Latin, Salsa, Rumba>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. 3ballmty - Quisiera Tenerte
-002. Morenito De Fuego - Amigos Con Derecho
-003. El Trono De Mйxico - Te Ves Fatal
-004. Gerardo Ortнz - El Omega    Читать дальше...    Жанр: Latin, Salsa, RumbaПродолжительность: 06:21:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8CCE5D340061D9F9171AD9D99C42462B81E9B515
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383070.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 382 988
-
-VA - Kraftsport Mix  2020  [MP3|320 Kbps] <Rock,  Hip Hop, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-1.Sum 41 - Still Waiting  2:38 
-2.Hilltop Hoods - Cosby Sweater  3:37 
-3.Papa Roach - Last Resort  3:19 
-4.Machine Gun Kelly - why are you here  2:55     Читать дальше...    Жанр: Rock,  Hip Hop, OtherПродолжительность: 05:30:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B16779F8EEC608BF369822F889955A45566DD1D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382988.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 382 892
-
-VA - Best Funk Of All Time  2020  [MP3|320 Kbps] <R&B, Soul & Funk>
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae  сборники 
-
-###  Подробнее
-
-1.Sly & The Family Stone - Remember Who You Are  3:17 
-2.Fat Larry s Band - Act Like You Know  6:30 
-3.Prince - Kiss  3:46 
-4.Wild Cherry - Play That Funky Music  5:00     Читать дальше...    Жанр: R&B, Soul & FunkПродолжительность: 05:30:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:28B909D183BCD8454C2B7F11594A229F3EBD240A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382892.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 382 886
-
-VA - Feel Good Dance  2020  [MP3|320 Kbps] <House, Club, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Klaas - Mr. Saxobeat 2:31
-02. Dayvi, Victor Cardenas, Kelly Ruiz - Baila Conmigo 3:10
-03. Sevenn - Loco Papi 2:59
-04. Jax Jones, Martin Solveig & Dragonette, Madison Beer, Europa - All Day And Night 2:49    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 03:07:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EDC16D6E00441E8B01013BF0AF3641A729489A09
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1382886.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

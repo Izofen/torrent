@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 486 230
+
+VA - veLvETОвый движ  Vol. 1   2021  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Ёлка - Мальчик-красавчик  2021 
+2. Мари Краймбрери - По волнам  Cover 
+3. Звонкий - Прованс  Cover 
+4. DAASHA - Нарисуй мне небо  Cover     Читать дальше...    Жанр: PopПродолжительность: 00:29:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:614D8FF208873457342239D473B2055D2DC9FA29
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1486230.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 485 922
+
+Богдан Титомир - Высокая энергия  1992  [FLAC|Lossless|image + .cue] <Europop, Downtempo, Ballad
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Делай как я  05:48 
+02. Инструментал  00:42 
+03. Секс-машина  04:02 
+04. Кайф  05:13     Читать дальше...    Жанр: Europop, Downtempo, Ballad, Pop RapПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80DC2FA2514F807740D33AE7A1DDEB5287ED1743
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1485922.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 485 897
+
+Олег Погудин - Русский романс. Часть II  2006  [FLAC|Lossless|tracks + .cue]<Русские песни, Рома
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Не пробуждай воспоминаний
+02. Жигули
+03. Затворница
+04. Пара гнедых    Читать дальше...    Жанр: Русские песни, РомансыПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:59D71BA39F78C33D032FC3F4417B7954C4E55693
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1485897.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 485 447
 
 VA - Disco Summer  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1920,81 +1995,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475158.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 475 066
-
-The Veronicas - Godzilla  2021  [FLAC|Lossless|tracks + .cue] <Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Godzilla  3:25 
-02. Kaleidoscope  3:41 
-03. In My Blood  3:18 
-04. In It To Win It  2:13     Читать дальше...    Жанр: Pop RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9175D4227983794209264812AFF6A0C189E8A374
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475066.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 475 015
-
-VA - 100 Greatest Women in Pop  2021  Explicit [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-001. Cher - Believe  3:59 
-002. Ashnikko - Daisy  2:26 
-003. Jess Glynne - Don t Be So Hard On Yourself  3:31 
-004. All Saints - I Know Where It s At  4:53     Читать дальше...    Жанр: PopПродолжительность: 06:03:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E4CBCD25618CCF6BA61AAB9A10BAAFEEE4DAD6E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475015.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 474 932
-
-VA - At My Worst - Chilled Pop  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Pink Sweat$ - At My Worst  2:50 
-02. Joel Corry, MNEK - Head & Heart - Acoustic Version  3:38 
-03. Charlie Puth, Selena Gomez - We Don t Talk Anymore  3:37 
-04. Griff - Good Stuff  3:13     Читать дальше...    Жанр: Pop, Easy ListeningПродолжительность: 02:46:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70D1C87CE01D0D7830D8DF4B52D977BB78514980
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1474932.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

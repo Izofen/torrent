@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 993 156
+
+VA - Tropical Beach: Ibiza Progressive Trance  2016  [MP3|320 кб с] <Progressive Trance, Club,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Myde - Castle In The Sand  Radio Edit  03:27
+002. 4 Strings - Illumina  Original Mix  05:17
+003. Aeden - Traveler  Radio Cut  03:45
+004. Addliss - Care For You  DJ Ives M & DJ T.H. Radio Cut  03:26    Читать дальше...    Жанр: Progressive Trance, Club, ElectroПродолжительность: 07:22:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:17F8EC7B98B1F467A21C782F8011B2566B82E53B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_993156.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 993 144
+
+Леонид Азбель и Катенька Дроздовская - Старая Одесса  2001  [MP3|320 кб с] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Интро
+02. Иволга
+03. Перебиты, поломаны крылья
+04. Однажды сценку я наблюдал    Читать дальше...    Жанр: ШансонПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9E0FF58597676804597B2FA1B38D4EEE279F90FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_993144.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 993 049
+
+VA - Dance Club Empire 100 hits  2016  [MP3|320 кб с] <Club, Dance, Remix>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Falency - In The Moonlight
+002. Frits Wentink - Blaise Montoya  Feat. Loes Jongerling 
+003. Dj Le-Roy - She s On Fire  Original Mix 
+004. Alfrenk - Big Up  Original Mix     Читать дальше...    Жанр: Club, Dance, RemixПродолжительность: 08:10:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B3479B389AB6D801E70F8A87B3FBC1089C066D21
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_993049.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 993 043
+
+Va - Top Eurodance Tunes  2016  MP3  2016  [MP3|320 кб с] <Pop, Dance, Eurodance, House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Red Garden - And She Said  Eurotrance Remix 
+02. Basement Three - Catch Your Wave
+03. Housecream - Still Not Sorry  Remix 
+04. Asya - Like a Dream    Читать дальше...    Жанр: Pop, Dance, Eurodance, HouseПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:50A0F2EC528F3E14FE1190386E5540DCEBC25578
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_993043.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 993 038
 
 VA - Милым девушкам к дню 8 марта  2016  [MP3|198-320 кб с] <Pop>
@@ -1894,106 +1994,6 @@ Pop  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_990459.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 990 357
-
-Дуэт - Вадим Медин и Сергей Холодов - Третий концерт  1976  [MP3|194-216 кб с] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Вступление
-02. От злой тоски, не матерись...
-03. На кладбище
-04. Дураки    Читать дальше...    Жанр: ШансонПродолжительность: 01:21:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A14A647F11FEDD98A8164FE59B59EEE2786426F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_990357.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 990 240
-
-VA - Лучшие хиты дискотек. 50 50  2016  [MP3|256 кб с] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. 30.02 - Я Верю
-002. Flo Rida - My House
-003. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби
-004. Lawson - We Are Kings    Читать дальше...    Жанр: PopПродолжительность: 06:06:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6A7023E8DFB21A4965ECFFB28DF3BBA3E70CE3F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_990240.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 990 185
-
-VA - Music Box DFM Vol.4  2016  [MP3|256 кб с] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Bryan Adams - You Belong To Me.mp3
-002. Lana Del Rey - High By The Beach.mp3
-003. Lunchmoney Lewis - Whip It!.mp3
-004. One Direction - Drag Me Down.mp3    Читать дальше...    Жанр: PopПродолжительность: 06:17:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87159E3DAA1A8B7E26BBAC0F13496E7CB7EE7EDD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_990185.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 990 132
-
-VA - Super Dance Party vol.6  2016  [MP3|320 кб с] <Club , Dance , House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Alan Walker - Faded  Salazar Pakyo Remix Club Edit 
-02. Javi Reina Feat. Jonny Rose - My Time  Dj Tht Edit 
-03. Klaas Feat. Jelle Van Dael - Far Away  Original Mix 
-04. Maestro Harrell feat. Posso - True  Radio Edit     Читать дальше...    Жанр: Club , Dance , HouseПродолжительность: 05:26:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70520EF0DD95782352EFBC7E84EDD18B45F158E7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_990132.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

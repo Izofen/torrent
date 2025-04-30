@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 223 492
+
+VA - The Official UK Top 40 Singles Chart 04.05.2018  2018  [MP3|320 Kbps] <Pop, Dance, Euro>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Calvin Harris, Dua Lipa - One Kiss
+02. Ariana Grande - No Tears Left to Cry
+03. Drake, Big Freedia, 5thward Weebie - Nice For What
+04. Lil Dicky - Freaky Friday  feat. Chris Brown     Читать дальше...    Жанр: Pop, Dance, EuroПродолжительность: 02:18:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF6A46B0BCD95D4EC3955EEF8038672C1D88A911
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223492.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 223 347
+
+VA - Cocktail new music №33  2018  [MP3|320 Kbps] <Dance, Club, R&B>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Akcent feat. Reea - Stole My_Heart
+002. Burak Yeter - French Kiss
+003. Camila Cabello feat. Kane Brown - Never Be The Same
+004. Dan Balan feat. Matteo - Allegro Ventigo    Читать дальше...    Жанр: Dance, Club, R&BПродолжительность: 06:45:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:30415CE7A0EAF8090F1D7F8F611431414AFEB088
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223347.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 223 188
+
+VA - Billboard Hot 100 Singles Chart  05.05.2018   2018  [MP3|320 Kbps] <Pop, Dance, Euro>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Drake, Big Freedia, 5thward Weebie - Nice For What
+002. Drake - God s Plan
+003. Ariana Grande - No Tears Left to Cry
+004. Bebe Rexha - Meant to Be    Читать дальше...    Жанр: Pop, Dance, EuroПродолжительность: 05:52:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1A37EA34E6CCA3AD6DDC76270409AFB4155A40AE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223188.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 223 149
+
+VA - Danced Our May Day  2018  [MP3|320 Kbps] <Tropical, House, Future Bass>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Charming Horses ft. Karlyn - Freak On  Extended Mix 
+02. Sigrid - Strangers  R3hab Remix 
+03. MAUII - This Ain t Wrong  feat. Adana 
+04. Rock Stalone - Rockstar  BBop & Rocksteadi Radio Edit     Читать дальше...    Жанр: Tropical, House, Future BassПродолжительность: 03:32:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9E3CDA30CFE359316A7BF2CE60E9BC029721BECF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223149.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 223 147
 
 VA - Coastlines 100 Workout Hits  2018  [MP3|320 Kbps] <Electro, Indie, Reggae>
@@ -1895,105 +1995,6 @@ Electronic (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220326.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 220 244
-
-VA - Need For Speed Vol.13  2018  [MP3|320 Kbps] <Dance, Hands Up>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Треклист:
-01. Naya Marie - Can You Hear My Voice  Radio Mix 
-02. Danny Keegan - Let the Music Do the Job  NeoTune! Edit 
-03. Bad Drums - R U Ready  Radio Mix     Читать дальше...    Жанр: Dance, Hands UpПродолжительность: 06:43:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D0E527E3501EBBCF7AAEC54C84D675E543C2F8B5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220244.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 220 243
-
-VA - Vocal Trance Collection Vol.11  2018  [MP3|320 Kbps] <Trance, Vocal Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Above & Beyond feat. Justine Suissa - Cold Feet  Extended Mix 
-02. Tribal Temptation - The Lines of Infinity  Original Mix 
-03. Somna & Cari - My Home  Extended Mix 
-04. MaRLo & Roxanne Emery - A Thousand Seas  Extended Mix     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 04:12:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C4DE135E5136EDA1DBCB2CE22B002EE649829B4E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220243.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 220 212
-
-VA - Удачной дороги. Любимые хиты шансона  7   2018  [MP3|256 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Виктор Тартанов - Рубиновое Сердце
-002. Сборная Союза - У Бога Рай Не Украдешь
-003. Сергей ТрофимовЖанр: ШансонПродолжительность: 06:16:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D30BF0697053685C16DEC86BE641E3F0A56A753
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220212.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 220 148
-
-VA - Club Dance Ambience vol.143  2018  [MP3|320 Kbps] <Club House, Vocal House, Electro House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Afgo - The Truth  Original Mix 
-002. Alain Deejay - Mirame  feat. Katiuscia Ruiz   Giovix Remix Edit 
-003. Andrea Tufo - Bassline Riddim  Original Mix 
-004. Anna Mirani - Come With Me  Original Mix     Читать дальше...    Жанр: Club House, Vocal House, Electro HouseПродолжительность: 07:47:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2A53B5C5E8CD1CE5A2F861E01896754EF2034B52
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220148.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

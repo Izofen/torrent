@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 435 819
+
+VA - Громкие новинки Декабря 3  2020  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. 2517 - Предчувствие  feat. Саграда   2:58 
+02. 9 грамм - Ориджинал  3:47 
+03. Aloe Blacc, Steve Aoki - My Way  3:17 
+04. Andro - Спокойная ночь  Cover   1:55     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 03:58:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8A24B2016FE4124E0841BA4A0DD4FEBA79D570C9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1435819.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 435 734
+
+VA - Зима на Love Radio vol2  2020  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Zivert - Многоточия  Radio Edit   2:52 
+02. Tiesto - The Business  2:44 
+03. Marshmello & Imanbek feat. Usher - Too Much  2:45 
+04. Meduza feat. Dermot Kennedy - Paradise  2:47     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:265CEB01548391CC7A59465587016B97D492BE89
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1435734.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 435 514
+
+VA - Deep Glow Electro House  2020  [MP3|320 Kbps] <Deep House, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Новинки и немного эксклюзива вы услышите в новых треках сборника  Deep Glow Electro House . Deep House и вправду можно слушать часами напролет, за чашкой ароматного кофе наблюдая из окна жизнь ночного мегаполиса в свете неоновой рекламы и ощущая переплетение звуков города в которые вливаются эмоций людей.001. Renoa - Two Beers
+002. Deep Couture - In The Music
+003. Scot & Millfield - Get The Beat
+004. Bruce Leroys - Cassette Tape    Читать дальше...    Жанр: Deep House, ElectroПродолжительность: 11:43:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE9F48BF0157C3E1D884F662EE3B335C5897D95F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1435514.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 435 513
+
+VA - Rose Bialo: Italiano Classico Vocale  2020  [MP3|320 Kbps] <Vocal, Pop, Classic Soul>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Это старая манера итальянского оперного пения, которая считается эталоном вокального искусства находит свое место и в современной итальянской песне. Она была оперной нормой целых 300 лет назад. И современники ещё тогда уже писали о том, что это было ангельское, божественное пение!001. Claudio Villa -   O Sole Mio
+002. Irene Grandi -  A Natural Woman
+003. Alice - A Cosa Pensano
+004. Fred Buccini - A Mano A Mano    Читать дальше...    Жанр: Vocal, Pop, Classic SoulПродолжительность: 07:14:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D6AA926E0673865101226E1EEBFB6A85A0CBB66B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1435513.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 435 380
 
 VA - Beatport Drum And Bass: Electro Sound Pack #214  2020  [MP3|320 Kbps] <Drum & Bass, Basslin
@@ -1892,106 +1992,6 @@ Instrumental New Age Meditative Relax  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1429032.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 428 981
-
-VA - ЕвроХит Топ 40 Europa Plus 04.12.2020 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Pascal Letoublon & Leony - Friendships  3:02 
-02. Jason Derulo - Take You Dancing  3:10 
-03. Michael Patrick Kelly - Beautiful Madness  2:55 
-04. Foushee - Deep End  2:21     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:08:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4DDD16F322056D48D282A919C8812D35788E76C5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428981.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 428 686
-
-VA - Громкие новинки Декабря  2020  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Thomas Mraz, The Ghosts - Noir  5:08 
-02. БАСТА, Скриптонит - Молодость  4:50 
-03. Сюзанна - MAGRITT  4:44 
-04. M Dee - До завтра  4:33     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 04:00:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:29153A9843C8D51C1199CE272506EC70840674BA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428686.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 428 669
-
-VA - TOP Non-Stop 2000-2009 - Dance House Music. Part 2  2020  [MP3|192-320 Kbps] <Funky House,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-От 5 до 12 треков в каждом альбоме, при помощи MP3Gain, были доведены до уровня громкости 95 dB, а остальные не трогал  те что около 95 dB и все что выше этого - оставил как есть . Большая часть композиций были обрезаны в начале и  или  в конце для большего комфорта при прослушивании и для более удобной склейки их между собой. Данный сборник составил сам. Его лучше     Читать дальше...    01. DJ Gregory - Block Party  4:22 
-02. Mr. V feat. Miss Patty - Da Bump  Masters at Work remix   5:03 
-03. Roy Ayers - Tarzan  4:10 
-04. Louie Vega - Mozalounge  Jazz-N-Groove dub   5:48     Читать дальше...    Жанр: Funky House, Techno House, Progressive HouseПродолжительность: 09:01:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:816C3F5E400A1A4C6311E066116028B1EAD1A5CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428669.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 428 638
-
-VA - The Rock Album  2020  [MP3|320 Kbps] <Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Lynyrd Skynyrd - Free Bird  9:18 
-002. Guns N  Roses - November Rain  8:57 
-003. Joe Walsh - Life s Been Good  8:56 
-004. Led Zeppelin - Kashmir - Remaster  8:37     Читать дальше...    Жанр: RockПродолжительность: 10:31:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:57512E7C26E2E9FE1F993A7E541826F379999BCA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1428638.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 924 497
+
+VA - Tomorrow Night  2015  [MP3|320 кб с]<Deep, Chill House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Self Explanatory - Penumbra
+02. Soul Emphasis - Going Deeper
+03. Mighty Real - Atonality
+04. Sigother - Double Motion    Читать дальше...    Жанр: Deep, Chill HouseПродолжительность: 09:39:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:967E19BC855B0EEDF7954F49D88E2495C91094A7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_924497.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 924 485
+
+VA - The Sounds Of The Underground 03  DJ Mix By Deeper82   2015  [MP3|320 кб с]<Deep Hous
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Arctic Night - Wake Me Up  Adam-P Still Dreaming Remix 
+02. Techtower - Wonderland  Original Mix 
+03. 10dens Feat. Velb - Scila  Original Mix 
+04. Jallen - Far From Here  Original Mix     Читать дальше...    Жанр: Deep House, Progressive HouseПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B85FFC9E9A848BB344394CBDB292C906920EC2AD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_924485.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 924 402
+
+VA - 100 Хитов В Машине. Клубная музыка 2015  2015  [MP3|320 кб с]<Trance, Progressive Trance,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. A3 - Stay  Stereojackers Vs. Mark Loverush Club Mix 
+002. Adam Lamber - Ghost Town  Future Nation Remix 
+003. Ahmed Romel, Harmonic Rush - Sevda  Original Mix 
+004. Alessandra Roncone - Place Of Dreams  Sy Gardner Remix     Читать дальше...    Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 11:13:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1BFCCF620F3D7E829079D7B724F61FA6B3C93BBE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_924402.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 924 395
+
+VA - Top 100 Самых Красивых Песен 2015  2015  [MP3|320 кб с]<Pop, Dance, Club, Blues, Rock>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. One Direction - Drag Me Down
+002. Mike Posner - I Took A Pill In Ibiza
+003. Turbotronic - Kick Some Ass
+004. Team BS - Case Depart    Читать дальше...    Жанр: Pop, Dance, Club, Blues, RockПродолжительность: 08:49:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B90D1D3EADBDAD5F4757AFBE25BE5D0B2C50A782
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_924395.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 924 351
 
 VA - Rome Lounge Sensation  2015  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
@@ -1896,105 +1996,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918994.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 918 946
-
-VA - Мачо. Академия новинок шансона  2015  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня (сборники)
-
-###  Подробнее
-
-001. Группа Север - Напиши
-002. Мурки - Мачо
-003. Джанго - До Тебя
-004. Галина Журавлева - Ты Мои Услышал Ноты    Читать дальше...    Жанр: ШансонПродолжительность: 06:04:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B2F3D96E355584EA846E9ADA6355E2D88984276D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918946.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 918 837
-
-VA - Dreams of a shaman 3  2015  [MP3|320 кб с]<Native American, World, Ethnic Fusion, Folk>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Sacred Spirit - Comanchy
-02. Indian Mistic - Night Song
-03. Waykey - Spirit voicesЖанр: Native American, World, Ethnic Fusion, FolkПродолжительность: 02:48:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CBEA5E3D7B5EBEE8894C572769E4F5E0C90FFCB5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918837.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 918 803
-
-VA - Summer Top House Music  2015  [MP3|320 кб с]<Dance, Club, House>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Marotto - Bounce The Sun  Original Mix 
-02. Dim Sum - High Love  Original Mix 
-03. Dimmi & Goldfish - The Storm  Original Mix 
-04. Collarbones - Turning  Flume Remix     Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 11:35:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F01E8E367E10644F47AAB0013BA16D19115399CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918803.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 918 733
-
-VA - За рулем. Зарубежный  2015  [MP3|256-320 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Jason Derulo - Want To Want Me
-002. Taylor Swift - Style
-003. Sheppard - Sheppard-Geronimo
-004. Galantis - Runaway  U & I     Читать дальше...    Жанр: PopПродолжительность: 06:10:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1EE1F2C9EA7C123C9037D4416CDEA199528B7EF1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_918733.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 089 720
+
+VA - Музыкальный плен на Europa Plus Часть № 6  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Rave Boar - Potentially Lime 4:17
+002. Simply Red - Shine On 3:11
+003. Андрей Бельгиец - Как Ты Хочешь 3:57
+004. Натаника - Два Неба 3:10    Читать дальше...    Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BAF7CA31BA5897A14459206C124C6472E20362D1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1089720.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 089 548
+
+VA - Блатной шансон на любимой волне. Часть № 8  2016  [MP3|256 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Алексей Плотников - Я Вернулся Москва 3:37
+002. Николай Искуснов - Память Моя 3:51
+003. Сергей Куренков - Сочи 3:17
+004. Александр Дюмин - Друзья 3:17    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ACA7E68642E512EEF1BA5C8D9EC506C36230A7E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1089548.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 089 526
+
+VA - Acoustic Pop Songs  2017  [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+Неофициальные сборники
+Instrumental/New Age/Meditative/Relax (сборники)
+
+###  Подробнее
+
+01. Hannah Dorman - Hurts
+02. Ginnie - Secret Love Song
+03. Landa - Can t Feel My Face
+04. Karizma Duo - Video Games    Читать дальше...    Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:159324C00D3F4B9314990FEF25BF0515EDF14F3E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1089526.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 089 455
+
+VA - Русский зимний музобоз  2017  [MP3|256 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+001. Adil Karaca - Музыка 3:52
+002. Лена Максимова - Счастье Внутри 3:50
+003. Саша Жемчугова - Кто-То За Нас 4:06
+004. Мулат - Включила Заднюю 3:08    Читать дальше...    Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04622693EDDD9943B6D0B487F97745674E952EF2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1089455.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 089 449
 
 VA - Новогодняя Дискотека 80-х от Авторадио – 15 Лет  2017  [MP3|320 Kbps] <Pop , Dance>
@@ -1900,106 +2000,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087481.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 087 475
-
-VA - Club Dance Ambience Vol.97  2016  [MP3|267-320 Kbps] <Dance, Club, Club House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001.4LV & Taylor Boss & Dano & Ryan Ray - Feel the night  feat. Taylor Boss, Dano & Ryan Ray   Original Mix  3:43
-002.666 - Supa Dupa Fly 2016  V&P Project vs. Cometa Bootleg  3:45
-003.Adam Foster - Go  Original Mix  4:46
-004.Alan Walker & David Whistle - Routine  Original Mix  2:49    Читать дальше...    Жанр: Dance, Club, Club HouseПродолжительность: 09:52:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A5A3F313AF9A76D083DBD0933F80E95D2C0959D6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087475.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 087 472
-
-VA - Deep House Collection Vol.102  2016  [MP3|320 Kbps] <Deep House, Club House, Tech House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001.Alex Spite, Olga Shilova - My Heart Is For You   Original Mix  5:42
-002.Alex Spite - Crazy   Original Mix  6:04
-003.Alex Spite - I Want You   Original Mix  5:28
-004.Alex Spite - One Life, One Love   Original Mix  6:02    Читать дальше...    Жанр: Deep House, Club House, Tech HouseПродолжительность: 12:33:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:00818BF92B33018222C4D652F335C0C020F7C31E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087472.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 087 468
-
-VA - German Top 100 Single Charts 23.12.  2016  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001.Rag n Bone Man - Human 3:19
-002.Clean Bandit - Rockabye  feat. Sean Paul & Anne-Marie  4:11
-003.Mark Forster - Chore 3:28
-004.Disturbed - The Sound Of Silence 4:09    Читать дальше...    Жанр: Pop, DanceПродолжительность: 05:44:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B0BADDA6C87E98F7D4D36481169DF91E3CAD6A30
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087468.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 087 453
-
-VA - German Top 50 Official Dance Charts 23.12.  2016  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001.Oliver Heldens Ft. Ida Corr - Good Life 3:09
-002.Martin Solveig Ft. Ina Wroldsen - Places 3:23
-003.EDX - High On You 3:00
-004.Robin Schulz & David Guetta Ft. Cheat Codes - Shed A Light 3:11    Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:00:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FD05F51F8C9148541720F38AAE113DA3C95AEC2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1087453.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

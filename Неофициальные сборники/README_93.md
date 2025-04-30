@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 251 902
+
+VA - Saturday Night Party  2018  [MP3|320 Kbps] <Dance, Pop, Electro House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Le Sisters - Everybody
+002. Audioboy - Still Love Me  Radio Edit 
+003. Yuhniversia - Infection
+004. De Munari - This Is Dance    Читать дальше...    Жанр: Dance, Pop, Electro HouseПродолжительность: 10:41:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:56FBED5A3C05121B25347D56CBFF98AD8A14A119
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1251902.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 251 876
+
+VA - New Music Releases Week 35 of 2018  2018  [MP3|320 Kbps] <Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Troye Sivan - This This
+002. West Coast Massive, Brayton Bowman - High & Low
+003. The Faim - A Million Stars
+004. Tash Sultana - Cigarettes    Читать дальше...    Жанр: DanceПродолжительность: 08:45:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E5B18DE39235D6785038D2B4A48B13077AA9E365
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1251876.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 251 865
+
+VA - New Music Releases Week 34 of 2018  2018  [MP3|320 Kbps] <Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Radiant Children - Tryin 
+002. Ozuna - Ibiza  Feat. Romeo Santos 
+003. Conor Matthews - Inside Out
+004. R3hab, Sofia Carson - Rumors  With Sofia Carson     Читать дальше...    Жанр: DanceПродолжительность: 10:40:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BAF735D0553C8F187060406D681E9E0958ACCE56
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1251865.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 251 840
+
+VA - Осенний Роман: Сборник Шансона  2018  [MP3|320 Kbps] <Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Александр Вестов - Я Буду Ждать Тебя
+002. Илья Яббаров - Отпускаю
+003. Сборная Союза - Мой Друг
+004. Климм - Позови За Собой    Читать дальше...    Жанр: ШансонПродолжительность: 11:20:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CCB934DF352061E702FA0EEFE100DAED02DF150F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1251840.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 251 839
 
 VA - Popular Lyrical Ballads  2018  [MP3|320 Kbps] <Pop, Lyric, Ballad>
@@ -1893,106 +1993,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1247219.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 247 082
-
-VA - Дискотека 2018 Dance Club Vol. 183 от NNNB [MP3|320 Kbps] <Club, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-Part 1  Discoteka :
-01. DJ Stranger - Secret Of Love  Radio Edit   2:48 
-02. Tungevaag & Raaban - Bad Boy  feat. Luana Kiara   3:11 
-03. Kaskeiyp - Walls  feat. Irene   2:52     Читать дальше...    Жанр: Club, Dance, OtherПродолжительность: 22:14:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7309C7869E83A115FCCA136F8A384D7B11B7A3B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1247082.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 247 008
-
-VA - Record Super  Chart 552  2018  [MP3|320 Kbps] <Dance, Club, House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Chris Lake - I Want You
-02. The Prince Karma - Later Bitches
-03. Vanessa da Mata - Ai Ai Ai  Felguk & Cat Dealers Remix 
-04. Dynoro feat. Gigi D Agostino - In My Mind    Читать дальше...    Жанр: Dance, Club, HouseПродолжительность: 01:56:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EFB96D8F815DF07718E724B10C3733796CA6D18F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1247008.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 246 960
-
-VA - Hawaii Disco Mix  2018  [MP3|320 Kbps] <Nu Disco, Disco, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Tania Haroshka - Life Is On Air
-002. Panosg - The Groove Is Hot
-003. Enrico Bsj Ferrari - You Better Beware
-004. Greg Henderson - Dreamin     Читать дальше...    Жанр: Nu Disco, Disco, DanceПродолжительность: 09:26:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:769246232324E3CCF34FF860F8B4C71A0CC5766F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246960.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 246 959
-
-VA - BBQ Dinner: Ultimate Popular Dance Party  2018  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Jonas Blue - Eden Prince
-002. Alex Good - No  Original Mix 
-003. Dirty Fruit - Summer Love  Original Mix 
-004. Stephan F - Summer Time  Instrumental Mix     Читать дальше...    Жанр: Pop, DanceПродолжительность: 09:18:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C02CC91E63301298E1A5632C18B4D9BB8580F0B4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1246959.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

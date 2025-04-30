@@ -1,4 +1,104 @@
 ﻿
+###  Публикация: 1 020 883
+
+VA - Зарубежная Дискотека ХХ Века - 21  2016  [MP3|320 кб с] <Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. The Big Brother - Red Fire   1991  
+02. Fancy - Come Inside   1984  
+03. Vanessa - Just a Game   1989  
+04. Macho Gang - When Somebody Loves Me   1989      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F3AC499072878207A29F038091DF35CC1FFAC95
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020883.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 020 874
+
+VA - Зарубежная Дискотека ХХ Века - 20  2016  [MP3|320 кб с] <Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Flo Astaire - Monkey Monkey   1986  
+02. Alan Cook - Bad Dreams   1986  
+03. Queen Of Times - Holiday   1999  
+04. Mike Mareen - Here I Am   1985      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:15:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5B6734F0269787CEEA74AB4639C4AE932B0761AC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020874.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 020 867
+
+VA - Зарубежная Дискотека ХХ Века - 19  2016  [MP3|320 кб с] <Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop (сборники)
+
+###  Подробнее
+
+01. Lou Sern - Swiss Boy   1986  
+02. New Romantique - Shy Like An Angel   1985  
+03. Blue System - She s A Lady   Maxi Version 1987  
+04. A La Carte - Radio   1983      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CAC005868F0697C088D467E2FE05D846E8D9F73E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020867.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 020 859
+
+VA - Зарубежная Дискотека ХХ Века - 18  2016  [MP3|320 кб с] <Pop, Disco, Italo disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Flirts - Helpless   1984  
+02. Camaro`s - Companero   1985  
+03. Secret Service - Hey Johnny   1979  
+04. Patto - Black And White   1984      Читать дальше...    Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:261B1542955404CA8D5229C3E121915C8D19CEF0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1020859.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 020 855
 
 VA - Зарубежная Дискотека ХХ Века - 17  2016  [MP3|320 кб с] <Pop, Disco, Italo disco>
@@ -1894,106 +1994,6 @@ VA - Радио Шансон. Союз The best  2016  [MP3|256 кб с] <Шан
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018359.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 018 342
-
-VA - Русский Популярный Хит Формат  2016  [MP3|256-320 кб с] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Елена Темникова - Ревность
-002. Блокбастер - Девушка-Печаль
-003. N.A.O.M.I.  Наоми  - Надо Бы
-004. Tiger Family - Доза Витамина    Читать дальше...    Жанр: PopПродолжительность: 11:07:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40FA99678CC1FF0B716E0B6A59F9A0A45FFED797
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018342.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 018 295
-
-VA - Piano and Chill: Piano for Chillout  2016  [MP3|320 кб с] <Downtempo, Chillout, Instrumen
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Ludovico Einaudi - Ora
-02. Luke Woodapple - The Awakening - Piano Solo
-03. Roland Orzabal - Mad World
-04. Max Richter - H in New England    Читать дальше...    Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:02:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:12DB7E4BA3E8925793C3C93FE3316C7051A74536
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018295.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 018 255
-
-VA - В Ремиксах. Disco 90-х 100 hits  2016  [MP3|192-320 кб с] <Club, House, Trance, Remix>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Ace of Base - All She Wants  SNBRNxKLATCH Remix 
- 02. Ace of Base - Cruel Summer  Mr.Nu & Deepjack Remix 
- 03. Adele feat. Capella - Move On Baby  DJ MiR Mush Up Mix Edit 
- 04. Adriatique - Modern Talking  Original Mix     Читать дальше...    Жанр: Club, House, Trance, RemixПродолжительность: 08:50:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9A21D20D981369DF1F1A26EA09D66B4E78FA3C56
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018255.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 018 172
-
-VA - Summer Chillout  2016  [MP3|320 кб с] <Downtempo, Chillout, Lounge>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Dr. Diver - Selfishness
-02. Don Gorda Project - Hand In Hand
-03. Zero Feedback - Deep In The Rain Forest
-04. Don Gorda Project - Dreamscape    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6473D4813FBC48A6882A26C09C12D7DE1DE9DADA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018172.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

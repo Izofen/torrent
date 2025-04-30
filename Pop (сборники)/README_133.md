@@ -1,4 +1,97 @@
 ﻿
+###  Публикация: 479 621
+
+Верка Сердючка - The Best  2008  [FLAC|Lossless]<Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Всё будет хорошо  3:48 
+02. Dancing Lasha Tumbai  2:59 
+03. ГОП-ГОП  3:09 
+04. Тук, Тук, Тук  3:42 
+05. Я попала на любовь  3:59 
+06. А я только с мороза  3:40 
+07. Чита Дрита  2:40 
+08. Ёлки  3:12 
+09. Новогодняя  2:24 
+10. Гулянка  2:52     Читать дальше...    2008Жанр: PopПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_479621.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 478 196
+
+Chris de Burgh - Greatest Hits  2012  2CD [FLAC|Lossless]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Here Is Your Paradise [3:29]
+02. Forever More [4:19]
+03. The Lady In Red [4:17]
+04. Missing You [4:07]
+05. Much More Than This [2:59]
+06. Fatal Hesitation [4:14]
+07. In Love Forever [4:03]
+08. So Beautiful [3:49]
+09. Almays On My Mind [3:24]
+10. Seperate Tables [3:39]    Читать дальше...    Жанр: PopПродолжительность: 02:37:40
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_478196.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 477 811
+
+VA - Love Songs Top 100 Box Set 5CD  1995  [FLAC|Lossless]<Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Alicia Keys - Fallin  03:33
+02. R.Kelly - I Believe I Can Fly 04:44
+03. Ten Sharp - You 04:26
+04. Gary Barlow - Forever Love 04:34
+05. Manhattans - Kiss And Say Goodbye 04:28
+06. Maroon 5 - Sunday Morning 03:59
+07. Boston - More Than A Feeling 04:41
+08. Simon Garfunkel - The Sound Of Silence 03:05
+09. Toto - Melanie 03:58
+10. Acda en De Munnik - Als Je Bij Me Weggaat 04:04    Читать дальше...    Жанр: Pop, RockПродолжительность: 06:29:25
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_477811.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 477 136
 
 Юрий Антонов - Запись 1975-1985 гг.  2001  [FLAC|Lossless]<Pop>
@@ -2235,81 +2328,6 @@ Eurodance, Euro-House, Technopop  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_439576.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 438 549
-
-Supermax - Greatest Hits  2012  [FLAC|Lossless] <Rock, Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Bango Bongo  5:44 
-02. Lovemachine  7:42 
-03. Be What You Are  2:54 
-04. It Ain t Easy  4:18     Читать дальше...    Жанр: Rock, Pop-RockПродолжительность: 02:38:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ED97532341B85CAF867273D369617AAF1694CB6C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_438549.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 432 853
-
-Борис Моисеев - 15 альбомов  1996-2009  [MP3|128-320 kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1 – Этa Боль
-2 – Небо на Двоих  дуэт с гр.Ассорти 
-3 – Песенка Золушка
-4 – Лебеди  дуэт с К.Кирьяновым     Читать дальше...    Жанр: Pop
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A647A195110C481B27C5C34FC553CB3FBBBB5C88
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_432853.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 432 684
-
-C.C.Catch - 25th Anniversary Box  5CD   2011  [MP3|320 kbps] <Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Жанр: DiscoПродолжительность: 00:53:17
-01. House Of Mystic Lights  4:10 
-02. Strangers By Night  4:54 
-03. Heartbreak Hotel  2:48     Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7BCD7FBE1E7CE5D953CE49B03134DC7DCEDE38B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

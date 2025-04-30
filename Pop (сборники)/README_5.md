@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 746 305
+
+EMIN - Столько лет спустя (2024) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Каменное сердце
+2. Такая одна
+3. Океан
+4. Столько лет спустя(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:734D9F070B4D613687FC4143F8EF2E4AAB7A3BEF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746305.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 746 274
+
+Игорь Николаев - Летние хиты нашей молодости (2024) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Выпьем за любовь
+2. 18 лет
+3. Мельница (remake)
+4. Родные люди(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4BE9965C71CB120FBA261E2054E69ADE5905B150
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746274.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 746 273
+
+Поющие гитары - Поющие гитары (2024) Live [MP3|320 Kbps] <Pop, Retro>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+1. Не ломай черёмухи (Live)
+2. Из-за острова на стрежень (Live)
+3. Смуглянка (Live)
+4. Мотокросс (Live)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FC1B7FEA984BD8C422C105AB3B11B5F0292CBE0E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1746273.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 746 251
 
 MIA BOYKA - НАРОДНЫЙ АЛЬБОМ (2024) [MP3|320 Kbps] <Pop>
@@ -1911,81 +1986,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738762.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 738 621
-
-Wild Cherry - 4 Albums (1976-1979) Collection LP [MP3|320 Kbps] <Rock, Funk, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Wild Cherry начинали как обычная рок-группа, игравшая мелодичный хард-рок в стиле Огайо с влиянием прото-пауэр-попа. Они записали пару альбомов самостоятельно, прежде чем подписали контракт с лейблом Brown Bag Терри Найта. Эти записи не оказали большого влияния, и группа на некоторое время распалась. Примерно в 1975 году первоначальный лидер Wild Cherry Роб Парисси (   Читать дальше...   )Список альбомов:
-1976 - Wild Cherry
-1977 - Electrified Funk
-1978 - I Love My Music(   Читать дальше...   )Жанр: Rock, Funk, DiscoПродолжительность: 02:27:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0A5B1E97FED83C9D697029FE514BA6F86F70DD9C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738621.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 738 616
-
-VA - La Bola De Discoteca (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Lipps Inc. - Funkytown (Single Version) (3:55)
-02. ABBA - Dancing Queen (3:52)
-03. Donna Summer - Bad Girls (Gigamesh Remix) (5:20)
-04. Jessie Ware - Pearls (4:04)(   Читать дальше...   )Жанр: PopПродолжительность: 04:34:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4981FDF40C5E7FF61CAD45873E6D6F788EC91B85
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738616.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 738 519
-
-Max Him - The Original Maxi-Singles Collection (2014) Remastered [OGG Vorbis|480 Kbps] <Electronic,
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Roadhouse Blues (Psychotic Version)
-02. No Escape (Vocal) (12 Version)
-03. Lady Fantasy (Vocal) (12 Version)
-04. Japanese Girl (Vocal Version)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:025FE3F87401E3D650B968A5B37F40BA976FA13D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738519.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

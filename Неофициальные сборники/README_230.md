@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 655 830
+
+VA - Ave  Maria - Collection  2013  [MP3|256-320 кб с]<Pop, Classical, Instrumental>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Mylene Farmer - Ave Maria
+02. Chris Michell - Ave Maria
+03. Christina England Hale - Ave Maria
+04. Sarah Brightman - Ave Maria
+05. Andre Bernard, Jean-Louis Gil - Ave Maria
+06. Schubert - Ellen dritter Gesang - Ave Maria
+07. Budapest Strings - Ave Maria D 839
+08. Pavenskaya Olga - Ave Maria
+09. Schubert - Ave Maria
+10. G. Zamfir - Ave Maria  Schubert     Читать дальше...    Жанр: Pop, Classical, InstrumentalПродолжительность: 02:50:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:26A06EDB937E814B0BCADCA3058A09BC98DB5D62
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 655 759
+
+VA - Рок Нашествие  2013  [MP3|128 кб с]<Rock>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Светлана Сурганова и Настя Полева - Шоссе
+002. Вячеслав Бутусов и Ю-Питер - 10 шагов
+003. Калинов Мост - Время колокольчиков
+004. Lumen - На части
+005. Мумий Тролль - Прекрасный дилетант  Аквариум Cover 
+006. Смысловые Галлюцинации - Не могу оторвать глаз от тебя
+007. Машина времени - Крысы
+008. Гарик Сукачев и Неприкасаемые - Веревочка
+009. БИ-2 - Блеф
+010. Найк Борзов и Линда - Далеко    Читать дальше...    Жанр: RockПродолжительность: 12:19:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7FF185CCA6993DD79941C98DD87EB616FB8AFC67
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 655 721
+
+VA - XXXL Зарубежный SUPERHIT Pop MTV  2013  [MP3|256 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Addicted Craze - Hold Me Tight  Pulsedriver Remix 
+02. Alexis Jordan feat. J. Cole - Acid Rain
+03. Sebastian Ingrosso & Alesso - Calling
+04. Timbaland feat. Lil Wanye, Missy Elliott & T - Pain - The Party Anthem
+05. Atfc - This Is Not A Test  Edit 
+06. Destiny S Child - Nuclear
+07. Dirty Nano Vs. Les Elephants Bizarres - Nu Ma Opri  Radio Edit 
+08. Dirty South & Thomas Gold - Eyes Wide Open
+09. James Allan - U Can Light My Love  Radio Mix 
+10. Lil Wayne feat. Drake & Future - Bitches Love Me    Читать дальше...    Жанр: PopПродолжительность: 05:59:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8A4C0073BEF1343A498942B816F3F0FDAE62ED76
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 655 695
+
+VA - Dance Битва Русских Диджеев  2013  [MP3|256 кб с]<Dance, Club>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Владимир Панченко  Faktor-2  & feat. MC Puppet - Запиши мой номер телефона  DJ Alfred Newman Remix 
+02. Lumidee feat. Pitbull Vs Nicola Fasano & Steve Forest - Crazy  DJ Solovey Remix 
+03. DJ Sandro Escobar & Рэпер СЯВА feat. Анастасия Главатских - Фэйсконтроль  DJ Solovey Remix 
+04. Дима Билан - Ночной Хулиган  Dima Smart & Niko Radio Edit 
+05. Artik feat. Asti - Облака  DJ Nejtrino & DJ Baur RU Edit 
+06. Tomy Wega - Balkan Sexy Beat  Roma Stereo Radio Remix 
+07. DJ Nikita Noskow feat. Marlena - Время Настало  Radio Edit 
+08. Europe - The Final Countdown  DJ Shevtsov & Slash Junior Remix 
+09. Оксана Краски - А Девочке Хочется  Vlas Project Remix 
+10. Алисия - Простила  DJ Sergey Fisun Extended mix     Читать дальше...    Жанр: Dance, ClubПродолжительность: 04:56:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C25952DCF4CA7A8FB3D5B4E3C9915E95DC51B833
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 655 643
 
 VA - Медляк  2013  [MP3|256 кб с]<Pop>
@@ -2339,130 +2463,6 @@ VA - Союз  Полные Версии Песен   1996-2005  [MP3|320 кб �
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:CD04D068E6AACBE3470E85728B007D3059B2BA7A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 649 193
-
-VA - MNM Big Hits Vol. 1  2013  [MP3|256 кб с]<Pop,Club, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Pink Ft Nate Ruess - Just Give Me A Reason 04:03
-02. Tom Odell - Another Love 04:00
-03. Avicii Vs Nicky Romero - I Could Be the One 03:28
-04. Icona Pop Ft Charli Xcx - I Love it 02:34
-05. One Direction - Kiss You 03:02
-06. The Broken Circle Breakdown Bluegrass Band - If I Nee 03:05
-07. Axelle Red - Rouge Ardent 03:51
-08. Candi Staton - Hallelujah Anyway  Larse Vocal Edit  02:59
-09. Bingo Players Ft Far East Movement - Get Up  Rattle  02:44
-10. Showtek & Justin Prime - Cannonball 03:22    Читать дальше...    Жанр: Pop,Club, DanceПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E8CA831D330BFD058E5273CEF2EEF5060258CF5E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 649 077
-
-VA - Love Stories  6CD  [Box Set]  2010  [MP3|320 кб с]<Pop, Ballads, Easy Listening, Love
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Natalie Imbruglia - Torn  4:05 
-02. Wilson Phillips - You re In Love  4:51 
-03. Foreigner - Waiting For A Girl Like You  4:50 
-04. Alpha Ville - Forever Young  3:48 
-05. Johnny Hates Jazz - Turn Back The Clock  4:27 
-06. Culture Club - Love Is Love  3:52 
-07. Breathe - Hands To Heaven  4:20 
-08. The Corrs - What Can I Do  4:18 
-09. Gloria Estefan - Anything For You  4:03 
-10. George Michael - The First Time Ever I Saw Your Face  5:19     Читать дальше...    Жанр: Pop, Ballads, Easy Listening, Love SongsПродолжительность: 01:02:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BC8A2BCB50837E2FD9808743B601C2D07454730C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 649 016
-
-VA - I Love Ballads  2012  [MP3|~245 кб с  V0 ]<Pop, Ballads>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Lionel Richie - Hello
-02. Kool & The Gang - Cherish
-03. Earth, Wind & Fire - After The Love Has Gone
-04. KC & The Sunshine Band - Please Don t Go
-05. Harry Nilson - Without You
-06. Barry Manilow - Mandy
-07. Eric Carmen - All By Myself
-08. Mary Mc Gregor - Torn Between Two Lovers
-09. Lobo - I d Love You To Want Me
-10. Bangles - Eternal Flame    Читать дальше...    Жанр: Pop, BalladsПродолжительность: 01:18:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C11F51925E9AD582C9B0C1E026E7E5BB1539CE3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 648 941
-
-VA - Весенняя хитовая лавина хитов  2013  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-1. Вельвет - Без Меня  DJ Sergey Fisun Remix   3:30 
-2. Mary - Я Стану Светом  3:24 
-3. Полина Гагарина - Нет  DJ Flight & DJ Zhukovsky Official Radio Edit   3:08 
-4. Инфинити - Нежно  DJ Evans Remix   3:25 
-5. Real O - Где Же Ты, Любовь  3:26 
-6. A Studio - Раз и навсегда  3:41 
-7. Тина Кароль - Помню  3:53 
-8. Dino MC 47 feat. Бьянка - Навсегда С Тобой  DJ Viduta & DJ DimixeR remix   4:11 
-9. Дима Вебер - Если бы ты пришла  3:30 
-10. T - Killah feat. Лена Катина  ex. t.A.T.u  - Я Буду Рядом  4:00 Жанр: PopПродолжительность: 06:07:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DED72EE1F62BD3A0ADFF8004ED1BC4EE5B7AB218
 ```
 
 <div id="header" align="center">

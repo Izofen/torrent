@@ -1,4 +1,79 @@
 ﻿
+###  Публикация: 1 125 779
+
+A La Carte - Nonstop 56 Hits  1989  2CD Box Set, Reissue 2006 [FLAC|Lossless|image + .cue] <Synt
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Sun Sun Summertime  0:12 
+02. Put Your Hand On Your Heart  1:59 
+03. Take Me To Your Heart  1:42 
+04. Hooray! Hooray! It s A Holi-Holiday!  1:27     Читать дальше...    Жанр: Synth-pop, DiscoФормат: 2хCD, Compilation, MixedПродолжительность: 01:24:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BCF5FF7AD6C4F5F81D3C4504F385C126E4AD8D61
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1125779.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 125 744
+
+A La Carte - Sun Sun Summertime  1989  Vinil-Rip [MP3|320 Kbps] <Synth-pop, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Part 1
+Sun Sun Summertime
+Put Your Hand On Your Heart
+Take Me To Your Heart    Читать дальше...    Жанр: Synth-pop, DiscoПродолжительность: 01:21:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD26DD0069647CE7054D3700E6CDC4228C868725
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1125744.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 125 611
+
+VA - Germanys Next Topmodel: Best Catwalk Hits 2017  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Bruno Mars – 24k Magic
+02. Jax Jones – You Don’t Know Me
+03. Alice Merton – No Roots
+04. Alma – Chasing Highs    Читать дальше...    Жанр: PopПродолжительность: 02:39:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D459610DD9AA573A588728833C87D4CE7089F2CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1125611.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 125 270
 
 Валерий Леонтьев - Это любовь  2017  [MP3|320 Kbps] <Pop>
@@ -1917,81 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117411.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 117 249
-
-VA - Acoustic: The Collection  2017  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Alanis Morissette - Ironic  Acoustic Version   3:56 
-02. Coldplay - The Scientist  5:10 
-03. Bruno Mars - Grenade  Acoustic   4:07 
-04. James Blunt - 1973  Acoustic   3:30     Читать дальше...    Жанр: PopПродолжительность: 03:16:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D91BA5E68B9D9B9EF0703A4F8C1CAFA5D82ABAF9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117249.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 117 234
-
-Arabesque - The HQ Vinil Collection  1978-1984  All Studio Albums [MP3|320 Kbps] <Electronic, Po
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Немецкая поп-группа, работавшая в жанре диско с элементами хай-энерджи, получившая мировую славу. Основная вокалистка группы Сандра, после распада группы продолжила успешную сольную карьеру  в 1990-х годах также принимала участие в проекте Enigma . Раздача представляет полную дискографию группы, состоящую из студийных альбомов, выходивших на фирменных виниловых дисках,     Читать дальше...    Список альбомов:
-1978 - Friday Night
-1979 - City Cats
-1980 -  Marigot Bay    Читать дальше...    Жанр: Electronic, Pop, DiscoПродолжительность: 05:34:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DEE24CC92368844CEAE1A9601B9D554E6D4CFD39
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117234.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 117 102
-
-VA - Just Mix Eurodisco  2009  [FLAC|Lossless|WEB|tracks + .cue] <Disco, Synth-pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-London Boys - My Love
-Den Harrow - Tell Me Why
-Madonna vs DJ Fifty - Into The Groove
-Sandra - Secret Land  Reverse Mix     Читать дальше...    Жанр: Disco, Synth-popПродолжительность: 01:20:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A3FEAA014EE784510C931CAE22D9F3CD3A15B085
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1117102.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
