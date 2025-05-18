@@ -1,4 +1,252 @@
 ﻿
+###  Публикация: 1 601 870
+
+The Les Humphries Singers - Greatest Hits  1989  Compilation, WEA [FLAC|Lossless|tracks + .cue]
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Mama Loo  3:46 
+02. Mexico  3:45 
+03. Kansas City  4:11 
+04.  We ll fly you to the  Promised Land  2:56     Читать дальше...    Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0B86CC1BAFC293E10D4C013D10417E0A559B945A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1601870.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 601 834
+
+Solar Fake - Enjoy Dystopia  2021  2CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop,
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Join Me in Death [00:03:28]
+02. Where Is My Mind [00:03:35]
+03. Es Geht Dich Nichts An  Faelder Remix  [00:04:02]
+04. Implode  Blutengel Remix  [00:04:34]    Читать дальше...    Жанр: Synthpop, EBMПродолжительность: 2 CD, 01:51:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EF276FCE99737A74CB36BA05031F408DF25521F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1601834.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 601 466
+
+АлоэВера - Сделаем вид  2022  [MP3|320 Kbps] <Pop-Rock>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Телеграм-канал
+2. Чтобы целоваться
+3. Дискац
+4. Платье в точку    Читать дальше...    Жанр: Pop-RockПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F24FDF0048AF7DCA48CD9C5AA62752F15341716A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1601466.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 601 261
+
+Basic Element & Dr. Alban & Waldo’s People & Elize Ryd - Life Is Now  2022  Single [FLAC|Lossles
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Life Is Now
+02. Life Is Now  Extended Mix Жанр: EuroDanceПродолжительность: 00:07:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A4F7EAE9E54F3A9B765282750D2A4CB4EAA5F74
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1601261.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 600 742
+
+VA - Best Of 2022 [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. The Weeknd - Sacrifice
+02. Maggie Rogers - That s Where I Am
+03. Lady Gaga - Hold My Hand
+04. Noah Kahan - Stick Season    Читать дальше...    Жанр: PopПродолжительность: 04:13:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:561A8A682205A64DAD60B9DDD5226C0D3A3D1DFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600742.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 600 467
+
+VA - NRJ Hits 2023  2022  [MP3|320 Kbps] <Pop, Dance, Other>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ava Max - Weapons  2:31 
+02. M. Pokora - Déjà volé  2:16 
+03. Ed Sheeran - Celestial  3:29 
+04. Soprano - 3615 Bonheur  3:34     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F09E0DD8CCEAB05E4268F754ECEA3EE740766C21
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600467.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 600 419
+
+The Cars - Heartbeat City  1984  Reissue, Remastered, 2016, Mobile Fidelity Sound Lab [OGG Vorbi
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Hello Again
+02. Looking For Love
+03. Magic
+04. Drive    Читать дальше...    Жанр: Rock, Electronic, Pop RockПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E2A1F78A59E681FDE8B16A175198DF28DBDB7D60
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600419.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 600 383
+
+VA - Best Of Disco Balls Records 2022, Vol. 1  2022  [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Di
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Glz, Venessa Jackson - The Night  03:26 
+02. Cocolorez - Supersized  Souxsoul Refix Mix   06:45 
+03. Vyktor Nova - Funked  06:05 
+04. Jerem A - Let s Work It Out  06:00     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C94E5EB11148FD7004A2EF292626D07C432DE58
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600383.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 600 374
+
+VA - Best Of Disco Balls Records 2022, Vol. 1  2022  [MP3|320 Kbps] <Disco, Nu-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Glz, Venessa Jackson - The Night  03:26 
+02. Cocolorez - Supersized  Souxsoul Refix Mix   06:45 
+03. Vyktor Nova - Funked  06:05 
+04. Jerem A - Let s Work It Out  06:00     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1D2DDAC22F090F88A5BDD29B2931BD751F3A5FCA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600374.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 600 269
+
+Natalie Cole - Natalie  2018  [FLAC|Lossless|tracks + .cue] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01 Mr. Melody  03:10 
+02 Heaven Is With You  04:14 
+03 Sophisticated Lady  She s A Different Lady   03:30 
+04 No Plans For The Future  03:15     Читать дальше...    Жанр: DiscoПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DDE123BB795ECE8831FC42C16E95D6ADCD2FB851
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600269.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 600 258
 
 VA - Best of the Best 2022 [MP3|320 Kbps] <Pop>
@@ -1737,256 +1985,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592795.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 592 704
-
-C.C. Catch - Super Disco Hits  1994  [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Heartbreak Hotel
-02. One Night s Not Enough
-03. Back Seat Of Your Cadillac
-04. I Can Lose My Heart Tonight    Читать дальше...    Жанр: Electronic, Disco, Synth-popПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6D413E8A5988923C905EA4B4BFF7907B1011952
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592704.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 592 340
-
-Ola Hakansson  pre Secret Service  - 3 Albums  1976-1979  LP [MP3|320 Kbps] <Pop, Rock, Disc
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Ола Хоканссон - шведский певец, композитор и продюсер. В раздаче представлены альбомы предшествующие появлению всем известной в мире группы Secret Service, где Ола вместе со своим постоянным ударником Leif Johansson участвовали в трех проектах с его узнаваемым исполнением. Последний был полным составом скоро переименован в Secret ServiceСписок альбомов:
-1976 - Ola & Janglers - Jet Leg
-1976 - Ola Hakansson, Frukt & Flingor - O.F.F.
-1979 - Ola+3 - Det Kanns Som Jag Vandrar Fram    Читать дальше...    Жанр: Pop, Rock, DiscoПродолжительность: 01:56:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1C62D4FB13C311F2ADA17E7D547EE76B28C4D1DA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592340.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 592 304
-
-Mariah Carey - Greatest Hits  2001  2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Funk   Soul, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Vision Of Love
-02. Love Takes Time
-03. Someday
-04. I Don t Wanna Cry    Читать дальше...    Жанр: Hip Hop, Funk   Soul, PopПродолжительность: 02:03:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C72BA3BA0806DB1EDE0BF76C19BA83C69D71D543
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592304.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 592 153
-
-Mylene Farmer - Cendres De Lune  1986  Reissue, Repress, 1994, Polydor [OGG Vorbis|480 Kbps] <El
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Libertine
-02. Au bout de la nuit
-03. Vieux bouc
-04. Tristana    Читать дальше...    Жанр: Electronic, Pop, 	ChansonПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9986FA7A4FA83E30DB31218F6AE5AB7A528F573C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592153.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 818
-
-C.C. Catch - Star Collection - Back Seat Of Your Cadillac  1991  [OGG Vorbis|480 Kbps] <Electron
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Heartbreak Hotel
-02.  Cause You Are Young
-03. I Can Lose My Heart Tonight
-04. Good Guys Only Win In Movies    Читать дальше...    Жанр: Electronic, Pop, DiscoПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:774B650223DDA8B93F23CC245D561A0042801FF5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591818.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 814
-
-Tokio Hotel - 2001  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Durch den Monsun 2020 [00:03:54]
-02. HIM [00:03:34]
-03. White Lies [00:03:04]
-04. Ain t Happy [00:03:27]    Читать дальше...    Жанр: Pop RockПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E0CF07BABD54AE5093CA5F8555D22F46566FC5A7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591814.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 804
-
-Michael Jackson - Thriller 40  2022  40th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Wanna Be Startin  Somethin 
-02. Baby Be Mine
-03. The Girl Is Mine
-04. Thriller    Читать дальше...    Жанр: PopПродолжительность: 02:38:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F81F0A5DB0FCABABE0D6FAD3F8916917F5847720
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591804.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 609
-
-Various - Greatest Hits Of The 90 s  2004  8 CD Box [OGG Vorbis|480 Kbps] <Electronic, Hip Hop
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Maxi Priest - Close To You  3:59 
-02. Dignity - Talk To Me  4:27 
-03. Shara Nelson - Uptight  5:08 
-04. Carleen Anderson - Mama Said  4:06     Читать дальше...    Жанр: Electronic, Hip Hop, Rock, Reggae, PopПродолжительность: 08:49:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:365CDDCA45DE567A3BB6616F792603E28E0E1EFC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591609.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 588
-
-D.White & DimaD. - The Butterfly Effect  2022  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Let s Have Fun Tonight  Album Version 
-02. 600 Km  Album Version 
-03. Verone  Album Version 
-04. You Are My Love    Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:57E71520147202A36FA249EB66F9E4EF97D5D965
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591588.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 510
-
-Secret Service - Secret Mission  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Secret Mission  3:34 
- 02. How Can I Get over You  4:05 
- 03. You Stole My Heart  ft. Clara-Corina   3:44 
- 04. Jane  3:10     Читать дальше...    Жанр: Synthpop, PopПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B047EE9170467299C26548ED89F91FBAEEE5717F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591510.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

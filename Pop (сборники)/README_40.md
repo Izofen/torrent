@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 421 868
+
+Kylie Minogue - DISCO  2020  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Nu Disco>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Magic  4:11 
+ 02. Miss a Thing  3:56 
+ 03. Real Groove  3:15 
+ 04. Monday Blues  3:09     Читать дальше...    Жанр: Dance-Pop, Nu DiscoПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:36F8555DD443F5A055834348E231B57A71880289
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421868.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 822
+
+Workout Music Tv - 40 Best Pop Remixes 2020 For Running [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Liar - Workout Remix 128 Bpm  4:23 
+02. Break Up With Your Girlfriend - Workout Remix 128 Bpm  5:19 
+03. Lover - Workout Remix 128 Bpm  6:06 
+04. So Am I - Workout Remix 128 Bpm  4:17     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:14:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FAC18D2E5072D36C6FA50390543725EDE0034917
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421822.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 666
+
+The Bangles - Gold  2020  3xCD [FLAC|Lossless|tracks + .cue] <New Wave, Rock, Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+CD - 1:
+01. Manic Monday  3:05 
+02. Walk Like An Egyptian  3:20 
+03. In Your Room  3:30     Читать дальше...    Жанр: New Wave, Rock, PopПродолжительность: 02:39:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C0EF0679CDB1BB86547915249C46FF5884ACF4F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421666.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 482
+
+Тамара Миансарова - Золотой век русской эстрады   2003  [FLAC|Lossless|tracks + .cue]<Ретро>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Память
+02. Берёза
+03. Мой смешной Гаргантюа
+04. Бабушка, научи меня танцевать    Читать дальше...    Жанр: РетроПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:928CF96BE61F7C6ECFC9E6D5799EF93307138A18
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421482.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 480
+
+Ольга Воронец - Гляжу в озера синие...  2002  [FLAC|Lossless|tracks + .cue]<Ретро>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Гляжу в озера синие...
+02. А где мне взять такую песню
+03. То не ветер ветку клонит
+04. Живет моя красотка    Читать дальше...    Жанр: РетроПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:82C3E66A77D1FD6648D66515CEA2C4B25B3225A5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421480.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 477
+
+Анжелика Варум - Стоп, любопытство!  2002  [FLAC|Lossless|tracks + .cue]<Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Будешь рядом ты
+02. Летние огни
+03. Зимние сны
+04. Ты не спросил    Читать дальше...    Жанр: PopПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B65E64B93E56CB1CB1D997147D319FBF50821BE5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421477.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 322
+
+VA - Rare80 Records - Rare80 Volume 2  2012  2CD, Unofficial Release [FLAC|Lossless|image + .cue
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+Rare80 Volume 2 CD1
+01. Shanghai - Ballerina  Club Mix 
+02. Andrea - Macho Man  Macho Man Version 
+03. Rewind - Rosalie  Pop & Go   Extended Version     Читать дальше...    Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6EFFF599D4AAD54D4B729FD873A96691D2AF8AC1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421322.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 319
+
+VA - Rare80 Records - Rare80 Volume 1  2012  2CD, Unofficial Release [FLAC|Lossless|image + .cue
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+Rare80 Volume 1 CD1
+01. Sign System - Man On The Run  Extended Version 
+02. One To One - There Was A Time  Dance-Mix 
+03. Style - Empty Bed  Full Version     Читать дальше...    Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BF887A78FFEC06EBC5BD274598FF37BD4A2D83A3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421319.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 208
+
+VA - DMC - Cool Grooves 56  2019  [MP3|320 Kbps] <Electronic, Hip Hop, Funk   Soul, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ariana Grande - How I Look On You
+02. Arizona Zervas - Roxanne  Clean 
+03. Banx & Ranx & Kojo Funds - Traffic  Radio 
+04. Black Eyed Peas & J Balvin - Ritmo  Bad Boys For Life     Читать дальше...    Жанр: Electronic, Hip Hop, Funk   Soul, PopПродолжительность: 01:19:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2666A33AD6C343AC693F77F60459F54DB4F8B344
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421208.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 421 180
+
+Анжелика Варум - Грустная bossa  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Грустная bossa
+2. Кто там, кроме
+3. Жемчуг и молоко
+4. Я тебя теряю    Читать дальше...    Жанр: PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B7DBB49203398951548F39C44FFC66AF93B81062
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1421180.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 421 104
 
 Bad Boys Blue - Tears Turning To Ice  2020  [MP3|320 Kbps] <Dance, Pop, Euro-Disco>
@@ -1730,256 +1980,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413655.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 598
-
-It s Immaterial - Life s Hard And Then You Die  1986  2016, Deluxe Edition, 30th Anniversary
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Space  Peel Session   03:49 
-02. Hang On Sleepy Town  Peel Session   04:11 
-03. Festival Time  Peel Session   03:31 
-04. Rope  Peel Session   03:32     Читать дальше...    Жанр: Indie PopПродолжительность: 02:37:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B1D6077BE84187C28C6FF429DDFA0602DCC05681
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413598.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 541
-
-Melanie C - Melanie C  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Who I Am
-02. Blame It On Me
-03. Good Enough
-04. Escape    Читать дальше...    Жанр: PopПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6AEC9DABC15D864819F7B92DB662978E2CF39356
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413541.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 507
-
-VA - Sad Songs 2020 [MP3|320 Kbps] <Pop, Ballads, Other>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Lewis Capaldi - Bruises
-02. Jeremy Zucker - Comethru
-03. James Bay - Let It Go
-04. Alessia Cara - River Of Tears    Читать дальше...    Жанр: Pop, Ballads, OtherПродолжительность: 02:00:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A63FB579BB8253D59AC380A8D686CF3EF9842243
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413507.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 468
-
-It s Immaterial - House For Sale  2020  [FLAC|Lossless|tracks + .cue] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Summer Rain  04:10 
-02. Kind Words  04:44 
-03. Just North Of Here  04:18 
-04. Downriver  06:07     Читать дальше...    Жанр: Indie PopПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D6B9658B35235568423436DFB7547A9099D44096
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413468.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 372
-
-Mariah Carey - The Rarities  2020  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Here We Go Around Again  1990 
-2. Can You Hear Me  1991 
-3. Do You Think of Me  1993 
-4. Everything Fades Away  1993     Читать дальше...    Жанр: PopПродолжительность: 02:16:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1AD0606918B96482B686C626B93C251E160206C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413372.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 303
-
-Robson Green - Moment In Time  2002  [FLAC|Lossless|image + .cue] <Rock, Pop Rock, Folk Rock, Ba
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-[3:13] 01. Love Hurts
-[3:31] 02. Make It With You
-[3:18] 03. Me And Mrs. Jones
-[3:45] 04. If Tomorrow Never Comes    Читать дальше...    Жанр: Rock, Pop Rock, Folk Rock, BalladПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:62F36DC1CA284E146E27FDC937AAC1D90FAAD061
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413303.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 145
-
-Missio - Discography  2016-2020  3 Albums, 2 EP s, 14 Singles [FLAC|Lossless|WEB-DL|tracks] <P
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Animal 3:30
-2. I Do What I Want 3:37
-3. Middle Fingers 3:35
-4. I Don t Even Care About You 3:35    Читать дальше...    Жанр: Pop-Rock, Synth-Pop, Future BassПродолжительность: 04:38:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:370F6C3127BCB777419624BC919C643BFC3C6180
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413145.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 125
-
-VA - ZYX Italo Disco: Doubles Vol. 1  2011  2CD, Compilation [FLAC|Lossless|image + .cue] <Italo
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Hot & Cold - Don t Talk About It  European Version   6:24 
-02. Bon Ton - Video Killed The Radio Star  Vocal Version   6:49 
-03. Robert Camero - Lady Surprise  Vocal Version   5:45 
-04. Maskio - Come On Movin  On  Club Version   6:59     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 02:01:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0791ADBF454D7E2E0D8C455DAB2F4838008EC3C7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413125.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 080
-
-VA - Lazy Morning  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. America - Ventura Highway  03:31 
-02. Kate Bush - Army Dreamers  02:54 
-03. Tom Petty - Wildflowers  03:10 
-04. Emmylou Harris - Here, There and Everywhere  03:41     Читать дальше...    Жанр: PopПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D22B3608F97FEB13A48FEE64AE3847D56F33BC2F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413080.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 413 037
-
-Монеточка - Декоративно-прикладное искусство  2020  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Крошка
-2. Папина любовница
-3. Ириски и риски
-4. Лёд    Читать дальше...    Жанр: PopПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D008A7454D365AC5622DD16C3A4A0DB93F2D7BF9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413037.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 600 168
+
+Xenoform - Zombietown  2022  [MP3|320 Kbps] <Alternative Rock, Space Rock, Electronic>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Dance of Death [00:05:23]
+02 - Chasing Monsters [00:03:36]
+03 - Black [00:06:06]
+04 - Destroy Me [00:03:14]    Читать дальше...    Жанр: Alternative Rock, Space Rock, ElectronicПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F53410952D2680C4C6541E6D162A3C387F36E601
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600168.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 600 160
+
+FRAGILE ART - The World You Wanted  2020  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - City of Dreams [00:04:27]
+02 - Show Me Your Gods [00:03:52]
+03 - Heavens Dead [00:03:33]
+04 - World You Wanted [00:05:07]    Читать дальше...    Жанр: RockПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9D5618778D8ED7D20FDCB66D3471E3812C9E2BFF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600160.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 707
+
+Неоткрытая Авоська - 1 Album, 2 Singles  2022  [MP3|320 Kbps] <Punk-Rock, Ska>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+2022 - Дальневосточная  Неоткрытая Авоська feat. Голос Омерики   Single 
+2022 - Морж роман  Single 
+2022 - Панк-кабареЖанр: Punk-Rock, SkaПродолжительность: 3 CD, 00:41:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65E08E8452289E8A10F35B73DCEBF59E64ED2389
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599707.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 692
+
+CREATOR S - Состояние  2022  [MP3|320 Kbps] <Metalcore, Electronic>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Тень  Глава первая  [00:03:48]
+02 - Темной тропой  Глава первая  [00:01:08]
+03 - Вера  Глава первая  [00:04:15]
+04 - Пропасть  Глава вторая  [00:04:19]    Читать дальше...    Жанр: Metalcore, ElectronicПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD7BD34497A3EF4349533732A6E1787CDE6BA255
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599692.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 599 361
+
+Cabernet Deneuve - Смерти нет  2022  [MP3|320 Kbps] <Ska>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Супермодели
+2. Поделить планету
+3. Все говорят
+4. Про капитанов и пилотов    Читать дальше...    Жанр: SkaПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A7890C7F2BC9175D6114CB69D8F4EFF70BD2550C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599361.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 599 354
 
 Ария - Ballads  2022  [MP3|320 Kbps] <Heavy Metal>
@@ -1869,132 +1994,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592534.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 592 431
-
-Yaoru - Эверсивность  2022  [MP3|320 Kbps] <Alternative Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Пролог
-02. Сердце
-03. Бельфегора
-04. Крыса    Читать дальше...    Жанр: Alternative RockПродолжительность: 00:27:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EF6FD82D7B045892206C22AEBCCD29BE10D1718A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592431.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 592 424
-
-Mashgot - Тишина...  2022  [MP3|320 Kbps] <Alternative Metal, Progressive Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. 82
-02. Бруно
-03. Ересь
-04. Агент Orange    Читать дальше...    Жанр: Alternative Metal, Progressive MetalПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D0E042B1EA48A4980651B606C39D64D6027C3726
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592424.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 592 420
-
-Firs - Власть  2022  [MP3|320 Kbps] <Alternative Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Волки
-02. Изыди В Ад
-03. Мертвец
-04. Труп    Читать дальше...    Жанр: Alternative MetalПродолжительность: 00:17:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8FEB6F6900F6E7AC4E9998CD15524C19DCAD616C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592420.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 592 348
-
-Ногу Свело! - 11 Singles  2022  [MP3|320 Kbps] <Pop Rock, RAC>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-Ногу Свело! - 2022 - ___beep___лан
-Ногу Свело! - 2022 - ___beep___лан  ска микс 
-Ногу Свело! - 2022 - Буква zю    Читать дальше...    Жанр: Pop Rock, RACПродолжительность: 11 Singles, 00:32:56
-deezer
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A94ED34647B6340A25D77D41CFEF361F4EE39DCE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592348.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 592 022
-
-Shallow Rivers - 4 Albums  2019-2022  [MP3|320 Kbps] <Atmospheric Doom, Death Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2019 - Nihil Euphoria
-2020 - The Leaden Ghost
-2022 - Anthology    Читать дальше...    Жанр: Atmospheric Doom, Death MetalПродолжительность: 4 CD, 03:57:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25BD051FCEFF6C36FE9A4ACD5A9B0B5FCA83CEA7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1592022.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

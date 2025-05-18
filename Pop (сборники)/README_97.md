@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 022 599
+
+Roxette - Good Karma  2016  [MP3|320 кб с] <Pop Rock, Soft Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Why Dontcha?
+ 02. It Just Happens
+ 03. Good Karma
+ 04. This One    Читать дальше...    Жанр: Pop Rock, Soft RockПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9FB8D8C1FFE707CEFCC5274C68744855304E2703
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022599.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 022 598
+
+Queen Samantha - The Letter  The Best Of   1994  [MP3|320 кб с] <Electronic, Hi NRG, Disco
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. The Letter    7:29 
+02. Give Me Action    5:31 
+03. What s In Your Mind    5:10 
+04. Get Back  Boogie Dance     3:15     Читать дальше...    Жанр: Electronic, Hi NRG, DiscoПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BB76D5D4EBD423FF0EB11A0AC40B16F7BAC4BB04
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022598.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 022 494
+
+Fifth Harmony - Reflection  2015  Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dance, RnB>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Top Down 3:40
+02. BO$$ 2:51
+03. Sledgehammer 3:51
+04. Worth It  feat. Kid Ink  3:45    Читать дальше...    Жанр: Pop, Dance, RnBПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD40757C2EE02933F38B8BD8A4E4871EA2227A15
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022494.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 022 342
+
+Suzi Lane - Ooh, La, La  1979  [MP3|320 кб с] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Единственно вышедший и спродюсированный Джорджио Мородером в 1979 году альбом. Тяжелая автомобильная авария весной 1980 года, положила конец ее музыкальной карьере.01. Ooh, La, La    7:40 
+02. Givin  It Up    3:57 
+03. No One Home In The City    5:02 
+04. Harmony    7:01     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:33:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:30F686EEC643542ED6EE4936EF55D60427C878BD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022342.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 022 201
+
+The High Violets - Heroes and Halos  2016  [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, D
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. How I Love  Everything About You 
+02. Dum Dum
+03. Long Last Night
+04. Break a Heart    Читать дальше...    Жанр: Alternative Pop, Indie Pop, Dream PopПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 022 187
+
+Roberta Kelly - 5 Albums  1976-1981  [MP3|320 кб с] <Electronic, Disco, Soul>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Американская soul, gospel & disco исполнительница из Лос-Анджелеса, с первых альбомов получившая популярность благодаря совместным проектам с Джоржио Мородером  Giorgio Moroder .Список альбомов:
+01. 1976 - Trouble Maker
+02. 1979 - Cheri
+03. 1978 - Gettin  The Spirit    Читать дальше...    Жанр: Electronic, Disco, SoulПродолжительность: 02:56:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:67E06D7473014D77B6FB2D0EEAB3F32FF2C39621
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022187.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 022 180
+
+Tegan and Sara - Love You to Death  2016  [FLAC|Lossless|tracks] <Indie Pop, Synth Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. That Girl
+02. Faint of Heart
+03. Boyfriend
+04. Dying to Know    Читать дальше...    Жанр: Indie Pop, Synth PopПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E7C789627A89855B0279E6817FCFC67281DB28D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022180.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 022 169
+
+Supermax - The Magic Of Supermax  2015  [FLAC|Lossless|tracks + .cue] <Pop, Funk, Reggae>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Lovemachine [08:37]
+02. Dance Dance Dance [03:43]
+03. African Blood [08:34]
+04. Hollywood [04:02]    Читать дальше...    Жанр: Pop, Funk, ReggaeПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022169.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 022 094
+
+Arthur Beatrice - Working Out  2014  [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie R
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Councillor
+02. Late
+03. Midland
+04. Carter  Uncut     Читать дальше...    Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:767FA09EDC92632D9F030E6CAA48909A6A97EA7B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022094.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 022 007
+
+Rachael Sage - Choreographic  2016  [MP3|320 кб с] <Pop, Folk, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Heaven  Is A Grocery Clerk     04:03
+02. Loreena    03:52
+03. Try Try Try    04:00
+04. Home  Where I Am Now     04:34    Читать дальше...    Жанр: Pop, Folk, RockПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C961C810A8970E766EA9EC7ECD5CD0DD84AEAB09
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1022007.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 021 976
 
 Omer Ozgur - We Are All the Same  2016  [MP3|320 кб с] <Pop, Rock, Blues>
@@ -1747,253 +1997,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012060.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 011 775
-
-Demis Roussos - Forever & Ever  the Best Of   2013  [APE|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Happy To Be On An Island In The Sun  1975 
-02. Goodbye My Love Goodbye  Album Version   1973 
-03. Can t Say How Much I Love You  1976 
-04. When Forever Has Gone  1974     Читать дальше...    Жанр: PopПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A9446A1566CE2AF073884513C8301C9F1A138202
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1011775.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 011 467
-
-VA - Running Playlist  2016  [MP3|320 кб с] <Pop, Dance, Club>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Liberation Zulu - Rather Be  03:44 
-02. Underground Charisma - Use Somebody  03:20 
-03. Olafur Ros - Show Me Love  05:55 
-04. Liberation Zulu - Forget You  04:25     Читать дальше...    Производство: On the BeatЖанр: Pop, Dance, ClubПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D3B22FB38B99E392A87B2AFCACC51E1A9C922D6C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1011467.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 011 418
-
-Beyonce - Lemonade  2016  [MP3|320 кб с] <Pop, Funk & Soul, R&B>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Pray You Catch Me
-02. Hold Up
-03. Don t Hurt Yourself  feat. Jack White 
-04. Sorry    Читать дальше...    Жанр: Pop, Funk & Soul, R&BПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:168C4EBA3C08C31D9AABC50BA4CE5EC801C657C0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1011418.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 011 309
-
-Giorgio Moroder Remix Project - E=APC2   Audio Porn Central  2012  [MP3|320 кб с] <Disco, Hous
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. E=MC2  Dirty McKenzie s Evolution Remix     6:27 
-02. E=MC2  A Copycat Remix     8:57 
-03. E=MC2  Divide & Kreate Remix     4:26 
-04. E=MC2  Dunproofin  Refix     5:46     Читать дальше...    Жанр: Disco, House, ElectroПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F2A4E639C99DED6C77C3910BBB26E58F9D735A1F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1011309.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 011 201
-
-Penny McLean - 3 Albums  1975-1978  LP [MP3|320 кб с] <Disco, Funk, Soul>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Penny McLean, наиболее известная как участница и прима вокалистка группы  Silver Convention , выпустила параллельно еще три, предлагаемых вашему вниманию, сольных альбома  в том-же, набирающем оборот, стиле  Диско . Родилась  в городе Клагенфурт, Австрия.Список альбомов:
-01. 1975 - Lady Bump
-02. 1977 - Penny
-03. 1978 - Midnight ExplosionЖанр: Disco, Funk, SoulПродолжительность: 01:56:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE21481CA01E02F26D130F930B98E44C7C8EE255
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1011201.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 011 023
-
-Samantha Fox - The Hits Collection  1989  Compilation [FLAC|Lossless|image + .cue] <Pop, EuroDis
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Touch Me  I Want Your Body   3:47 
-02. Hot For You  4:13 
-03. I Promise You  3:53 
-04. The Best Is Yet To Come  4:50     Читать дальше...    Жанр: Pop, EuroDiscoПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A62D181B00291ACA8A6080F3D3CFFB528643443F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1011023.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 010 861
-
-Dino Solera - Classically Dino Solera  1977  [MP3|320 кб с] <Disco, Funk, Soul>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-В 1976г. встретились  в Мюнхене два итальянских музыканта: Джованни Джорджо Мородер  Giorgio Moroder  и Джузеппе Солера  Giuseppe Solera . Первый - начинающий, но уже известный композитор, аранжировщик, продюсер, исполнитель и диджей, второй - джаз, фанк и диско саксофонист и сессионный музыкант. Объединившись, выпустили сразу сингл, а затем в 1977г. небольшой единственный     Читать дальше...    01. Classically Elise  Elise 77     5:22 
-02. Suite Concerto    5:19 
-03. Easy Feeling    4:36 
-04. Theme For A Dream    6:09     Читать дальше...    Жанр: Disco, Funk, SoulПродолжительность: 00:31:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:54FC005E97547255D6C6C2E4DA22BBCEB9591665
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010861.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 010 738
-
-Roxette - It Just Happens  2016  Single [FLAC|Lossless|WEB-DL|track] <Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. It Just Happens  03:46 Жанр: Pop RockПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F5E3996E369F52F850CB22881B9A22CF917FAA89
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 010 725
-
-VA - Eurovision Song Contest Stockholm 2016: Come Together  2016  2CD [FLAC|Lossless|tracks + .c
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Eneda Tarifa - Fairytale  Albania  - 3:01
-02. Iveta Mukuchyan - LoveWave  Armenia  - 2:58
-03. Zoë - Loin d ici  Austria  - 3:01
-04. Dami Im - Sound Of Silence  Australia  - 3:05    Читать дальше...    Жанр: Pop, Eurodance, Folk Pop, Pop Rock, Chanson, Ballad, Swing, VocalПродолжительность: 02:09:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9D0DAF73F8CAE49A5AA50988FE01A27C5CFEE56C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010725.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 010 709
-
-Beyonce - Lemonade  2016  [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Pray You Catch Me  3:16 
-02. Hold Up  3:41 
-03. Don t Hurt Yourself  feat. Jack White   3:54 
-04. Sorry  3:53     Читать дальше...    Жанр: Pop, Electronic, Funk & Soul, R&B, Soul, Neo Soul, ElectroПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:17EDA400AB0A31EE91C6B10502F9412B7F5BABCC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1010709.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

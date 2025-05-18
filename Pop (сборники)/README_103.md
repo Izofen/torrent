@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 957 498
+
+МакSим - Хорошо  2015  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Любовь алого цвета
+02. Золотыми рыбками
+03. Иди
+04. В лето    Читать дальше...    Жанр: PopПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5E86090CD7455E4C1C66044212C05199B48DE0A2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957498.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 957 440
+
+Justin Bieber - Purpose  2015  Deluxe Edition [FLAC|image+.cue]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Mark My Words  2:14 
+02. I’ll Show You  3:20 
+03. What Do You Mean?  3:26 
+04. Sorry  3:21     Читать дальше...    Жанр: PopПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D9CA300464E492E1C772D517977738B2E41AC69C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957440.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 957 434
+
+Phildel - The Glass Ghost  2013  EP [MP3|320 кб с]<Alternative Pop, Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Heaven: An Introduction
+02. The Glass Ghost
+03. Comfort Me
+04. Celestial    Читать дальше...    Жанр: Alternative Pop, Indie PopПродолжительность: 00:23:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7CBA7F987C43F9E8562505B780C15674D417847A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957434.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 957 420
+
+One Direction - Made In The A.M.  2015  Deluxe Edition [FLAC|Lossless|image + .cue]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Hey Angel
+02. Drag Me Down
+03. Perfect
+04. Infinity    Читать дальше...    Жанр: PopПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B2E2B8AADF5AB2BF1C64F9290A6BD5AB52376A48
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957420.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 957 374
+
+Alison Moyet - Singles  1995  [FLAC|image + .cue]<Pop, Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The First Time Ever I Saw Your Face  03:20 
+ 02. Only You  03:13 
+ 03. Nobody s Diary  04:32 
+ 04. Situation  02:25     Читать дальше...    Жанр: Pop, Synth-popПродолжительность: 01:13:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:03C2A6A93F9B39751B5EAEFAC0EFC39DB9ACED45
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957374.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 957 304
+
+VA - Радуга  1 пластинка   1980  [MP3|320 кб с]<Instrumental, Pop, Retro>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Оркестр Макса Грегера - Хелло, Долли  Дж.Герман 
+MAX GREGGER ORCHESTRA - Hello Dolly  Jerry Herman  ©197?
+02. Джо Дассен - Если в мире нет тебя  Паллавичини - Лемеси 
+JOE DASSIN - Et si Tu N’Existais pas  Salvatore Cutugno - Vito Pallavicini - Pasquale Losito - Claude Lemesle  ©1969    Читать дальше...    Жанр: Instrumental, Pop, RetroПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A9881D8F8681A3A2D75AB8DC3C9D58E306418382
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957304.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 957 276
+
+VA - Now That s What I Call Music! 92  2015  [MP3|320 кб с]<Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01. Sam Smith - Writings On The Wall
+02. Justin Bieber - What Do You Mean?
+03. The Weeknd - I Can t Feel My Face    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:50:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A5DCEC583880E642A1D0FA3E516706872C0D41D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957276.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 957 193
+
+One Direction - Made In The A.M.  2015  Deluxe Edition [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Hey Angel
+02. Drag Me Down
+03. Perfect
+04. Infinity    Читать дальше...    Жанр: PopПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B8A3959C0A5FE9F39347CC46C0F25F34372FDCB2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957193.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 957 192
+
+Anne Harris - Come Hither  2015  [MP3|320 кб с]<Alternative Pop, Contemporary Blues, Americana
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Broken
+02. Waves  With Otis Taylor 
+03. Giddy Up  With Chuck Campbell 
+04. Fallen  With Nikki Lynette     Читать дальше...    Жанр: Alternative Pop, Contemporary Blues, AmericanaПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE6376269EFE5DF88F99455F1B1F51726C69BA0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_957192.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 956 989
+
+VA - BRAVO The Hits 2015  2015  [FLAC|Lossless|tracks|WEB-DL]<Top 40, Pop, Electronic, R&B, Pop
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Glasperlenspiel - Geiles Leben  Madizin Single Mix   3:32 
+02. Louane - Avenir  Radio Edit   3:03 
+03. Avicii - Broken Arrows  3:52 
+04. Sido feat. Andreas Bourani - Astronaut  3:59     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Hip Hop, R&B, Europop, Indie Pop, Euro House, Electro, Synthpop, Pop Rap, Reggae Fusion, Pop Rock, Indie RockПродолжительность: 02:40:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8E2CCEDF1BC1955D276D6088E9339D9EFA77D2F8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956989.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 956 542
 
 Лолита - Неизданное  2015  [MP3|320 кб с]<Pop>
@@ -1742,254 +1992,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950251.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 950 031
-
-September - September  2004  [MP3|256 кб с]<Pop, Dance, Eurodance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. Same Old Song  03:27 
-02. September All Over  03:47 
-03. Get What You Paid For  03:23 
-04. La La La  Never Give It Up   03:18     Читать дальше...    Жанр: Pop, Dance, EurodanceПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3C25E9D3FA41895075A80B283CA9C9D8D774DC12
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950031.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 950 026
-
-Ricchi E Poveri - The Best Dance Remixes  2015  [MP3|320 кб с]<Dance, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Mamma Maria
-02. Sara perche ti amo
-03. Made in Italy
-04. Se mi innamoro    Читать дальше...    Жанр: Dance, PopПродолжительность: 00:56:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8A6C3BC973C8BB8741708BE3F86DAC9A414E8196
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_950026.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 752
-
-Vanessa Carlton - Liberman  2015  2CD Deluxe [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Делюкс-версия альбома  Liberman  американской певицы и автора песен Ванессы Карлтон.CD1:
-01. Take It Easy  05:32 
-02. Willows  02:54 
-03. House of Seven Swords  03:44     Читать дальше...    Жанр: PopПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6AFBA572E92CABE11A0135C4320E587B2DC8BE4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949752.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 661
-
-Selena Gomez - Revival  2015  Japanese Edition [FLAC|image+.cue]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Revival
-02. Kill Em With Kindness
-03. Hands to Myself
-04. Same Old Love    Читать дальше...    Жанр: PopПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E55A00A06D371BCCFFC39FE04ECCE9123F332B98
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949661.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 509
-
-The Beloved - Conscience  1993  [FLAC|image+.cue]<House,Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Spirit  4:46 
-02. Sweet Harmony  5:04 
-03. Outerspace Girl  4:49 
-04. Lose Yourself In Me  4:33     Читать дальше...    Жанр: House,PopПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:72E5877CE01DEFD888CC9E514F3DDF072FB64771
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949509.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 498
-
-Mark Ashley - Baby Blue  2015  Single [MP3|320 кб с]<Dance, Eurodance, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Baby Blue  Single Edit 
-02. Baby Blue  Extended Version Жанр: Dance, Eurodance, DiscoПродолжительность: 00:10:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D8D25BF4EC5D51910389EB9B6E49FC0CC98F3F71
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949498.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 286
-
-The Beloved - The Sun Rising  2005  [FLAC|image+.cue]<House, Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. The Sun Rising
- 02. Your Love Takes Me Higher
- 03. Wake Up Soon
- 04. Up, Up and Away    Читать дальше...    Жанр: House, PopПродолжительность: 1:03 00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:20E24D3F0A46DB1BDB50CE84F125482904FF9176
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949286.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 202
-
-Al Bano & Romina Power - Felicita  1985  Gold Serie [FLAC|image + .cue]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Felicita  1983  [3:14]
-02. Prima notte d amore  Enlaces sur le sable   1983  [2:54]
-03. Sharazan  1983  [4:25]
-04. L  amore e  1983  [3:59]    Читать дальше...    Жанр: PopПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3101CE00F90F20267A4635DC7D0399DA4DC072AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949202.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 135
-
-VA - Monster Halloween Hits  2010  3CD [MP3|320 кб с]<Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Screamin  Jay Hawkins - I Put a Spell on You  2:26 
-02. The Five Blobs - The Blob  2:39 
-03. Sheb Wooley - The Purple People Eater  2:14 
-04. Bobby  Boris  Pickett & The Krypt Kickers - Monster Mash  3:08     Читать дальше...    Жанр: Pop, RockПродолжительность: 03:51:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:92FFEA528B715F8DAD5E43DF06366FB49DCD5F3E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949135.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 949 109
-
-Муслим Магомаев - Лучшее  Звёзды Советской Эстрады   2001  [MP3|320 кб с]<Советская эстрад
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-01. Королева красоты  А.Бабаджанян - А.Горохов 
-02. Шаланды  Н.Богословский - Агатов 
-03. Тёмная ночь  Н.Богословский - Агатов 
-04. Мечты, мечты  А.Мажуков - А.Пушкин     Читать дальше...    Жанр: Советская эстрадаПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4F908D958F6CDE20511E760ACFEC620BCD20222C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_949109.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,606 @@
 ﻿
+###  Публикация: 1 220 973
+
+VA - The Official UK Top 40 Singles Chart 20.04.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Calvin Harris, Dua Lipa - One Kiss  03:35 
+02. Drake, Big Freedia, 5thward Weebie - Nice For What  03:32 
+03. Lil Dicky - Freaky Friday  feat. Chris Brown   03:37 
+04. George Ezra - Paradise  03:43     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:20:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:069FC8C7CF17088FDAA542839CCB7999BD27165A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220973.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 951
+
+VA - Absolute Dance Spring 2018 [MP3|256-320 Kbps] <Dance, Club, Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Daft Punk - One More Time  Short Radio Edit 
+02. Tiesto - Adagio For Strings  Radio Edit 
+03. The Prodigy - Smack My Bitch Up
+04. Underworld - Born Slippy  Nuxx   Remastered     Читать дальше...    Жанр: Dance, Club, PopПродолжительность: 04:00:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:106D6706D0C0F674318EB2DE8FF4A61E44D0E4AD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220951.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 950
+
+VA - Club Dance Ambience Vol.144  2018  [MP3|320 Kbps] <Dance, Club House, Electro House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Betta Lemme - Bambola  Konstantin Ozeroff & Sky Remix 
+002. Feduk - Хлопья Летят Наверх   Dj Richi Remix 
+003. Sigrid - Strangers  Jolyon Petch Club Mix 
+004. The Bestseller - Da Bomb  Original Mix     Читать дальше...    Жанр: Dance, Club House, Electro HouseПродолжительность: 07:32:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BCA89A8793B5E2293D436CAF86E9E0329F87774B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220950.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 942
+
+VA - Русское радио: Хит-парад Золотой граммофон  Апрель   2018  [MP3|320 Kbps] <Поп>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Светлана Лобода - Парень
+02. Владимир Пресняков - Слушая тишину
+03. Ани Лорак - Новый бывший
+04. Queens и Николай Басков - Мой король    Читать дальше...    Жанр: ПопПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD407EAA7289C4B00D5445A30EC8D6C24534D29F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220942.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 850
+
+Nana - Collection от ALEXnROCK  2018  [MP3|320 Kbps] <Rap>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+01 Got To Get Away
+02 Let It Rain
+03 Тoo Much Heaven
+04 Judgement Day    Читать дальше...    Жанр: RapПродолжительность: 02:14:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6726FD791AA4C743F4B60A76ECB973DD410FF650
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220850.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 837
+
+VA - ЕвроХит Топ 40 Europa Plus 20.04.2018  2018  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Camelphat & Elderbrook - Cola  Robin Schulz Extended Remix 
+02. Justin Timberlake - Say Something  ft. Chris Stapleton 
+03. Zayn Malik feat. Sia - Dusk Till Dawn
+04. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:16:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B077D3BBC5E224CD8627A7DA28141BDA69F9B44
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220837.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 820
+
+VA - German Top 100 Single Charts 20.04.2018 [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Marshmello Anne-Marie - FRIENDS
+002. Capital Bra - 5 Songs in einer Nacht
+003. Olexesh - Magisch  feat. Edin 
+004. Ramz - Barking    Читать дальше...    Жанр: PopПродолжительность: 05:42:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:758B42A3A05FBE9C536C2024C30FE45433E61CCA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220820.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 775
+
+VA - German Top 50 Official Dance Charts 20.04.2018  2018  [MP3|320 Kbps] <Dance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Moguai, Zonderling - Lee
+02. Fatboy Slim - Right Here, Right Now  CamelPhat Radio Edit 
+03. Steve Aoki, Daddy Yankee, Play-N-Skillz & Elvis Crespo - Azukita
+04. Bingo Players, Goshfather - Everybody    Читать дальше...    Жанр: DanceПродолжительность: 02:53:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E066E931C9C2E9AF8D4927B498F3491FF8B1D1A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220775.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 758
+
+VA - 100 Hits Rock Vol.3  2018  [MP3|256-320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Океан Ельзи - Без тебе
+02. Сергей «Чиж» Чиграков, Олег Асса - Не спится
+03. Daughtry - Backbone
+04. The Dickies - Magoomba II    Читать дальше...    Жанр: RockПродолжительность: 06:23:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06B7FAF2D168D27CB1C94AFA27FAFAAFB4BBAC73
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220758.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 754
+
+VA - Music for your Car  2018  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Alex Greed feat. Jay Vallze - Alive  Dave Ramone Radio Edit 
+002. Merk & Kremont Ft. DNCE - Hands Up  Original Mix 
+003. OFFAIAH - Private Show  Denis First & Reznikov Remix 
+004. Sigala Ft. Paloma Faith - Lullaby  Original Mix     Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 06:39:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21B39D971A8A2F409808E1A2DC264EC118C2F2A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220754.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 741
+
+VA - Chill Night  Compiled by ZeByte   2018  [MP3|320 Kbps] <Ambient, Deep Dubstep, Future G
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Brambles - Are Te [06:12]
+02. Nils Frahm - Familiar [03:31]
+03. Aether - Watching You Fake A Smile [03:37]
+04. Kaisaku - Waiting For The Rain [04:39]    Читать дальше...    Жанр: Ambient, Deep Dubstep, Future GarageПродолжительность: 03:25:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A474D3F5ECFC73797750882D5F27E2AB280F38A1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220741.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 734
+
+CL - Hello Bitches  2016  Remix [MP3|320 Kbps] <Deep House, G-House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. Hello Bitches
+2. Dj Alex Mistery
+3. Up MusicЖанр: Deep House, G-HouseПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E5A7CDDDFF03646FA3FD0BF7561A1F466F5BA3EC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220734.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 730
+
+VA - EUROMANIA: Dance Club vol. 1-4  2016  [MP3|320 Kbps] <Eurodance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Black House - That Is Really Mine  5:39 
+02. Parade - Change Your Mind  3:29 
+03. Soho Party - Baby, Nem Kell Mas!  3:30 
+04. Strega - Lead Me Now  5:48     Читать дальше...    Жанр: EurodanceПродолжительность: 07:30:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:82B2CDD78D5FC988D2E4A583E85B2ADB77B7C911
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220730.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 703
+
+VA - Take On The Best Of Vocal Synthwave 2  2018  [MP3|320 Kbps] <Synthwave, Retrosynth, Dreamwa
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. LANights - Voice Don t Stop Voice  Gertrudda Synthmix Edit   5:55 
+02. Kalax feat. Player One - Not Alone  5:16 
+03. Jenny feat. NightStop - Moonlight Bubblebath  Gertrudda Fanmix Edit   7:05 
+04. Timecop1983 feat. By An Ion - Falling Apart  The New Division Remix   5:06     Читать дальше...    Жанр: Synthwave, Retrosynth, DreamwaveПродолжительность: 03:22:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:74BB5F3DA476AD007ED52DAF997BC68BFA8A938C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220703.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 599
+
+VA - Trance Treasures: Pacific Legendary Sounds  2018  [MP3|320 Kbps] <Progressive, Electro, Tra
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Прошло уже больше половины весны, но на улице по-прежнему прохладно. Отлично согреться и взбодриться поможет музыкальная подборка «Trance Treasures: Pacific Legendary Sounds» – свежий музыкальный сборник коммерческого формата для любителей качественного транса.001. Late Night Alumni - Montage  Mitiska Extended Signature Mix 
+002. Miroslav Vrlik - Second Reset  Original Mix 
+003. Bukat - Free Character  Original Mix 
+004. FRAM! feat. ANGE - Limits  Mix-Roman Remix     Читать дальше...    Жанр: Progressive, Electro, TranceПродолжительность: 09:56:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8FD2763B201476BE94819612E8F16266452A513C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220599.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 589
+
+VA - Shazam: Хит-парад Russia Top 100  2018  [MP3|320 Kbps] <Pop, Dance, House>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. MARUV & BOOSIN - Drunk Groove
+002. Джиган feat. Артем Качер - ДНК
+003. Aris - S.O.S.  DJ Antonio Remix 
+004. Vanotek feat. Eneli - Back To Me    Читать дальше...    Жанр: Pop, Dance, HouseПродолжительность: 05:54:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91AAD56A9D6F17F895D2D9A944F2477340BA7CCF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220589.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 582
+
+VA - Расскажи Мне Ветер: Русский Рок-Трек  2018  [MP3|192-320 Kbps] <Рок, Альтернатива>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+Не считайте, что это сборник из каких-то банальностей, которые тоже, однако, заслуживают своей оценки, но уже всем приелись. Нет, на этот раз у вас будет 130 разнообразных рок композиций, многие из которых вы, может даже, услышите впервые или вспомните, что не слушали их уже достаточно.001. Северный Флот - Презирать и ненавидеть
+002. Максим Леонидов - 7 утра
+003. Алиса - Rock  n  Roll жесток
+004. Нуки - Продолжаем движение    Читать дальше...    Жанр: Рок, АльтернативаПродолжительность: 08:20:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80AA24CC9C3F7E69D410E10BCAF3CEADB640B00C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220582.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 437
+
+VA - Дэнс 90-х  2018  [MP3|320 Kbps] <Eurodance, Dance, Pop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001.Humanize - Do You Know My Name  Club Mix 
+002.2 Unlimited - Tribal dance  Spanish Edit 
+003.RLC - Soldiers  Last Soldiers Mix 
+004.MC Jack & Sister J - Movin  Up And Down  Radio Mix     Читать дальше...    Жанр: Eurodance, Dance, PopПродолжительность: 11:41:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A4DDEF9250F74E481176455FFA77C12A80DF4A4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220437.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 414
+
+VA - Память Прошлого Дня  2018  [MP3|320 Kbps] <Metall, Hard Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+Вы ценитель качественной музыки? У вас в наушниках постоянно звучат мелодичные гитарные ритмы? Тогда вы очутились здесь не случайно! На треках русского сборника хардкора и металла под названием «Память Прошлого Дня», кроме всеми признанных музыкальных шедевров, звучат и малоизвестные композиции андерграундной сцены.001. Харизма - Ты ветер, ты пепел
+002. Багира - Момент
+003. Легион - Когда проснётся бог
+004. 5 Стихий - Отпусти    Читать дальше...    Жанр: Metall, Hard RockПродолжительность: 08:18:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1831835C59DCFF326A86A83561621CDC3C12618E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220414.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 406
+
+VA - Bravo All Stars: Planet Pop  2018  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+Проникнитесь настроением беззаботного уикэнда с музыкой сборника  Bravo All Stars: Planet Pop . Приятные и простые мелодии льются безумно быстро, делая пластинку крайне простой и легкой для восприятия. Каждая из песен хороша по-своему и подарит слушателю массу положительных эмоций.001. Frank Duval - Face To Face
+002. SeeB & R. City - Under Your Skin
+003. FO&O - Gotta Thing About You
+004. Sondr feat. Peg Parnevik - Live Love Learn    Читать дальше...    Жанр: PopПродолжительность: 11:53:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:22B03DD39B2ACEC250CFF7E4129E6BDBAC1CD25D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220406.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 384
+
+VA - Hits of My Soul Vol. 34  2018  [MP3|320 кб с]<Trap>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. 8er$ - Break Yourself  03:18 
+02. Dinah Washington - I ve Got You Under My Skin  DJ Carnage & Victor Niglio Remix   04:02 
+03. Major Lazer feat. Amber - Get Free  What So Not Remix   04:57 
+04. Alexander Lewis - Tides  Original Mix   03:01     Читать дальше...    Жанр: TrapПродолжительность: 02:09:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:366F1F9EF7F7BB3DE9583322B4DF9A46455DADDB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220384.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 379
+
+VA - Clubland Xtreme: Euro EDM  2018  [MP3|320 Kbps] <Club, Dance, House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Лучшее средство от мигрени и подавленного настроения - музыка сборника  Clubland Xtreme: Euro EDM ! Композиции характеризуются великолепной атмосферой позитива и тонким чувством стиля. Альбом буквально полностью пропитан легкими нотками романтики и танцевального духа. Хорошая работа во всех смыслах. Приятного прослушивания!001. Armin van Buuren feat. Conrad Sewell - Sex, Love & Water  Extended Mix 
+002. Kisma - Fingertips
+003. Lost Frequencies & Zonderling - Crazy  Mr. Belt & Wezol Extended Remix 
+004. Calum Scott - You Are The Reason  MOTi Extended Remix     Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 08:31:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C0866296A5CA8CB50B4D19FC911B2142E1F7F31A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220379.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 335
+
+VA - Горячая вечеринка в стиле R`N`B  2018  [MP3|320 Kbps] <R&B, Hip-Hop>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Frank Ocean - Thinkin Bout You
+002. D angelo - Sugah Daddy
+003. Miray - Tamally Maak  Remix 
+004. Pitbull - Time of Our Lives    Читать дальше...    Жанр: R&B, Hip-HopПродолжительность: 06:07:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C695D46A7327D6E4F8D84EAD71C6E7E2BAC8E37E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220335.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 220 326
+
+VA - Spacesynth 4Ever Vol.1-7 (2016-2018) [MP3|320 Kbps] <Electronic, Spacesynth, Spacedisco>
+Неофициальные сборники
+Electronic (сборники)
+
+###  Подробнее
+
+01. Axel F - Spacesynth Remix (Cover by Anton Eriksson) (2:23)
+02. Olivio Amon - Chernobyl (Original Mix) (6:12)
+03. Jsc - Outside The Galaxy (5:32)
+04. Sir NutS feat. Usa - Space Base (4:00)(   Читать дальше...   )Жанр: Electronic, Spacesynth, SpacediscoПродолжительность: 12:14:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:840B58A8572BF8972B22257957CEA087E88ED04C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220326.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 220 244
 
 VA - Need For Speed Vol.13  2018  [MP3|320 Kbps] <Dance, Hands Up>
@@ -1392,606 +1994,6 @@ VA - Душевный шансон в хорошей компании  3   2018 
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219190.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 182
-
-VA - Back To 90 s’ Eurodance  2018  [MP3|320 Kbps] <Eurodance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Nausikaa - Light My Fire
-002. Maduar - Mystic Party
-003. Daze - Call Girl
-004. John The Whistler - She s My Girl    Читать дальше...    Жанр: EurodanceПродолжительность: 06:53:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F8EEED331DC7459AB02DF7735586F6A562B20E3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219182.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 172
-
-VA - Настроение Весны От Авторадио  2018  [MP3|256-320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Андрей Леницкий - Подари Мне Любовь
-002. Сати Казанова - Спит Моё Счастье
-003. Sia - Ho Ho Ho
-004. Николас Кельм - Забывай Меня    Читать дальше...    Жанр: PopПродолжительность: 12:06:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0C87D8DEC3C1D562666817D6BFEC03CBD80E5E70
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219172.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 166
-
-VA - Hot Spring Dance  2018  [MP3|320 Kbps] <Club, Dance, House>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Krewella - Runaway
-002. Mozzik - Cocaina   Nejtrino & Baur Remix 
-003. Maff Boothroyd Ft. Taylor William - Still Believe  Original Mix 
-004. Saladin - Going Deeper  Original Mix     Читать дальше...    Жанр: Club, Dance, HouseПродолжительность: 06:40:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2AB5A84B0022ECC9EE37EDC9F396E6F2410C4C10
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219166.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 165
-
-VA - Jazz With Blues Accent  2018  [MP3|128-320 Kbps] <Jazz, Blues>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Carmen McRae - I Only Have Eyes For You  Live 
-002. Renata Ghiso - I m a Stranger Here Myself
-003. Bobby Short - Heebie Jeebies
-004. Y Akoto - Come Down To The River    Читать дальше...    Жанр: Jazz, BluesПродолжительность: 08:13:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AD3D2B0A81C413E9E70177EF79EEE69E53A35324
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219165.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 143
-
-VA - Mysterious: New Era Music  2018  [MP3|320 Kbps] <New Age, Ambient, Enigmatic>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-001. Entheogenic - Anima Mundi
-002. Physical Dreams - Nature Sounds N1
-003. beGun - Yoko
-004. Empire Of Love - Mysterious    Читать дальше...    Жанр: New Age, Ambient, EnigmaticПродолжительность: 08:59:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A3B3FA8C9DEE682BF79297BE94BE6382E538564D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219143.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 108
-
-VA - Salsa Fiesta 2018 [MP3|256-320 Kbps] <Salsa, Bachata, Kizomba, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Los 4 - Tu de Que Vas
-02. Ciclon Cubano - Echale Salsa
-03. Damian Los Desiguales El Principe - Eso Es Bola  Salsa Version 
-04. El Pequeno De La Salsa - Te Quiero    Читать дальше...    Жанр: Salsa, Bachata, Kizomba, OtherПродолжительность: 04:18:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5EFF8390FBDB78AF095553B7C757291351765EB1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219108.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 081
-
-VA - Экспресс русских хитов на Hit FM  4   2018  [MP3|256 Kbps] <Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Лев Тимашов Feat. А.Арсентьев - 48 Минут
-002. Неангелы - Точки
-003. Стас Пухх - Ты Как Пуля В Груди
-004. Сергей Восьмой - Скажи Мне Брат    Читать дальше...    Жанр: ПопПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C0ADA8082777214906C38D0A3E5417902785EFF3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219081.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 079
-
-VA - Экспресс русских хитов на Hit FM  3   2018  [MP3|256 Kbps] <Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Kuznetsov - Я Не Уверен
-002. Михаил Дробинин - Мы Играем В Любовь
-003. Ника - Отцветает Вишня
-004. U3u - Ты Именно Та    Читать дальше...    Жанр: ПопПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7727824BF74356AE2C9FCCBF011D46C88F2E7851
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219079.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 052
-
-VA - Душевный сборник радио Шансон  2018  [MP3|256 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Сергей Щавинский - Летит Душа
-002. Владимир Курский - Живу Тобой
-003. Евгений Беляев - Моя Душа
-004. Слава Благов - Зимой Весной И Летом    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A1A75D816E9A01B17749857A197056319D8790CF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219052.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 051
-
-VA - Душевный шансон в хорошей компании  2   2018  [MP3|256 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Edik Salonikski & Elli Mouratidou - Улетим
-002. Вера Верба - Мы Будем Жить
-003. Федосей - Ведьмочка
-004. Олег Карпович - Истина    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:712A0EB7917CE79AC4D1F150B1ACCC3AAE375CF5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219051.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 048
-
-VA - Душевный шансон в хорошей компании  2018  [MP3|256 Kbps] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Marina  Марина Алексеева  - Горькое Вино Любви Моей
-002. Сергей Трофимов - Интернет
-003. Валерий Палаускас - Девочка-Умничка
-004. Дмитрий Романов & Вова Шмель - Я Не Буду    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4E49ECE4D26AF1D7012B383693B6ECF2FF839F94
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219048.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 029
-
-VA - 50 Big Bachata Romantica Hits  2018  [MP3|256-320 Kbps] <Bachata, Reggaeton, Kuduro, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Grupo Extra - Lejos de Ti
-02. Oub LCK - Alma Desnuda
-03. Grupo Extra - Te Vas
-04. ROMY El Chacal Dj Conds - Sin Tus Besos    Читать дальше...    Жанр: Bachata, Reggaeton, Kuduro, OtherПродолжительность: 03:13:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:551A9D88C614B2AA51DA464DC7FA31D1246010C6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219029.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 981
-
-VA - Экспресс русских хитов на Hit FM  2   2018  [MP3|256 Kbps] <Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Elis Brooklyn - Лучше Без Тебя
-002. Владислав Рамм - Хватит Духу
-003. Alex Belak - Лабиринты
-004. Татьяна Котова - Стоп    Читать дальше...    Жанр: ПопПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6673273DED0EABF60DA1AB112261F0085C08BF6D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218981.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 980
-
-VA - Экспресс русских хитов на Hit FM  2018  [MP3|256 Kbps] <Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Dj Nana - Вибрации
-002. Алекс Малиновский - Пойдем Со Мной
-003. Андрей Леницкий - Подари Мне Любовь
-004. Вирус - Лети    Читать дальше...    Жанр: ПопПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C020E4347FC4728DEC0C41C374EB680BE771CC4E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218980.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 978
-
-VA - 100 Хитов Любимой Музыки  2018  [MP3|320 Kbps] <Pop, Dance, Rock>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Светлана Лобода - Лети
-002. Егор Крид - Миллион алых роз
-003. Елена Темникова - Не сдерживай меня
-004. Сергей Лазарев - You put out the fire    Читать дальше...    Жанр: Pop, Dance, RockПродолжительность: 06:04:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1BD4ED02DAD286D2CBCDDA9C98B88D99F3BDBD55
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218978.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 977
-
-VA - 100 Хитов Любимой Музыки  2014  [MP3|256 - 320Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Zip92 feat. Archi - M - Не Забуду
-002. Инь - Янь - Круто
-003. НашеVremя - Кино О Нас  Dance Version 
-004. ВИА Гра - Перемирие    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:06:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E6C0789424479BF5764C89ED89BDE2DB7785704
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218977.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 970
-
-VA - River Of Love  2018  [MP3|320 Kbps] <Pop, Lyric, Romantic>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Jamie Woon - Sharpness
-002. AWOLNATION - Sail
-003. Demo Taped - Insecure
-004. Kiiara - Gold    Читать дальше...    Жанр: Pop, Lyric, RomanticПродолжительность: 08:09:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:786F54063D76B9CEEDD2B601221DF39DA4B4E40C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218970.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 969
-
-VA - Sacred Killer: Metal Compilation  2018  [MP3|320 Kbps] <Black, Death, Brutal Metal>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Ellende - Am Sterbebett Der Zeit
-002. ANA - Ana
-003. Burning Shadows - Day of Darkness
-004. Soijl - Death Do Us Part    Читать дальше...    Жанр: Black, Death, Brutal MetalПродолжительность: 12:24:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D01B50D06A6D02687549194D34BC7280F7B246FD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218969.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 965
-
-VA - For Your Disco Pleasure  2018  [MP3|320 Kbps] <Italo Disco, Pop, New Generation>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Atlanta - Romantic Break
-002. Brooklyn Guy - Cold Stuff  Original Mix 
-003. Eucariontes - Tell Me More  Original Mix 
-004. The Fans - M.A.F.I.A.    Читать дальше...    Жанр: Italo Disco, Pop, New GenerationПродолжительность: 10:11:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1590A0DE51C8D9CF71D46DF83164E0CBCC292A1D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218965.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 928
-
-VA - Essential Vocal Jazz Femino  2018  [MP3|320 Kbps] <Jazz, Blues, Vocal Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Aretha Franklin - Let It Be
-002. Ella Fitzgerald - Get Ready
-003. Moon - Kiss Of Life
-004. Trillo De Angelis Quartet - Duality Bossa    Читать дальше...    Жанр: Jazz, Blues, Vocal JazzПродолжительность: 06:40:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D00B5921E71FD44CB1716A8EE194DD9C1AE9CCA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218928.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 900
-
-VA - Весенний марафон на Europa Plus  4   2018  [MP3|256 Kbps] <Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Летта - Хочу Я Быть Твоей Невестой
-002. Оксана Бойко - Мини-Юбка
-003. Dikaya - Я Отдала
-004. Наташа Королева & Герман Титов - Если Мы С Тобой    Читать дальше...    Жанр: ПопПродолжительность: 06:06:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0BB089B64D1E4F964525CAF8A032DE7D3BFDAC20
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218900.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 897
-
-VA - Весенний марафон на Europa Plus  3   2018  [MP3|256 Kbps] <Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Zveroboy - Ревность
-002. Serpo Feat. Женя Юдина - Летим За Звездами
-003. Андрей Бриг - Левша
-004. Артем Бизин - Неприкасаема    Читать дальше...    Жанр: ПопПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C37496AE2E11519BED99AD3E13E0958CD9632B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218897.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 894
-
-VA - Весенний марафон на Europa Plus  2   2018  [MP3|256 Kbps] <Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Dezery - Танцевать
-002. Лена Князева - Лезвие
-003. Алиса Вокс - Не Хочу
-004. Lalo Project - Космос Между Нами    Читать дальше...    Жанр: ПопПродолжительность: 06:06:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:787061CC05D37D06095F72BDF36139801BD2B966
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218894.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 218 893
-
-VA - Весенний марафон на Europa Plus  2018  [MP3|256 Kbps] <Поп>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Софи Кальчева - Красная Помада
-002. Анастасия Спиридонова & Сергей Волчков - Любовь
-003. Женя Mad - Тараканами
-004. Innarhanum Feat. Dumitresku - Нити    Читать дальше...    Жанр: ПопПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:21C7C66E5282B5392A556F62C15A5D11CEE8144F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1218893.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,305 @@
 ﻿
+###  Публикация: 618 805
+
+Валентина Толкунова - Дуэты  2011  [MP3|320 кб с]<поп, ретро>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Поляна света  feat. Курбаков Е. 
+02. Белая земля  feat. Хиль Э. 
+03. Вальс влюблённых  feat. Лещенко Л. 
+04. Доброта  feat. Мигуля В. 
+05. Летите, голуби  feat. Ухналев О. 
+06. Нас с тобой не разлучат годы  feat. Магомаев М. 
+07. Танго в дискотеке  feat. Серебренников Л. 
+08. Санки  feat. Мигуля В. 
+09. В порту  feat. Анофриев О. 
+10. Дельфины  feat. Анофриев О.     Читать дальше...    Жанр: поп, ретроПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C4F42C01D4CFEFE6D24FD061CAD3C0214E81F99B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 618 637
+
+VA - Diskothek  80  2012  [MP3|~260 кб с  V0 ]<Italo Disco, Europop, Synthpop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Beagle Music Ltd. - Daydream  Maxi-Single Version 
+02. Silent Circle - Touch in the Night  Crash Version 
+03. Max Him - Lady Fantasy  Extended Vocal Version 
+04. Secret Service - Flash in the Night  Long Remix Version 
+05. Bad Boys Blue - Pretty Young Girl  Maxi-Single Version 
+06. Hazell Dean - Searchin   Special Remix 
+07. Ken Laszlo - Hey Hey Guy  Extended Vocal Version 
+08. Scotch - Disco Band  Extended Vocal Version 
+09. Cosa Rosa - Toledo Girl  Extended Vocal Version 
+10. Martinelli - Cenerentola  Cinderella   Extended Vocal Version     Читать дальше...    Жанр: Italo Disco, Europop, SynthpopФормат: Compilation, RemasteredПродолжительность: 02:22:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A8BA2010050619B5979890AFA59C82EA97D82DB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 618 399
+
+Мария Пахоменко - Золотые хиты  2010  [MP3|320 кб с]<поп, ретро>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Шагает, шагает  А.Колкер – Л.Куклин 
+02. Стоят девчонки  А.Колкер – К.Рыжов 
+03. Если б не было в мире влюблённых  А.Колкер – Л.Куклин 
+04. Любовь останется  В.Гаврилин – Б.Гершт 
+05. Печальная  А.Колкер – К.Рыжов 
+06. Танцуем, пока танцуется  А.Колкер – К.Рыжов 
+07. Признание  А.Колкер – К.Рыжов 
+08. Ненаглядный мой  А.Пахмутова – Р.Казакова 
+09. Что со мной  Я.Дубравин – В.Уфлянд 
+10. Просто так  В.Шаповалов - К.Рыжов     Читать дальше...    Жанр: поп, ретроПродолжительность: 01:21:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:002E06EE17BC4E7C71F416200A41E299DF17CBA4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 618 378
+
+Сергей Попов & The Фобос - Биг-Бит 1967-69  2007  [MP3|320 кб с]<поп, ретро>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Моя гитара
+02. Водовоз
+03. Некрасивая
+04. Купите, купите
+05. Осень
+06. Окна
+07. Лиза
+08. Кажется во сне
+09. Я люблю тебя
+10. Скорый поезд    Читать дальше...    Жанр: поп, ретроПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:879E9E049AB1E6DFCE35D123AEFFD1015C9189C4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 618 350
+
+ВИА Красные маки - Антология 1977-1981  2CD   2010  [MP3|320 кб с]<поп, ретро>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+Диск 11. Кружатся диски  Д.Тухманов – И.Кохановский 
+2. Ясно всё  А.Хоралов – И.Кохановский 
+3. Ты мне снишься  В.Мигуля – И.Кохановский 
+4. Я тебя не прощу  В.Добрынин – И.Кохановский 
+5. Когда вокруг танцуют  С.Сархан – И.Кохановский 
+6. Было и прошло  В.Добрынин – И.Кохановский 
+7. Тебе не нужен я  В.Добрынин – Л.Дербенёв 
+8. Если у тебя своя дорога  В.Добрынин – Л.Дербенёв 
+9. Скажи мне правду  В.Добрынин – И.Кохановский 
+10. Мурлыка  А.Морозов – Ю.Марцинкевич     Читать дальше...    Жанр: поп, ретроПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E47719374E0E57ADA2B1FE282E65A468138C6AD2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 617 710
+
+C.C. Catch - 25th Anniversary Box 5CD  1986-1990   2011, Klub80 Records Remastered  [FLAC|Lo
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+Жанр: Disco, Euro-DiscoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_617710.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 617 456
+
+Scotch - Best Of Scotch  1992  [MP3|320 кб с]<Italo-Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Disco Band  5:03 
+02. Take Me Up  3:32 
+03. Mirage  3:54 
+04. Money Runner  6:18 
+05. Man In The Man  4:06 
+06. Delirio Mind  5:10 
+07. Loving Is Easy  4:45 
+08. Drink A Scotch  6:14 
+09. Pictures  5:20 
+10. Plus Plus  4:59     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:44756A5810CF7A1C774513182417979909054E7C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 616 827
+
+Gipsy Kings - Greatest Hits  2CD   2012  [MP3|320 кб с]<Pop, Rumba, Flamenco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 1:01. Escucha Me
+02. Passion
+03. Bem, Bem, Maria
+04. Volare
+05. Canastero
+06. Oh Eh Oh Eh
+07. Ternuras
+08. Come Siento Yo
+09. Petite Noya
+10. Trista Pena    Читать дальше...    Жанр: Pop, Rumba, FlamencoПродолжительность: 01:16:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A1BE509804BEF7340766068776E1855FC43AA83
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_616827.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 616 734
+
+Crazy Loop  Dan Balan  - The Power of Shower  2007  [FLAC|Lossless]<Pop, Dance, Ballad>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Crazy Loop  Mm-Ma-Ma   3:35 
+02. Johanna  Shut Up!   3:40 
+03. Love Is A Simple Thing  3:09 
+04. Uh-Ahh-Yeah  3:26 
+05. Famikon  2:34 
+06. Tango  3:28 
+07. Take Me Higher  3:38 
+08. Despre Tine Cant  Partea 2   4:05 
+09. The 24th Letter  4:43 
+10. Crazy Loop  Mm-Ma-Ma   DJ Ross Radio Club Edit   3:54     Читать дальше...    Жанр: Pop, Dance, BalladПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_616734.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 616 583
+
+Mylene Farmer - Monkey Me  2012  [APE|Lossless]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Elle a dit  3:52 
+02. À l ombre  4:51 
+03. Monkey Me  4:14 
+04. Tu ne le dis pas  4:22 
+05. Love Dance  4:06 
+06. Quand  4:08 
+07. J Ai Essayé De Vivre...  4:40 
+08. Ici-bas  4:33 
+09. A-t-on jamais  3:47 
+10. Nuit d hiver  5:24     Читать дальше...    Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_616583.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 616 430
 
 Talking System - In My Backstreet Heaven  2008    2009 [WavPack|Lossless]<Pop, Synth-pop, Euro
@@ -2152,283 +2453,6 @@ Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_596364.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 596 295
-
-Николай Гнатюк - Золотой альбом (Лучшие песни) (2011) [FLAC|Lossless]<Pop, Retro>
-Pop (сборники)
-Советская эстрада, Ретро (Lossless)
-
-###  Подробнее
-
-01. Галина
-02. Птица счастья
-03. Барабан
-04. Малиновый звон(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:62966A735AF4004B6072DDDCF5710AD041AE3473
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_596295.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 596 233
-
-Doris Day - 3 альбома  1995-2004  [FLAC|Lossless]<Pop, Oldes>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. You re My Thrill [02:57]
-02. Bewitched, Bothered And Bewildered [02:44]
-03. I m Confessin  That I Love You [02:46]
-04. Sometimes I m Happy [02:36]
-05. You Go To My Head [02:53]
-06. I Didn t Know What Time It Was [03:05]
-07. When Your Lover Has Gone [02:58]
-08. That Old Feeling [03:03]
-09. Imagination [03:18]
-10. If I Could Be With You  One Hour Tonight  [03:27]    Читать дальше...    Жанр: Pop, OldesПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_596233.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 595 681
-
-Kelly Clarkson - Greatest Hits Chapter One  Deluxe Edition   2012  [MP3|320 кб с]<Pop, pop
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1.  Since You Been Gone                             3:10
-2.  My Life Would Suck Without You                  3:32
-3.  Miss Independent                                3:34
-4.  Stronger  What Doesn t Kill You                 3:41
-5.  Behind These Hazel Eyes                         3:17
-6.  Because Of You                                  3:40
-7.  Never Again                                     3:36
-8.  Already Gone                                    4:41
-9.  Mr. Know It All                                 3:52
-10. Breakaway                                       3:58    Читать дальше...    Жанр: Pop, pop rockПродолжительность: 01:19:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8259214FE25FD5E2B244157E358D39A50C1B58CA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_595681.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 595 419
-
-VA - 100 Hits 70 s pop   100 Classic Tracks of the Decade    2009  5CD BoxSet[MP3|320 кб<3
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-01. Village People - Go West [03:34]
-02. Leo Sayer - Moonlighting [04:11]
-03. David Essex - Oh What A Circus [03:51]
-04. The Osmonds - Let Me In [03:35]
-05. Bonnie Tyler - Lost In France [03:54]
-06. Elkie Brooks - Pearl s A Singer [03:37]
-07. Jimmy James & The Vagabonds - Now Is The Time [03:35]
-08. Donna Summer - MacArthur Park [03:57]
-09. Peter Skellern - Hold On To Love [02:56]
-10. The Mixtures - The Pushbike Song [02:31]    Читать дальше...    Жанр: PopПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_595419.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 595 304
-
-Таисия Повалий - Я Помолюсь  2012  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Я помолюсь  3:46 
- 2. Солнце Востока  3:26 
- 3. Родина  4:28 
- 4. Мама - Мамочка  3:15 
- 5. Верю тебе  3:07 
- 6. Два крыла  3:23 
- 7. Знай  3:33 
- 8. Наказаны любовью  3:33 
- 9. Отпусти  дуэт с С. Михайловым    3:34 
- 10. Бывший  3:17     Читать дальше...    Жанр: PopПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C8D9117CC6259816ABA6F7DE7AA314EDD8A5BDD0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_595304.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 595 200
-
-VA - 100 Hits 70 s pop   100 Classic Tracks of the Decade    2009  5CD Box Set[FLAC|Lossle
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_595200.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 594 863
-
-V A - Bravo Hits Сollection  Bravo Hits, Bravo Black Hits, Bravo The Hits, Bravo Hits Special 
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Жанр: Pop, Dance, R&B, Rock, Hip-HopПродолжительность: 02:26:22
-
-CD 1
-    Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:486A21C06777C6AF17C0FFE8D86654438274573D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_594863.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 593 915
-
-Mireille Mathieu - Mireille Mathieu  2003  [MP3|320 кб с]<Pop, Chanson>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Mille colombes  3:53 
- 2. Tout simplement une femme  3:16 
- 3. Je m ennuie de toi  3:09 
- 4. La star des annees trente  3:17 
- 5. Sur les bords du Yang-tse-Kiang  3:28 
- 6. Ave Maria Norma  4:18 
- 7. Comment est-elle  4:37 
- 8. Amour defendu  3:29 
- 9. Le jasmin qui parle  2:36 
- 10. L homme en velours  3:51     Читать дальше...    Жанр: Pop, ChansonПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E4F503AEE2BA507D3A131816869829DB3E274BEA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_593915.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 593 822
-
-Валентина Толкунова - Лучшее  2 CD   2010  [FLAC|Lossless]<Retro>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Мы на лодочке катались
-02. Ничего не кончается
-03. А любовь - то лебедем
-04. Поговори со мною мама    Читать дальше...    Жанр: RetroПродолжительность: 01:58:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CDB0AED91C6C6CFDB6C63D315B55F773B1743591
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_593822.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 593 803
-
-Александр Зацепин - поёт Алла Пугачёва  1995  [APE|Lossless] <Retro>
-Pop (сборники)
-Советская эстрада, Ретро (Lossless)
-
-###  Подробнее
-
-1. До свиданья, лето  Л.Дербенёв 
-2. Если долго мучиться  Л.Дербенёв 
-3. Куда уходит детство  Л.Дербенёв 
-4. Любовь одна виновата  Л.Дербенёв     Читать дальше...    Жанр: RetroПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F07D2F6C6274DDBCCA9FBE374514E652960FA841
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_593803.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

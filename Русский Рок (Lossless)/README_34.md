@@ -1,4 +1,128 @@
 ﻿
+###  Публикация: 1 134 993
+
+Jack Action - Atmosphera  2016  [MP3|320 Kbps] <Alternative Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Соверши побег
+02. Х-радио
+03. Во что ты играешь?
+04. Метеорит    Читать дальше...    Жанр: Alternative RockПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A03F0EBDE875E0311A0CEAF63AB6A9A8E35AFA87
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134993.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 134 912
+
+КРОУ - Наверх  2017  [MP3|320 Kbps] <Alternative Metal, Industrial, Rap Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Наверх
+02. Живой
+03. Немножко влюблённая
+04. Догма    Читать дальше...    Жанр: Alternative Metal, Industrial, Rap MetalПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3AE2C27EB4A1C14498C8C194AB1CC3FF193DD19E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134912.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 134 650
+
+ДДТ  DDT  - История звука  2017  3CD Compilation [MP3|320 Kbps] <Rock>
+След.
+Русский Рок (Lossless)
+
+###  Подробнее
+
+CD1:
+01. Помнишь  Прозрачный, 2014 
+02. Рождённый в СССР  Рождённый В СССР, 1997 
+03. Милиционер в Рок-Клубе  Оттепель, 1991     Читать дальше...    Жанр: RockПродолжительность: 03:00:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3F7A3E44FC900B12F15A80586B4B969DE52F2BA1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134650.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 134 594
+
+Порт Июля  feat. Тузова Юлия  - Где было море  2017  [MP3|320 Kbps] <Rock, Art Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Река
+02. Тает Снег
+03. Безумие
+04. Любовь    Читать дальше...    Жанр: Rock, Art RockПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:632303A9EBB8051B1F83F0B147214D41F77F90B5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134594.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 134 538
+
+Би-2 - Лётчик  2017  EP [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Лётчик
+02. Лётчик  remix by Max Khmara 
+03. ХалиГалиКришна  feat. Глеб Самойлов Жанр: RockПродолжительность: 00:14:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0F0996016760847F55DB01A668FD3E608F85CAE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1134538.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 134 157
 
 Nokturnal Mortum - Істина  2017  [FLAC|Lossless|image + .cue] <Folk,Pagan,Symphonic Black Metal>
@@ -1833,128 +1957,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1106886.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 106 360
-
-Sturmmann - Sturmzeit  2017  [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Harte>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Achtung!
-02. Wahnsinn
-03. Instinkt
-04. Akkumulator    Читать дальше...    Жанр: Industrial Metal, Neue Deutsche HarteПродолжительность: 00:25:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C2E702481CF17BAFDF478A8A1DA2D17A612A37F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1106360.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 106 351
-
-Яйцы Fаберже - Вещдоки  2017  [MP3|320 Kbps] <Rock, Ska>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Вещдоки
-2. Крым
-3. Мягкие кровати
-4. Испания    Читать дальше...    Жанр: Rock, SkaПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1CDE7950D8B868B582006A021F0A33A532472A2C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1106351.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 105 682
-
-Ленинград - Кольщик  2017  Single [MP3|320 Kbps] <Rock, Ska>
-След.
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. КольщикЖанр: Rock, SkaПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C8014CAF50856EF02A2B4D388A4BAAF47EB4095
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105682.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 105 334
-
-Gribanal - Рефлексия для чайников  2017  Авторская раздача [MP3|160-320 Kbps] <Electropunk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Intro  00:30 320 Kbps
-02. Хипстер  01:32  160 Kbps
-03. Хиккан  03:08 320 Kbps
-04. На завтрак  02:35 320 Kbps    Читать дальше...    Жанр: ElectropunkПродолжительность: 40:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:51342A94708AA44F0E5FD8CD69B8C1E090970F1C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105334.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 104 644
-
-Аляска - Скачать бесплатно  2015  [MP3|320 Kbps] <Ska, reggae>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Снежок  2:37 
-2. Маракасы  2:47 
-3. Бандиты  2:58 
-4. Космос  2:51     Читать дальше...    Жанр: Ska, reggaeПродолжительность: 00:29:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E3990E3C58AB04C7454998065CC9A7C804976C89
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1104644.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

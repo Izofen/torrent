@@ -1,4 +1,48 @@
 ﻿
+###  Публикация: 1 304 017
+
+OpenSuse Leap 15.1 [x86_x64] 3xDVD, 2xCD
+Linux, Unix и другие ОС
+ОС Linux
+
+###  Подробнее
+
+После года разработки состоялся релиз дистрибутива openSUSE Leap 15.1. Выпуск сформирован с использованием базового набора пакетов из находящегося в разработке дистрибутива SUSE Linux Enterprise 15 SP1, поверх которого поставляются более новые выпуски пользовательских приложений из репозитория openSUSE Tumbleweed. Для загрузки доступна универсальная DVD-сборка, размером     Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2C4FB08D0F4062C52DF73C9582536F521CF48157
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1304017.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 300 896
+
+Red Hat Enterprise Linux 8.0 [x64] 3xDVD
+Linux, Unix и другие ОС
+ОС Linux
+
+###  Подробнее
+
+Компания Red Hat опубликовала релиз дистрибутива Red Hat Enterprise Linux 8. Установочные сборки подготовлены для архитектур x86_64, s390x  IBM System z , ppc64le и Aarch64, но доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Исходные тексты rpm-пакетов Red Hat Enterprise Linux 8 распространяются через Git-репозиторий CentOS.     Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:30249402F9FBBE0E3AEC45796EBFBC42EC1FB6DE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1300896.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 300 163
 
 Deepin 15.10 [amd64] 1xDVD
@@ -1787,54 +1831,6 @@ Linux, Unix и другие ОС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1172990.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 169 518
-
-KNOPPIX 8.1 [x32, x64] 1xDVD
-Linux, Unix и другие ОС
-ОС Linux
-
-###  Подробнее
-
-будет позже пока на оф. сайте отсутствует
-KNOPPIX_V8.1-2017-09-05-EN
-KNOPPIX 8.1 DVD+USB edition
-Sep 27 18:07:16 2017
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C46ABA9FB3178F1CA7DF90B1B69F232609CCE94D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1169518.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 167 363
-
-KNOPPIX German DELUG edition of Linux Magazine. 8.0.0 [x32, x64] 1xDVD
-Linux, Unix и другие ОС
-ОС Linux
-
-###  Подробнее
-
-Клаус Кноппер  Klaus Knopper  представил на выставке CeBIT Edition 2017 новую версию 8.0 исторически одного из первых дистрибутивов, поддерживающих работу в Live-режиме. Дистрибутив построен на основе оригинального набора загрузочных скриптов и включает в себя пакеты, импортированные из Debian stable  jessie , testing  stretch 
-Пользовательская оболочка дистрибутива     Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4396805D8BFF967C79CD5DBCD018EE16A83263BC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167363.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

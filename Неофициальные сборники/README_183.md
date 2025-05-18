@@ -1,4 +1,602 @@
 ﻿
+###  Публикация: 943 232
+
+Mireille Mathieu - Good Songs  2015  [MP3|128 кб с]<Pop, Female vocalists>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Alors ne tarde pas
+002. Au bal du grand amour
+003. Chanson triste
+004. Combien de temps    Читать дальше...    Жанр: Pop, Female vocalistsПродолжительность: 11:17:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:775B40CDC24F470BC1B5BA20DF5F46AE226183EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_943232.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 943 219
+
+Boney M - Good Songs  2015  [MP3|192 кб с]<Disco, Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. 10000 Lightyears  1984 
+002. A Moment Of Love  2006 
+003. A Woman Can Change A Man  1977 
+004. African Moon  1981     Читать дальше...    Жанр: Disco, PopПродолжительность: 08:35:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AC40D84A3687BEC50B1711A9AA12BF46D17D9492
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_943219.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 943 149
+
+Medwyn Goodall - Beautiful World  2015  [MP3|320 кб с]<New Age>
+Неофициальные сборники
+Instrumental New Age Meditative Relax  сборники 
+
+###  Подробнее
+
+01. Unbroken [00:06:02]
+02. Threshold [00:06:31]
+03. Beautiful World [00:05:43]
+04. Blue Skies [00:05:57]    Читать дальше...    Жанр: New AgeПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:267F5EF40686FD9D79BDD86F8570F78B539A89A2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_943149.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 943 071
+
+ABBA - Good Songs  ABBA  [MP3|160 кб с]<Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Ah, Vilka Tider
+002. Al Andar
+003. Andante, Andante
+004. Angeleyes    Читать дальше...    Жанр: PopПродолжительность: 08:52:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3F55240B2D33CBF80962CB50739E60E3C0F7A6E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_943071.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 943 066
+
+VA - Absolutely Techhouse  2015  [MP3|320 кб с]<Tech House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Claas Herrmann – Mineral 07:02
+02. Matthias Leisegang – S.A.B.S.E.  Kollektiv Klanggut Remix  06:42
+03. Livio Sandro – Churches 06:31
+04. Tech Dealer – Plastic Vibes 07:10    Читать дальше...    Жанр: Tech HouseПродолжительность: 03:39:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:998240F02D5141074BDB0635EAEE70007126D3E3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_943066.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 943 059
+
+VA - Autumn Hits  2015  [MP3|320 кб с]<Club , Dance , House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Joey Dale feat. Rico & Miella - Winds  Original Mix 
+02. Ray Knox - Calling Out  Rob Mayth Remix Edit 
+03. Twoloud & Qulinez - Perfection  Original Mix 
+04. Iwaro & Kajjin Ft. Lucia Ferrero - Touch The Clouds  Radio Edit     Читать дальше...    Жанр: Club , Dance , HouseПродолжительность: 05:06:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:53F72E73A2C298D7E8659181B40D4B9BA80E322E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_943059.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 943 027
+
+Vanessa Paradis - Good Songs  2015  [MP3|320 кб с]<Pop, Dance pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Abracadabra
+02. Acrobates
+03. Air du Temps
+04. Amour Jamais    Читать дальше...    Жанр: Pop, Dance popПродолжительность: 04:56:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A11AD88B5F129545A48631B86CE2B2B1F2D9DEBE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_943027.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 943 005
+
+VA - Acoustic Lounge  2015  [MP3|320 кб с]<Chillout, Lounge>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Emma Luna – Casual Groove
+02. Delfina Deines – Higher Fire
+03. Darren Kim – For My Best
+04. Aida Antonelli – Seven Seas    Читать дальше...    Жанр: Chillout, LoungeПродолжительность: 02:15:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9838E4C7A2E880EF500F57401EFBB75BD67A7E79
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_943005.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 980
+
+VA - Trance Traveling 69  2015  [MP3|320 кб с]<Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Ramon Vincent & Nathan Rux - Morning Sun  Original Mix   05:31 
+02. Above & Beyond Feat. Zoe Johnston - Fly To New York  Above & Beyond vs. Jason Ross Club Mix   04:16 
+03. Philippe El Sisi & LIONART - Comfort You  Original Mix   04:01 
+04. Nic Toms - Arcade  Original Mix   05:01     Читать дальше...    Жанр: TranceПродолжительность: 02:04:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FB1D3E601C0142EFFD5CB4659FD861C29D19FEDB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942980.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 978
+
+Lara Fabian - Good Songs  2015  [MP3|160 кб с]<Pop, Female vocalists>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Croire  1991 
+002. Dire  1991 
+003. Il suffit d un eclair  1991 
+004. Je m arreterai pas de t aimer  1991     Читать дальше...    Жанр: Pop, Female vocalistsПродолжительность: 09:56:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C4D1FC49A4C2510761201A0996EC86CBEACD9BA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942978.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 968
+
+VA - Клубная Супер Дискотека  2015  [MP3|96-320 кб с]<Club, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Zedd Feat. Jon Bellion - Beautiful Now  Zonderling Remix 
+02. Alvaro Corz - My Head  Original Mix 
+03. Offset X Milkdrop - No More  Dj Miller X Dj Alex Milano Booty Mix 
+04. Moscow Chiks & Aaron Green - Between  Original Mix     Читать дальше...    Жанр: Club, DanceПродолжительность: 05:03:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5FAE28D6B98DF2F093B052205FB5DE0C4028649F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942968.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 956
+
+VA - Another 100 Melodic Rock Anthems  2015  [MP3|320 кб с]<Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Care Of Night - Cassandra [00:04:31]
+02. Vision - Mountain Of Love [00:04:51]
+03. Giant - Over You [00:05:04]
+04. John Parr - Come Out Fighting [00:05:12]    Читать дальше...    Жанр: RockПродолжительность: 07:20:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F82162326FA97E110DE72095A54A8F3E47F35B95
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942956.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 951
+
+VA - Car Audio. Music Road Vol.2  2015  [MP3|320 кб с]<Club , Dance , House>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Arty feat. Conrad - Braver Love  Original Mix 
+02. Amniza, Kate Wild - It s Alright  Original Vocal Mix 
+03. Nero - Into The Night  Original mix 
+04. Steve Anderson & Andrea Britton - Easy To Say  Original Mix     Читать дальше...    Жанр: Club , Dance , HouseПродолжительность: 06:35:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FF9A0EE53C8A8C7878247FB2B6AD8B4522FA81B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942951.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 933
+
+Modern Talking - Good Songs  2015  [MP3|160 кб с]<Pop, Eurodance>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. You re My Heart, You re My Soul  1984 
+002. Bells Of Paris  1985 
+003. Cheri Cheri Lady  1985 
+004. Diamonds Never Made A Lady  1985     Читать дальше...    Жанр: Pop, EurodanceПродолжительность: 09:12:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5C3308E41D747D073FCEE06C6509121F63818B3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942933.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 821
+
+VA - 100 Популярных хитов: Золото Шансона  2015  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Бородин Павел — Не уходи
+ 02. Андрей Забродин — Моя Мечта
+ 03. Михаил Круг — Купола
+ 04. БумеR — Те года    Читать дальше...    Жанр: ШансонПродолжительность: 06:17:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE4DD35A1DDF764CD192417CA7688EB74A3057E3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942821.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 787
+
+VA - 100 Популярных хитов: Золото Шансона  2015  [MP3|256 кб с]<Шансон>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Бородин Павел - Не уходи
+02. Андрей Забродин - Моя Мечта
+03. Михаил Круг - Купола
+04. БумеR - Те года    Читать дальше...    Жанр: ШансонПродолжительность: 06:17:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7BFF93D39198B78936C3A859B0BB5AD57201A94
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942787.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 786
+
+Prodigy & Rammstein - 1000%  2002-2003  [MP3|320 кб с]<Electronic, Breakbeat, NDH, Industrial
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+Prodigy 1000%  2002 
+Rammstein 1000%  2003 Жанр: Electronic, Breakbeat, NDH, Industrial MetalПродолжительность: 02:39:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EAA4B676D94CF093B7A907353A58FB00C212C192
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942786.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 773
+
+VA - VA - 100 хитов популярной музыки. Версия 5  2015  [MP3|256 кб с]<Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Александр Кривошапко - Окно
+002. Faydee - Lullaby
+003. Анастасия Приходько - Ника
+004. Gorgon City Feat. The Six - Take It All    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DCEA73792E0B107EA59C886C667EF31C23903642
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942773.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 728
+
+VA - Extra House  episode 6   2015  [MP3|320 кб с]<Deep House, Club House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Giacca & Flores - Last Night a DJ Saved My Life  Original Mix   05:12 
+02. Brandy - Another Day In Paradise  Maxim Andreev NU Disco Mix   04:28 
+03. Froidz - Shout  Deep Edit   03:11 
+04. Dapa Deep - All I Want  Original Mix   05:19     Читать дальше...    Жанр: Deep House, Club HouseПродолжительность: 01:48:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D543F9281817BA74CF3C9F7EE1B3BD8441B2AF54
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942728.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 685
+
+Galaxi - 2015  2015  [MP3|320 кб с]<Drum & Bass>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. 2015 03:16
+02. Absolute Zero 03:16
+03. Aufeis 04:40
+04. Earth 2 03:00    Читать дальше...    Жанр: Drum & BassПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:95EF68BA62578EE37C30718168FEA23FFD7EFD5A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942685.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 657
+
+Samantha Fox - Good Songs  2015  [MP3|256 кб с]<Pop, Disco>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Touch Me I Want Your Body   1986 
+02. I m All You Need  1986 
+03. Suzie, Don t Leave Me With Your Boyfriend  1986 
+04. Wild Kinda Love  1986     Читать дальше...    Жанр: Pop, DiscoПродолжительность: 05:43:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D92F005A68AFACC0BA09F88B4E0A456B149F4F9A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942657.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 633
+
+VA - Rock Хит. Высокое Напряжение  2015  [MP3|256 кб с]<Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Jeff Buckley - Hallelujah
+02. Би-2 - Три сантиметра над землёй
+03. Сплин - Сын
+04. Мара - Где-то моя любовь    Читать дальше...    Жанр: RockПродолжительность: 06:39:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2512D9ECA724EAA59BF6AE57A7C6563AEE36A8DE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942633.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 581
+
+Mylene Farmer - Good Songs  2015  [MP3|192 кб с]<Pop, Shanson>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Cendres De Lune  1986 
+002. Chloe  1986 
+003. Libertine  1986 
+004. Maman A Tort  1986     Читать дальше...    Жанр: Pop, ShansonПродолжительность: 08:07:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:134AEBD4837483CAEDF3FC6B1AE13E71F0B665CC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942581.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 942 577
+
+Patricia Kaas - Good Songs  2015  [MP3|192 кб с]<Pop, Shanson>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Bessie  1990 
+002. Generique  1990 
+003. Kennedy Rose  1990 
+004. L  Enterrement De Sidney Bechet  1990 .mp3    Читать дальше...    Жанр: Pop, ShansonПродолжительность: 07:41:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C6CF034964412AB6897885DB59130397ED483AE6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_942577.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 942 522
 
 Sexy Summer Cafe Ibiza - Summer Hits 2015 30 Lounge Chill Out Music and Songs of Summer  2015  [
@@ -1394,606 +1992,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939637.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 547
-
-VA - XXXL блатнячок на радио Шансон Сборник 5  2015  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Михаил Шуфутинский - Тетя Тань
-002. Евгений Полянский - Уезжаю
-003. Михаил Михайлов - Твоя Судьба
-004. Федосей - Взят Под Следствие    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA623AE4EB04212E85BF6DBE684D76AF69B5E94D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939547.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 497
-
-Suzi Quatro - The best of the Best  2015  [MP3|320 кб с]<Rock, Hard Rock, Glam Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-01. 15 Minutes Of Fame
-02. 48 Crash
-03. All Shook Up
-04. Back To The Drive    Читать дальше...    Жанр: Rock, Hard Rock, Glam RockПродолжительность: 06:10:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FB62D76DFCAD1B7358C19F8352DD01A743EDA1F6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939497.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 392
-
-VA - Rock Collection 1985  2015  [MP3|320 кб с]<Rock, Metal>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-###  Подробнее
-
-Disc 01
-01. Anthrax - A.I.R.
-02. Talking Heads - And She Was
-03. Exodus - Bonded by Blood    Читать дальше...    Жанр: Rock, MetalПродолжительность: 23:21:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:11DB87C10DF3AC464A1E7327A2B067E0EBECE4BD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939392.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 385
-
-VA - Rock Collection 1984  2015  [MP3|320 кб с]<Rock, Metal>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-Disc 01
-01. Van Halen - 1984
-02. Roger Waters - 4:30 AM  Apparently They Were Travelling Abroad 
-03. Mercyful Fate - A Dangerous Meeting    Читать дальше...    Жанр: Rock, MetalПродолжительность: 22:53:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFB189008FEFE0C03688E4B2FC69706EDB4EC249
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939385.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 370
-
-VA - Rock Collection 1986  2015  [MP3|320 кб с]<Rock, Metal>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-Disc 01
-01. Killing Joke - Adorations
-02. Slayer - Angel of Death
-03. Metallica - Battery    Читать дальше...    Жанр: Rock, MetalПродолжительность: 23:07:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C25932E01B8F3BBD58B249A7B49271F816DA35A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939370.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 355
-
-VA - Music compilation September  2015  [MP3|320 кб с]<House, Electro, Progressive, DubStep, C
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01.Adam Lambert – Ghost Town   Viduta Remix  
-02.Audien feat. Lady Antebellum - Something Better  Vanze Bootleg 
-03.Bassnecta – You & Me
-04.Brandon Flowers – I Can Change  Michael Brun Remix     Читать дальше...    Жанр: House, Electro, Progressive, DubStep, ClubПродолжительность: 02:52:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DF992F4D81DD89CE5BCC1616B2CFCFFFB2055D41
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939355.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 346
-
-VA - Не царское это дело - тихо музыку слушать  21.09.2015 [MP3|320 кб с]<Club, Dance, Pop>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Groove Guys — Saving My Love  Havanna Inc & General Tosh Sunset Mix 
-02. Jack Holiday — Check This  Original Mix 
-03. Lil Jon & Denis First — Bend Ova  Dj S-Nike & Jen Mo Mash Up 
-04. Scott Forshaw & Greg Stainer Ft. Brit Chick — Never Too Much  Extended Mix     Читать дальше...    Жанр: Club, Dance, PopПродолжительность: 04:53:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FBD216023D6750A79619730D5FB5F50365F0EBD9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939346.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 238
-
-VA - XXXL блатнячок на радио Шансон. Сборник 4  2015  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Александр Марцинкевич - Аня Бомба
-002. Рождество - Цветы Для Маши
-003. Стас Михайлов - Под Прицелом
-004. Эдвард Айдынов - В Ресторане    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E3DB147B5B296E18C38012C02CF083B42F683790
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939238.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 232
-
-VA - Лучшие новинки сентября 2015 от Зайцев.Нет  2015  [MP3|320 кб с]<Pop, Dance, Rock, R&B, R
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Тимати feat. Рекорд Оркестр - Баклажан  03:07 
-02. Потап и Настя - Вадимка, Зачем Ты  03:21 
-03. Пьер Нарцисс - Сердце Мамы  03:32 
-04. Jarina De Marco - Paranavigar  03:24     Читать дальше...    Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 02:29:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2FFA81D3A9B209F7107824132AA209C23A753375
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939232.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 220
-
-VA - Deep House Excitation Two - 15 Finest Deep-and Chillhouse Tunes  2015  [MP3|320 кб с]<Dee
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Fallow - Engage - Paul Lock Remix
-02. Jaques Le Noir - Looking For
-03. Tafubar - Constructing the Void - Lemongrass Balearic Mix
-04. Dr. Beat - Lovely Lisbon    Читать дальше...    Жанр: Deep House, Chill HouseПродолжительность: 01:38:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9A7A94ADC2175147AECD850B9ABD0C80E6A7D4F1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939220.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 188
-
-VA - Autumn Relaxation Moments Best of Chillout and Lounge for the Fall and Late Summer Moments  2
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Walnut Grooves - Secret Escapes - Buddha Cafe Lounge Mix
-02. Walnut Grooves - Magic Moon - By the Beach Mix
-03. Eva McFly - Rhythm - Sunset and Downbeat Mix
-04. CS Players feat. Yasmin - Un jour au bord de la mer - Paris Cafe Noir Moments    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:699893D4D594627044375FC8355399BE8437C777
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939188.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 179
-
-VA - Acoustic Hour - We Are Independent  2015  [MP3|320 кб с]<Pop, Rock>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Ed Sheeran - Thinking Out Loud 04:42
-02. Passenger - Let Her Go 04:13
-03. Birdy - Wings  Radio Edit  03:50
-04. Family Of The Year - Hero 03:10    Читать дальше...    Жанр: Pop, RockПродолжительность: 02:34:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:493E8741E2D040A58F003BC390DED34642AA5325
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939179.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 170
-
-VA - Современная музыка от Зайцев.Нет  2015  [MP3|187 - 320 кб с]<Pop, Dance, Rock, R&B, Rap>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Matisse & Sadko - Memories  Original Mix   04:51 
-002. Полина Гагарина - A Million Voices  03:03 
-003. Бурито - Мама  03:10 
-004. Джиган feat. МакSим - Дождь  03:13     Читать дальше...    Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 06:12:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C53E9598BF235F64F7910D76A59A400FB6B334D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939170.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 166
-
-VA - Goodtime Party Dance  2015  [MP3|320 кб с]<Club, House, Euro>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-01. Casandra - Take Me Away  Birizdo 80S Italo Radiomix  03:24
-02. Absolom - Remembering The 90 S  Classic Radio Version  03:33
-03. Kim Kaey - Shake It Up 2Nite  Radio Version  04:02
-04. Bootleggers International - Jack Your Body  Patricio Amc Remix  05:10    Читать дальше...    Жанр: Club, House, EuroПродолжительность: 01:43:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C4327133BA3D1E1069717224A9B72D861C5341CC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939166.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 157
-
-VA - Мелодия русского шансона  2015  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-001. Виктор Петлюра - За Тебя
-002. Александр Бешеный И Надежда Шеина - Без Тебя
-003. Виктор Петлюра - Разбудите Сердце
-004. Стас Михайлов - 1000 Шагов    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:724D1D9944756F4AF4D1E0841EAED9732DB65EF9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939157.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 093
-
-VA - Atom 19.0  Compiled and mixed by Deeper82   2015  [MP3|320 кб с]<Atmospheric Breaks,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Nikolay Mikryukov - Orbit  Original Mix 
-02. EZ Breaks, ARkLove - The Way To Charleroi  Cullen Remix 
-03. Omauha - Florence  Original Mix 
-04. Platunoff - Dive In Silence  Retroid Remix     Читать дальше...    Жанр: Atmospheric Breaks, Progressive BreaksПродолжительность: 02:24:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18EE71291340161D82AC1826302A38A4F286ABEA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939093.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 939 055
-
-VA - Top 100 Твои любимые хиты  2015  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. 30.02 - Но Tы
-02. Afrojack & Sting - Catch Tomorrow
-03. Aisha - Сильно, Сильно
-04. Alex Kafer - Всё Для Тебя    Читать дальше...    Жанр: PopПродолжительность: 06:05:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA25D6C6A17168C55955B4C971D576F8850E792F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_939055.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 938 973
-
-VA - Deep House and Techno - Dream Selection 2010-2015 vol.2  2010-2015  [MP3|256 кб с]<House,
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Blondish - Wunderkammer  original mix   06:58 
-02. Helly Larson - Waiting  UUSVAN remix   09:12 
-03. Recondite - Serak  original mix   07:28 
-04. Stephan Bodzin - Singularity  original mix   07:02     Читать дальше...    Жанр: House, TechnoПродолжительность: 05:21:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:701374C6D261E0F98CFA24A9F7F34EFF2EC59630
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_938973.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 938 972
-
-VA - TOP Non-Stop 2010-2015 - Lounge & Chillout  2010-2015  [MP3|192 кб с]<Chill, Lounge, New
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Slacker - A Million Dreams  intro  [01:09]
-02. Ron Basejam - Into My Life  original mix  [05:55]
-03. Mino - Textures [07:20]
-04. Lip Service - Ocean  Nightgroove Mix  [04:31]    Читать дальше...    Жанр: Chill, Lounge, New Age, AmbientПродолжительность: 05:09:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F4515C3A5A32908D2691803BFEDC27E0FE6A401E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_938972.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 938 960
-
-VA - World Chillout - Bestsellers second edition  2015  [MP3|320 кб с]<Downtempo, Chillout, Lo
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. R. I. B. - City Of Hopes
-02. Doors In The Sand - True Story
-03. Arma8 - Who I Am
-04. Geminair - The Long Goodbye    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:45117479177E5106B6218411E836DD33A9CDAF8D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_938960.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 938 954
-
-VA - World Chillout - Bestsellers  2015  [MP3|320 кб с]<Downtempo, Chillout, Lounge>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. RIB, Soty & Seven24 - Deep Under the Sky  04:59 
-02. Cj RcM - North Sun  04:22 
-03. Solarsoul - Heart & Soul of the Earth  Original Chillout Mix   05:06 
-04. EMIOL - The Friendship  04:09     Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3EBC0CBA648B9DC4F185D5BC015EDBB9FEA9173C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_938954.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 938 905
-
-VA - XXXL блатнячок на радио Шансон. Сборник 3  2015  [MP3|256 кб с]<Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня (сборники)
-
-###  Подробнее
-
-001. Белое Золото - Любимая Женщина
-002. Папа Радж - Мадам Постойте
-003. Иван Кучин - Верба
-004. Ольга Ильч - Этапом К Северу    Читать дальше...    Жанр: ШансонПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A7140B58C2FD505803AEF235107406B14021DD45
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_938905.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 938 597
-
-VA - Попсовая соточка MTV Сборник 5  2015  [MP3|256 кб с]<Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Размер Project & D.I.P Project - Там Где Ты
-002. Chris Brown Feat. Akon - Came To Do
-003. Стас Пьеха - Далия
-004. Onuka - Around Me    Читать дальше...    Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:41F568AC743314191554EDA35E9B691E3DCD6F20
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_938597.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 938 547
-
-VA - Trance Desire Volume 55  2015  [MP3|320 кб с]<Trance, Vocal Trance>
-Неофициальные сборники
-Electronic (сборники)
-
-###  Подробнее
-
-01. Turn & Eskova - One More Night  Original Mix   07:46 
-02. Meridian And Vidoven With Tiff Lacey - Phoenix  Original Mix   07:39 
-03. Andy Moor & Somna feat. Amy Kirkpatrick - One Thing About You  Original Mix   05:54 
-04. Emma Louise - 17 Hours  Luigi Lusini Remix   06:36     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:49D709929AA43DF7516D8BEE16234BBF24EC7EFF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_938547.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

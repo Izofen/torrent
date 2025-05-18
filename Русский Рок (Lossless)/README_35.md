@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 1 106 360
+
+Sturmmann - Sturmzeit  2017  [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Harte>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Achtung!
+02. Wahnsinn
+03. Instinkt
+04. Akkumulator    Читать дальше...    Жанр: Industrial Metal, Neue Deutsche HarteПродолжительность: 00:25:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C2E702481CF17BAFDF478A8A1DA2D17A612A37F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1106360.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 106 351
+
+Яйцы Fаберже - Вещдоки  2017  [MP3|320 Kbps] <Rock, Ska>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Вещдоки
+2. Крым
+3. Мягкие кровати
+4. Испания    Читать дальше...    Жанр: Rock, SkaПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1CDE7950D8B868B582006A021F0A33A532472A2C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1106351.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 105 682
+
+Ленинград - Кольщик  2017  Single [MP3|320 Kbps] <Rock, Ska>
+След.
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. КольщикЖанр: Rock, SkaПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4C8014CAF50856EF02A2B4D388A4BAAF47EB4095
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105682.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 105 334
+
+Gribanal - Рефлексия для чайников  2017  Авторская раздача [MP3|160-320 Kbps] <Electropunk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Intro  00:30 320 Kbps
+02. Хипстер  01:32  160 Kbps
+03. Хиккан  03:08 320 Kbps
+04. На завтрак  02:35 320 Kbps    Читать дальше...    Жанр: ElectropunkПродолжительность: 40:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:51342A94708AA44F0E5FD8CD69B8C1E090970F1C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1105334.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 104 644
+
+Аляска - Скачать бесплатно  2015  [MP3|320 Kbps] <Ska, reggae>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Снежок  2:37 
+2. Маракасы  2:47 
+3. Бандиты  2:58 
+4. Космос  2:51     Читать дальше...    Жанр: Ska, reggaeПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E3990E3C58AB04C7454998065CC9A7C804976C89
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1104644.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 104 571
 
 Балу feat. КняZz, Сид, Александр «Чача» Иванов, Маррадёр - Смерть шута  2017  Single [MP3|320 Kb
@@ -1853,131 +1975,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071542.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 071 493
-
-Операция пластилин - Волна. Акустический альбом. Часть 2  2016  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. 6
-02. Я твоя
-03. Так легко дышать
-04. Мне не больно    Читать дальше...    Жанр: Punk RockПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EF6811932FA6A4EFE465A039E4D8C4BE7FF1B496
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071493.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 071 113
-
-Пикник - 35  2016  2CD [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-CD 1:
-01. Говорит и показывает
-02. Египтянин
-03. Королевство кривых    Читать дальше...    Жанр: RockПродолжительность: 02:02:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:60E4FE38DF54E6EBB1EFC7020B8342407401840C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1071113.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 070 948
-
-Сурганова и Оркестр - Как я провёл этот Летник  2016  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Белые люди
-02. Вот и ты
-03. Цветы и звёзды
-04. Путник милый    Читать дальше...    Жанр: RockПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E116C2C2C23A38272D0B19CA74226EDBE51E98DF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1070948.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 070 740
-
-Фёдор Чистяков - Ноль+30  2016  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Юбилейный альбом. К 30-летию группы «Ноль» и первого записанного альбома.01. Северное буги
-02. Коммунальные квартиры
-03. Радиолюбитель
-04. Самолёт    Читать дальше...    Жанр: RockПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:463174FA57FEF2489B6F030C4BA3F4FD06542350
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1070740.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 070 214
-
-nobody.one - No Care  2016  [MP3|320 Kbps] <Instrumental Rock, Alternative Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Elastic
-02. Watergirl
-03. Razoresolve
-04. Heroin    Читать дальше...    Жанр: Instrumental Rock, Alternative RockПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A487C4A533510B67F82696ACDDC861D5A236E4E4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1070214.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 796 681
+
+Сергей Одинцов - Слушайте и отдыхайте (2025) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Ты лучшая на свете женщина [00:03:43]
+02 - Возвращайся [00:03:45]
+03 - Хочу [00:04:33]
+04 - А я готов всё изменить [00:03:19](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CA7AB2E7A7C5ED499E702BB38C4A58E21D73FE2B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1796681.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 796 620
+
+V.A. - 00s Love Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. James Blunt – You’re Beautiful
+02. Coldplay – Fix You
+03. Jason Mraz – I’m Yours (Radio Edit)
+04. Paramore – The Only Exception(   Читать дальше...   )Жанр: PopПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0FB048D9CE503E176F77B21CC03D3DFB305610A0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1796620.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 795 786
+
+Денис Майданов - Патриотические песни, Часть 1 (2025) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Вечная любовь
+2. Я возвращаюсь домой
+3. Пуля
+4. Ничего не жаль(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C7410D7C3289B342E44DA057DBD7497EB4E5D696
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1795786.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 795 641
+
+Сергей Одинцов - Хит за хитом (2025) [MP3|320 Kbps] <Поп>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Просто прощай [00:03:53]
+02 - Вишнёвый сад [00:04:16]
+03 - За сорок стукнуло уже [00:03:43]
+04 - Летите, голуби [00:05:12](   Читать дальше...   )Жанр: ПопПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1CABBA9333CC6B2AA75A26F200D4559038104483
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1795641.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 795 405
+
+Mirko Hirsch - Night Drive (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Shanghai (Extended Version) (feat. Daria)
+02. Ride
+03. Let's Dance Tonight
+04. Burning Heart (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Euro-DiscoПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C8CBA012AC1C85043C77D9E7B7F68211E6B57A93
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1795405.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 794 880
+
+VA - Eurovision Song Contest - Turin 2025 (2025) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Shkodra Elektronike - Zjerm [00:03:04]
+02. PARG - SURVIVOR [00:02:58]
+03. Go-Jo - Milkshake Man [00:02:52]
+04. JJ - Wasted Love [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 01:49:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BD4B3A52ACCD1C7A2A32117D26C74F83AAFB6E13
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1794880.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 794 600
+
+Татьяна Буланова - Для тебя (2025) [MP3|320 Kbps] <Поп>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Для тебя
+02. Дождь ледяной
+03. Любовь не проходит
+04. Поговори со мною, ночь(   Читать дальше...   )Жанр: ПопПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:088B39451A100AE500C51CA04EA7301428891A95
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1794600.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 794 595
+
+Алексей Новиков - Странник (2025) [MP3|320 Kbps] <Поп / Шансон>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Странник [00:02:59]
+02 - Океан любви [00:03:00]
+03 - Кисти алые рябин [00:03:31]
+04 - Осенние костры [00:03:53](   Читать дальше...   )Жанр: Поп / ШансонПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90FCE1BC5C1FD19732C1E81B83A67C4640CB90FF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1794595.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 794 519
+
+Татьяна Буланова - Для тебя (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Для тебя
+02. Дождь ледяной
+03. Любовь не проходит
+04. Поговори со мною, ночь(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2366B5FE102D9430DBB771804F67183DAE2FBA1C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1794519.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 794 173
+
+VA - Dance Classics - Pop Edition Vol. 1-3 (2009-2010) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Whitney Houston - My Name Is Not Susan (Extended) (6:20)
+02. Terence Trent D'Arby - Dance Little Sister (Shep Pettibone Mix) (8:40)
+03. Robert Palmer - You Are In My System (Extended) (6:02)
+04. Dan Hartman - We Are The Young (Extended) (6:56)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, DanceПродолжительность: ~06:45:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CFC9B585811CD55D223B38E01C3DA75278692DD1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1794173.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 793 539
 
 VA - The Finest 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance>
@@ -1744,257 +1994,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779636.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 779 634
-
-Татьяна Буланова - Записная книжка (2025) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Искусственный интеллект
-2. Годы летят десятками
-3. Издалека любить
-4. Записная книжка(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4B3FD1CAEE2634BE2E95721120FCD7CE921891B0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779634.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 779 513
-
-VA - Billboard Top Hits 1979 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Blondie - Heart Of Glass
-02. Knack - My Sharona
-03. Randy Vanwarmer - Just When I Needed You Most
-04. Rupert Holmes - Escape (The Pina Colada Song)(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18C2FF1F91F0D428FE80F0F4A47F95C934A330D2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779513.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 779 346
-
-Village People - Gold (2019) 3 x CD [FLAC|Lossless|image + .cue] <Disco, Pop, Funk>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-Village People – американская диско-группа, образованная в 1977 году французским композитором Жаком Морали. Группа прославилась своими легко запоминающимися композициями, весёлыми текстами песен, а также неординарными костюмами: полицейского, индейца, ковбоя, строителя, байкера и морского пехотинца.
-Жак Морали плодотворно сотрудничал с другой диско группой The Ritchie (   Читать дальше...   )CD1:
-01. YMCA (3:44)
-02. In The Navy (3:43)
-03. Go West (3:34)(   Читать дальше...   )Жанр: Disco, Pop, FunkПродолжительность: 03:20:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87AB506043A001DD1B51895C6D31435A53B6106A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779346.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 779 063
-
-VA - Billboard Top Hits 1976 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Elton John And Kiki Dee - Don't Go Breaking My Heart
-02. Gary Wright - Dream Weaver
-03. Miracles - Love Machine
-04. Bellamy Brothers - Let Your Love Flow(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B9EBCE8BA3E2161FDB510C23E7A75EEB423D8F4B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779063.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 779 050
-
-VA - Давид Тухманов – Притяжение Земли. Лучшие Песни 70х и 80х гг. (1997) Compilation, Remastered [F
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Лев Лещенко - Соловьиная Роща
-02. Геннадий Белов - Звездная Песня Неба
-03. Лев Лещенко - Вечное Движение
-04. Владимир Макаров - Последняя Электричка(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF6CB6554E6DF2FAE1D57555B7D7AE0E0DF78CAE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779050.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 779 036
-
-Наталья Подольская - Поздно (2004) [FLAC|Lossless|image + .cue] <Electronic, Blues, Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Everybody Dance
-02. Поздно
-03. Прости
-04. Сердца Стук(   Читать дальше...   )Жанр: Electronic, Blues, PopПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40612434364C540C34E81282C8C2D94915751175
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779036.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 778 982
-
-VA - Billboard Top Hits 1975 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Pop Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. America - Sister Golden Hair
-02. Elton John - Island Girl
-03. Captain & Tennille - Love Will Keep Us Together
-04. Linda Ronstadt - When Will I Be Loved(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, Pop RockПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6675033C5BB4741597E6FAED95BC60C19D13B768
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1778982.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 778 710
-
-Маленький оркестр, Алексей Гоман - Девочка-ветер (2025) [MP3|320 Kbps] <Ретро-поп>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Моя маленькая [00:01:50]
-02 - Прогулка [00:03:02]
-03 - Лето [00:02:55]
-04 - Поцелуй [00:02:22](   Читать дальше...   )Жанр: Ретро-попПродолжительность: 00:18:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:68176993333486B5EDD4BB247DE17E866512F7ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1778710.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 778 000
-
-VA - Gold Italia 2024 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Italian Pop, Vocal, Pop Rock
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Shel Shapiro - Moon River (02:58)
- 02. Bobby Solo - Bla bla bla (04:19)
- 03. Manuela Villa - L' amore e un frutto raro (03:31)
- 04. Donatella Milani - Non gridare (02:54)(   Читать дальше...   )Жанр: Italian Pop, Vocal, Pop RockПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:511D4127A0C9ABCB57614ACCB4F546741D157BC8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1778000.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 777 464
-
-VA - Golden Ballads 2003 (2003) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Robbie Williams - Feel    [0:04:23.37]
-02. Blue feat. Elton John - Sorry Seems To Be The Hardest Word    [0:03:40.70]
-03. Everything but the Girl - Mirrorball    [0:03:25.00]
-04. Atomic Kitten - No One Loves You    [0:04:00.52](   Читать дальше...   )Жанр: PopПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B40390B659AA5BC0A94D953B27D8B7A2B6685CB5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1777464.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

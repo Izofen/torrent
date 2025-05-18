@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 376 315
+
+Spatial Vox - Cause Of Shining In Your Eyes  The 1 st Album   2019  [FLAC|Lossless|image +
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Cause Of Shining In Your Eyes  4:09 
+02. Right To My Self  3:17 
+03. Call My Name  3:38 
+04. Love Will Never Die  4:06     Читать дальше...    Жанр: Euro-DiscoПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F6F0BF952A9A079225B95E38DE43CF2960DDC4B1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1376315.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 376 261
+
+Лили Иванова - 2 Albums  1999 - 2001  [FLAC|Lossless|tracks + .cue]<Pop, Retro>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Любовта е по-силна от всичко
+02. Без радио не мога
+03. Море на младостта
+04. Равносметка    Читать дальше...    Жанр: Pop, RetroПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2AB897686650483DFA1D61C1266AAE8E1962A2F3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1376261.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 376 260
+
+София Ротару - 9 Альбомов  1995 - 2010  [FLAC|Lossless|tracks + .cue]<Pop>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Я не оглянусь
+02. Время подождет
+03. Забирай   дуэт с О. Газмановым  
+05. Цветы сирени    Читать дальше...    Жанр: PopПродолжительность: 07:27:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DC8045CE5E124E841A9B2623159837B1703708E8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1376260.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 376 148
+
+Lorraine Johnson - Learning To Dance All Over Again  1978  Reissue CD, 1992, Prelude Records [MP
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. I m Learning To Dance All Over Again  8:12 
+02. Feed The Flame  8:10 
+03. Who Do You Think You re Fooling  4:58 
+04. Nobody s Wrong  5:03     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B94FB6733E017454214BDCCDCB249F7D8B506EDD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1376148.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 376 141
+
+La Prohibida - Ruido  2019  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Galaxia Desierta  04:22 
+02. Bouvet  05:14 
+03. La Tristeza de Ser Electron  04:29 
+04. uido  04:59     Читать дальше...    Жанр: Synthpop, Italo-DiscoПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:32A04F2DC485D679E4138579DB84B8312F3A655D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1376141.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 376 090
+
+VA - Eurodisco 80 s Maxi Hits & Remixes 2  2020  [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, It
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. David Lime - I Don t Wanna Lose You  Extended Dance Remix   6:39 
+02. London Boys - I m Gonna Give My Heart  Special Long Remix Version   9:22 
+03. Fun Gang - Just for Fun  Radio Remix   4:02 
+04. Geff Harrison - Bad New York City  Special Mix   6:11     Читать дальше...    Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:83455D61BCEE90205A6DB26EBC457FCE04534768
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1376090.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 375 982
+
+VA - Best Pop  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey  03:29 
+02. Dua Lipa - Future Nostalgia  03:04 
+03. Jess Glynne - I ll Be There  Banx & Ranx Remix   03:07 
+04. Lizzo - Good as Hell  02:39     Читать дальше...    Жанр: PopПродолжительность: 02:07:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:46F21D365BE9912AEDA7DE8C601826A2E9E065D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375982.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 375 892
+
+VA - Cay Hume And His Music Productions 1-3  2016-2017  Remastered [FLAC|Lossless|tracks + .cue]
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Cay Hume - Call Me Up  House Music Version   6:46 
+02. Top Secret - Let It Be  12   Version   5:59 
+03. Jean & Jill - Blue Blue Eyes  12   Version   6:59 
+04. T. Ark - Count On Me  12   Version   6:31     Читать дальше...    Жанр: Euro-Disco, Synth-pop, Euro-HouseПродолжительность: 03:40:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E7FA7BB4AF162A5D9610E1C29708F4583112774C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375892.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 375 659
+
+Meghan Trainor - Treat Myself  2020  Target Exclusive [FLAC|Lossless|tracks + .cue] <Pop, Hip-Ho
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Wave  2:57 
+02. Nice to Meet Ya  3:17 
+03. Funk  3:12 
+04. Babygirl  3:20     Читать дальше...    Производство: Epic, Sony Music – 19439714022Жанр: Pop, Hip-Hop, Reggae, Funk, Soul, Rhythm & BluesПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1F1546BFB0E88953A32D096D2713B7A648BBD470
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375659.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 375 650
+
+Леонид Агутин - Тайна склеенных страниц  2013  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Пора домой  3:32 
+02. Ай-ай-ай  feat. Thomas Nevergreen   3:39 
+03. Авторское кино  feat. Анжелика Варум   4:49 
+04. Мама-река  5:09     Читать дальше...    Жанр: PopПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F3275994AD183DC02FC7A61441D39F758A95BA5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1375650.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 375 605
 
 Leigha Moore - Ain t Your Girl No More  2020  EP [MP3|320 Kbps] <Pop>
@@ -1736,256 +1986,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369516.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 357
-
-Dua Lipa - Future Nostalgia  2020  [MP3|320 Kbps] <Synthpop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Future Nostalgia
-02. Don t Start Now
-03. Cool
-04. Physical    Читать дальше...    Жанр: Synthpop, DanceПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D0909C37CF5C99EA47CC914214207EF998DC1DA6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369357.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 274
-
-Dua Lipa - Future Nostalgia  2020  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Future Nostalgia  03:04 
-2. Don t Start Now  03:03 
-3. Cool
-4. Physical  03:13     Читать дальше...    Жанр: PopПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8AE3F7E234D2366E2414F29BBE36539F9D8646DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369274.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 211
-
-VA - ZYX Italo Disco New Generation Vol. 16  2020  2CD, Compilation [MP3|320 Kbps] <Italo-Disco,
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Italove - Burn This City  Flashback Ri-Mix   6:22 
-02. Savage - Magic Carillon  Also Playable Mono Remix   5:30 
-03. Carino Cat feat. Fred Ventura - The Carino Crew  4:57 
-04. Romantic Gladiators - Hero  Warrior Version   5:24     Читать дальше...    Жанр: Italo-Disco, Euro-Disco, Nu-DiscoПродолжительность: 02:28:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:136E4008BEC31CE340F0FA9C49D547225DADEE56
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369211.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 192
-
-Army of Lovers - Master Series  1997  [FLAC|Lossless|image + .cue] < Disco, Euro House, Synth-po
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Crucified  03:34 
-02. Ride the Bullet  1991 remix   03:30 
-03. My Army of Lovers  03:29 
-04. Obsession  03:44     Читать дальше...    Жанр: Disco, Euro House, Synth-popПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3B92A14B03EADFEA8B8595E0EFC3724226BEB09B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369192.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 190
-
-Bosson - Best of 11-Twelve  2013  [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Europop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Guardian Angel  3:40 
-02. Every Single Time  3:58 
-03. Baby I Believe In You  3:44 
-04. Loveshock  3:21     Читать дальше...    Жанр: Dance-pop, EuropopПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:89ADDCDB4244FB215D23CFACC4224D2A96B75414
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369190.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 168
-
-VA - Die Neue Schlagerparade 2020 [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-1. Thomas Anders feat. Florian Silbereisen - Sie sagte doch sie liebt mich
-2. Olaf Henning - Bis ans Ende dieser Welt  Pesch Remix Radio Version 
-3. Ben Luca - Liebessymphonie    Читать дальше...    Жанр: PopПродолжительность: 02:47:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63EFD32B4241E65D3A0B1C85C55C3C0F46B88CF0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369168.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 167
-
-!Бум! - Kanikuly  2007  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Kanikuly 2007  Каникулы 2007   3:42 
-02. Starsheklassnitca  Старшеклассница   3:58 
-03. Poezd  Поезд   3:53 
-04. Ne uletai  Не улетай   3:40     Читать дальше...    Жанр: PopПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B49F0D532EC7CC4200AB4F277F6E4726561D286E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369167.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 164
-
-!Бум! - Опять Идет Дождь  2004  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Море  4:04 
-02. Роза  4:08 
-03. Опять идёт дождь  3:49 
-04. Жди  4:00     Читать дальше...    Жанр: PopПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:61A8A0B5D0494A6A848186FC50BDF34F1DD6B24A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369164.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 162
-
-Турбомода - Улицы Центральные  2004  [MP3|320 Kbps] <Pop, Europop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Улицы центральные  4:24 
-02. Не целуй её  4:05 
-03. Дождь  4:11 
-04. Не плачь  3:59     Читать дальше...    Жанр: Pop, EuropopПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63F22C5E29D8A823E30DAEB93B3E25CFBD09F137
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369162.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 369 155
-
-Турбомода - Виноват Не Я  2002  [MP3|320 Kbps] <Pop, Europop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Виновата школа  3:52 
-02. Армейская  4:24 
-03. Белое платье  3:43 
-04. На память о тебе  3:46     Читать дальше...    Жанр: Pop, EuropopПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:536606E70749E1E375A07ED3CF90BF798E8861D6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1369155.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

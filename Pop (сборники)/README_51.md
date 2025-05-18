@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 343 493
+
+Modern Talking - Maxi And Singles Collection  2019  Dieter Bohlen Edition, 3CD [MP3|320 Kbps] <P
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+1. You re My Heart, You re My Soul
+2. Lucky Guy  Special-DJ-Mix  Ryan Simmons 
+3. You Can Win If You Want  Special Dance Version     Читать дальше...    Жанр: Pop, Euro-DiscoПродолжительность: 04:02:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:67EF983553D794001C78E2C9F6E39F97C85FD12F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343493.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 454
+
+VA - The Greatest Xmas Song  2019  Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Для тех кто отмечает Рождество по  ихнему  календарю Universal Music выпустила симпатичный сборник из разных жанров. Так что вы найдете обязательно для себя то, что вам захочется послушать и до православного Рождества. Ну а как говорится: тот празднику не рад, кто накануне не пьян! Наслаждайтесь хорошей музыкойCD1:
+01. Queen - Thank God It s Christmas   4:20 
+02. Coldplay - Christmas Lights   4:04 
+03. U2 - I Believe In Father Christmas   3:24     Читать дальше...    Релиз состоялся: 01 ноября 2019 годаЖанр: Jazz, Rock, PopПродолжительность: 02:34:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BBDC08F3D2D1FFCCF8524B88DB8CA92F3C13024D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343454.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 452
+
+VA - 538 Hitzone: Best Of 2019  2019  Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Hi
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Ну вот наконец подоспел итоговый годовой сборник от популярной Нидерландской студии Радио 538. Заключаем в этом году серию ретроспективой свеженьких новинок популярной музыки, вышедших в 2019 году. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию. Остальные релизы из этой серии вы сможете найти по ссылке внизу.CD1:
+01. Mark Ronson Ft. Miley Cyrus - Nothing Breaks Like A Heart   3:37 
+02. P!NK - Walk Me Home   2:54 
+03. Dermot Kennedy - Power Over Me   3:19     Читать дальше...    Релиз состоялся: 15 ноября 2019 годаЖанр: Pop, Dance, Hip-hop, ElectronicПродолжительность: 02:25:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9FF6428AE81DA948A3EF667991C54F5E646BAF31
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343452.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 441
+
+Анна Седокова - Про любовь  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Игристое, детка!
+2. Грааль
+3. Алые губы
+4. Стильная    Читать дальше...    Жанр: PopПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A6082E70875609EF3981D1FA12816C8EBA61E81
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343441.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 423
+
+Анна Плетнёва  Винтаж  - Cinematic  2019  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Intro
+2. Буду
+3. Королева мэйнстрима
+4. Мантра    Читать дальше...    Жанр: PopПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D1AD25B9532F9F776E76646B3A5EA8039AF97E52
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343423.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 392
+
+VA - Megahits 2020 - Die Erste  2019  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01. Dua Lipa - Don t Start Now
+02. Felix Jaehn,Vize,Miss Li - Close Your Eyes
+03. Tones and I - Dance Monkey    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:34:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:64221C2748078883118ED390B0AE48368D4BD218
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343392.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 312
+
+Samba Soul - 2 Albums  1978, 1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Samba, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. I m In You  5:25 
+02. Here We Go Again  5:58 
+03. Sometimes When We Touch  5:14 
+04. Keep Your Eyes On The Sparrow  5:15     Читать дальше...    Жанр: Electronic, Funk Soul, Samba, DiscoПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21F5D55A194BA3CEA46D9DF26EE1B20F7FA0968A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343312.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 258
+
+Vision Mastermixers - Reggae Mega Mix  1999  [FLAC|Lossless|image + .cue] <Reggae, Pop, Cover 
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Reggae Mix 1  22:20 
+- No Woman No Cry
+- Stir It Up
+- Starry    Читать дальше...    Жанр: Reggae, Pop, Cover MedleyПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BACCEBC7A089A600CE71BA0168FC48E14897CB63
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343258.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 248
+
+Die Partymixer - Hit Sommer Mix  1998  [FLAC|Lossless|tracks] <Pop, Cover, Medley>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Medley 1: Coco Jambo, Macarena, Tic Tic Tac, Jo Jo Action, Lovefool,  Un, Dos, Dres  Maria, Samba De Janeiro  12:32 
+
+02. Medley 2: Ymca, Born To Be Alive, A Walk In The Park, Hands Up, Agadou, Espania, Bellissima Sole, Please Don t Go, Vamos A La Playa, Dolce Vita, Lemon Tree  16:27 
+    Читать дальше...    Жанр: Pop, Cover, MedleyПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0078F49CD7632D773FC5A0510101B651355D16DC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343248.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 343 214
+
+Jennifer Paige - Crush: The Best of Jennifer Paige  2013  Compilation [FLAC|Lossless|WEB-DL|trac
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Crush  3:20 
+ 02. Always You  4:05 
+ 03. Sober  4:06 
+ 04. Stranded  3:37     Читать дальше...    Жанр: Electronic, Pop, Pop-Rock, BalladПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6E59FADF20C513592E1420EFEA84B156051C0AF4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343214.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 343 207
 
 New Mexico - New Mexico  1980  LP [MP3|320 Kbps] <Funk, Soul, Disco>
@@ -1740,256 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339921.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 895
-
-VA - Italoconnection: Remixes Vol. 2  2018  [FLAC|Lossless|image + .cue] <Italo-Disco, Electro>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Atelier Folie - Freedom Time  Italoconnection Remix   6:14 
-02. Josep Xorto & The Congosound - Aixo Que Sona Es Nostre  Italoconnection Remix   5:05 
-03. Aleph - Fly To Me  Italoconnection Remix   5:38 
-04. Synergic Silence - Follow Your Instinct  Italoconnection Remix   5:47     Читать дальше...    Жанр: Italo-Disco, ElectroПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:230ACEC543E12E830544EB87D68E9F9500257392
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339895.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 878
-
-Ласковый Май - Золотой альбом  2003  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Владимир Шурочкин - Ласковый май  Dance-remix 2003   4:18 
-02. Юрий Шатунов - Белые розы  5:43 
-03. Андрей Разин - Старый лес  5:54 
-04. Андрей Разин - Маскарад  3:21     Читать дальше...    Жанр: PopПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:563BA3C89B0DC982D313DC3D31349F47DD444FE6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339878.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 850
-
-Gaz - Gaz  1978  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Sing Sing  7:17 
-02. Indian Gaz  5:16 
-03. Boogie Woman  5:51 
-04. Interstellar Love Affair  5:38     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D62F6307DA9D0B0A36F4E4F885508128A086AD25
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339850.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 808
-
-Kangaroo - Bahamas  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Fusion, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Bahamas  5:08 
-02. Chicagoo  5:33 
-03. We ll Be Out  2:49 
-04. Surfin   6:07     Читать дальше...    Жанр: Electronic, Funk Soul, Fusion, DiscoПродолжительность: 00:28:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF8E08B03AB0EACC2419F435B63173B69ACDD770
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339808.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 718
-
-Raf - Le Ragioni Del Cuore  2012  Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Le ragioni del cuore  4:12 
- 02. In questa notte  3:42 
- 03. Infinito  4:57 
- 04. In tutti i miei giorni  4:36     Читать дальше...    Жанр: Italo PopПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6523D786DAF3A8089E39417FED96618446CAFD43
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339718.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 712
-
-Raf - Sono Io  2015  Universal Music [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Eclissi Totale  3:34 
- 02. Pioggia E Vento  3:18 
- 03. Rimani Tu  3:55 
- 04. Rose Rosse  3:04     Читать дальше...    Жанр: Italo PopПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:701F42FCA29E409354AC35765B91FEB1D8A576BC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339712.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 652
-
-Tom Rod - Understand  1978  LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Understand  4:23 
-02. Depressed  2:38 
-03. The New York Rock  3:31 
-04. I ve Found Love  3:17     Читать дальше...    Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA30D180452378CBCA20C642B04715E84162159E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339652.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 643
-
-VA - 100 Greatest Party Starters  2019  [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Dua Lipa - Be The One 3:23
-02. Daft Punk - One More Time 5:20
-03. Bruno Mars - 24k Magic 3:46
-04. Lizzo - Good As Hell 2:40    Читать дальше...    Жанр: Pop, DanceПродолжительность: 06:45:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3AE80FA51C696C7B1E51600EDE59438A144412F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339643.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 465
-
-Dido - Still On My Mind  2019  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Fo
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Hurricanes  5:17 
- 02. Give You Up  3:22 
- 03. Hell After This  3:28 
- 04. You Don t Need a God  3:32     Читать дальше...    Жанр: Electronic, Pop, Folk, DowntempoПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8072159E4EE0BEB3CB2BEE2022AB20F081677ADD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339465.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 339 451
-
-Dido - Still on My Mind  2019  Deluxe Edition [MP3|320 Kbps] <Pop, Folk>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1 - Hurricanes [5:17]
- 2 - Give You Up [3:22]
- 3 - Hell After This [3:28]
- 4 - You Don t Need A God [3:32]    Читать дальше...    Жанр: Pop, FolkПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3380E2EBDB9FD0C7015CB6B3B679679589B2F7CB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1339451.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

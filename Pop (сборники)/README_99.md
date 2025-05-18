@@ -1,4 +1,259 @@
 ﻿
+###  Публикация: 999 814
+
+Валерий Меладзе - The Best  1999  [FLAC|Lossless|tracks + .cue] <Schlager, Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Красиво  4:44 
+02. Сэра  3:52 
+03. Не тревожь мне душу, скрипка  4:16 
+04. Лимбо  4:02     Читать дальше...    Жанр: Schlager, PopПродолжительность: 01:09:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:50C16A147B03BB8133ED1D5025CE56DE138B2F2F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_999814.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 999 530
+
+ВИА Гра - Биология  2003  CD, DVD [FLAC|Lossless|tracks + .cue] <Europop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Биология  3:45 
+02. ВИА Гра & Валерий Меладзе - Океан и три реки  3:40 
+03. Мир, о котором я не знала до тебя  3:57 
+04. Не надо  2:57     Читать дальше...    Жанр: EuropopПеревод: ОтсутствуетПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C711B891CD1EFECF4F88000E39015A87F065E600
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_999530.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 999 527
+
+Savage - Greatest Hits & Remixes  2016  2CD [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+CD1 - 00:54:20
+CD2 - 01:16:01Треклист CD1:
+01. Don t Cry Tonight  7   Version 
+02. A Love Again  Radio Version 
+03. Only You  Radio Version     Читать дальше...    Жанр: Italo-Disco |Продолжительность: 02:10:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4380880D53DD5A59A9A2BBAA97585731E783BFCA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 999 160
+
+Кай Метов - ...Где-то Далеко Идут Дожди  1997  [FLAC|Lossless|tracks + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Где-То Далеко Идут Дожди...  Radio Version   4:12 
+02. Дай Же Мне  4:44 
+03. Мне Так Хочется Тебя  4:07 
+04. На Сердце Грусть  4:18     Читать дальше...    Жанр: PopПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA01C5ADDFA55A70E8A807D9F04CCF9AB38C45BF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_999160.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 999 093
+
+Tonschatz - Qi  2014  [FLAC|Lossless|image + .cue] <Euro-Disco, Synth-pop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Odyssey  You Can Change Your Life   Single Version   3:37 
+02. Magic Energy  Single Version   3:44 
+03. Midlife Dreams  Single Version   3:26 
+04. Carpe Diem  Single Version   3:14     Читать дальше...    Жанр: Euro-Disco, Synth-popПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BD9DDA974F8A27B381DBF0DD03EFC81CC259A75D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_999093.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 998 983
+
+Black Devil Disco Club & Bernard Fevre - 10 Albums, 2 Singles & EPs  1975-2020  [MP3|320 кб с]
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Black Devil Disco Club  ранее Black Devil  это совместный музыкальный проект французских продюсеров Бернара Февре и Джеки Джордано.
+Группа стояла в авангарде команд пробудивших интерес к диско и итало-диско в начале 2000-х годов.
+В 1978 году французский дуэт Black Devil выпустил альбом «Disco Club», на пару десятилетий опередивший свое время.
+Пластинка стала потаенной     Читать дальше...    Список альбомов:
+1975. Suspense  Remastered 2015 
+1977. Cosmos 2043  Remastered 2015 
+1978. Disco Club  Remastered 2015     Читать дальше...    Жанр: Electronic, Disco, LeftfieldПродолжительность: 07:09:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2EFC72D4F9A48E24E528EC9AE59A1FFEDEDB1559
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_998983.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 998 820
+
+Денис Клявер - Любовь Живёт 3 Года...?  2016  [MP3|320 кб с] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Начнем сначала
+02. Не узнает она
+03. Любовь живет 3 года
+04. Странный сон    Читать дальше...    Жанр: PopПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4EF8A6E4CC0FBF6F87D4C549EE8884A455A88D1F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_998820.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 998 750
+
+VA - Another Side of Mike Mareen Part 1-3  2016  [MP3|320 кб с] <Italo Disco, Eurodisco, Synth
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Amadeus Liszt - Win the Race [04:05]
+02. DJ s Project - Birthday Girl [04:15]
+03. I, Alison Yasou - More Than a Dream [03:40]
+04. Janina Milota - Love Is Like a Heratbeat [04:17]    Читать дальше...    Жанр: Italo Disco, Eurodisco, Synthpop, PopПродолжительность: 02:19:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2457C1BBC03E3DE313D2A0D153DE737672D36018
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_998750.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 998 486
+
+Captain Jack - The Captain s Revenge  1999  [FLAC|Lossless|tracks] <Electronic, Euro House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Introduction  01:55
+02. Dream A Dream  03:38
+03. Get Up!  03:04
+04. The Race  03:51    Читать дальше...    Жанр: Electronic, Euro HouseПродолжительность: 01:09:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:660321674039F7B8DCE8687FD3DF0FE2505ADB60
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_998486.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 998 126
+
+VA - Number 1 s: The Ultimate Collection  2014  5CD [MP3|320 кб с] <Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Продолжая хорошую традицию и откликаясь на просьбы одноклубников представляю этот бокс сет в МП3. Ссылку на релиз в lossless найдете внизу раздачи.
+Здесь на 5 дисках собраны 100 хитов, которые  достигли столь желанной для каждого исполнителя вершины топа Великобритании в период с 60-х по 2000-е годы.CD1 - 60s:
+01. Marvin Gaye - I Heard It Through The Grapevine   3:11 
+02. The Foundations - Baby, Now That I ve Found You   2:56 
+03. Diana Ross & The Supremes - Baby Love   2:34     Читать дальше...    Жанр: Pop, RockПродолжительность: 05:51:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA7951B159787D13BDFB6099E8C1FBCD57B45E66
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_998126.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 998 083
 
 a-ha - Time And Again: The Ultimate a-ha 2 CD  2016  WEB [MP3|320 кб с] <Pop-Rock, Synthpop, N
@@ -1749,256 +2004,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_988415.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 988 324
-
-Фристайл плюс - Хиты и звёзды  2010  [MP3|320 кб с] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.Виталий Козловский - Больно, мне больно
-02.Фристайл и Нина Кирсо - А я тебя любила
-03.Триши - Завтра
-04.Фристайл и Сергей Кузнецов - Белая акация    Читать дальше...    Жанр: PopПродолжительность: 02:53:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7F3076C3B2857D3C0EDFEE97E4D5CCF343BE2BC3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_988324.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 988 170
-
-VA - Number One Party  70  80 Compilation  2003  2CD [FLAC|Lossless|image + .cue] <Italo-Dis
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Gazebo - I Like Chopin  01:39 ]
-02. Delegation - Put A Little Love On Me  02:00 
-03. Radiorama - Desire  01:51 
-04. Radiorama - Vampires  02:01     Читать дальше...    Жанр: Italo-Disco, FunkПродолжительность: 00:20:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:317C2817C9EF25D2E52C9F0962D7069B60950B49
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_988170.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 988 029
-
-VA - I Saw You Dancing  2001  S&V #03 2001 [FLAC|Lossless|tracks + .cue] <Euro-Disco, Disco, M
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Shaft - Mucho Mambo  3:29 
-02. Q-pow! - Summer Holiday  3:19 
-03. Loona - Bailando  3:36 
-04. Crystal Waters - 100% Pure Love  4:40     Читать дальше...    Жанр: Euro-Disco, Disco, Mambo, Euro HouseПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E1263673D52D449F83CA47E20DB30F7F0917736
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_988029.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 987 933
-
-VA - DJ Hits  1998   S&V #01 99  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Dana International - Diva  3:02 
-02. TNN - La Cucamarcha 98  3:28 
-03. Whigfiel - Baby Boy  3:34 
-04. T-Spoon - Sex On The Beach  3:44     Читать дальше...    Жанр: PopПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2087A9928FE5C82CDBBAD45AF744541C873FED01
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_987933.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 987 916
-
-VA - Sugar Mambo - Heat Express  2000  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Jon Secada - Stop  4:16 
-02. Shaft - Mambo Italiano  2:48 
-03. Los Del Duego - Cabello VleJo  3:25 
-04. Jennifer Lopez - Let,s Get Loud  3:58     Читать дальше...    Жанр: PopПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B58BA8A5266CC60F7E9A7F125F36105CB33C19A6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_987916.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 987 723
-
-VA - Max Mix 30 Aniversario Vol 1, 2 - La Leyenda Del Primer Megamix Espanol  2015  [MP3|320 кб<
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Va - Max Mix 30 Aniversario Vol 1 Megamix  By Mike Platinas  B.P.M. 118-122  12:30 
-02. Va - Max Mix 30 Aniversario Vol 1 Mix  By Mike Platinas  B.P.M. 124  13:12 
-03. Va - Max Mix 30 Aniversario Vol 1 Jingles & Effects  03:02 
-04. Italian Boys - Forever Lovers  Extended Vocal Version   06:10     Читать дальше...    Жанр: Disco, Italo-Disco, Italo HouseПродолжительность: 07:28:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1EDA26359A721F84A052521746968CDC59C0613E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_987723.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 987 347
-
-Иванушки International - Конечно Он  1996  [FLAC|Lossless|image + .cue] <Pop, Europop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. 	Тучи 04:11
-02. 	Этажи 04:01
-03. 	Вселенная 03:42
-04. 	Малина 04:09    Читать дальше...    Жанр: Pop, EuropopПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2E261D4240B135A66977031AFF5CC69736B2231E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_987347.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 987 260
-
-Валерий Ободзинский - Всё сбудется. Избранное  2003  [FLAC|Lossless|image + .cue] <Советская эст
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Эти глаза напротив  3:33 
-02. Девушка  3:45 
-03. Настоящая любовь  3:01 
-04. Встреча  3:09     Читать дальше...    Жанр: Советская эстрада, РетроПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4BED94E266801A5D5EC53BE23BC445B27FACBC19
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_987260.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 987 155
-
-Animal Collective - Painting With  2016  [MP3|320 кб с] <Psychedelic pop, Indie Rock, Experime
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. FloriDada  04:06 
-02. Hocus Pocus  03:17 
-03. Vertical  04:15 
-04. Lying in the Grass  03:35     Читать дальше...    Жанр: Psychedelic pop, Indie Rock, ExperimentalПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6F7B224475E34C1232CB23C6C915C832497F1535
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_987155.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 986 946
-
-VA - MegaHits 2016  2015  [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Gabriel Cotabita & Matteo feat. Andreea Esca - Ce zi liniștită  3:15 
-02. Katarina - Love Me If You Dare  3:10 
-03. Anda Adam - Save Me Tonight  Radio Edit   3:09 
-04. Maxim - Noapte fără tine  Radio Edit   3:33     Читать дальше...    Жанр: Top 40, Pop, Electronic, Dance, Club, House, Eurohouse, Deep HouseПродолжительность: 01:40:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B355D66BE50C601662CBE406BC90A903E9495506
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_986946.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

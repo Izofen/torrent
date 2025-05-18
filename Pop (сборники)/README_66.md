@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 261 208
+
+Sarah Brightman - Hymn  2018  [MP3|320 Kbps] <Pop, Classical Crossover>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Hymn Overture
+02. Hymn
+03. Sogni
+04. Sky And Sand    Читать дальше...    Жанр: Pop, Classical CrossoverПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:136E480FD70D955FA106E6703661BDC2FD53D0B3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1261208.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 261 076
+
+Леонид Агутин - Cover Version  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Кончится лето
+2. Зимняя вишня
+3. Бумажный змей
+4. Mas Que Nada    Читать дальше...    Жанр: PopПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8744C01AFA0376A2E9D55253D34732E68477B2EB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1261076.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 949
+
+VA - Хорошо сидим ! Песни русского застолья  1996  [FLAC|Lossless|image + .cue]<Folk>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Коробейники
+02. Ой, цветет калина
+03. Дождливым вечером
+04. Ромашки спрятались    Читать дальше...    Жанр: FolkПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C925E3D5BBAEB2A50AD313C9FF181A1D3D260B6E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260949.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 944
+
+Ольга Воронец - Я-земля!  2002  [FLAC|Lossless|image + .cue]<Ретро>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01. Я - земля!
+02. На улице дождик
+03. Кого - то нет, кого - то жаль
+04. Пойду ль, выйду ль я    Читать дальше...    Жанр: РетроПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B164585AFEA5C9A07E073CCC5157FB8EDE4DAD2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260944.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 920
+
+Гречка - Мы будто персонажи  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Твои руки
+2. Хочем
+3. Картина
+4. Взлетаешь    Читать дальше...    Жанр: PopПродолжительность: 00:25:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E3349F2CFFF17A4D6DBE1DBD39372C97C551D791
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260920.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 771
+
+Mireille Mathieu - Mes classiques  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Le premier regard d amour
+02. Gold fällt auf die Zeit
+03. Après un rêve
+04. Ave Maria    Читать дальше...    Жанр: Pop, ClassicalПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F4462B7D667A90B94F3BE339442D54BA0485F8B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260771.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 607
+
+Илья Гусев - Зимушка  2018  [MP3|320 Kbps] <Pop, Neo-Disco>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Зимушка  3:47 
+02. Подари свою любовь  3:40 
+03. После уроков  4:20 
+04. Танцуй  3:12     Читать дальше...    Жанр: Pop, Neo-DiscoПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06FD8F336A06CDB0363514A16F09525EE6D5B4BB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260607.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 593
+
+Баян Mix - Мы с тобой одной крови  2016  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Мы с тобой одной крови  3:32 
+02. Не гони коней  4:01 
+03. Город М  3:24 
+04. Доброй ночи  3:17     Читать дальше...    Жанр: PopПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B23097A0C2D2C17118462215AA91595302D8BDF8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260593.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 591
+
+Сергей Войтенко - Я буду любить тебя!  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Просто надо любить  3:12 
+02. Я буду любить тебя  4:05 
+03. Остановка  3:24 
+04. Осень не права  3:15     Читать дальше...    Жанр: PopПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CEA375B8FDA7E2F9AF0C86C8FAC79F0F1E4FBC9D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260591.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 260 539
+
+VA - A Playlist of Love Songs  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Karizma Duo - Get Here
+02. Ginnie & Landa - I ll Be There
+03. The Shaken Bakers - Love Will Keep Us Alive
+04. Meg Birch - One Last Time    Читать дальше...    Жанр: PopПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:489F8DD71DC90ABD3D1E4E533B16485F6CF2215C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1260539.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 260 299
 
 Rasmus Seebach - Ingen Kan Love Dig I Morgen  2013  [MP3|320 Kbps] <Pop>
@@ -1741,254 +1991,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1253466.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 253 373
-
-Chi-Chi Favelas And The Black And White Band - Rock Solid  1978  LP [MP3|320 Kbps] <Electronic,
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Rock Solid  10:14 
-02. Cocaine Part One, Discocaine, Cocaine Part Two  7:48 
-03. Give It To Me  7:21 
-04. Voodoo Lady  7:48 Жанр: Electronic, Rock, DiscoПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D54409FD4328F2FE2B6EE8F4A385B63C73950416
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1253373.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 253 363
-
-BZN - A Symphonic Night II  1998  [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1.	Il Trovatore
-2.	Les Pêcheurs De PerlesЖанр: Pop, Classical, BalladПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF5C3039238B9FD4C9EF7139A1F8E90EC0D222DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1253363.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 253 355
-
-BZN  - A Symphonic Night  1996  [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1.		Sing Of Love And Faith
-2.		Lilly Marlene
-3.		La Paloma
-4.		Le Printemps    Читать дальше...    Жанр: Pop, Classical, BalladПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A30AF07488DC70A2783ABE67259FEEC8221797EA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1253355.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 253 323
-
-Touche - Touche  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Warm Storm Of Love  5:32 
-02. Dancing In The Dark  4:59 
-03. Warm Storm Of Love  4:52 
-04. Take A Look, But Don t Touch  5:09     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E6994BD3B98F0E617677197F947587B031F0FD76
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1253323.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 252 973
-
-VA - 110 Hits 2018  2017  5CD [MP3|320 Kbps] <Dance, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD 01:
-01. Louane - Si t etais la
-02. Bigflo & Oli - Dommage  Acoustic 
-03. Kendji Girac - L envie    Читать дальше...    Жанр: Dance, PopПродолжительность: 06:09:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E272C60AE2C0F470E93B3755330B2A586187A858
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252973.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 252 783
-
-C. C. Catch - Greatest Hits  2018  [MP3|320 Kbps] <Euro-Disco>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-1. Cause You Are Young
-2. Heaven and Hell
-3. Heartbreak Hotel
-4. I Can Lose My Heart Tonight    Читать дальше...    Жанр: Euro-DiscoПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:716C07DF1DD18B36E9062D91058C8ABDB0262DAE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252783.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 252 781
-
-The D-Lights - She s Coming From Mars!  2014  LP [MP3|320 Kbps] <Electronic,  Disco, Synth-pop
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Альбом, записанный Frederic Mirage в 1980 году и увидевший свет лишь в 2014-м.01. From Time To Time  5:07 
-02. Listen To The Moonpig  4:01 
-03. Blue Gras  3:38 
-04. Triple Water  4:02     Читать дальше...    Жанр: Electronic,  Disco, Synth-popПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81EB4C7CA6EDACD93C1FBFD4B4B1C41F89C3E3B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252781.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 252 752
-
-Frederic Mirage - Atlantic  1979  LP [MP3|320 Kbps] <Electronic, Space-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Оригинальный альбом, в отличии от гуляющего по сети пиратского сборника с одноименным названием и перебитыми заголовками треков.01. Atlantic  4:53 
-02. Birth Of A Planet  6:03 
-03. Future Dance  5:42 
-04. Power Sense  3:30     Читать дальше...    Жанр: Electronic, Space-DiscoПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:35F84F7EF40DD7D95539A04EEC9A12E6295CDE77
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252752.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 252 732
-
-Vicki Brown - Vicki Brown  1987  [FLAC|Lossless|image + .cue] <Pop,  Classical>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1.	Look At Me
-2.	Once Again
-3.	Can t Let Go
-4.	Plaisir D Amour    Читать дальше...    Жанр: Pop,  ClassicalПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:223A4325BF877F2D181DF49D010AB045E001EB11
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252732.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 252 718
-
-Vicki Brown - Lady Of Time  1989  [FLAC|Lossless|image + .cue] <Pop,  Classical>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1.	Just For You. Music By – Brahms
-2.	To Me You Are So Beautiful Written-By – A. Lee, J. Brown
-3.	Sunflower. Written-By – Smith , Chappelle , Taylor
-4.	Jesu, Joy Of Man s Desiring.   Music By – Bach    Читать дальше...    Жанр: Pop,  ClassicalПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8D0FB9840A19A7813D7B50068EF9ACC0E1C8FF85
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1252718.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

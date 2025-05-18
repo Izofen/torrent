@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 711 113
+
+MishRooms - Пьяные драконы (2024) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Скажи мне прощай
+2. Будем
+3. Побеги
+4. Ты рядом(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA5D843387BC137587E52F408750887370BC7A7E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1711113.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 711 112
+
+VA - трибьют Пурген (2024) [MP3|320 Kbps] <Rock, Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Аберрация - Серый бетон
+2. Саня Болт - Кристал нахт
+3. Юные - 90-60-90
+4. Группировка Свердловск - Ты так хотела стать(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A78181E4DF30D6B8AC15289879350EBC3AE4589C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1711112.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 710 054
+
+ANTARCTIC - Культура, Часть 1 (2024) [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Сакре-Кёр
+2. Вечная весна
+3. Дорога ярости
+4. Отряд самоубийц(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A57A727D34B174615953F15007FD81F3C211B44
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1710054.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 709 412
+
+Собаки Табака - Чернь  2024  [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Experimental>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Какие планы? [00:03:16]
+02. Голод [00:03:36]
+03. Ногами вперёд [00:04:32]
+04. Новой чумы пробуждение [00:02:57]    Читать дальше...    Жанр: Industrial Rock, ExperimentalПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1CB98BA22D9F7899D12884ACDEDF69E0DA13E8F7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1709412.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 708 771
+
+ГУДТАЙМС - Классика. Часть 2. Хиромантия (2024) Deluxe Edition [MP3|320 Kbps] <Rock, Ska>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Вступление
+2. Intro
+3. Видение
+4. Натальные карты (Скит)(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43C3F6D5224B0217742306E9DEA644C4A8968BD7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1708771.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 708 769
 
 Слот - Мэшап  2024  [FLAC|Lossless|WEB-DL|tracks] <Alternative>
@@ -1860,131 +1985,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696557.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 696 507
-
-June Ryah - Inspired Fool  2024  [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-Grunge>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Enter Incomplete [00:02:56]
-02. Black Cat [00:03:09]
-03. Used to Happen [00:03:10]
-04. Tell Me How [00:02:48]    Читать дальше...    Жанр: Hard Rock, Post-GrungeПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C1954AD4B01C73B21E58249F1E07477EEE3A59C0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696507.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 696 420
-
-Сектор Газовой Атаки - Рождённый на Земле  2024  [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Изменился мир
-2. Беги без оглядки
-3. Компромисс
-4. Злые дома    Читать дальше...    Жанр: Punk RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A920AD359DBB73D0730CD933632D6A89C8D6358
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696420.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 696 419
-
-Сектор Газовой Атаки - Рождённый на Земле  2024  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Изменился мир
-2. Беги без оглядки
-3. Компромисс
-4. Злые дома    Читать дальше...    Жанр: Punk RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0252C29ECFFE71B9C204B80D5086DF140B2654B0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696419.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 696 325
-
-Король и Шут - Live 2000  2000  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Ели мясо мужики
-2. Внезапная голова
-3. Валет и дама
-4. Отец и маски    Читать дальше...    Жанр: Punk RockПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A007F4C8D52E3CFAA780ACB9FAA6F9E382BADE9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696325.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 695 155
-
-Наутилус Помпилиус  Nautilus Pompilius  - Чужая Земля  1992  1st Press [APE|Lossless|image +
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Монгольская Степь  05:08 
-02. Эти Реки  03:03 
-03. Иван Человеков  04:34 
-04. Чистый Бес  04:47     Читать дальше...    Жанр: RockПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5E01D4124D36D703A7C55CF01FB706D05C8687BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1695155.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

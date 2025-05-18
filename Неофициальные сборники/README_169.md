@@ -1,4 +1,597 @@
 ﻿
+###  Публикация: 1 001 677
+
+Борис Рахлин - Для друга Миши  1970  [MP3|320 кб с] <Shanson>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Интро+Пусть догорает вечер
+02. Назревал глухой скандал
+03. Чудный лес
+04. Костюмчик серенький    Читать дальше...    Жанр: ShansonПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E9D9EA90D9A7A4D95D9CA81E7F9B987BC34BA3C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001677.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 640
+
+VA - Dange TV 1  2016  [MP3|320 кб с] <Dance, Club, Electro House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01 Swanky Tunes - At The End Of The Night  feat. C. Todd Nielsen Жанр: Dance, Club, Electro HouseПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:22BDB6CDEA47D6AD792D557D67E9A67BFDFAC96B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001640.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 527
+
+VA - Instrumental Covers  Chillout, Lounge, Nu Jazz, Bossa Versions of Pupolar Hits   2016 
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. St Project - Clocks  03:07 
+02. Gazzara - Wave  04:09 
+03. St Project - Wake up Everybody  03:09 
+04. The Sniffers - Dune Buggy  02:54     Читать дальше...    Жанр: Nu Jazz, Lounge, Bossa Nova, Easy ListeningПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8AC092670EA5D180A3B0D80B0D9CE95B11DB5E90
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001527.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 508
+
+VA - Sunrise Lovers Vol.4 20 Relaxing Lounge Tunes  2016  [MP3|320 кб с] <Downtempo, Chillout,
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Steven Pearce - Rocket Man
+02. Jessica Hathaway - Like a Virgin
+03. James Walden - Europa
+04. Lounge Surfers - Holding Back the Years    Читать дальше...    Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8A8A89296AF166D73BE2FD5C24CE527381984EFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001508.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 485
+
+VA - Dubstep 100 Top Hits Bass Blast DJ Mix  2016  [MP3|320 кб с] <Dubstep>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Dubster Spook & Dj Random - Dubstep 100 Top Hits Bass Blast  Trap DnB DrumStep 2hr DJ Mix 2016 
+02. K Theory - The Tower  Dubstep Bass Blast 2016 Remix DJ Edit Жанр: DubstepПродолжительность: 10:54:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:53DFD301148E36C4F428475ACCBF5B60A936C739
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001485.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 434
+
+Владимир Потапов - Двустволка  2016  [MP3|256 кб с] <Shanson>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Давала и даю
+02. Без даты
+03. Буржуйская походочка
+04. Двустволка    Читать дальше...    Жанр: ShansonПродолжительность: 01:26:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE3DB03514296F53ECC9BDA8CEE69DA1C9306D7E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001434.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 350
+
+VA - Cookies With A Smile: Ibiza Deep House  2016  [MP3|320 кб с] <Deep House, Electro>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Muovo - Green Granada 07:55
+002. Benny Camaro - Cуmo Suena 05:51
+003. Ernesto vs Bastian - Dark Side Of The Moon  Axwell & Sebastian Ingrosso Re-Mode   feat. Susana  05:46
+004. Hardwell - Storage 08:02    Читать дальше...    Жанр: Deep House, ElectroПродолжительность: 10:14:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:096108DBCCCB88B2F2945E3DC96EC72922AD0772
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001350.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 342
+
+AC DC - Bedlam In Belgium  2016  EP [MP3|320 кб с] <Hard Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01 – Shake Your Foundations
+02 – The Furor
+03 – Danger
+04 – Burnin’ Alive    Читать дальше...    Жанр: Hard RockПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:95D2D4BFB1D18D4D731D2A36F19A2375ABC1002D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001342.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 335
+
+VA - Рок в Качалку - Мотивация  vol. 4   2016  [MP3|320 кб с] <Heavy Metal, Alternative Me
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Abandon All Ships - Take One Last Breath
+02. Five Finger Death Punch - Can t Heal You
+03. The Exies - A Fear Of Being Alone
+04. Theory Of A Deadman - By the Way    Читать дальше...    Жанр: Heavy Metal, Alternative Metal, Industrial Metal, Metalcore, ElectonicПродолжительность: 02:12:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1CB021C3EC6CB20577D376E13A5A6D826E6510A0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001335.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 186
+
+VA - Блатные струны на Шансоне 3  2016  [MP3|256 кб с] <Shanson>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Слава Благов - Знай Верь Помни
+02. Виктор Дорин - Белым Снегом
+03. Сборная Союза - Давай Послушаем Любовь
+04. Вячеслав Анисимов - Я Украду Все Звезды    Читать дальше...    Жанр: ShansonПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:64680AD6950303DA14F4162A7B797A70849E5B3D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001186.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 078
+
+VA - All Pop Tracks Place Today  2016  [MP3|320 кб с] <R&B, Country, Hip-Hop, Indie, Alternati
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Alabama Shakes - Gemini 06:35
+02. Mutemath - Vitals 03:58
+03. Walk The Moon - Come Under The Covers 03:51
+04. The Game - Bitch You Ain t Shit 03:05    Читать дальше...    Жанр: R&B, Country, Hip-Hop, Indie, Alternative, SynthpopПродолжительность: 10:03:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA0BC49ADB744D5A0BBB9FF440A81DD22170AEC0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001078.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 024
+
+VA - Dr. Metal Presents: Vol.7  2016  [MP3|224 кб с] <Heavy, Speed, Power Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Sinbreed-Creation Of Reality
+002. Dark Empire-Northern Sky
+003. AtVance-Right or Wrong
+004. StormWarrior-Odinn s Warriors    Читать дальше...    Жанр: Heavy, Speed, Power MetalПродолжительность: 07:20:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:544CE74059C1DCB52E2E3A3D77A13F83E3D6B447
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001024.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 001 007
+
+VA - Зажигательный музон в машину  2016  [MP3|318-320 кб с] <House, Club, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Loquai — Nightcrawler  09:58 
+02. J.Verner — Sentindo  09:36 
+03. Essential DJ Team — Bad boyz  Club mix   08:49 
+04. STA — Insomnia  08:42     Читать дальше...    Жанр: House, Club, DanceПродолжительность: 18:29:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B110554330F1EEBA0B6EB6C04A70F211A5EA0961
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1001007.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 985
+
+VA - Весенние хиты в тачку 2016  2016  [MP3|320 кб с] <Dance, House, Pop, Blues>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+1. Lounge Groove Avenue — Sweet Summer Days  02:20 
+2. AronChupa feat. Little Sis Nora — Little swing  02:31 
+3. Oтпетые мошенники — А у реки  02:31 
+4. Lеприконсы — Девчонки Полюбили Не Меня  02:31     Читать дальше...    Жанр: Dance, House, Pop, BluesПродолжительность: 08:10:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA9725E9812516DA582B5DA5544A38CC1ED616ED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000985.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 824
+
+VA - Wonder Hydro Calling People  2016  [MP3|224-320 кб с] <Nu Disco, Dutch, Funky, Vocal, Fut
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Edward Maya Feat. Yohana - Feeling  Explicit Version  03:42
+02. Benny Benassi - Back To The Pump  Tropkillaz Remix  04:02
+03. Moreno Feat. Justin Fitch - Stereo  Radio Edit  03:53
+04. Discorocks - One Day In July  Adrian Oblanca Remix  06:36    Читать дальше...    Жанр: Nu Disco, Dutch, Funky, Vocal, Future HouseПродолжительность: 09:28:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D7BB36FB73577D7CACF1A31E941A3766A2B4C1F3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000824.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 809
+
+VA - Club Dance Hits DFM  2016  [MP3|320 кб с] <Dance, Club>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. The Code - Mood  Find You   2X2A Remix 
+002. Ane Brun - Big In JapanЖанр: Dance, ClubПродолжительность: 08:04:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EB1673144C10CF56ABA5E8562BFE20C184DAF789
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000809.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 780
+
+VA - Dr. Metal Presents: Vol.6  2016  [MP3|224 кб с] <Heavy, Speed, Power Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Helloween-Battle`s Won
+002. Blazon Stone-Fire The Cannons
+003. Fireland-Ancient Time
+004. Luca Turilli-In The Mirror    Читать дальше...    Жанр: Heavy, Speed, Power MetalПродолжительность: 07:16:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:34BA2662357AF392C0B95391C62BC83ADCF6B4D3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000780.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 776
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72   Зарубежный выпуск - 26    2016  [MP3|
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Lian Ross - Say You ll Never  D.J. Alternative Mix   6:33 
+02. Fancy - Flames Of Love  Vox Extended Mix   5:51 
+03. Sandra - Around My Heat  Dj Sveshnikov Remix   3:43 
+04. Depeche Mode - Personal Jesus  The Stargate Mix   3:59     Читать дальше...    Жанр: Eurodance, Dance, DiscoПродолжительность: 04:55:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CE2B78F084E24202B78FD380659CFB50C65877EE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000776.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 659
+
+VA - Super Dance Party Vol.5  2016  [MP3|320 кб с] <Hands Up, Pop, House>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Johanna - When Love Comes  Radio Edit 
+02. C-BooL - Never Go Away  Radio Edit 
+03. Robi & Vir-T Feat. Mike Miller - Don t Ever Look Back  Commercial Club Crew Remix Edit 
+04. Tube Tonic & Dave Cansis - Take Control  Mason Tyler Remix Edit     Читать дальше...    Жанр: Hands Up, Pop, HouseПродолжительность: 05:23:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C4B5421BC45BC0C4F3FC36128B552CA0DAFF58E5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000659.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 655
+
+Вероника Агапова - Сборник песен  2016  [MP3|128-320 кб с] <Pop>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01 - Бессонница
+02 - В землянке
+03 - Выше звёзд
+04 - Где-то где-то    Читать дальше...    Жанр: PopПродолжительность: 02:18:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FA882008F6FA2704C2C94EBC2F3E0B461C39103F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000655.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 628
+
+VA - Trance Desire Volume 64  2016  [MP3|320 кб с] <Trance, Vocal Trance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Moreno J - Welcome Home  06:06 
+02. Wellenrausch feat. Andre Berger - Virtual Self  Album Mix   06:57 
+03. Trance Arts feat. Hysteria! - Still Have a Choice  Uplifting Mix   05:10 
+04. Sou Kanai feat. Claire Willis - Stay  Dennis Pedersen Remix   04:54     Читать дальше...    Жанр: Trance, Vocal TranceПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E1685EE6AA96A475625EF7BDAB56FEDD4E7115F7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000628.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 605
+
+VA - Новая Жажда Скорости Без Тормозов vol.3  2016  [MP3|320 кб с] <Hardstyle>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Zario - Eyes On You  Original Mix 
+02. Blasco Feat. Szen - Hurt  Extended Mix 
+03. Norlak - Hurt You  Darklight Remix 
+04. Dr Rude - Apocalypse  Extended Mix     Читать дальше...    Жанр: HardstyleПродолжительность: 01:19:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CC1921B0880E53162664DF9991C46D55C8286E78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000605.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 593
+
+VA - DJ Tools Essential: DJ Samples DJ Mixtools  2016  [MP3|255-320 кб с] <Club, Electro, Bass
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. Moguai Feat. Cheat Codes - Hold On  Extended Mix  03:56
+002. 4 Strings Feat. Eric Lumiere - Crazy  Original Mix  06:47
+003. Knife Party And Tom Staar - Kraken 04:51
+004. Yoel Lewis - Monaco  Original Mix  05:57    Читать дальше...    Жанр: Club, Electro, Bass Music, Dubstep, Tribal, UK GarageПродолжительность: 09:26:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2732093A679EEA94594772684120B6CDF28F8EB9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000593.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 000 564
+
+VA - Давай, наливай. Сборник радио Шансон 4  2016  [MP3|256 кб с] <Shanson>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+01. Виктор Барабанщиков - Сравнение
+02. Александр Дюмин - Братушка
+03. Виталий Волк - Русалочка
+04. Валерий Курас - Есть Еще Порох    Читать дальше...    Жанр: ShansonПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04B39C8A9321EEEF4BA396ED9791112C7A442DF6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1000564.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 000 495
 
 VA - Дискотека 2016 Dance Club Vol.150 от NNNB  2016  [MP3|192-320 кб с] <Club, Dance  Trance,
@@ -1394,606 +1987,6 @@ Instrumental New Age Meditative Relax  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997681.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 606
-
-VA - Mystic Adventures: Balearic Downtempo  2016  [MP3|320 кб с] <Downtempo, Balearic, Chillou
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-001. Chris Le Blanc - Debussy En Es Vedra  Salinas Mix 
-002. Wedding Piano - Love Story
-003. M. Vitoria - Chill In Out
-004. Skendo - Romantic Beach Dinner    Читать дальше...    Жанр: Downtempo, Balearic, ChilloutПродолжительность: 07:54:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0977E41BDD0AC872200CFF776419CF7E0654D403
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997606.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 597
-
-Александр Келеберда - Костёр любви  2016  [MP3|192 кб с] <Shanson>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Песня беспризорника
-02. Венский вальс
-03. Давай
-04. Мой друг    Читать дальше...    Жанр: ShansonПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7A33273847F89D49B3F00DF6BB484F97F7FB147B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997597.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 529
-
-VA - Tropical Nectar: Original Dance Mix  2016  [MP3|320 кб с] <Club, Dance, House, Electro>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Basti Grub, Natch & Dothen - Oh Baby Dance  Original Mix 
-002. Abel Moreno - Every Day  Original Mix 
-003. Soma  USA  - Take Control
-004. Alex Greenhouse - Snow  Original Mix     Читать дальше...    Жанр: Club, Dance, House, ElectroПродолжительность: 08:34:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8BB0436CB4A5C5B77E72BAEF1565941BC1B5EF98
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997529.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 487
-
-VA - 100 Hits Winter  Vol.2  2016  [MP3|320 кб с] <Pop, Dance, Hip-Hop, RnB>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Yall feat Gabriela Richardson- Hundred Miles.mp3
-002. Julian Perretta- Miracle.mp3
-003. Jain- Come.mp3
-004. Madcon feat Ray Dalton- Don t Worry.mp3    Читать дальше...    Жанр: Pop, Dance, Hip-Hop, RnBПродолжительность: 05:36:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4EC16C2CB9FD1B546FCFA96A29115D9B84AA2F62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997487.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 434
-
-Русская Mega Дискотека 90-х  2016  [MP3|320 кб с] <Рор, Disco, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Леприконсы - Хали-гали paratrupper
-02. Блестящие - Апельсиновая песня
-03. Стрелки - Диджей
-04. Вирус - Попрошу тебя    Читать дальше...    Жанр: Рор, Disco, DanceПродолжительность: 06:54:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1E1FFB874655E91B78ABE088F0C0653AAB401C90
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997434.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 408
-
-VA - Популярный музон хорошего настроения  2016  [MP3|256-320 кб с] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Елена Темникова - Зависимость  Dance Radio Mix 
-02. Inna, 3 Sud Est - Mai Stai
-03. Andreea D - Paradise
-04. Helena Shadia - Согрею Тебя    Читать дальше...    Жанр: PopПродолжительность: 06:01:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:459DE619F9F79976956BA51C2E9744EA349EFEC7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997408.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 401
-
-Магаданцы  анс.  Парус   - Запись в ресторане Магадан 1  1972  [MP3|320 кб с] <Shanson
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Люблю цыгана
-02. Увяли розы
-03. Колымская ГЭС
-04. Ваше благородие    Читать дальше...    Жанр: ShansonПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:53CA341C437E3D86A4BF2B866707C630D5DB77A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997401.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 354
-
-Магаданцы  анс.  Парус   - Запись в ресторане Магадан 2  1972  [MP3|320 кб с] <Shanson
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Как то по проспекту
-02. Что то сигарета гаснет
-03. Письмо к матери
-04. Глухари    Читать дальше...    Жанр: ShansonПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:460B871931797B448A335348E1291129A7E6F63D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997354.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 328
-
-Саша Белостоцкий - Записи 60-70г  1960-1970 г  [MP3|64-128 кб с] <Shanson>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Вышла доярка
-02. Мы сидели с тобою у яра
-03. Твои глаза зеленые
-04. А на деревне нет хороших малых    Читать дальше...    Жанр: ShansonПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:014EB4BDE5322A1A80F028A95BBD88E01AC01AFF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997328.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 292
-
-Черноморская чайка - Возле дома моего  1977  [MP3|320 кб с] <Шансон>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Возле дома моего
-02. Дай на маленькую
-03. Катюха
-04. Случай на дне рождение у Доси    Читать дальше...    Жанр: ШансонПродолжительность: 01:32:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5520463E796AAF4F163323DF26538BF2ACAD2B1F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997292.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 256
-
-VA - Clockwork Dancecore  2016  [MP3|320 кб с] <Dancecore, Hand Up>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. A. C. Band - The End  Extended Mix 
-02. DJ Alex Nikitin - February
-03. Deline project - We are one  Radio edit 
-04. ALEX SANTERO - Rainbow    Читать дальше...    Жанр: Dancecore, Hand UpПродолжительность: 03:52:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3195980533CE2B34E9FA9A6852663F4C663E65A3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997256.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 199
-
-VA - Топ в тачку №2  2016  [MP3|256 кб с] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Alex Kafer & Lera - Ничего Не Говори
-002. Mia Martina - Prototype
-003. Юджин Feat. Ай-Q - Словно Сон
-004. Icona Pop - Emergency    Читать дальше...    Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:07868184C49D2E654DA19C05491D9CF154608C9E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997199.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 136
-
-VA - Deep House Best Of March  2016  [MP3|320 кб с] <Deep House, House, Electronica>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Gershon Jackson - Take it Easy  Sonny Fodera & Mat.Joe Remix 
-002. EDX ft. Mingue - Missing  Extended Mix 
-003. Nora En Pure & Redondo - I Got To Do  Extended Mix 
-004. Andy Bros - Essenza  Original Mix     Читать дальше...    Жанр: Deep House, House, ElectronicaПродолжительность: 11:36:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BC9C46E5F03BDDA1E9ABDFFB41F674B9D55EA32A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997136.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 055
-
-VA - Music For Everyone - Chillstep & Dubstep Vol.4  2016  [MP3|320 кб с] <Chillstep, Dubstep,
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-1. SizzleBird - Wheel Of Time  Original Mix 
-2. Kid Zion – Awaken Here  Original Mix 
-3. Didrick - A Part Of You  WRLD Remix 
-4. Jex – You  Original Mix     Читать дальше...    Жанр: Chillstep, Dubstep, Future BassПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0606A4BA65EBAB86D9A684BD020D42965BEC560B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997055.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 997 039
-
-VA - Ultimate Pop Grand Theme  2016  [MP3|320 кб с] <Country, R&B, Hip Hop, Reggae, Gangsta Ra
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Carrie Underwood - Something In The Water 03:58
-02. Janet Jackson Feat. Missy Elliott - Burnitup! 04:10
-03. Metallica - Master Of Puppets 08:36
-04. Justin Timberlake - Suit & Tie  Feat. Jay-Z  05:26    Читать дальше...    Жанр: Country, R&B, Hip Hop, Reggae, Gangsta RapПродолжительность: 05:17:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E4195415C2A23382DF1A040DD3E445A45075AC08
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_997039.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 997
-
-VA - Now That s What I Call Power Ballads: Hits  2016  [MP3|320 кб с] <Melodic Rock, Hard Ro
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Bon Jovi - I ll Be There For You
-02. Skid Row - I Remember You
-03. Warrant - Heaven
-04. Slaughter - Fly To The Angels    Читать дальше...    Жанр: Melodic Rock, Hard RockПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9B86733E03F7FCFBD79FAF0912061A24ADDB9AD4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996997.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 818
-
-VA - Sentimental Piano: Most Romantic Piano Songs  2016  [MP3|320 кб с] <Downtempo, Chillout,
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-01. Alessio De Franzoni - Ad Elena - Pianoforte
-02. Edwards Stephen - Bach Prelude in C
-03. Ivano Icardi, Corrado Magnino - Nine More Months
-04. Steve E. Williams - Celtic Fields    Читать дальше...    Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F567D458556E760702DDDE07C8356BECAEFEB595
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996818.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 802
-
-Студия Даниленко Кореш  - Бродяга из СибЛага  2015  [MP3|320 кб с] <Shanson>
-Неофициальные сборники
-Шансон, Авторская и Военная песня  сборники 
-
-###  Подробнее
-
-01. Стаканчики  jingle  0.26
-02. комментарий  В. Андросов  1.47
-03. А зазвени ты, гитара моя  И. Герман  4.49
-04. комментарий  В. Андросов  0.32    Читать дальше...    Жанр: ShansonПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AB99A77A2F18FE578FAB75F99849B300BF0BC186
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996802.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 687
-
-VA - Сборник от CJ.Koka v.01  2016  [MP3|320 кб с] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Aisha - Поцелуи[03:13]
-002. Alekseev - Пьяное Солнце  Dj Konstantin Ozeroff & Dj Sky Radio Edit [03:01]
-003. Artik & Asti - Тебе Все Можно  Remphil Radio Remix [04:05]
-004. C-Block - So Strung Out  The Distance & Riddick Edit [06:41]    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:21:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2EBD4BAE6B3658118BF0489F179BED4785925ADC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996687.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 685
-
-VA - Популярный хитовый музыкайф. 100 хитов  2016  [MP3|256-320 кб с] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Felix Jaehn Feat. Jasmine Thompson - Ain t Nobody
-02. T-Killah - Доброе Утро
-03. Mozgi - Полицаи
-04. РЭЙ feat. Tonystar - Вселенная    Читать дальше...    Жанр: PopПродолжительность: 06:08:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1544B01EA34948B2B8491060972AE67F5C13EB1C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996685.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 634
-
-VA - Beatport Top 100  12.03.2016  [MP3|320 кб с] <House, Electro, Progressive, Techno, Indie
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Basti Grub, Natch & Dothen - Oh Baby Dance  Original Mix  06:49
-002. Pig&Dan - Growler  Original Mix  07:19
-003. Gershon Jackson - Take it Easy  Sonny Fodera & Mat.Joe Remix  06:48
-004. Chocolate Puma - Listen To The Talk  Extended Mix  04:47    Читать дальше...    Жанр: House, Electro, Progressive, Techno, Indie Dance Nu Disco, Drum & Bass, TranceПродолжительность: 09:56:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:04FAD374662418D84BE37AE53B8C13AE01594B7B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996634.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 597
-
-Agialis - Компиляция  2016  [MP3|320 кб с] <Metal>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01.10 шагов[04:05]
-02.Ghostbusters cover [03:20]
-03.Ангелы[03:41]
-04.Вьюга[05:02]    Читать дальше...    Жанр: МеталлПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FAFE2989E5CE0AD452B86E76ABFEC4638CB6E44D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996597.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 525
-
-VA - Top 100 Workout 2  2016  [MP3|128-320 кб с] <House, Tech House, Deep House, Electronic, P
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Christopher S & Lecrema - Rebel s Mind  Radio Edit   feat. Jamayl Maleek 
-002. Dan Daniels & Miss D-Star - Music  Radio Edit 
-003. Dewstuffz - Future Gallery  Radio Cut 
-004. DJ Enzo.ch - Independence K  Radio Mix   feat. Michael Faith     Читать дальше...    Жанр: House, Tech House, Deep House, Electronic, ProgressiveПродолжительность: 06:02:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CC90D53C8D13F5DA7F2519AE9ACE928C12AB7C9D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996525.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 996 516
-
-VA - Самые Лучшие. Медленные Песни Vol.2  2016  [MP3|320 кб с] <Pop, Ballads, Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Adele - Hello
-02. Michael Jackson - Give In To Me
-03. Laura Pausini - It s Not Good-Bye
-04. Pink - Bridge of Light    Читать дальше...    Жанр: Pop, Ballads, RockПродолжительность: 10:40:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E5ACD3FA9B7B66A97110606CC2F513AA549CAE57
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_996516.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

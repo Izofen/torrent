@@ -1,4 +1,290 @@
 ﻿
+###  Публикация: 575 180
+
+Eros Ramazzotti - Somos  2012  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ahora Somos
+ 02. Un Angel Como El Sol Tu Eres
+ 03. Este Tiempo Tan Nuestro
+ 04. Yo Soy Tu
+ 05. Hasta El Extasis
+ 06. Abrazame
+ 07. Baila Solo Con Tu Music
+ 08. Amigo Mio
+ 09. Dos Minutos
+ 10. Bajo El Mismo Cielo    Читать дальше...    Жанр: PopПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5316ADC8FDB01C067A0B5638799C131F2BA8423B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_575180.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 575 131
+
+Майя Кристалинская - Золотая коллекция ретро  2CD   2005  [FLAC|Lossless]<Pop, Retro>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:01:16
+
+01. Отчего    Читать дальше...    Жанр: Pop, RetroПродолжительность: 02:03:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CCAC405E3CCB2C307F983D60365B20B9C8DC2313
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_575131.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 575 124
+
+Владимир Маркин - Мои лучшие сбережения - 1 - 4  2008-2009  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Когда-нибудь
+02. Мама
+03. Есть!
+04. Южная ночь
+05. Любовь атакует
+06. Белый пух
+07. Любимые глаза
+08. Про ромашку и про Сашку
+09. По этой лестнице
+10. Канарейка  ретро-бонус 1989 года     Читать дальше...    Жанр: PopПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AFF4F23758364E94A32EA2651DDCF1E2D8BC66D7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_575124.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 575 123
+
+t.A.T.u. - 200 KM H In The Wrong Lane  10th Anniversary Edition   2012  [MP3|320 kbps]<Pop
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:05CB0F62423ABECD23A5F89040A893428F879062
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_575123.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 575 109
+
+Радмила Караклаич - Цыганские песни разных лет  1981  [MP3|256 кб с]<Ретро>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Ja sam takva
+02. Samo ljubav
+03. Dve gitare
+04. Doslo vreme
+05. Sare patrja  Sve karte 
+06. Kad se setis
+07. Jo deves  Uvece 
+08. Aj Danu-Da naj
+09. Sunce
+10. S pesmom i gitarom    Читать дальше...    Жанр: РетроПродолжительность: 01:07:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8419DAFF1B4A4D0CB1AD7A57927EA6F93D44BA91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_575109.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 574 979
+
+Eros Ramazzotti - Noi  2012  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Noi
+ 02. Un Angelo Disteso Al Sole
+ 03. Questa Nostra Stagione
+ 04. Io Sono Te  feat. Giancarlo Giannini 
+ 05. Fino All Estasi  feat. Nicole Scherzinger 
+ 06. Abbracciami
+ 07. Balla Solo La Tua Musica
+ 08. Infinitamente
+ 09. Polaroid
+ 10. Sotto Lo Stesso Cielo    Читать дальше...    Жанр: PopПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DB5EE60573323584F509A31D72846F3CA1E0B4AA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_574979.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 574 846
+
+VA - Суперхиты дискотеки 90-х ...продолжение  2011  [MP3|320 кб с]<Pop, Eurodance>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. East 17 - It s Alright
+02. E-Type - Set the World on Fire
+03. Captain Hollywood - Over and Over
+04. DJ BoBo - Take Control
+05. Ardis - Ain t Nobody s Business
+06. Mr.President - Coco Jambo
+07. Sonic Dream Collective - Don t Go Breaking My Heart
+08. Gala - Freed from Desire
+09. Jimmy Somerville - Comment Te Dire Adieu
+10. Haddaway - Rock My Heart    Читать дальше...    Жанр: Pop, EurodanceПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3FC04CFE1F247CDF774AD03EC3E14892063773B6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_574846.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 574 844
+
+VA - Суперхиты дискотеки 90-х. Золотые баллады  2011  [MP3|320 кб с]<Pop, Eurodance>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Haddaway - I Miss You
+02. East 17 - Thunder
+03. Seal - Crazy
+04. Simply Red - Stars
+05. Rialto - Monday Morning
+06. Chris Rea - The Road To Hell  Part II 
+07. Coolio - Gangsta s Paradise
+08. Sarah Brightman - Eden
+09. Shakespears Sister - Stay
+10. East 17 feat. Gabrielle - If You Ever    Читать дальше...    Жанр: Pop, EurodanceПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8EA1D0EDD08F97AB548E7C2E3B67188062698C52
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_574844.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 574 210
+
+Louis Prima & Keely Smith - Buona Sera  1999  [MP3|320 кб с]<pop>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+Жанр: popПродолжительность: 01:20:46 min
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:03BE22EA6FBD0B0C308D2B46016E0B3B6A296B73
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_574210.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 574 113
+
+Whitney Houston - I Will Always Love You-The Best of Whitney Houston  2012  [MP3|320 кб с]<Pop
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 You Give Good Love
+ 02 Saving All My Love for You
+ 03 How Will I Know?  Remastered 
+ 04 Greatest Love of All
+ 05 I Wanna Dance With Somebody  Remastered 
+ 06 Didn’t We Almost Have It All
+ 07 So Emotional  Remastered 
+ 08 Where Do Broken Hearts Go?
+ 09 I’m Your Baby Tonight
+ 10 All the Man That I Need    Читать дальше...    Жанр: Pop,SoulПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C49B12BC7CAC091A90D1F83E68DDB5454869DA8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_574113.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 573 771
 
 Муслим Магомаев - Любовь - моя песня  2001  [FLAC|Lossless]<Pop, Retro>
@@ -2051,303 +2337,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_546223.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 546 212
-
-VA - Best Of 100% Hits  2003  2CD [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Stacie Orrico - Stuck [03:42]
-02. Chingy - Right Thurr [03:37]
-03. Madonna - American Life [04:27]
-04. The Androids - Do It With Madonna [03:48]
-05. Amanda Perez - Angel [03:38]
-06. Kylie Minogue - Come Into My World [04:05]
-07. Sean Paul - Get Busy [03:31]
-08. Hilary Duff - Why Not [02:59]
-09. Dannii Minogue - I Begin To Wonder [03:40]
-10. Snoop Dogg feat. Pharrell, Uncle Charlie Wilson - Beautiful [03:21]    Читать дальше...    Жанр: Pop, Rock, Oldes, RetroПродолжительность: 02:33:09
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 545 611
-
-Sandra - Maybe Tonight  CD Single   2012  [FLAC  tracks+cue |Lossless]<Pop, Eurodisco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Maybe Tonight  Original Version 
-02. Maybe Tonight  Extended Version 
-03. Maybe Tonight  Dub Version 
-04. Maybe Tonight  Instrumental Version Жанр: Pop, EurodiscoПродолжительность: 00:16:38
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_545611.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 545 145
-
-VA - Fantastic 80 s The Complete Collection  2008  5CD BoxSet [FLAC|Lossless]<Pop, Rock, Oldes
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Survivor - Eye Of The Tiger [04:01]
-02. Meat Loaf - Dead Ringer For Love [04:22]
-03. Billy Idol - White Wedding [03:33]
-04. Pat Benatar - Love Is A Battlefield [04:08]
-05. Laura Branigan - Self Control [04:07]
-06. Kim Carnes - Bette Davies Eyes [03:44]
-07. The Pretenders - Back On The Chain Gang [03:52]
-08. Rick Springfield - Jessie s Girl [03:14]
-09. Daryl Hall & John Oates - Out Of Touch [04:09]
-10. Starship - Nothing s Gonna Stop Us Now [04:25]    Читать дальше...    Жанр: Pop, Rock, Oldes, RetroФормат: BoxSet 5CDПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_545145.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 544 227
-
-VA - Русская Коллекция. ХИТЫ 60-х Часть I, II  2009  [MP3|320 кб с]<Pop, Ретро, CCCP>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-06. Майя Кристалинская - Я тебя подожду [03:14]
-07. Вадим Мулерман - Колдовство [02:28]
-08. Владимир Трошин - Подмосковные вечера [04:26]
-09. Е. Семёнкина, А. Фролова - Огней так много золотых [02:40]
-10. Иосиф Кобзон - Песня остается с человеком [03:31]
-11. Муслим Магомаев - Свадьба [03:16]
-12. Марк Бернес - Песенка моего друга [03:55]
-13. Трио  Меридиан  - Старый клён [03:25]
-14. Павел Луспекаев - Ваше благородие, Госпожа удача [01:43]
-15. Юрий Никулин - Если б я был султан [02:36]    Читать дальше...    Жанр: Pop, Ретро, CCCPПродолжительность: 02:36:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75644C2BA222E78255315D7047608168545F1B02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_544227.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 544 124
-
-VA - Greatest Hits of The 60 s  2003  [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Herman s Hermits - No Milk Today [02:59]
-02. Freddie & The Dreamers - If You Gotta Make A Fool Of Somebody [01:59]
-03. Gerry & The Pacemakers - Ferry Across The Mersey [02:25]
-04. The Swinging Blue Jeans - You re No Good [02:18]
-05. Johnny Tillotson - Poetry In Motion [02:33]
-06. Cilla Black - You re My World  Il Mio Mondo  [03:00]
-07. Bobby Vee - The Night Has A Thousand Eyes [02:35]
-08. Mike Berry - Tribute To Buddy Holly [02:37]
-09. Cher - All I Really Want To Do [02:59]
-10. Keith West - Excerpt From A Teenage Opera [04:42]    Читать дальше...    Жанр: Pop, Rock, Oldes, RetroФормат: BoxSet 8CDПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_544124.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 543 985
-
-VA - Disco Discharge. Disco Boogie  2010  2CD[FLAC|Lossless]<Disco, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Toto featCheryl Lynn - Georgy Porgy  Special 12  Disco Mix  [05:08]
-02. Terri Wells - You Make It Heaven  Original 12  Mix  [05:26]
-03. Illusion Orchestra - Autumn Leaves  Original 12  Mix  [04:27]
-04. Deodato - Night Cruiser  Original 12  Mix  [06:16]
-05. Skyy - Call Me  Original 12  Mix  [06:21]
-06. Maxine Singleton - You Can t Run From Love  Original 12  Club Mix  [06:42]
-07. Conquest - Give It To Me  If You Don t Mind   Original 12  Mix  [06:54]
-08. DTrain - Keep On  Francois Kevorkian 12  Remix  [09:28]
-09. Nick Straker Band - Straight Ahead  Original 12  Mix  [06:43]
-10. Alisha - Baby Talk  Special 12  Remix by Shep Pettibone  [06:47]Жанр: Disco, PopПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_543985.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 543 711
-
-VA - Italo Dance Club  2005  2CD[FLAC|Lossless]<Disc, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. DJ Phaser - Touch And Go [03:44]
-02. *Miss A. - Somwhere Over The Rain [03:43]
-03. Electric Girl - Forever [04:48]
-04. A-Deejay - You Got To Let The [02:55]
-05. Smash Maker - La Cucaracha [03:34]
-06. W.N.D. - Words [03:15]
-07. Aladin feat. In Nomine Patris Rmx - Aladin [03:14]
-08. Robin A. - California Dreaming [03:10]
-09. Mc Pizzamen - Mamma Maria [03:58]
-10. DJ Albertinos - Boys [03:06]    Читать дальше...    Жанр: Disc, PopПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_543711.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 542 993
-
-Marie Claire D Ubaldo - 2 Альбома  1990, 1994  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Marie Claire D Ubaldo - Аргентинская певица и композитор. Известна многим по альбому 1994-го года  Marie Claire D Ubaldo  и композиции  The Rhytm Is Magic . Альбом пользовался огромным успехом в Италии, США, Японии и России, однако он не является дебютом Marie, как принято считать, поскольку в 1990-м году выходил менее известный и очень редкий альбом под названием  Marie Claire , который был выпущен только в Японии.Альбомы:
-1990 - Marie Claire
-1994 - Marie Claire D UbaldoЖанр: PopПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_542993.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 542 877
-
-Алла Пугачева - в Стокгольме  1985  [MP3|320 кб с]<Pop | Советская эстрада>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Днем и ночью.  Алла Пугачева - Якоб Далин  03:51
-02 - Глазами ребенка.  Юрий Чернавский - Ингела Форсман  04:22
-03 - Любовь причиняет страдания.  Лассе Хольм - Ингела Форсман  04:21
-04 - Бесчевственная телефонистка.  Андерс Гленмарк - Ингела Форсман  03:28
-05 - Все время ты был рядом.  Торгни Сёдерберг - Ингела Форсман  04:40
-06 - Святая ложь.  Алла Пугачева - Диомид Костюрин  04:44
-07 - Певчая птичка.  Лассе Хольм - Ингела Форсман  03:59
-08 - Неудачная вечеринка.  Торгни Сёдерберг - Томас Х. Майнор  03:36
-09 - Капитан.  Алла Пугачева - Ингела Форсман 03:31
-10 - Такое чудо.  Лассе Хольм - Якоб Далин  03:38    Читать дальше...    Жанр: Pop | Советская эстрадаПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38EAE71BF40FDD48B3315CE0784CD540D1187A76
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_542877.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 542 313
-
-VA - Disco Discharge - Euro Disco  2009  2CD [FLAC|Lossless]<Disco, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Gaz Nevada - I.C. Love Affair [06:30]
-02. Advance - Take Me To The Top [06:18]
-03. Change - Change Of Heart [07:06]
-04. Kano - I m Ready [07:15]
-05. Laura Branigan - Self Control [05:01]
-06. Eighth Wonder - I m Not Scared  Disco Mix  [08:00]
-07. Propaganda - P Machinery  Polish  [09:24]
-08. Mike Maureen - Dancing In The Dark [05:36]
-09. Fun Fun - Happy Station   Scratch Mix  [05:57]
-10. Time Bandits - Live It Up  Album Version  [07:26]    Читать дальше...    Жанр: Disco, PopПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_542313.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

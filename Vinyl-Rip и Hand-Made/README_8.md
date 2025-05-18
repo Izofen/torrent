@@ -1,4 +1,996 @@
 ﻿
+###  Публикация: 1 698 598
+
+Lacuna Coil - Karmacode  2006  [WavPack|32 384|image + .cue|Vinyl-Rip] <Gothic Metal, Rock, Al
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Fragile
+A2 To The Edge
+A3 Our Truth
+A4 Within Me    Читать дальше...    Жанр: Gothic Metal, Rock, Alternative Rock, MetalПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EFF61C18CE046F4AF6EC1951C909EA2384DB6A89
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1698598.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 698 572
+
+Lacuna Coil - In a Reverie  1999  Reissue, 2019, Century Media [FLAC|24 192|image + .cue|Vinyl
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 - Circle
+A2 - Stately Lover
+A3 - Honeymoon Suite
+A4 - My Wings    Читать дальше...    Жанр: Gothic Metal, Alternative MetalПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:883767E7AE364641ECAA4A80DDE31931CC2B8A78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1698572.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 698 554
+
+XentriX - Studio Albums  6 releases   1989-2022  hand made [restored, declipped] [FLAC |16<3
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Xentrix — британская трэш-метал-группа из Престона. Группа была образована в 1984 году под названием Sweet Vengeance. Они изменили своё название на Xentrix в 1988 году.1989 - Shattered Existence
+1990 - For Whose Advantage
+1992 - Kin
+1996 - ScourgeЖанр: Thrash MetalПродолжительность: 05:19:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EAA218895C43B067A97497D345320CB4398A1453
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1698554.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 697 367
+
+Myrkur - M  2015  [FLAC|24 192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Skøgen Skulle Dø
+A2 Hævnen
+A3 Onde Børn
+A4 Vølvens Spådom    Читать дальше...    Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1697367.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 697 352
+
+Леонид Череповский - Цыганские Песни И Романсы  1990  [FLAC 2.0|24 192|image + .cue|Vinyl-Rip]
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Былое
+A2 По Невскому
+A3 Кони Юности
+Orchestra – Эстрадный Оркестр П у Ю. Силантьева    Читать дальше...    Жанр: Folk, GypsyПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:877AEA31E1E1748B138278241DAB73BDFB4C02B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1697352.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 697 282
+
+Blackbriar - Studio Albums  5 releases   2017-2023  hand made [restored, declipped] [FLAC |1
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Blackbriar — альтернативная метал-готик-рок-группа из Ассена, Нидерланды.2017 - Fractured Fairytales  EP 
+2018 - We d Rather Burn  EP 
+2019 - Our Mortal Remains  EP Жанр: Gothic Rock, Symphonic MetalПродолжительность: 01:58:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E6D49C56C8AD827EEFC0A1784A6A29BDEA979C1E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1697282.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 697 195
+
+Myrkur - Myrkur  2014  EP [FLAC|24 192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Ravnens Banner
+A2 Frosne Vind
+A3 Må Du Brænde I Helvede
+B1 Latvian Fegurð    Читать дальше...    Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:24:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE6C74709662552E4386128EF8CA6785B40D02CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1697195.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 947
+
+Urne - Studio Albums  3 releases   2018-2023  hand made [restored, declipped] [FLAC |16 44
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+URNE - британская рок-группа. Сложно определить звучание группы в каком-то одном стиле... Все сводится к одному: тяжести.2018 - The Mountain of Gold
+2021 - Serpent & Spirit
+2023 - A Feast On SorrowЖанр: Stoner Sludge Metal MetalcoreПродолжительность: 02:08:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8D3D90B3739BF06799A27D9662E946428322A2AE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696947.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 910
+
+Acolyte - Studio Albums  2 releases   2016-2021  hand made [restored, declipped] [FLAC |16<3
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Мельбурнский квинтет Acolyte занимает видное место на австралийской музыкальной сцене как мощный и исследовательский представитель современной прогрессивной музыки, создающий яркий музыкальный ландшафт театральных мелодий, сокрушительных риффов, высоких соло и образцовой технической музыкальности.2016 - Shades of Black
+2021 - Entropy
+.Жанр: Progressive Metal, Prog RockПродолжительность: 01:28:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6227DBFF2E1CD0143806A6224B37846455483A2C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696910.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 895
+
+Depressive Witches - Studio Albums  2 releases   2021-2022  hand made [restored, declipped]
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Блэк-метал группа Depressive Witches была основана в 2018 году в Пикардии, Франция2021 - Bad Flask
+2022 - Distant KingdomsЖанр: Black Metal Black  n  RollПродолжительность: 01:24:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A00FDF93FC37DA92551F9E029CB578EA5208AA76
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696895.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 883
+
+Shadow - Studio Albums  2 releases   2001-2008  hand made [restored, declipped] [FLAC |16 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Shadow - Мелодик-дэт-метал группа из города Осака, Япония.2001 - Shadow
+2008 - Forever ChaosЖанр: Melodic Death MetalПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:18E033CE6ED97A9DB7BC7845ACCA5F67013B68F4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696883.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 748
+
+The Cure - Studio Albums  4 releases   1996-2008  hand made [restored, declipped] [FLAC |16<
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+The Cure — британская рок-группа, образованная в Кроули, Сассекс, Англия в 1978 году.1996 - Wild Mood Swings
+2000 - Bloodflowers
+2004 - The Cure
+2008 - 4:13 DreamЖанр: New Wave, Post-PunkПродолжительность: 03:52:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AB8943E4858B6F7E46E3F92260B07277A275DD76
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696748.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 713
+
+Serenity - Studio Albums  8 releases   2007-2023  hand made [restored, declipped] [FLAC |16<
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Serenity — австрийская группа, исполняющая музыку в стиле мелодик пауэр-метал с влияниями прогрессивного и симфонического метала.2007 - Words Untold & Dreams Unlived
+2008 - Fallen Sanctuary
+2011 - Death & Legacy
+2013 - War of AgesЖанр: Symphonic Progressive Power MetalПродолжительность: 07:47:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5B147A7C1CD655A21F2FFA5D8E88F8FE20389CE1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696713.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 409
+
+Guns N  Roses - Chinese Democracy  2008  [FLAC|24 192|image + .cue|Vinyl-Rip] <Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Chinese Democracy
+02. Shackler s Revenge
+03. Better
+04. Street of Dreams    Читать дальше...    Жанр: Hard RockПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696409.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 398
+
+Guns N  Roses - The Spaghetti Incident?  1993  [FLAC|24 192|image + .cue|Vinyl-Rip] <Hard Ro
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Since I Don t Have You
+02. New Rose
+03. Down On The Farm
+04. Human Being    Читать дальше...    Жанр: Hard RockПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C4233611F0A677A5E154E5D4A830CC020585F706
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696398.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 338
+
+Юрий Гуляев - Ты Моя Мелодия (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Журавли
+A2 Желаю Вам
+A3 Три Поради
+A4 Дорогая, Сядем Рядом(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:491E5A9CCAA242B7769F10759F6F74B452BBE99E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696338.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 277
+
+Guns N' Roses - G N' R Lies (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+G Side 1986
+01. Reckless Life 3:20
+02. Nice Boys 3:03
+03. Move To The City 3:43(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4DFC6BE21DC587F20D4ADFCBF2D23F4A309C9BEA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696277.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 696 275
+
+Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Welcome To The Jungle
+02. It's So Easy
+03. Nightrain
+04. Out Ta Get Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4C442A97E71BEA7AB3B36B5D28953CB0CA5445DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1696275.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 695 859
+
+Reign of Fury - Studio Albums  4 releases   2011-2019  hand made [restored, declipped] [FLAC
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Reign of Fury - мелодик-трэш-метал группа из Великобритании.2011 - Psycho Intentions
+2012 - World Detonation
+2015 - Death Be Thy Shepherd
+2019 - Exorcise RealityЖанр: Thrash MetalПродолжительность: 02:52:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8934EE90D1F6E22BD222517F5E5D8FF3AE53A89B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1695859.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 695 558
+
+Still Remains - The Serpent  2007  [FLAC|24 192|image + .cue|Vinyl-Rip] <Metalcore>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. The Serpent
+02. The Wax Walls of an Empty Room
+03. Stay Captive
+04. Anemia in Your Sheets    Читать дальше...    Жанр: MetalcoreПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:418ACE6BF65EEF9BB925C1254AAFAB010D346F2F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1695558.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 695 379
+
+Warkings - Studio Albums  4 releases   2018-2022  hand made [restored, declipped] [FLAC |16<
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Warkings - австрийская пауэр-метал хэви-метал группа. Основана в 2018 году.2018 - Reborn
+2020 - Revenge
+2021 - Revolution
+2022 - MorganaЖанр: Power MetalПродолжительность: 03:00:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A8D1DCE148B9EF9E435D8C1A09D62FA449C6B059
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1695379.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 695 340
+
+Ad Infinitum - Studio Albums (5 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Ad Infinitum — швейцарско-немецкая симфо-метал группа. Первоначально это был сольный проект швейцарской певицы Мелиссы Бонни, который преобразовался в полноценную группу с приходом барабанщика Никласа Мюллера, басиста Йонаса Асплинда и гитариста Адриана Тесенвитца.2020 - Chapter I: Monarchy
+2020 - Chapter I: Revisited
+2021 - Chapter II: Legacy
+2023 - Chapter III: DownFall(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:41:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D5BB6ED316B3FCDC8FC10C3C88A10E24A298DA49
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1695340.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 695 256
+
+Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Rage Of Light - Melodic Death/Trance метал-группа из Швейцарии.2016 - Chasing A Reflection (EP)
+2019 - Imploder
+2021 - Redemption
+2023 - Opaque (EP)Жанр: Electronic/Melodic Death/Groove MetalПродолжительность: 02:34:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:446E0DEBBC6D8173825DAB3B75670C59F6803B3C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1695256.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 695 014
+
+Nevermore  & Sanctuary; Warrel Dane  - Studio Albums  12 releases   1995-2018  hand made
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Nevermore — американская метал-группа из Сиэтла, штат Вашингтон, образованная в 1991 году. Группа бездействовала с 2011 года из-за личных разногласий между участниками группы. Вокалист Уоррел Дейн умер в декабре 2017 года.1995 - Nevermore
+1996 - The Politics Of Ecstasy
+1999 - Dreaming Neon Black
+2000 - Dead Heart In A Dead WorldЖанр: Progressive Thrash Power MetalПродолжительность: 10:01:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CAE1A42BD7D81B818E2D436A1386A53649BBE001
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1695014.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 694 364
+
+Carnivore - Retaliation  1987  [WavPack|24 96|image + .cue|Vinyl-Rip] <Speed, Thrash Metal, Cr
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Jack Daniel s And Pizza
+A2 Angry Neurotic Catholics
+A3 S.M.D.
+A4 Ground Zero Brooklyn    Читать дальше...    Жанр: Speed, Thrash Metal, CrossoverПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E4CA29A734E49334A40D6BE2319A9AB39A3F5CA9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694364.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 694 351
+
+Carnivore - Carnivore  1995 [FLAC|24 96|tracks|Vinyl-Rip]  <Speed, Thrash Metal, Crossover>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A01. Predator {04:31}
+A02. Carnivore {03:22}
+A03. Male Supremacy {07:31}
+A04. Armageddon {04:13}    Читать дальше...    Жанр: Speed, Thrash Metal, CrossoverПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CA458C00D10AD82E5DC37E425FAC9FB0A0C4648B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694351.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 694 256
+
+Gotsu Totsu Kotsu - Studio Albums  6 releases   2009-2023  hand made [restored, declipped] [
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Музыка этих парней представляет из себя забойный и агрессивный трэш-дэт-метал с грохочущим слэп-басом и яростным ревущим вокалом, но поскольку тексты песен основаны на cредневековой японской истории и самурайской культуре, сами участники 兀突骨 предпочитают называть стиль, в котором они играют, «самурай-метал».2009 - 魍魎  Mouryou 
+2013 - 影ノ伝説  Legend Of Shadow 
+2015 - 因果応報  Retributive Justice 
+2016 - 兵ドモガ夢ノ跡  Where Warriors Once Dreamed A Dream     Читать дальше...    Жанр: Thrash Death MetalПродолжительность: 06:13:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D117CA506D858DA1C45EEDE60ADCC2D61E77E36E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1694256.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 693 961
+
+Rhino Bucket - Studio Albums  7 releases   1990-2017  hand made [restored, declipped] [FLAC
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Rhino Bucket — американская хард-рок-группа из Ван-Найс, Лос-Анджелес, образованная в 1988 году. Звучание группы часто сравнивают со звучанием AC DC.1990 - Rhino Bucket
+1992 - Get Used To It
+1994 - Pain
+2006 - And Then It Got UglyЖанр: Hard RockПродолжительность: 05:35:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1693961.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 693 713
+
+Circus Maximus - Studio Albums  5 releases   2005-2019  hand made [restored, declipped] [FLA
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Circus Maximus — норвежская прогрессив-метал-группа. Основана в городе Осло в 2000 году.2005 - The 1st Chapter
+2007 - Isolate
+2012 - Nine
+2016 - HavocЖанр: Progressive MetalПродолжительность: 04:38:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AEB2CB25F947163C6755F7403400E03EC34F3E9D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1693713.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 693 322
+
+Hollywood Undead - Studio Albums (9 releases) (2008-2022) hand made [restored, declipped] [FLAC |16/
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Hollywood Undead — американская рок-группа из Лос-Анджелеса, основанная в 2005 году. Творчество коллектива базируется на смешении рок-музыки с хип-хопом и, соответственно, в основном классифицируется как рэп-рок.2008 - Swan Song
+2011 - American Tragedy
+2013 - Notes From The Underground Unabridged
+2015 - Day Of The DeadЖанр: Rap-Rock, Nu MetalПродолжительность: 08:20:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F364EDC6C81AB98F58314991D16178074C8D413
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1693322.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 693 204
+
+Green Carnation - Studio Albums  6 releases   2000-2020  hand made [restored, declipped] [FL
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Green Carnation — рок-группа из норвежского города Кристиансанд, основанная в 1990 году. Стиль группы сложно определить конкретно, так как с каждым новым альбомом звук становится менее тяжёлым. Ранний период группы характеризуется стилем дэт-метал, далее Green Carnation двигались в сторону дум-метала и прогрессивного рока.2000 - Journey To The End Of The Night
+2001 - Light Of Day, Day Of Darkness
+2003 - A Blessing In Disguise
+2005 - The Quiet Offspring    Читать дальше...    Жанр: Death Doom Metal, Progressive RockПродолжительность: 05:51:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A0E6A1510238B636AAC76EEAF6D9CAD18008908C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1693204.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 692 948
+
+Darzamat - Studio Albums (7 releases) (1996-2020) hand made [restored, declipped] [FLAC |16/44.1|tra
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Darzamat — польский музыкальный коллектив из города Катовице. По мнению критиков, творчество группы сочетает различные стили экстремальной музыки и в основном характеризуется как симфонический блэк-метал, дарк-метал и дэт-метал, кроме того присутствуют элементы пэган-метала и готик-метала. Участники также используют комбинацию мужского и женского вокала: традиционный (   Читать дальше...   )1996 - In The Flames Of Black Art
+1999 - In The Opium Of Black Veil (EP)
+2003 - Oniriad
+2004 - SemiDevilishЖанр: Symphonic Black/Gothic MetalПродолжительность: 04:51:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:58F1B9555315F8792152DEF43C8CEAD49471B070
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1692948.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 692 719
+
+Blink-182  & +44; Box Car Racer  - Studio Albums  13 releases   1995-2023  hand made [re
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Blink-182 — американская панк-рок-группа, основанная в 1992 году гитаристом и вокалистом Томом Делонгом, бас-гитаристом и вокалистом Марком Хоппусом и барабанщиком Скоттом Рэйнором в северном пригороде Сан-Диего, городе Пауэй, Калифорния.1995 - Cheshire Cat
+1997 - Dude Ranch
+1998 - Buddha
+1999 - Enema Of The StateЖанр: Pop-punk, Punk RockПродолжительность: 10:22:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CA07D3CB67AE71DF705A592405E2B04584CC351B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1692719.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 692 668
+
+Regurgitated Guts - Esophageal Mutilation  2017  EP [FLAC|24 192|image + .cue|Vinyl-Rip] <Deat
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Vermin Feast
+A2 Esophageal Mutilation
+B1 Coffin Birth
+B2 Vomit RitualЖанр: Death MetalПродолжительность: 00:10:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6255D79591533C7D345A5B0BFB637F0DE3CD073C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1692668.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 692 516
+
+Myrath - Shehili  2019  [FLAC 24 192|Lossless|tracks] <Middle Eastern Folk, Progressive Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Asl
+A2. Born To Survive
+A3. You ve Lost Yourself
+A4. Dance    Читать дальше...    Жанр: Middle Eastern Folk, Progressive MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED4B718E820F99A53875D54D416B7ABC7F9D2CDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1692516.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 692 275
+
+Anthem - Studio Albums  20 releases   1985-2023  hand made [restored, declipped] [FLAC |16<3
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Anthem — метал-группа из Японии, основанная в 1981 году в Токио.1985 - Anthem
+1986 - Tightrope
+1987 - Bound To Break
+1988 - Gypsy WaysЖанр: Heavy Power MetalПродолжительность: 16:39:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2B6711036FF2939873896775730D1A71597E5C58
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1692275.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 692 087
+
+Charles Aznavour Шарль Азнавур - Поёт Шарль Азнавур  1974  [FLAC 2.0|24 192|image + .cue|Vin
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Изабелла
+A2 Потому Что
+A3 Жить С Тобой
+A4 Ты Была Слишком Красива    Читать дальше...    Жанр: Pop, ChansonПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EACA7A2AEED035ABA02D31DF17005395826B6CCB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1692087.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 691 767
+
+Triple Kill - Studio Albums  3 releases   2017-2023  hand made [restored, declipped] [FLAC |
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Triple Kill - Thrash Power Metal-группа сформированная в 2016 году в Мельбурне, Австралия.2017 - The First Kill
+2018 - Age of Rebellion
+2023 - Blackened DawnЖанр: Heavy Thrash Power MetalПродолжительность: 01:46:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7243D16CB5D49ABF21C4E127623671BCB5AB6D2A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1691767.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 691 763
+
+Валерий Леонтьев - Четыре альбома  1984-1988  [FLAC|Lossless|image + .cue] <New Wave, Synth-pop,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+00:40:04
+
+A1 Я — Просто Певец • I m Only A Singer
+ Л. Квинт – Н. Денисов     Читать дальше...    Жанр: New Wave, Synth-pop, DiscoПродолжительность: 02:30:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E74F8F0520A8681935D11A5BB56057346E0A1B79
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1691763.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 691 668
+
+Metallica - Unload  Bootleg   1999  [FLAC 16 44.1|Lossless|tracks|MC-Rip] <Acoustics, Rock
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1. Low Man s Lyric 08:14
+2. Helpless 03:43
+3. Tuesday s Gone  feat. Jerry Cantrell  08:54
+4. Poor Twisted Me 04:13    Читать дальше...    Жанр: Acoustics, RockПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1691668.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 691 341
 
 Green Labyrinth - Studio Albums (2 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/4
@@ -987,1001 +1979,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1683242.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 683 069
-
-Stahlmann  & Sundenklang  - Studio Albums  10 releases   2010-2023  hand made [restored,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Stahlmann — немецкая группа, играющая в стилях Neue Deutsche Härte, Industrial, EBM, в своих композициях группа соединяет жесткое гитарное звучание и глубокий вокал.2010 - Stahlmann
-2012 - Quecksilber
-2013 - Adamant
-2015 - Co2Жанр: Neue Deutsche Harte, Electronic, RockПродолжительность: 06:22:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA4CF461EF87189C404DED8911D3600521470A1E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1683069.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 682 999
-
-Cher - Cher s Greatest Hits 1965-1992. Volume 1  1993  Compilation, Unofficial Release [FLAC 2
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Oh No Not My Baby
-A2 Whenever You re Near
-A3 Many Rivers To Cross  Live From The Mirage 
-A4 Love And Understanding    Читать дальше...    Жанр: Pop Rock, Synth-popПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682999.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 682 844
-
-Ayreon - Universal Migrator Part 1 - The Dream Sequencer  2000  [FLAC|24 192|image + .cue|Viny
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. The Dream Sequencer
-02. My House On Mars
-03. 2084
-04. One Small Step    Читать дальше...    Жанр: Progressive Metal, RockПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F3C1A7E8EB5C90D93CB840A8050A257FA092949B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682844.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 682 671
-
-Ayreon - Into the Electric Castle  A Space Opera   1998  [FLAC|24 192|image + .cue|Vinyl-R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Welcome To The New Dimension
-02. Isis And Osiris
-03. Amazing Flight
-04. Time Beyond Time    Читать дальше...    Жанр: Progressive Metal, RockПродолжительность: 01:44:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DC295937AE4BA55A8BC75DBF7D1CE65845E5E42C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682671.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 682 573
-
-Arjen Anthony Lucassen - Lost in the New Real  2012  [FLAC|24 96|tracks|Vinyl-Rip] <Progressiv
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. The New Real
-02. Pink Beatles In A Purple Zeppelin
-03. Parental Procreation Permit
-04. When I m A Hundred Sixty-Four    Читать дальше...    Жанр: Progressive RockПродолжительность: 01:30:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F08B0416DE78605A75E676BE1AAD55DEE51B6E25
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682573.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 682 358
-
-Pyramaze - Studio Albums  7 releases   2004-2023  hand made [restored, declipped] [FLAC |16<
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Pyramaze — датская пауэр-метал группа, образованная в 2001 году.2004 - Melancholy Beast
-2006 - Legend Of The Bone Carver
-2008 - Immortal
-2015 - Disciples Of The SunЖанр: Progressive Power MetalПродолжительность: 06:18:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E4FD17833A6834C9759E877803F36D54D69A5A7E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1682358.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 681 651
-
-Nuclear - Studio Albums  6 releases   2006-2020  hand made [restored, declipped] [FLAC |16<3
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Nuclear — чилийская трэш-метал-группа, основанная в Арике, Чили, в 1998 году.2006 - Heaven Denied
-2008 - Ten Broken Codes
-2010 - Jehovirus
-2015 - Formula for AnarchyЖанр: Thrash MetalПродолжительность: 03:26:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:170A4189CFD363D30263F9CA1F3DB650A5F484D9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1681651.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 681 443
-
-Modus - Friends  1987  [FLAC 2.0|24 96|image + .cue|Vinyl-Rip] <Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 The Show Must Go On
-A2 Friends
-A3 Stallion In The Dawn
-A4 Where Do You Go?    Читать дальше...    Жанр: Pop RockПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1681443.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 681 415
-
-Violator - Studio Albums  5 releases   2004-2017  hand made [restored, declipped] [FLAC |16<
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Violator — бразильская трэш-метал-группа. Является флагманом NWOTM  новойтретьей волны трэш-метала  и отличается ярко выраженной «олд-скульной» стилистикой, подражая андерграундным трэш-бэндам середины 80-х.2004 - Violent Mosh  EP 
-2008 - Chemical Assault
-2010 - Annihilation Process
-2013 - Scenarios Of BrutalityЖанр: Thrash MetalПродолжительность: 02:36:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ABB32302D3E8B9FC44641DA1842B3C14E48FF3A6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1681415.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 681 215
-
-Dwa Plus Jeden - Bez Limitu  1983  [FLAC 2.0|24 96|image + .cue|Vinyl-Rip] <Pop Rock, Synth-po
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Krach
-A2 Gorace Telefony
-A3 China Boy
-Music By – C. Szlazak    Читать дальше...    Жанр: Pop Rock, Synth-popПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6F77F0378226E9E6B0BD4D19E76C21B47C29B5B0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1681215.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 680 828
-
-Opeth - Sorceress  2016  [FLAC|24 192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progre
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Persephone  01:52 
-A2. Sorceress  05:48 
-A3. The Wilde Flowers  06:49 
-A4. Will o the Wisp  05:05     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38B5560B127628C874758422F72FA1DBD78DD10A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680828.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 680 819
-
-Them - Studio Albums  4 releases   2016-2022  hand made [restored, declipped] [FLAC |16 44
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Them - немецко-американская хэви-метал группа, образованная в 2008 году.2016 - Sweet Hollow
-2018 - Manor Of The Se7en Gables
-2020 - Return to Hemmersmoor
-2022 - Fear CityЖанр: Heavy Power MetalПродолжительность: 03:38:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:89698A042F4627CECBFA421347999C50733FF300
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680819.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 680 786
-
-Opeth - Deliverance & Damnation Remixed  2015  Compilation [FLAC|24 192|image + .cue|Vinyl-Rip
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Deliverance
-A. Wreath  11:13 
-B. Deliverance  13:39 
-C1. A Fair Judgement  10:23     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:45:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0FF47024966D3DD594781D5F0B0D3FB616721E37
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680786.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 680 643
-
-Lucia Altieri - Lucia Altieri  1974  [FLAC 2.0|24 192|image + .cue|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Ra-Ta-Ta
-A2 Suona Orchestra  Cinta Orchestra 
-A3 Lui E Cosi  Asa E El 
-A4 Con Amore  Cu Dragoste     Читать дальше...    Жанр: PopПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:65CB716CFC68BD32768AF0093627BBDF48143897
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680643.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 680 509
-
-Poison Dollys - Invasion  1985  [FLAC|24 192|image + .cue|Vinyl-Rip] <Hard Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Love Is For Suckers
-A2 On My Way
-A3 Only You
-A4 Where You Are    Читать дальше...    Жанр: Hard RockПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D21262AB5F1F6425EE985BA8DEFF9D540381C3BC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680509.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 680 302
-
-Sorcerer - Studio Albums  5 releases   1995-2023  hand made [restored, declipped] [FLAC |16<
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Sorcerer — шведская эпическая дум-группа из Стокгольма, основанная в 1988 году, распавшаяся в 1992 году и реформированная в 2010 году.1995  2015  - Sorcerer
-2015 - In the Shadow of the Inverted Cross
-2017 - The Crowning of the Fire King
-2020 - Lamenting of the InnocentЖанр: Epic Doom MetalПродолжительность: 05:19:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BDC3ED87E069E8D7549EFC266D31E2662FEEC012
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680302.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 680 168
-
-Opeth - Pale Communion  2014  [FLAC|24 192|image + .cue|Vinyl-Rip] <Progressive Death Metal, P
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Eternal Rains Will Come  06:43 
-A2. Cusp of Eternity  05:34 
-B1. Moon Above, Sun Below  10:53 
-B2. Elysian Woes  04:48     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5F06BE16125C39D0796051A37FD0283724566321
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680168.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 680 060
-
-Fuel - Studio Albums  6 releases   1998-2021  hand made [restored, declipped] [FLAC |16 44
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Американская рок-группа, образованная гитаристом и автором песен Карлом Беллом и басистом Джеффом Аберкромби в 1994 году.1998 - Sunburn
-2000 - Something Like Human
-2003 - Natural Selection
-2007 - Angels & DevilsЖанр: Hard Rock, Post-GrungeПродолжительность: 04:48:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6AC20FB2D7A206ED1F7F303F5EE0549799AE4DB6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680060.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 884
-
-Michal David + The Paces - I d Love To Live  1983  [FLAC 2.0|24 192|image + .cue|Vinyl-Rip]
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 I d Love To Live  Chtel Bych Zit Tak, Jak Se Ma 
-A2 You re Special  Jsi Zvlastni 
-A3 You Know What It s All About  Kam Tak Nahle Pospichas? 
-A4 Story Of A Girl I Knew  Lasko Ma, Nerikej Dik     Читать дальше...    Жанр: Pop RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F05263E71FB7BC6D610F935F3E66650053AA3C22
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679884.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 783
-
-КИНО - Черный альбом  1990  hand made, remastered [FLAC|16 44.1|tracks|CD-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-CD-1  42:51 
-
-[6:00] 1. Кончится лето
-[5:54] 2. Красно-желтые дни    Читать дальше...    Жанр: RockПродолжительность: 01:25:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A0BDBB5480F0ADADC367CD76B2E444F63CD6611
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679783.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 598
-
-Alice Cooper - Studio Albums  10 releases   2000-2023  hand made [restored, declipped] [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Э́лис Ку́пер  англ. Alice Cooper, при рождении Ви́нсент Дэ́ймон Фурнье́  или Фёрни́эр — англ. Vincent Damon Furnier; род. 4 февраля 1948, Детройт  — американский рок-певец и автор песен. Купер был одним из первых шок-рокеров и стал, как отмечает All Music Guide, королём этого жанра, своей новаторской деятельностью радикально расширив     Читать дальше...    2000 - Brutal Planet
-2001 - Dragontown
-2003 - The Eyes Of Alice Cooper
-2005 - Dirty DiamondsЖанр: Hard RockПродолжительность: 08:24:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18B2348E00A063838AA38BC125AEC90F8F5283BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679598.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 568
-
-Opeth - Heritage  2011  [FLAC|24 192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progres
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Heritage  02:04 
-A2. The Devil s Orchard  06:39 
-A3. I Feel the Dark  06:37 
-B1. Slither  04:03     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E49269CE9A95AB7D03D11EEDCA85332FAB051E75
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679568.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 533
-
-Opeth - Ghost Reveries  2005  Reissue, 2013, 	Roadrunner Records, Cargo Records [FLAC|24 192|i
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Ghost of Perdition  10:28 
-A2. The Baying of the Hounds  10:40 
-B1. Beneath the Mire  07:57 
-B2. Atonement  06:30     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E89F8A35A60B642F0F62640D7A456FE28BE0A101
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679533.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 464
-
-Mirror - Pyramid of Terror  2019  [FLAC|24 96|tracks|Vinyl-Rip] <Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Pyramid Of Terror
-A2 I Am The Freak
-A3 Secrets Of Time
-A4 Master Of The Deep    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1486F1F1ADA50A18A99DE57232FB9633CF3BA5F3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679464.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 363
-
-Foster & Allen - Reflections. 20 Best Loved Favorites  1987  [FLAC 2.0|24 192|image + .cue|Vin
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 True Love
-A2 Ramblin  Rose
-A3 I Love You Because
-A4 Goodnight Irene    Читать дальше...    Жанр: Celtic, Folk, Easy ListeningПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:52A7AA0F1D98679ACFBF1ACB9AD27491F0398F8A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679363.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 139
-
-Opeth - Blackwater Park  2001  Reissue, 2010, Music On Vinyl,  Sony Music Entertainmen [FLAC|24<
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. The Leper Affinity  10:23 
-A2. Bleak  09:17 
-B1. Harvest  06:01 
-B2. The Drapery Falls  10:52     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:16:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1AA060F65666CDE58970FC83A6EFDDCEE0CF1BEB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679139.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 679 006
-
-Soulfly  Max Cavalera; Sepultura  - Studio Albums  12 releases   1998-2022  hand made [r
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Soulfly — американская грув-метал группа, образованная в Финиксе, штат Аризона, в 1997 году бывшим фронтменом Sepultura Максом Кавалера.1998 - Soulfly
-2000 - Primitive
-2002 - 3
-2004 - ProphecyЖанр: Nu-Metal with Folk influences; Groove Thrash Death MetalПродолжительность: 12:32:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2515F30CBE67551D119DD35535893E666E979D70
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1679006.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 765
-
-Opeth - Still Life  1999  Reissue 2012, Peaceville [FLAC|24 192|image + .cue|Vinyl-Rip] <Progr
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A. The Moor  11:23 
-B1. Godhead s Lament  9:47 
-B2. Benighted  4:59 
-C1. Moonlapse Vertigo  8:59     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AED8610D4BC63645E0CE188C2522045293D0B553
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678765.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 561
-
-КИНО - Атаман  1990   2012  hand made, remastered [FLAC|16 44.1|tracks|CD-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-[4:16] 1. Атаман
-[4:16] 2. Атаман  Karaoke Жанр: RockПродолжительность: 00:08:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FAEF3B77A461295557423E876D0D06939144AB5C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678561.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 462
-
-Vince Neil - Exposed  1993  [FLAC|24 96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01 - Look In Her Eyes  05:51 
-02 - Sister Of Pain  05:03 
-03 - Can t Have Your Cake  03:56 
-04 - The Edge  04:54     Читать дальше...    Жанр: Hard Rock, Glam MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AC5352D3FC1302D1FEB52ED3AB839E50F51FB247
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678462.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 006
-
-Opeth - My Arms, Your Hearse  1998  Reissue, 2016, Candlelight Records [FLAC|24 192|image + .c
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Prologue  00:59 
-A2. April Ethereal  08:41 
-A3. When  09:13 
-A4. Madrigal  01:27     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F187739717AF3A1BA6B0F715AF29462CA0C1CDE4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678006.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 678 005
-
-National Suicide - Studio Albums  3 releases   2009-2017  hand made [restored, declipped] [F
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-National Suicide - трэш-метал группа из Италии.2009 - The Old Family Is Still Alive
-2016 - Anotheround
-2017 - Massacre EliteЖанр: Thrash MetalПродолжительность: 02:03:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18A1848D748260F1B5F239ED0E5C37EDE3309285
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1678005.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 924
-
-Warfect - Studio Albums  4 releases   2009-2020  hand made [restored, declipped] [FLAC |16<3
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Warfect - трэш-метал группа из Швеции, основана в 2008 г.2009 - Depicting the Macabre
-2013 - Exoneration Denied
-2016 - Scavengers
-2020 - Spectre Of DevastationЖанр: Thrash MetalПродолжительность: 03:04:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6BDEB746B07B4DC2407D69EC860BB817000BE5F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677924.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 892
-
-Opeth - Morningrise  1996  Reissue, 2016, Candlelight Records [FLAC|24 192|image + .cue|Vinyl-
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Advent  13:42 
-A2. The Night and the Silent Water  10:59 
-B. Nectar  10:09 
-C. Black Rose Immortal  20:13     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4B82658DCE70035E2E5394CB9E57B55099D7986B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677892.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 836
-
-Suicidal Angels - Studio Albums  8 releases   2007-2019  hand made [restored, declipped] [FL
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Suicidal Angels - трэш-метал группа из Афин, Греция, образованная в начале 2001 года Ником Мелиссургосом в возрасте 16 лет под влиянием трэш-метала старой школы.2007 - Eternal Domination
-2009 - Sanctify The Darkness
-2010 - Dead Again
-2012 - BloodbathЖанр: Thrash MetalПродолжительность: 05:40:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B9B0BA0319C141D285B31EF3430056BBC14A1C54
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677836.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 427
-
-Hatchet - Studio Albums  4 releases   2008-2018  hand made [restored, declipped] [FLAC |16<3
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Hatchet - американская трэш-метал группа из Сан-Франциско, Калифорния. Образована в 2006 году.2008 - Awaiting Evil
-2013 - Dawn Of The End
-2015 - Fear Beyond Lunacy
-2018 - Dying to ExistЖанр: Thrash MetalПродолжительность: 02:56:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3B486D0FCB1744BAAFCFAED47A35099A51C746B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677427.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 184
-
-Ария - Студийные альбомы  10 релизов   1995-2020  hand made [restored, declipped] [FLAC |16<
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-«Ария» — советская и российская хеви-метал-группа. Одна из самых успешных российских рок-групп, при этом — это одна из немногих российских метал-групп, достигших серьёзного коммерческого и творческого успехов и популярности за пределами поклонников хэви-метала. Лауреат премии Fuzz 2007 года как лучшая live-группа. Её бывшими участниками были образованы многие другие     Читать дальше...    1995 - Ночь Короче Дня
-1998 - Генератор Зла
-2001 - Химера
-2003 - Крещение ОгнёмЖанр: Heavy MetalПродолжительность: 10:13:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A07BF373F8AA23730936920D702296EEAA7A4585
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677184.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 142
-
-Opeth - Orchid  1995  Reissue, 2016, Candlelight Records [FLAC|24 192|image + .cue|Vinyl-Rip]
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. In Mist She Was Standing  14:10 
-A2. Under the Weeping Moon  09:51 
-B1. Silhouette  03:10 
-B2. Forest of October  13:03     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A45B9C244FF72A4FA6B123411546ABA46B313364
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677142.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 676 276
-
-The Rolling Stones - Hackney Diamonds  2023  [FLAC 24 96|Lossless| image + .cue|Vinyl-Rip] <Cl
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A.1 Angry
-A.2 Get Close
-A.3 Depending on You
-A.4 Bite My Head Off    Читать дальше...    Жанр: Classic RockПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A0C9408988DFD6ADA33080DD4AF83A832037E878
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1676276.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 676 254
-
-VA - Архив Популярной Музыки 1-12  1988-1990  Unofficial Release [FLAC 2.0|24 192|image + .cue
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Архив популярной музыки — серия пластинок, выпущенных фирмой грамзаписи «Мелодия» в 1988—1989 годах. Каждый диск представлял собой сборник песен одного из наиболее известных представителей англо-американской поп- и рок-музыки 1950-х—1970-х годов.
-Данная серия начала своё существование с выпуска в 1987 г. менее известной серии «Рок-архив», состоявшей всего из трёх     Читать дальше...    Жанр: Rock, Funk, Hard Rock, Rock-n-RollПродолжительность: 08:03:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EF351CAD6C7E36CF394AD7107BFF46C27D755A3E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1676254.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

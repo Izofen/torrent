@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 624 122
+
+Ilya Hype - Только крылья берегите (2023) [MP3|320 Kbps] <Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Шёпот-шорох [00:06:17]
+02 - Гуси-гуси [00:06:45]
+03 - Властитель дум [00:06:08]
+04 - Голосом стелю я [00:10:42](   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:27:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:48E19CF1492FFFC42AAA54DE97EEE3BA085AAA3E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1624122.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 886
+
+Умка и Броневичок - Компакт  1998  [MP3|320 Kbps] <Punk-Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Камикадзе [00:06:12]
+02 - Голос мой дом [00:06:39]
+03 - Я была с моим народом [00:05:05]
+04 - Без ноги [00:05:24]    Читать дальше...    Жанр: Punk-RockПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FBD78DE68622DD53117D3A00620F166E99BF5D12
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623886.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 443
+
+100 Як - Хер О  2011  [MP3|320 Kbps] <Pop Rock, Funeral Humor>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Бабубы [00:05:03]
+02 - Но я [00:02:52]
+03 - Кино [00:03:04]
+04 - Лето [00:04:18]    Читать дальше...    Жанр: Pop Rock, Funeral HumorПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B7C978FAC720C98F4BF14F963551D176466BBC02
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623443.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 440
+
+Changes - Вместе с кровью по венам  2013  [MP3|320 Kbps] <Hardcore Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Интро [00:00:30]
+02 - Хозяин времени [00:03:08]
+03 - Братство [00:02:09]
+04 - Главная роль [00:02:03]    Читать дальше...    Жанр: Hardcore Punk RockПродолжительность: 00:21:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FDBFF0C154401C3F1FA2DFBBA3359E770C6C7B26
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623440.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 623 399
+
+Штат МичигаН - Фаза быстрого сна. сторона А.  2023  [MP3|320 kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Аттракцион [00:03:17]
+02. Картонный герой [00:03:27]
+03. Ветер весны [00:03:00]
+04. Не отвечай [00:04:18]    Читать дальше...    Жанр: RockПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:02C373485057EFF7A081E2D8FF034418929ECF6B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1623399.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 623 359
 
 Геннадий Богданов и гр. Русские - 4 Альбома  1994 - 2008  [MP3|320 Kbps] <Pop Rock>
@@ -1864,131 +1989,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1610697.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 610 612
-
-Территория Отчуждения - 5 Albums  2017-2023  [MP3|320 Kbps] <Alternative Rock, Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2017 - Брать живьём!
-2019 - Противостояние
-2021 - Задолбали    Читать дальше...    Жанр: Alternative Rock, Punk RockПродолжительность: 5 CD, 02:29:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06D2DF7C299A7955B2CE84D4B2D7D84C0223BD48
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1610612.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 610 360
-
-Fox River - 2 Albums  2018-2023  [MP3|320 Kbps] <Progressive Metal, Progressive Metalcore>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Один знакомый ориентир [00:03:11]
-02. Пленник пустоты [00:03:58]
-03. Горизонт [00:03:16]
-04. Один из них [00:03:38]    Читать дальше...    Жанр: Progressive Metal, Progressive MetalcoreПродолжительность: 2 CD, 01:04:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E70AE63883A7F3B5ED807963EBC5CDBC9D4D727A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1610360.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 610 353
-
-Дурная Кровь - 2 Albums  2020-2023  [MP3|320 Kbps] <Horror Punk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Наш герой [00:03:36]
-02. Вот вам! [00:02:56]
-03. Рачьё на миду [00:02:38]
-04. Раб своей жажды [00:02:24]    Читать дальше...    Жанр: Horror PunkПродолжительность: 2 CD, 00:46:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E9999C6942A0842659A8279C6C1770A50870D0F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1610353.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 610 340
-
-Терней - Встречь Солнцу  2023  [MP3|320 Kbps] <Hard Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Рудная пристань [00:03:39]
-02 - Шторм [00:03:06]
-03 - Перегонщики Алсиба [00:04:04]
-04 - Единка [00:03:18]    Читать дальше...    Жанр: Hard RockПродолжительность: 00:27:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2424E6D79F5DA2945D29FA710061C90B5F27DD3E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1610340.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 609 844
-
-Razörschrieck  Razorschrieck  - 3 Albums  2013-2023  [MP3|320 Kbps] <Death Doom Metal,  Depr
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2013 - Descensus
-2021 - Tragedies
-2023 - Black MagickЖанр: Death Doom Metal,  Depressive Black MetalПродолжительность: 3 CD, 02:08:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1E7D210ED93AC92D5FEBABDAFEBE5A648F379480
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609844.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

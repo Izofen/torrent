@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 769 724
+
+VA - Рождественский романс (2015) [MP3|320 Kbps] <Романсы>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01 - Юрий Визбор - Милая моя [00:02:03]
+02 - Елена Фролова - Сегодня таяло, сегодня… [00:03:14]
+03 - Тамара Гвердцители - Элегия [00:04:24]
+04 - Марина Капуро, группа Яблоко - Однозвучно гремит колокольчик [00:03:58](   Читать дальше...   )Жанр: РомансыПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1769724.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 769 695
+
+Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. See The Sun (Remastered 2024)
+02. (Do You Wanna Play) My Rock And Roll Song (Remastered 2024)
+03. Our Story (Remastered 2024)
+04. Keep On Dancing (Remastered 2024)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0457A4A718E26296299CAA54EC9B3E6BB2BEC316
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1769695.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 769 687
+
+Ken Laszlo - Hey Hey Guy Don't Cry Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Hey Hey Guy
+02. Dance With Me (Extended Mix)
+03. Starlight (Extended Mix)
+04. Don't Cry(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:84ED03A244397B484C21B0D622BC22E8C5A777F0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1769687.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 769 254
+
+Thomas Anders & Florian Silbereisen - Nochmal! (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Oth
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01. Wir tun es nochmal (3:35)
+02. Alles wird gut (3:53)
+03. Neonfarbenwelt (3:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:41:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B893CAF145DA18F27EE88435690B4C250F5F38FC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1769254.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 769 221
+
+VA - Happy New Year Party 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. JLUIS - Paradise (3:07)
+02. MaxRiven - Loveparade (2:25)
+03. Rene Rodrigezz,Nico Roschnai & Miguel Lemos - Call It Love (2:31)
+04. Teknova - Voices (2:07)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:25:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F12BC85A77578ABEB1225A04144D4468C75E5301
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1769221.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 769 218
+
+VA - Happy New Year 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Coldplay - feelslikeimfallinginlove (3:58)
+02. Benson Boone - Beautiful Things (3:01)
+03. Charli xcx - Apple (2:32)
+04. David Guetta & Bebe Rexha - I’m Good (Blue) (2:56)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 02:42:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:74C70847421126E876F53759194C0AEAF0BF9752
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1769218.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 768 880
+
+Mflex Sounds - Flashback Vol. 3 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Caroline (Space Remix 2) (6:07)
+02. The Blame (5:54)
+03. One side of the truth (Clubbing Time Mix) (feat. Ghost Girl) (7:53)
+04. I Know (7:31)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 03:22:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5429A18A866B69DDC54E5D52F264056C8DC472F0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768880.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 768 875
+
+Mflex Sounds - Flashback Vol. 2 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Rock My Heart (7:06)
+02. Dance to Infinity & The Power of Pleasure (8:55)
+03. Hot Mirrors (6:50)
+04. Darkside (7:47)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 03:25:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6312322E4F04C7CBF9B4F11884D93AA8C4FE9455
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768875.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 768 867
+
+Mflex Sounds - Flashback Vol. 1 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Black Rider (7:00)
+02. In The Sand (Redesigned) (5:56)
+03. Strangers in the Night (Shiny Edit) (8:05)
+04. No Escape (7:43)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 03:18:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:14C99CF84E8BA302D5655E66B7EA0736E90A3496
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768867.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 768 858
+
+AlimkhanOV A. - Black (The 4th Album) (2024) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Black (Intro) (3:47)
+02. One More Night (3:57)
+03. Follow Me Baby (5:30)
+04. One Two Three (3:59)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A64BEC4D256BF702D6D4122F2442F683DD3BD45
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1768858.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 768 665
 
 Денис Клявер - Новогодний поцелуй, Часть 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1741,256 +1991,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760708.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 678
-
-Алиса Фрейндлих - Избранное, Часть 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Retro>
-Pop (сборники)
-Советская эстрада, Ретро (Lossless)
-
-###  Подробнее
-
-1. Посвящение (Из спектакля "Люди и страсти")
-2. Вопросы (Из спектакля "Люди и страсти")
-3. Мария-Антуанетта (Из спектакля "Люди и страсти")
-4. Ход жизни (Из спектакля "Люди и страсти")(   Читать дальше...   )Жанр: RetroПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8A99794483978E811E76A20F05EF3B00A72F46FD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760678.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 671
-
-Алиса Фрейндлих - Избранное, Часть 1 (2024) [MP3|320 Kbps] <Retro>
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-1. Посвящение (Из спектакля "Люди и страсти")
-2. Вопросы (Из спектакля "Люди и страсти")
-3. Мария-Антуанетта (Из спектакля "Люди и страсти")
-4. Ход жизни (Из спектакля "Люди и страсти")(   Читать дальше...   )Жанр: RetroПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E3D7F0ABB443936C1452E79D8BD44B00250CFA6C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760671.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 553
-
-Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electronic, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Somebody Else's [3:44]
-02 - Bouquet [3:26]
-03 - Pretty [3:14]
-04 - Empty Vase [2:59](   Читать дальше...   )Жанр: RnB/Swing, Electronic, PopПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EFB4FEE2F4CDFF279FF7B80AB701AF72BB3633F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760553.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 042
-
-VA - 80s Summer Chillout (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Tears for Fears - Everybody Wants to Rule the World (4:15)
-02. Katrina and the Waves - Walking on Sunshine (3:43)
-03. Don Henley - The Boys of Summer (4:50)
-04. Chris Isaak - Wicked Game (4:49)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 05:18:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7D19C3F76B9F61D951C466F9CFC0B34C58C93D7F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760042.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 759 797
-
-Zucchero - DISCOVER II (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Amor Che Muovi Il Sole
-02. Una Come Te
-03. Just Breathe
-04. Sailing(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:067610092508485C49251B341E33133DCF333702
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759797.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 759 782
-
-Darwin (Влад Дарвин) - Путь открыт (2010) [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Йога или спирт
-02. Гоа
-03. Зелена фея
-04. Качели летящие вверх (Сообщение)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:606212EDBDE8F4A8B6E42C3572ED62374153DB00
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759782.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 759 779
-
-Мика Ньютон - 2 Альбома (2005-2006) [MP3|320 Kbps] <Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Аномалия
-02. Арлекино
-03. В плену
-04. Пожарные(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:45:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6E015DE838164B04EFD9D38F7F9C00800455EAC6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759779.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 759 638
-
-Градусы - Голая (2011) [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01		Кто Ты?
-02		Бледные Поганки
-03		Лох
-04		Режиссёр(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0FDA2E027E0AE00DC324A560024F9A5939006752
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759638.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 759 636
-
-Карат - Точка во вселенной (2007) [FLAC|Lossless|image + .cue] <Pop, Electronic>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Ветер
-02. Прости меня
-03. Прошлая любовь
-04. Ветер любви(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B912882D8A012B218575251FCDC0CB852FFE0DA4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759636.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 759 548
-
-VA - 90s Nostalgia 90s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Pet Shop Boys - Go West (2003 Remaster) (5:04)
-02. Babylon Zoo - Spaceman (Radio Edit) (4:00)
-03. Mase - Feel So Good (3:23)
-04. Spacehog - In the Meantime (4:59)(   Читать дальше...   )Жанр: PopПродолжительность: 04:01:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:438854B549F3004FCAEDD2C3BB1ACFD2F330D4C3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759548.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

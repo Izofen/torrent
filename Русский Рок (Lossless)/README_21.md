@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 1 448 784
+
+Вася Обломов - The Best  2021  [MP3|320 Kbps] <Rock, Rap, Alternative Сhanson>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Магадан  TV Version 
+2. Начальник
+3. С чего начинается Родина
+4. Кто хочет стать милиционером?    Читать дальше...    Жанр: Rock, Rap, Alternative СhansonПродолжительность: 02:30:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1E698F63DC63B848445E4BF499EAFC51E1E3654C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1448784.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 447 384
+
+Ёк-Макарёк - Домашний лад  2020  [MP3|320 Kbps] <Ethno Punk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Тихий Островок
+2. Вечерняя Тишь
+3. Ладога
+4. Мир в Дому    Читать дальше...    Жанр: Ethno PunkПродолжительность: 00:26:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:81682A3397980E46A4A1D177DE4824E2B4A5AE45
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447384.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 447 201
+
+Теуникова и КоМПОзит - Один страшный день  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Катится
+2. Wi-Fi
+3. Введи войска
+4. Сверхъестественный отбор    Читать дальше...    Жанр: RockПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8B1A003DBB162C37B9F1FC091A3E86F172E3B985
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 447 198
+
+Сплин - Вирус  2021  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. ВирусЖанр: RockПродолжительность: 00:04:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1071F6A582238394862804B9A3C435FD0A5BEC2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447198.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 447 194
+
+Операция Пластилин - Грустные песни для уставших людей  2021  [MP3|320 Kbps] <Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Чёрный факел
+2. Ашан  письмо Саше Г. 
+3. Моя провинция
+4. Все взрослые    Читать дальше...    Жанр: Punk RockПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:50CDD1975B351B7BAC470E534F06B359D36A2208
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447194.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 447 026
 
 МАЧЕТЕ - News Time  2021  [MP3|320 Kbps] <Rock>
@@ -1856,122 +1978,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430816.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 430 588
-
-ДДТ - 2020  2020  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. 2020Жанр: RockПродолжительность: 00:05:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C74735A1B36C520D9D4DCD836F6AC7EE60F3409F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430588.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 430 584
-
-Тараканы! - 15  ...И ничего кроме правды   2020  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Голый король
-2. Чем пахнут деньги
-3. 32 мая
-4. Побег из Шоушенка    Читать дальше...    Жанр: Punk RockПродолжительность: 00:32:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:30245B425A14C09A954DD8BE2280134099C4D0DF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430584.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 430 533
-
-Сплин - Вира и майна  2020  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Призрак
-02. За семью печатями
-03. Беги, моя жизнь
-04. Джин    Читать дальше...    Жанр: RockПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70FEFC48C1DF80255EA6CF7D2813170E6C41814E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430533.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 430 297
-
-Ленинград - Миг  2020  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. МигЖанр: RockПродолжительность: 00:03:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:82462D026A892738E146B3759026A8386F7C84A2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430297.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 430 296
-
-Ногу свело! - Пора прощаться, 2020  2020  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Пора прощаться, 2020Жанр: RockПродолжительность: 00:03:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4571EAE1FB3280C880F416B08DA252C3BB391398
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1430296.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

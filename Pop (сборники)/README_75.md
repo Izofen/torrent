@@ -1,4 +1,251 @@
 ﻿
+###  Публикация: 1 209 002
+
+Алиса Вокс - Новая Алиса Вокс  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Новая
+02. Нить
+03. Фейерверк
+04. Не хочу    Читать дальше...    Жанр: PopПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C0BE65AAB1ADED865A9D5F8D8D6DCD488C1F0021
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1209002.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 993
+
+A-Teens - Feelings  2007  [MP3|320 Kbps] <Pop, Europop, Eurodance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Intro  A-Teens Are Back 
+02. I Promised Myself  The Attic Radio Version 
+03. Dancing Queen  Pierre J s Main Radio Mix 
+04. Mamma Mia  Guiseppe Remix     Читать дальше...    Жанр: Pop, Europop, EurodanceПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:00EB17A4AC4CA69F65C753C024D8B8777EE73532
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208993.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 756
+
+Юрий Шатунов - Не молчи...  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. С Днём Рождения
+02. Одноклассники
+03. И я под гитару
+04. Не молчи    Читать дальше...    Жанр: PopПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CFAD4AC422649C16379F50A808029E79A5C23327
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208756.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 490
+
+Маша Распутина - Синий понедельничек  1994  [FLAC|Lossless|image + .cue]<Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01 Синий понедельничек
+02 Я ходила по небу
+03 Ты любовь моя не первая
+04 Драгоценная тайна    Читать дальше...    Жанр: PopПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:50CCAD6E28C9BE76D0D5273D7613364A55F06CC7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208490.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 323
+
+Григорий Лепс - Зае...вшие рожи  2018  Single [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Зае...вшие рожиЖанр: PopПродолжительность: 00:04:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:163C37050EDF5FC8737B2BDAFD2FD0AD8BF7C1DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208323.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 130
+
+Club 8 - Golden Island  2018  [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female Vocal>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Swimming With The Tide 02:56
+02. Breathe 03:37
+03. Lost 02:35
+04. Pacific 03:20    Читать дальше...    Жанр: Indie Pop, Female VocalПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:934695FB15525297626ED67764FCF3593DA2BBE2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208130.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 053
+
+Christie Lamb  Кристи Лэмб  - Loaded  2017  ABC Music [MP3|320 Kbps] <Country>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Кристи Лэмб - австралийская кантри-певица и автор песен. Пользуется большим успехом в Австралии. В 2016 году певица получила самую престижную награду в Австралийской кантри-музыке «CMAA New Talent of the Year 2016» - «Золотая гитара». Дебютный студийный альбом Кристи «All She Wrote» успешно достиг 2-й строчки в австралийском хит-параде «ARIA Country Chart» в 2014     Читать дальше...    01. Bad Habit 3:06
+02. Flamethrower 2:58
+03. Magic 2:54
+04. Party s Over 3:21    Читать дальше...    Жанр: CountryПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0C8102EB39FC10C9FEBD1827A4D31957D25FF326
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208053.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 208 050
+
+Christie Lamb  Кристи Лэмб  - All She Wrote  2014  ABC Music [MP3|320 Kbps] <Country>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Кристи Лэмб - австралийская кантри-певица и автор песен. Пользуется большим успехом в Австралии. В 2016 году певица получила самую престижную награду в Австралийской кантри-музыке «CMAA New Talent of the Year 2016» - «Золотая гитара». Дебютный студийный альбом Кристи «All She Wrote» успешно достиг 2-й строчки в австралийском хит-параде «ARIA Country Chart» в 2014     Читать дальше...    01. Broken Record 3:29
+02. All She Wrote 2:52
+03. Something In The Way 3:38
+04. Manhunt 3:07    Читать дальше...    Жанр: CountryПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD9E50C14539A76F00792E28BCA85141BBCC110D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1208050.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 207 923
+
+VA - Nu Disco Love  2018  [MP3|320 Kbps] <Disco, Nu-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Audio Jacker – Come On Baby  Original Mix 7:38
+02. Discotron – Feel The Need  Original Mix 4:24
+03. Disko Junkie – Without Love  Original Mix 5:56
+04. Giorgio Rodgers – Somebody Else  Original Mix 5:02    Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4256EC97C0BE1D93B9DB0492D11645B45F0FE308
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207923.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 207 802
+
+Kim Wilde - 13 Studio Albums  1981-2013  16CD [MP3|320 Kbps] <Electronic, Pop Rock, House, Synth
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Ким Уайлд  18 ноября 1960, Лондон, Англия  — британская поп-певица, автор, ди-джей и телеведущая. Приобрела популярность в 1981 году, спев песню «Kids in America», которая в главном британском чарте «UK Singles Chart» поднялась на второе место. В 1983 году получила премию BRIT Award в номинации «Лучшая британская исполнительница». Большого успеха в США добилась благодаря     Читать дальше...    Список альбомов:
+1981 - Kim Wilde
+1982 - Select
+1983 - Catch As Catch Can    Читать дальше...    Жанр: Electronic, Pop Rock, House, Synth-popПродолжительность: 15:37:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A6A6487D6E6F54DB3BCFE5DCB2E689F8097C9B86
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207802.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 207 695
 
 На-На - По накатанной  2018  EP [MP3|320 Kbps] <Pop>
@@ -1738,256 +1985,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203363.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 203 316
-
-Маргарита Суханкина-Маруна - Неизданные песни  2002  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Остановиться  4:10 
-02. Не исчезай  4:14 
-03. Отелло  4:30 
-04. Слишком поздно  3:51     Читать дальше...    Жанр: PopПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DC93CA59337CA0573D075F9AA7C1CF8601B3B32A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203316.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 203 306
-
-O-Zone - VIP  2005  [MP3|320 Kbps] <EuroDance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. In Doi  3:46 
-02. VIP  2:49 
-03. De Ce Plang Chitarele  4:10 
-04. Number 1  3:41     Читать дальше...    Жанр: EuroDanceПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A72E2F39186F12A7815FF0E684D42B9894B6FCE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203306.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 203 049
-
-Justin Timberlake - Man of the Woods  2018  [MP3|320 Kbps] <Pop, R&B>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Filthy
-02. Midnight Summer Jam
-03. Sauce
-04. Man of the Woods    Читать дальше...    Жанр: Pop, R&BПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8AA7FC00E3DFB260A0A246C57D62BCB91959F8A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1203049.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 202 766
-
-Plazma - Indian Summer  2017  [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop, Europop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Tame Your Ghosts  04:24 
-02. Angel Of Snow  04:24 
-03. Brilliant Water  03:11 
-04. Mystery  The Power Within   03:54     Читать дальше...    Жанр: Pop, Synth-pop, EuropopПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BDE918A53F98D5030389BEF494524E5388E17E43
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1202766.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 202 708
-
-VA - Памяти Анны Герман -  Мы долгое эхо друг-друга...   2005  [APE|Lossless|image + .cue] <
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Лада Дэнс - Когда Цвели Сады
-02. Андрей Приклонский - Не Спеши
-03. Анастасия Максимова - Танцующие Эвридики
-04. Лариса Долина - Ночной Разговор    Читать дальше...    Жанр: Советская эстрада, РетроПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2A043C7D6AB5503DF8803C727FFF2676F684277F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1202708.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 202 353
-
-DNCE - DNCE  2016  [FLAC|Lossless|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. DNCE
-02. Body Moves
-03. Cake by the Ocean
-04. Doctor You    Читать дальше...    Жанр: PopПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75E4584019AA1669DD33A4D9E7ADAF16680B18F5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1202353.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 202 319
-
-Сати Казанова - Спасибо тебе  2018  EP [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Радость, Привет
-02. Спит Мое Счастье
-03. Всем Салам  fеаt. Ринат Каримов 
-04. Моя Правда    Читать дальше...    Жанр: PopПродолжительность: 00:23:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80A19F77D27200B7A4B0721D5C6A1B9CDE5BE744
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1202319.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 202 163
-
-Charlotte Gainsbourg - Stage Whisper  2011  2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01 11. IRM  2:41 
-02 11. Set Yourself On Fire  3:53 
-03 11. Jamais  4:02 
-04 11. Heaven Can Wait  2:22     Читать дальше...    Жанр: Indie Pop, French Pop-Rock |Продолжительность: 00:37:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90B5A822818A4F46654EE576325C96BDB21A889E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1202163.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 202 142
-
-Марк Бернес - Огромное небо  2001  [APE|Lossless|tracks] <Советская эстрада, Ретро>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. С Чего Начинается Родина
-02. Перекрёсток
-03. Три Года Ты Мне Снилась
-04. Песня Рощина    Читать дальше...    Жанр: Советская эстрада, РетроПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A3D4F33DB4F41429DEED18E577D61FBDF9F98772
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1202142.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 201 807
-
-Craig David - The Time Is Now  2018  [MP3|320 Kbps] <Pop, R&B>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Magic
-02. Heartline
-03. Brand New
-04. Going On    Читать дальше...    Жанр: Pop, R&BПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3B05A3A8370AD81B7E4731C436EF72918C088175
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1201807.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

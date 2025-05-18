@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 487 751
+
+Various ‎ - Disco Discharge. Disco Exotica  2CD  2012  [FLAC|Lossless|tracks + .cue] <Synth-pop,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01 - Voggue - Dancin  The Night Away  Original 12   Mix   7:25 
+02 - Bette Midler - Hurricane  Original Album Version   7:31 
+03 - Jeanette - Don t Say Goodnight To A Lady Of Spain  Original 7   Mix   4:22 
+04 - Gino Soccio - Dance To Dance  Original 12   Mix   7:11     Читать дальше...    Жанр: Synth-pop, Disco, Italo-DiscoПродолжительность: 02:30:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29F21C4BEF095E2FACB712DD3FD8E13163FBE32D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1487751.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 487 464
+
+Billie Eilish - Happier Than Ever  2021  [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Getting Older  4:04 
+ 02. I Didn’t Change My Number  2:38 
+ 03. Billie Bossa Nova  3:17 
+ 04. my future  3:30     Читать дальше...    Жанр: Electronic, Indie PopПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C33CF4D1D9E938FE535A541669836724CCBC539A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1487464.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 487 372
+
+Купе - The Best  1994  [FLAC|Lossless|image + .cue] <Ballad, Schlager, Vocal>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Королева Двора  4:11 
+02. Журавли  5:04 
+03. Взгляд Во Тьме  3:08 
+04. Слёзы  3:42     Читать дальше...    Жанр: Ballad, Schlager, VocalПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:978428142F09E20AA6B5D94F7EE75030E56C1C0B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1487372.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 487 211
+
+Rosebud - Discoballs: A Tribute To Pink Floyd  1977  Collectors  Choice Music, 2008, Reissue [
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Have A Cigar  4:23 
+02. Free Four  3:35 
+03. Summer 68  3:59 
+04. Interstellar Overdrive  4:46     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F5306A485B100D7F07939D2898EDE3DBD3797F50
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1487211.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 487 201
+
+VA - ZYX Italo Disco Spacesynth Collection 7  2021  2CD, Compilation [MP3|320 Kbps] <Italo-Disco
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Cosmix - Space Trooper  5:43 
+02. Spacehawk - Time Travel  4:05 
+03. Digitalo - Golden Ten  Instrumental Spacesynth   4:51 
+04. Entropy - All The Stars  Extended Version   6:43     Читать дальше...    Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D011F69F3301754582012580A70626FF4D378A61
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1487201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 486 973
+
+Mtume  Prime Time - The Epic Anthology 2CD  2017  [FLAC|Lossless|tracks + .cue] <Soul, Funk, Dis
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. The After 6 Mix  Juicy Fruit Part II  Aka Juicy Fruit Part II  Reprise   03:16 
+02. You, Me And He  Polygamy Mix   05:57 
+03. Sweet For You And Me  Monogamy Mix   05:08 
+04. It s Non-Functional  01:59     Читать дальше...    Жанр: Soul, Funk, DiscoПродолжительность: 02:32:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7AD59C80690F1802703D253EECDAB9A767D05D98
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1486973.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 486 875
+
+VA - Best Acoustic Covers  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Shannon & Keast - Golden  03:29 
+02. Meg Birch - Break My Heart  03:34 
+03. Talisha Karrer - Hallelujah  04:26 
+04. Django Wallace - My Future  03:22     Читать дальше...    Жанр: PopПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0484091F1B91D868A65974779D48BF1130780CCF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1486875.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 486 823
+
+Новые Самоцветы - Вся жизнь впереди, надейся и жги!  2014  [FLAC|Lossless|WEB-DL|tracks] <Pop, R
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Intro  1:30 
+ 02. Вся жизнь впереди  3:36 
+ 03. Не повторяется такое никогда  3:49 
+ 04. В последний раз  2:58     Читать дальше...    Жанр: Pop, Retro-SchlagerПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4DA8886548003D7835F180A82F9B5DE6EDCB3862
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1486823.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 486 744
+
+Madonna - True Blue  2021  35th Anniversary Edition [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Papa Don t Preach [00:04:28]
+02 - Open Your Heart [00:04:13]
+03 - White Heat [00:04:40]
+04 - Live to Tell [00:05:51]    Читать дальше...    Жанр: PopПродолжительность: 01:37:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:417E1C0090B2A1958D4C14B5B2000C4F686BB0A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1486744.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 486 647
+
+VA - Girl Power  2021  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Billie Eilish, Khalid - lovely  3:20 
+02. Selena Gomez, Marshmello - Wolves  3:18 
+03. Ellie Goulding, Juice WRLD - Hate Me  3:06 
+04. Katy Perry - Roar  3:42     Читать дальше...    Жанр: PopПродолжительность: 02:12:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6E9446C00B8AEB361BB3FB4E3576C219AC3F196A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1486647.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 486 230
 
 VA - veLvETОвый движ  Vol. 1   2021  [MP3|320 Kbps] <Pop>
@@ -1745,256 +1995,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1476348.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 476 098
-
-Pastel Coast - Hovercraft  2019  [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Eau  2:09 
-02. Always  3:44 
-03. Aquarius  3:55 
-04. La Nuit  4:46     Читать дальше...    Жанр: Indie PopПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BF96B97A6B422F65605C8CDB3EA64F433F1D7F53
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1476098.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 476 096
-
-Pastel Coast - Sun  2021  [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Distance  4:13 
-02. Sunrise  2:54 
-03. Helios  4:15 
-04. Aller  2:55     Читать дальше...    Жанр: Indie PopПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:353E81D4AFC25C1AC3A688464DC7FD3FD893F9F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1476096.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 475 935
-
-VA - Щит и меч России-Песни горячего сердца  1999  [FLAC|Lossless|tracks + .cue]<Ретро>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. М. Бернес - С чего начинается Родина!
-02. М. Ножкин - Трудная работа
-03. П. Глубокий - Щит и меч России
-04. А. Моксяков - Песня о Дзержинском    Читать дальше...    Жанр: РетроПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:256184C26AD5DDDE026B856BD42C42E1C4902B0B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475935.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 475 703
-
-Michael Bolton - Gold  2019  3xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD - 1:
-01. How Am I Supposed To Live Without You  4:16 
-02. How Can We Be Lovers  3:56 
-03. When I m Back On My Feet Again  3:49     Читать дальше...    Жанр: Pop Rock, Soft RockПродолжительность: 03:14:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25EA1FDE087520C8E0EAD7E44272DD5140AB198D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475703.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 475 688
-
-VA - Mastermix DJ Edits 23  2021  [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Stevie Wonder - Sir Duke  DJ Edit 
-02. Shapeshifters - Lola s Theme  DJ Edit 
-03. Blue - One Love  DJ Edit 
-04. Psy - Gangnam Style  DJ Edit     Читать дальше...    Жанр: House, Dance, Dubstep, DiscoПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8A6AC017A7E16A28F191CB0624899203CE753AF6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475688.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 475 529
-
-Willie Colon - Y Vuelve Otra Vez!  One More Time   1995  [FLAC|Lossless|tracks + .cue] <Sals
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Me Pegue en la Loteria  4:56 
-02. No Me Fio  Huellas del Pasado   4:54 
-03. Cayo Condon  4:35 
-04. Buscando el Poder  4:51     Читать дальше...    Жанр: Salsa, Latin JazzПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:77F7C7EB5EC19C508DF59EC435A84969ACD1F9B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475529.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 475 251
-
-Najwa - AMA  2021  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Muñequita Linda
-02. Solamente Una Vez  con Israel Fernández 
-03. Esta tarde vi llover  feat. Rusowsky 
-04. Perfidia    Читать дальше...    Жанр: PopПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DE4C3270352C53C5915A5925354C38E39C42FBEF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475251.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 475 223
-
-Little Big - Covers  2021  EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rave>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Everybody  Little Big Are Back  [00:02:44]
-02. Blitzkrieg Bop [00:02:37]
-03. Barbie Girl [00:02:28]
-04. Koldunya [00:02:30]    Читать дальше...    Жанр: Pop RaveПродолжительность: 00:13:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:804E6FCC0C1EDE7B016FA334228D215296591356
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475223.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 475 214
-
-VA - Сборник 15-NP-Love Songs. Vol.1  1994  [FLAC|Lossless|tracks + .cue]<Рор>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Ad Libitum - Поздно уже...
-02. М. Катаева – Боль
-03. Д. Медведев – Осень
-04. Л. Сегида – Последний поцелуй    Читать дальше...    Жанр: РорПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D56C59346C3BCAF63E32741AA826CBF5BE33F7A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475214.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 475 158
-
-Anabel Englund - Messing With Magic  2021  Deluxe Edition [FLAC|LOSSLES-Web-DL] <Dance, Synth-po
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. So Hot  MK x Nightlapse Remix  [00:03:45]
-02. Float [00:03:32]
-03. Picture Us [00:02:37]
-04. Spell My Name [00:02:53]    Читать дальше...    Жанр: Dance, Synth-pop, Dance-popПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:77650AEC1A9704894B59DA37BE41D635F3E6ECC8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1475158.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

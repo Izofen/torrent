@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 550 150
+
+VA - ZYX Italo Disco Collection 1  2016  [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Cyber People - Polaris  Club Mix   6:32 
+02. Ken Laszlo - Hey Hey Guy  US Remix   5:47 
+03. Brian Ice - Tokyo  DJ Version   6:40 
+04. Hypnosis - Droid  Automatic Piano   5:10     Читать дальше...    Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 03:23:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FF4FA0FFAC0864779135DD55699ABF3FD5DEF275
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550150.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 898
+
+VA - SuperDisco 90 s Platinum Collection Two  2010  [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-D
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. DJ Dado & Light - X-Files Theme  Remix   3:16 
+02. Guru - Infinity  2:22 
+03. The Quartz - Struggle for Pleasure  4:35 
+04. Silicon - True Faith  Midi Mix   5:35     Читать дальше...    Жанр: Disco, Nu-Disco, Hi-NRGПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:79CF704709E34D27F53C256731501EC17E9E5899
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549898.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 893
+
+VA - SuperDisco 90 s Platinum Collection 1-2  2010  [MP3|320 Kbps] <Disco, Nu-Disco, Hi-NRG>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Cover Girls - What s Up  Remix   2:25 
+02. DJ Dado - Twin Peaks Theme  4:21 
+03. Les Oranges - Lemon Tree  3:29 
+04. La Notte & Monsters - Return to Innocence  3:54     Читать дальше...    Жанр: Disco, Nu-Disco, Hi-NRGПродолжительность: 02:24:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1ED70E107B8E117DC5D9670EB12C5B3B15298985
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549893.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 859
+
+Harmony Cats - 2 Albums  1977, 1978  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Harmony Cats - вокальный квинтет диско-музыки, образованный в Сан-Паулу  Бразилия  в 1976 году. Изначально было пять участниц: Сидинья  Мария Апаресида де Соуза , Рита  Рита Кфхури , Хуанита  Мария Елена Скрипка - участница знаменитого дуэта  Хуанита и Ричард  , Мария Амелия  Мария Амелия Коста Мансо  и Вивиан  Вивиан Коста Мансо .01. Let s Spend The Night Singin  Together  7:54 
+02. Som Sucesso  7:42 
+03. Singin  And Dreamin   8:08 
+04. Os Bons Tempos Voltaram  5:19     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:26:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0081571212F3EF2377ABE4B39A4A6A8F7A77B8BC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549859.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 685
+
+VA - SuperDisco 90 s Platinum Collection  2010  [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Cover Girls - What s Up  Remix   2:25 
+02. DJ Dado - Twin Peaks Theme  4:21 
+03. Les Oranges - Lemon Tree  3:29 
+04. La Notte & Monsters - Return to Innocence  3:54     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:98D0FEED2FBAEF0F46910FA43285E9FCBDCE3FA4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549685.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 679
+
+VA - Alexis Le-Tan & Jess Present Space Oddities  2008  [FLAC|Lossless|WEB-DL|tracks] <Disco, Sp
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Roland Bocquet - Exotique  2:32 
+02. Jean-Pierre Decerf & Gerard Zajd - Reaching the Infinite  3:23 
+03. Alan Shearer - Sons of the Snake  5:24 
+04. Phil Davies & Ch. Ried - Muscle and Heat  4:01     Читать дальше...    Жанр: Disco, Space-DiscoПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B3DD80C1C9EEAEA45A83F5BDE15BC549E348B8E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549679.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 676
+
+VA - Italo Disco Tracks Vol. 1  2005  [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Michael Bedford - More Than a Kiss  3:50 
+02. Joy Peters - Don t Lose Your Heart  3:07 
+03. Cliff Turner - Moonlight Affair  3:24 
+04. Chickeria - Le Freak  3:30     Читать дальше...    Жанр: Disco, Italo-DiscoПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C124D168E82C2F4B0556246C17C01BBF61E7075
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549676.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 343
+
+VA - ZYX Club 2020 1  2020  2CD, Compilation [MP3|320 Kbps] <Dance, House, Technopop>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Danny Avila - Beautiful Girls  2:42 
+02. Vize feat. Laniia - Stars  VIP Remix   2:36 
+03. Niels Van Gogh - Like a bullet  Radio Edit   2:51 
+04. Teddy Cream - Summer Jam  2:42     Читать дальше...    Жанр: Dance, House, TechnopopПродолжительность: 01:45:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4B179FC38C0319D83DF567C719E8624A73951598
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549343.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 330
+
+Pavel Panchenko - To the Stars  2017  [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco, Synthpop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. To the Stars  3:31 
+02. Respite  3:40 
+03. The Sign  3:53 
+04. Project X  3:13     Читать дальше...    Жанр: Disco, Nu-Disco, SynthpopПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:92F64BA264E01B9CA1C0FA7DB60BAE3FA59404DC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549330.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 323
+
+The Hurricanes - Tropical Nights  1988  [MP3|320 Kbps] <Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Only One Nights  5:52 
+02. Tribal Stomp  5:54 
+03. Horse In Fire  5:01 
+04. Dancin  In The Night  5:04     Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:14:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E7050F2B8345123ECAFD154A9A6935D934F8552
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549323.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 549 310
 
 O.C.A - Ночной дожор  2019  [MP3|320 Kbps] <Pop>
@@ -1740,256 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543336.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 327
-
-VA - Вечеринка Ретро FM  2004  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Здравствуй, песня - Синяя песня
-02. Gloria Gaynor - I will survive
-03. Лейся, песня - Обручальное кольцо
-04. Валерий Леонтьев - Полет на дельтаплане    Читать дальше...    Жанр: PopПродолжительность: 01:04:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0ADE2D81040D4332AA70FD46EFD57A09F0BFB84C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543327.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 181
-
-VA - The Best of Dance 80  2015  [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Pop>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Valerie Dore - The Night  4:06 
-02. Tony Esposito - Kalimba De Luna  3:47 
-03. Bobby Farrell - Rasputin  4:50 
-04. Sendy Marton - People from Ibiza  5:07     Читать дальше...    Жанр: Dance, Disco, PopПродолжительность: 01:24:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B53CA357469A6315183E33316D72EEE19C7A152A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543181.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 881
-
-Patty Ryan - Golden Disco Hits  2001  [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-###  Подробнее
-
-01. You re My Love, You re My Life
-02. I Don t Wanna Lose You Tonight
-03. Love Is The Name Of The Game
-04. Love Emotion    Читать дальше...    Жанр: Euro-DiscoПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6175A5487D665057AC8A6F9CBF36F6E691B2F1E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542881.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 877
-
-Мираж - Мираж версия 2000  1999  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Ты словно тень
-02. Музыка нас связала
-03. Я снова вижу тебя
-04. Звёзды нас ждут    Читать дальше...    Жанр: PopПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2396E0862E28958B53A2221BD3C4B0DC276F210B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542877.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 869
-
-Сергей Минаев - Радио Абракадабра  1987  Unofficial Release, 2015, Anima Vox [FLAC|Lossless|trac
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-Сторона A:
-01. Вступление
-02. Кто стучится на мой  Хаус ?
-03. Мини-макси    Читать дальше...    Жанр: Pop, ParodyПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A0446FBCE4EAC727CDFC394D64C2AC7848ACC737
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542869.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 670
-
-SEVENROSE - Чёрная смородина  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Чёрная смородина  3:52 
-02. Моя звезда  4:20 
-03. Проводи домой  4:11 
-04. Ты оглянись  3:56     Читать дальше...    Жанр: PopПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2940A3F57FE94B9FD467388A773AB96524B8D622
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542670.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 465
-
-ABBA - Golden Disco Hits  2001  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. The Day Before You Came
-02. Take A Chance On Me
-03. Money, Money, Money
-04. The Piper    Читать дальше...    Жанр: PopПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:89F1089809F92CFE1B35A3B29C67B9E2F0FC9347
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542465.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 462
-
-Дилижанс - Лучшие Песни  2003  [FLAC|Lossless|tracks + .cue] <Pop, Folk>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Свадебная
-02. Тёща
-03. Цыганочка с выходом
-04. Хочу мужа я    Читать дальше...    Жанр: Pop, FolkПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A3002E2188F3B10DA06169C2C4CDEF1F7D989B9E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542462.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 458
-
-Комбинация - Легендарные Песни  2004  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. American Boy
-02. Белый вечер
-03. Russian Girls
-04. Два кусочека колбаски    Читать дальше...    Жанр: PopПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5910DA53346C41CFA2417B8E6BD98C953FBB219F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542458.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 455
-
-Игорь Саруханов - Grand Collection  2002  [FLAC|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Маскарад
-02. Слово в слово
-03. Позади крутой поворот
-04. Вчерашний день    Читать дальше...    Жанр: PopПродолжительность: 01:17:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:03D62277FB2C1AF0D7DFF167AD99BA0D209105B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542455.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

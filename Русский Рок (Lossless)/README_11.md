@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 610 612
+
+Территория Отчуждения - 5 Albums  2017-2023  [MP3|320 Kbps] <Alternative Rock, Punk Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+2017 - Брать живьём!
+2019 - Противостояние
+2021 - Задолбали    Читать дальше...    Жанр: Alternative Rock, Punk RockПродолжительность: 5 CD, 02:29:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06D2DF7C299A7955B2CE84D4B2D7D84C0223BD48
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1610612.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 610 360
+
+Fox River - 2 Albums  2018-2023  [MP3|320 Kbps] <Progressive Metal, Progressive Metalcore>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Один знакомый ориентир [00:03:11]
+02. Пленник пустоты [00:03:58]
+03. Горизонт [00:03:16]
+04. Один из них [00:03:38]    Читать дальше...    Жанр: Progressive Metal, Progressive MetalcoreПродолжительность: 2 CD, 01:04:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E70AE63883A7F3B5ED807963EBC5CDBC9D4D727A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1610360.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 610 353
+
+Дурная Кровь - 2 Albums  2020-2023  [MP3|320 Kbps] <Horror Punk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Наш герой [00:03:36]
+02. Вот вам! [00:02:56]
+03. Рачьё на миду [00:02:38]
+04. Раб своей жажды [00:02:24]    Читать дальше...    Жанр: Horror PunkПродолжительность: 2 CD, 00:46:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E9999C6942A0842659A8279C6C1770A50870D0F7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1610353.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 610 340
+
+Терней - Встречь Солнцу  2023  [MP3|320 Kbps] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Рудная пристань [00:03:39]
+02 - Шторм [00:03:06]
+03 - Перегонщики Алсиба [00:04:04]
+04 - Единка [00:03:18]    Читать дальше...    Жанр: Hard RockПродолжительность: 00:27:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2424E6D79F5DA2945D29FA710061C90B5F27DD3E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1610340.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 609 844
+
+Razörschrieck  Razorschrieck  - 3 Albums  2013-2023  [MP3|320 Kbps] <Death Doom Metal,  Depr
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+2013 - Descensus
+2021 - Tragedies
+2023 - Black MagickЖанр: Death Doom Metal,  Depressive Black MetalПродолжительность: 3 CD, 02:08:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1E7D210ED93AC92D5FEBABDAFEBE5A648F379480
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1609844.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 609 759
 
 Рано - Коллекция Разбитых Ламп  2023  [MP3|320 Kbps] <Post-Punk, New-Wave>
@@ -1865,131 +1990,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600378.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 600 168
-
-Xenoform - Zombietown  2022  [MP3|320 Kbps] <Alternative Rock, Space Rock, Electronic>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Dance of Death [00:05:23]
-02 - Chasing Monsters [00:03:36]
-03 - Black [00:06:06]
-04 - Destroy Me [00:03:14]    Читать дальше...    Жанр: Alternative Rock, Space Rock, ElectronicПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F53410952D2680C4C6541E6D162A3C387F36E601
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600168.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 600 160
-
-FRAGILE ART - The World You Wanted  2020  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - City of Dreams [00:04:27]
-02 - Show Me Your Gods [00:03:52]
-03 - Heavens Dead [00:03:33]
-04 - World You Wanted [00:05:07]    Читать дальше...    Жанр: RockПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9D5618778D8ED7D20FDCB66D3471E3812C9E2BFF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1600160.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 707
-
-Неоткрытая Авоська - 1 Album, 2 Singles  2022  [MP3|320 Kbps] <Punk-Rock, Ska>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-2022 - Дальневосточная  Неоткрытая Авоська feat. Голос Омерики   Single 
-2022 - Морж роман  Single 
-2022 - Панк-кабареЖанр: Punk-Rock, SkaПродолжительность: 3 CD, 00:41:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:65E08E8452289E8A10F35B73DCEBF59E64ED2389
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599707.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 692
-
-CREATOR S - Состояние  2022  [MP3|320 Kbps] <Metalcore, Electronic>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Тень  Глава первая  [00:03:48]
-02 - Темной тропой  Глава первая  [00:01:08]
-03 - Вера  Глава первая  [00:04:15]
-04 - Пропасть  Глава вторая  [00:04:19]    Читать дальше...    Жанр: Metalcore, ElectronicПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FD7BD34497A3EF4349533732A6E1787CDE6BA255
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599692.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 599 361
-
-Cabernet Deneuve - Смерти нет  2022  [MP3|320 Kbps] <Ska>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Супермодели
-2. Поделить планету
-3. Все говорят
-4. Про капитанов и пилотов    Читать дальше...    Жанр: SkaПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A7890C7F2BC9175D6114CB69D8F4EFF70BD2550C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1599361.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

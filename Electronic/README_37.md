@@ -1,4 +1,1053 @@
 ﻿
+###  Публикация: 1 552 203
+
+Aural Haze - The Wanderer  2019  [MP3|320 Kbps] <Synthwave, Retrowave, Sci-Fi>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. The Wanderer  5:10 
+02. Confused A.I.  2:30 
+03. She-Wired  3:58 
+04. Commander Wozy  2:53     Читать дальше...    Жанр: Synthwave, Retrowave, Sci-FiПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C73F304C40824253059B35DFAB37050DFD239B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1552203.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 552 201
+
+Angelo Taylor - The Best of Angelo 2008  2008  [MP3|320 Kbps] <Synthpop, Space, Ambient>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. Шамбала, Ч. 2  5:25 
+02. Вояджер, Ч. 2  2:55 
+03. Когда я один, я скучаю по тебе  Remix   3:10 
+04. Одинокий ангел  4:26     Читать дальше...    Жанр: Synthpop, Space, AmbientПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:72098179205D3242662F7E0769235E0D9FDF8882
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1552201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 552 199
+
+Angelo Taylor - Alone in the Universe  2006  [MP3|320 Kbps] <Synthpop, Space, Ambient>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. Планетарная система  3:22 
+02. Когда я один, я скучаю по тебе  3:07 
+03. Инопланетный конвой  2:12 
+04. Армада  3:13     Читать дальше...    Жанр: Synthpop, Space, AmbientПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B338AF99DD2883C002FB77F4A5F8A56B1C23DA9B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1552199.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 982
+
+Alan Morris - Made Of Light  The Best Of   2022  [FLAC|Lossless|WEB|tracks] <Trance, Uplifti
+Electronic
+Trance  Lossless 
+
+###  Подробнее
+
+01. Alan Morris feat. Jess Morgan - Made Of Light  Radio Edit   4:08 
+02. Ana Criado & Alan Morris - Border Line  Radio Edit   3:14 
+03. Alan Morris & Katty Heath - Captive Of Your Heart  Original Mix   3:40 
+04. Alan Morris & Ellie Lawson - Find Myself In Losing You  Radio Edit   3:54     Читать дальше...    Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:32:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:829F25ADD56B93269A9951CD69A6AD7A6223367D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551982.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 947
+
+Alan Morris - Made Of Light - The Best Of  2022  [MP3|320 Kbps] <Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Alan Morris feat. Jess Morgan - Made Of Light  Radio Edit   4:08 
+02. Ana Criado & Alan Morris - Border Line  Radio Edit   3:14 
+03. Alan Morris & Katty Heath - Captive Of Your Heart  Original Mix   3:40 
+04. Alan Morris & Ellie Lawson - Find Myself In Losing You  Radio Edit   3:54     Читать дальше...    Жанр: TranceПродолжительность: 02:32:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:807F30BC62E02F8D7C4C35574403D45F43EE6BA9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551947.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 743
+
+VA - Black Hole Trance Music 05-22  2022  [MP3|320 Kbps] <Trance, Uplifting Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Andy Moor & Somna ft Natalie Major - Born to Run  Extended Mix  [05:34]
+02. Eddie Murray - Jagged Edge  Extended Mix  [06:56]
+03. Dennis Sheperd & DR. DRTY - Afterlife  Extended Mix  [06:02]
+04. Kolonie - Tenebris  Extended Mix  [06:41]    Читать дальше...    Жанр: Trance, Uplifting TranceПродолжительность: 02:51:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF4DEDC88C5D27BDB39245FE72C937ACDA79730A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551743.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 728
+
+VA - Let s Keep The Trance Alive - Episode 001  2022  [MP3|320 Kbps] <Uplifting Trance , Emoti
+Electronic
+Trance
+
+###  Подробнее
+
+01. SounEmot & Grande Piano - Ephemeral Love  Intro Mix   5:45 
+02. SounEmot - Cuando Un Hombre Se Enamora  Original Mix   9:32 
+03. Iberian - Become Aware  Original Mix   8:10 
+04. SounEmot - Quiere Verte Siempre Sonreir  Extended Mix   11:46     Читать дальше...    Жанр: Uplifting Trance , Emotional TranceПродолжительность: 01:33:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8A76105316617F8381CC0D1AA91E9D6199E32401
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551728.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 671
+
+VA - Global Trance 2022 [MP3|320 Kbps] <Uplifting Trance>
+Electronic
+Trance
+
+###  Подробнее
+
+01. Armin van Buuren & Sam Gray - Human Touch  Extended Club Mix   4:13 
+02. Adam Scott - Crank  Extended Mix   4:41 
+03. Fergie - Phenomenon  Extended Mix   6:13 
+04. Zitro & Matt Weiss - Without Me  Extended Mix   5:44     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 04:03:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0C282851F5C8F47294033D45D9CD4DE5112FFDDD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551671.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 504
+
+Geovarius - Imaginarium  2022  [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave, 80s>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01 - Imaginarium, Pt. 1  00:05:22 
+02 - Imaginarium, Pt. 2  00:04:23 
+03 - Imaginarium, Pt. 3  00:04:16 
+04 - Imaginarium, Pt. 4  00:04:35     Читать дальше...    Жанр: Retrowave, Synthwave, 80sПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D1810ED241934BC05159BD9E5068E57EE1B294B1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551504.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 495
+
+VA - Uncharted Vol. 24  Compiled By Koen   2022  [FLAC|Lossless|WEB|tracks] <Psy-Trance>
+Electronic
+Psychedelic, psytrance, fullon  Lossless 
+
+###  Подробнее
+
+01. Ananda  AUT  - Mandalia  Original Mix   7:40 
+02. Tony Wibe - Babylon  Original Mix   8:08 
+03. Cortex - 1000 Details  Original Mix   6:24 
+04. Lexxus  DE  & Psiger - Artificial Gravity  Original Mix   7:43     Читать дальше...    Жанр: Psy-TranceПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3240D71A9A0DFAD183198D30D1CD17D2EEBBEFCE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551495.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 491
+
+VA - Hospital Mixtape - Lens  2022  [FLAC|Lossless|WEB|tracks] <Drum & Bass>
+Electronic
+Drum n Bass, Jungle, Breaks, Breakbeat  Lossless 
+
+###  Подробнее
+
+01. Watch the Ride - READY4DEM  4:22 
+02. Lally - Love The Way  3:51 
+03. Nectax - Babylon Get Weak  4:12 
+04. Camo & Krooked - Loa  3:58     Читать дальше...    Жанр: Drum & BassПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B07FD5281B72D36B6FDBAA1770E13CD65F45E6A7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551491.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 490
+
+Under Break - The Experience  2022  [FLAC|Lossless|WEB|tracks] <Breaks>
+Electronic
+Drum n Bass, Jungle, Breaks, Breakbeat  Lossless 
+
+###  Подробнее
+
+01. Pressure  5:08 
+02. Acid Main  5:09 
+03. Ready On Beat  4:37 
+04. October  5:43     Читать дальше...    Жанр: BreaksПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0244789097A810BE7B46CA3ECD6AEFA576B23A18
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551490.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 387
+
+Alien Skin - Put Your Lips On My Lips  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01 - Kiss. Kiss, Kiss  00:04:06 
+02 - Cleopatra  I Don t Love You   00:04:07 
+03 - Formed by Your Hands  00:04:15 
+04 - This Happy Life  00:03:58     Читать дальше...    Жанр: SynthpopПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5D05729243C37ED19A29CA95B84B73DA1B66628B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551387.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 186
+
+Fatboy Slim - The Strass Hotel Hauptstrasse  Snowbombing   2022-04-07  [MP3|320 Kbps] <Elect
+Electronic
+Radioshow, Live Mixes
+
+###  Подробнее
+
+01. Queen - Don t Stop Me Now  Acappella 
+02. Riva Starr & Fatboy Slim ft. Beardyman - Eat Sleep Rave Repeat  Calvin Harris Remix  w Wildchild - Renegade Master  Fatboy Slim Old Skool Mix  w Masked Wolf - Astronaut In The Ocean  Acappella  w Incredible Bongo Band - Apache w Wild Cherry - Play That Funky Music  Gordo Remix  w ID - ID
+03. Maurizio Gubellini &     Читать дальше...    Жанр: Electro House, Tech HouseПродолжительность: 01:30:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C7C0DEF8F3A84C9A4C196A981DADE91EF8194B3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551186.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 551 165
+
+Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix  2022-05-12  [MP3|320 Kbps] <Big Room>
+Electronic
+Radioshow, Live Mixes
+
+###  Подробнее
+
+01. Dimitri Vegas & Like Mike & Azteck & Hayley May - Heaven
+02. Dimitri Vegas & Like Mike vs. Sander van Doorn - Project T
+03. Dimitri Vegas & Like Mike - Chattahoochee  Tomorrowland 2013 Anthem 
+04. Dimitri Vegas & Like Mike & Wolfpack - Ocarina  TomorrowWorld Anthem   Bassjackers Remix     Читать дальше...    Жанр: Big RoomПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD2C0BCEBE5DA61E26BFB4A850BD627B474F0B62
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1551165.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 991
+
+The Crystal Method - The Trip Out  2022  [FLAC|Lossless|WEB|tracks] <Breakbeat, Big Beat>
+Electronic
+Drum n Bass, Jungle, Breaks, Breakbeat  Lossless 
+
+###  Подробнее
+
+01. The Crystal Method & Koda & Vaaal - Watch Me Now  3:21 
+02. The Crystal Method & Naz Tokio - House Broken  4:20 
+03. The Crystal Method & King Green - Let s Trip Out  5:33 
+04. The Crystal Method & Wenzday - Chemical Mentalist  2:59     Читать дальше...    Жанр: Breakbeat, Big BeatПродолжительность: 00:31:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:13C216C9B30F5BF8D797893F14AB0A44180436B8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550991.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 938
+
+VA - World Of Psytrance 9  Compiled By Ovnimoon   2022  [FLAC|Lossless|WEB|tracks] <Psy-Tran
+Electronic
+Psychedelic, psytrance, fullon  Lossless 
+
+###  Подробнее
+
+01. El Zisco - Extrakt  Original Mix   7:18 
+02. Vuchur - Electromagnetic Spectrum  Original Mix   7:53 
+03. Ovnimoon & Vuchur - Cosmical  Original Mix   8:23 
+04. Ascent & Sound Control - Power Of The Mind  Original Mix   8:22     Читать дальше...    Жанр: Psy-TranceПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:37B98CD421B5FCDBA33102F9B7F95D8DD92DC768
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550938.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 924
+
+Asia 2001 - Eternal  2022  [FLAC|Lossless|WEB|tracks] <Goa Trance>
+Electronic
+Psychedelic, psytrance, fullon  Lossless 
+
+###  Подробнее
+
+01. Doing This  Club Mix   6:15 
+02. No One  Club Mix   6:10 
+03. Stand By  Club Mix   6:03 
+04. Sound Addiction  Club Mix   5:58     Читать дальше...    Жанр: Goa TranceПродолжительность: 01:12:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:88EDE99F1C948862548FD6911C46FB57D7C28878
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550924.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 916
+
+Sinister Souls - FCKN Hostile  2019  [MP3|320 Kbps] <Drum & Bass, Neurofunk, Crossbreed>
+Electronic
+Drum n Bass, Jungle, Breaks, Breakbeat  Lossless 
+
+###  Подробнее
+
+01. FCKN Hostile  4:34 
+02. Kick Snare  4:10 
+03. Fantasia  Feat. Gancher & Ruin   5:52 
+04. Twilight Zone  Feat. Maztek   4:13     Читать дальше...    Жанр: Drum & Bass, Neurofunk, CrossbreedПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0DB05C6FD8528C8B45FD37AD73D1F7208F64390
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550916.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 914
+
+VA - Produced By Klubbheads Vol. 1  2022  [MP3|320 Kbps] <Club House>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Da Klubb Kings - Crank This Mutha  5:27 
+02. DJ Disco  NL  - Stamp Your Feet  Extended Mix   5:43 
+03. Cab  N  Crew - Kerosine Power  5:42 
+04. The Tone Selector - Russian Roulette  Extended Bullet Mix   7:39     Читать дальше...    Жанр: Club HouseПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FAF785B1B9EE6C7AF818B0A0EF0D0B71DB6C535E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550914.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 911
+
+Klubbheads - Bamboo Sessions: The Ultimate Collection  2022  [MP3|320 Kbps] <Pumping House>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+###  Подробнее
+
+01. Countdown  1:34 
+02. Bamboo Invasion  4:42 
+03. Klubbslang  6:34 
+04. Just For Fun  5:23     Читать дальше...    Жанр: Pumping HouseПродолжительность: 01:39:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE541DE5C22821500AB0DED4527CE7D97877326D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550911.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 907
+
+Sonic Mine - Show Must Go On  2017  [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
+Electronic
+House, Techno, Electro, Minimal  Lossless 
+
+###  Подробнее
+
+01. Queen Of The Night  4:10 
+02. Let s Get Ridiculous  4:23 
+03. R U Ready 4 The Boom  4:38 
+04. Raise Your Hands  3:07     Читать дальше...    Жанр: Pumping House , Hard BassПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA12967172F80B727F99B5148DC3AB6E60E7040C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550907.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 891
+
+Schiller - Epic  2021  [FLAC|Lossless|tracks + .cue] <Chillout, Downtempo, Ambient>
+Electronic
+Downtempo, Trip-Hop, Lounge  Lossless 
+
+###  Подробнее
+
+01. Willkommen  0:34 
+02. Do you see the Light?  6:12 
+03. The Endless  5:47 
+04. Midnight in Shiraz  3:52     Читать дальше...    Жанр: Chillout, Downtempo, AmbientПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:07FFAA615501E2E9FE840594D31CEFF14BD1E6D8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550891.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 880
+
+Colombo - The Antological Big Beat  2021  [FLAC|Lossless|WEB|tracks] <Big Beat, Breakbeat>
+Electronic
+Drum n Bass, Jungle, Breaks, Breakbeat  Lossless 
+
+###  Подробнее
+
+01. Combustion  Original Mix   5:29 
+02. Contact  Original Mix   3:53 
+03. Poisen  Original Mix   5:17 
+04. Horny Bass  Original Mix   4:18     Читать дальше...    Жанр: Big Beat, BreakbeatПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA0CA5FEBEF3BD533B10AE55FB1874F09AF41B76
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550880.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 872
+
+Noisia - Closer  2022  [FLAC|Lossless|WEB|tracks] <Drum & Bass, Neurofunk>
+Electronic
+Drum n Bass, Jungle, Breaks, Breakbeat  Lossless 
+
+###  Подробнее
+
+01. Noisia - Three  Intro   0:55 
+02. Noisia, Camo & Krooked - Nova  4:36 
+03. Noisia, The Upbeats - Shibuya Pet Store  4:50 
+04. Noisia, IMANU - Shift  4:19     Читать дальше...    Жанр: Drum & Bass, NeurofunkПродолжительность: 01:19:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BEDCC24CF6D4B8FEE983EDFAFF4230E7F7A0DF88
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550872.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 871
+
+Alternate High - Emotional Music on VERSE  2022  [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
+Electronic
+Trance  Lossless 
+
+###  Подробнее
+
+01. Alternate High - Strings of Destiny  Emotional Mix   8:52 
+02. Alternate High - Far Away  Original Mix   7:49 
+03. Alternate High - On My Mind  Original Mix   8:50 
+04. Alternate High - Strings of Destiny  Original Mix   8:33     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 01:46:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F783682AE8CE818DB324DC57B1C2C0C226084146
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550871.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 805
+
+VA - Synthwave Dreams, Vol. 25  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - Komarov  4:17 
+02. samm-n11 - Deep Rest  2:31 
+03. Miows - Retrigger  2:48 
+04. Alexander Gepindiker - French Speaker  5:56     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B21B722FC9B848C49BBE4D8CE922AEC3611F2DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550805.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 802
+
+VA - Synthwave Dreams, Vol. 24  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. Born in  82 - Resisted  4:03 
+02. Ildar Bik - Racer  5:22 
+03. A-Reis - Meteor  3:45 
+04. Fraver & Born in  82 - Void in Space  Born in  82 l amour Remix   5:15     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:26C72C02B418F534C440BB20C6CF0356F07B1C19
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550802.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 800
+
+VA - Synthwave Dreams, Vol. 23  2021  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. Ivan Starzev - Up Tonight  Microsha 89 Remix   4:05 
+02. Rinak - Evolution  TELEGIMNASTIKA Remix   5:06 
+03. Born in  82 - Summer Rays  4:25 
+04. Ionov - Break My Heart  TELEGIMNASTIKA Remix   3:28     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7471A4CC382611CB9519F59D900DB78AD6A80313
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550800.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 799
+
+VA - Synthwave Dreams, Vol. 22  2021  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. Ionov - Break My Heart  3:00 
+02. VsrtWuto - Shuto Nightshift  6:25 
+03. CJ Cyclone - Electronic Body  3:16 
+04. Bloume - Light  4:28     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:584C843B3804328229C697F605FEC1AB30E7AF36
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550799.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 798
+
+VA - Synthwave Dreams, Vol. 21  2021  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. VsrtWuto - Late Night Cruise  3:30 
+02. Unfancy D - Rain  La-la-la   4:20 
+03. Akira - Out The Fire  3:16 
+04. Born in  82 - Evolution  5:34     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:286E51614FF944F86A42FE3EE84E4C5148E54192
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550798.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 795
+
+VA - Synthwave Dreams, Vol. 20  2021  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. NINJACAT & VHS STORE - Pink Sky  2:55 
+02. Born in  82 - Night Road To The Airport  6:01 
+03. Bogdan Bondar & MVG - Sprinkles  3:45 
+04. Dwextrom - Fallen Lord  4:21     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D20469C95941146042DD422ADA7AC9286CF536E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550795.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 793
+
+VA - Synthwave Dreams, Vol. 19  2021  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. Born in  82 - Platov Airport  5:30 
+02. Rapaik - Disguise Self  5:52 
+03. Ella Mordo - No Love  86  mfpalm Remix   2:55 
+04. Atakta - Giving Up The Ghost  4:41     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:989B60C80347EDEC7EE43ACE859C88BDA6B59646
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550793.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 790
+
+VA - Synthwave Dreams, Vol. 18  2021  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. Unfancy D - Teslagirl  5:12 
+02. Fraver & Born in  82 - Void In Space  4:40 
+03. Enium - Nostalgia  Let s Do The Night   7:06 
+04. Shtanze - Retropunk  4:31     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:153C0D421DE5E938ACBF9743F7AD12574876A3CB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550790.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 789
+
+VA - Synthwave Dreams, Vol. 17  2021  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - Perlo  7:05 
+02. Born in  82 - I Want To Go Far Away  3:58 
+03. Microsha 89 & Twinhead Pony - Endless  3:42 
+04. Enium - Feel Life  6:33     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 01:08:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4F60D68BBC79B639BCE3B7DCF2093CF766B3A870
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550789.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 787
+
+Desire - Escape  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Dream Pop, Italo-Disco>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. Black Latex  4:41 
+ 02. Telling Me Lies  4:08 
+ 03. Liquid Dreams  3:16 
+ 04. Love Is A Crime  Feat. Mirage   3:27     Читать дальше...    Жанр: Synthpop, Dream Pop, Italo-DiscoПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9CF6FF7BA0977686CD0B9285A8B971D011249A96
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550787.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 753
+
+VA - Synth Pop Hits  2020  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. Porter Robinson - Sad Machine  5:51 
+02. Kavinsky - Nightcall  4:18 
+03. Nero - Into The Night  Nero 1988 Remix   3:46 
+04. The Human League - Don t You Want Me  3:57     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 02:12:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B0BFCF27CF57080AABAB7C5848E9D35BE84A6B7B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550753.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 752
+
+VA - Synth Pop Hits  2020  [MP3|320 Kbps] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01. Porter Robinson - Sad Machine  5:51 
+02. Kavinsky - Nightcall  4:18 
+03. Nero - Into The Night  Nero 1988 Remix   3:46 
+04. The Human League - Don t You Want Me  3:57     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 02:12:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7CC3FA120789490ED9BC2A3DD0DE3195AE506B2C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550752.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 447
+
+VA - Synth City Compilation, Vol. 1  2019  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Electronic
+Synthpop, New Wave  Lossless 
+
+###  Подробнее
+
+01. System96 - Conjure  3:04 
+02. Let Em Riot - Collection  3:07 
+03. Starfarer - Spaceport  4:20 
+04. Lucy In Disguise - Odyssey  3:58     Читать дальше...    Жанр: Synthpop, SynthwaveПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F067510BC328113454269CED2385ADF0E99C666
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550447.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 442
+
+VA - Running Magic 90s Comeback Hits  2020  [FLAC|Lossless|WEB-DL|tracks] <Funky, House, Dance>
+Electronic
+House, Techno, Electro, Minimal  Lossless 
+
+###  Подробнее
+
+01. Unlimited Friends - 90s Never End  Project X Remix   4:03 
+02. B.G. The Prince Of Rap - No Limits  Real Thing Euro Remix   3:31 
+03. Linda Rocco, Chrizz Morisson & Andy Stead - Take Me to the River  Bmonde Euro Remix   3:50 
+04. JockeyBoys & Nance - Higher  Radio Mix   2:53     Читать дальше...    Жанр: Funky, House, DanceПродолжительность: 02:38:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:371A187C7D4C3133AAD6865D9E7D6E78E155C0B3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550442.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 550 362
+
+Aviators - Modern Mythology  2022  [MP3|320 Kbps] <Synthpop, Fantasy Rock>
+Electronic
+Synthpop, New Wave (Lossless)
+
+###  Подробнее
+
+01 - 21st Century Monster [00:05:13]
+02 - We Rise [00:06:04]
+03 - My Church [00:05:15]
+04 - Falling Stars [00:06:36]    Читать дальше...    Жанр: Synthpop, Fantasy RockПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1AC52E2AE08A0C44674675D9D93A0781652FCFC5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1550362.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 549 901
+
+Enrico Sangiuliano - Live @ Awakenings Festival Easter Edition  2022-04-15  [MP3|320 Kbps] <Tech
+Electronic
+Radioshow, Live Mixes
+
+###  Подробнее
+
+01. Mattia Saviolo - Twilight Of The Idols
+02. Psyk - First Trail
+03. Wlderz - Algo
+04. Alex Lentini & Stomp Boxx - ID    Читать дальше...    Жанр: TechnoПродолжительность: 01:43:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9D9BFD9E240F9087DADF84F3F36D625355B5DADB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1549901.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 549 795
 
 VA - Progressive House 100 - The Ultimate Selection  2022  [MP3|320 Kbps] <Progressive House>
@@ -940,1050 +1989,6 @@ Trance
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545426.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 545 375
-
-VA - Global Underground: Select #7  2022  2CD [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive Ho
-Electronic
-House, Techno, Electro, Minimal  Lossless 
-
-###  Подробнее
-
-01. Ohm - Skagerak  3:31 
-02. Ueberdisco - Ue V2.1  Steve Bug Remix   5:45 
-03. Sikora - Freedom  Breitenstein Remix   5:01 
-04. Kenan Savrun - Penumbra  2:36     Читать дальше...    Жанр: Deep Progressive House, Tech House |Продолжительность: 01:16:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9CA24EFC53A3238345E5C0FF59F67B0F3C3F8BFA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545375.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 545 354
-
-WineSmoke - DreamPop  2021  [MP3|320 Kbps] <Synthpop, Electropop>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Прости нас, Юра
-02. Когда хочу, тогда и дура
-03. Разберись уже с этим
-04. Помолчи со мной о чём-нибудь    Читать дальше...    Жанр: Synthpop, ElectropopПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59B3525C3490A7D6061CF22270F38EC762244D2F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545354.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 545 313
-
-Давид Тухманов, Электроклуб - Тёмная лошадка  2007  [FLAC|Lossless|tracks + .cue] <Synth-pop, Ne
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Нервы, нервы...
-02. Воздушные замки
-03. Чистые пруды
-04. Но всё-таки лето    Читать дальше...    Жанр: Synth-pop, New WaveПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3046DE19CDD31FBF46E66E529DA86D0C588900C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545313.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 545 000
-
-Compilerbau - Discography  2000-2022  [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outru
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Human Sequencer 83  3:46 Жанр: Synthwave, Retrowave, Outrun |Продолжительность: 12:50:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36F39A1C347878DC1439746D85089C5FD89A0217
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1545000.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 966
-
-Hocico - HyperViolent  2022  2CD [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, Electro, Industria
-Electronic
-Industrial, EBM, Dark Electro  Lossless 
-
-###  Подробнее
-
-01. When the Trumpets of Hate Blow
-02. Broken Empires  Radio Version 
-03. Acts of Aggression
-04. Un Sepulcro Sin Cadaver    Читать дальше...    Жанр: Dark Electro, Electro, IndustrialПродолжительность: 01:25:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A579CAF18AC44F788631C830C2DD9ED871192B25
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544966.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 947
-
-Swedish House Mafia - Paradise Again  2022  [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, E
-Electronic
-House, Techno, Electro, Minimal  Lossless 
-
-###  Подробнее
-
-01. Time  feat. Mapei   04:41 
-02. Heaven Takes You Home  feat. Connie Constance   03:34 
-03. Jacob s Note  feat. Jacob Muhlrad   01:04 
-04. Moth to a Flame  feat. The Weeknd   03:54     Читать дальше...    Жанр: EDM, Electro House, Euro House, BasslineПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4A66DA5DE1B5926F236DF38E9D081834A025CB92
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544947.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 936
-
-VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtemp
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-01. Gary B - Move  03:34 
-02. Martin Hiska - Shangla  03:40 
-03. Michael E - Lost In Thought  05:18 
-04. Beamy - Elmwood  04:37     Читать дальше...    Жанр: Balearic, DowntempoПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3DC737B4501B86FB899C881FA2560FC4A603702A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544936.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 920
-
-Death Loves Veronica - Lucid Dreams  2020  [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Indu
-Electronic
-Industrial, EBM, Dark Electro  Lossless 
-
-###  Подробнее
-
-01 - I Came Here for You  00:04:38 
-02 - Stay  00:03:36 
-03 - Alone  00:03:37 
-04 - Blood King  00:02:37     Читать дальше...    Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:807EFAB68C60E81232D004D49435F0E568E844D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544920.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 797
-
-Swedish House Mafia - Paradise Again  2022  [MP3|320 Kbps] <Bass House, Disco House, French Hous
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. Swedish House Mafia feat. Mapei - Time  Co-Prod. by Enzo Ingrosso 
-02. Swedish House Mafia & Connie Constance - Heaven Takes You Home  Co-Prod. by Klahr 
-03. Swedish House Mafia feat. Jacob Mühlrad - Jacob s Note
-04. Swedish House Mafia & The Weeknd - Moth To A Flame    Читать дальше...    Жанр: Bass House, Disco House, French HouseПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A4E4B115E0644D7534A52C7C21AAA42F8C2DF0AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544797.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 651
-
-Moby - Animal Rights  1996  2022, Expanded Edition, Mute Records [FLAC|Lossless|WEB-DL|tracks] <
-Electronic
-House, Techno, Electro, Minimal  Lossless 
-
-###  Подробнее
-
-01. Now I Let It Go [00:02:08]
-02. Come on Baby [00:04:40]
-03. Someone to Love [00:02:51]
-04. Heavy Flow [00:01:53]    Читать дальше...    Жанр: Alternative Rock, Electronic, AmbientПродолжительность: 01:43:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C0410B18F5FDC014EF04901CA3FA00B214DD5EE2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544651.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 501
-
-Paris France Transit - Paris France Transit  1982  Unofficial Release, 1996, Quick Quench Music
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Paris France
-02. A Crime In Your Town
-03. Voices Of Jupiter
-04. Paintings    Читать дальше...    Жанр: Synth-pop, Pop Rock, DiscoПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2D743AB196FCB4EE1CC802A6C55BA07694FBE7C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544501.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 476
-
-Space - Just Blue  1978  Unofficial Release, 1996, PolyGram [FLAC|Lossless|tracks + .cue] <Synth
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Just Blue
-02. Final Signal
-03. Secret Dreams
-04. Symphony    Читать дальше...    Жанр: Synth-pop, DiscoПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9BE0488E6219E553516125198D9C57F32D4D8782
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544476.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 424
-
-Third ≡ Party - Tomorrowland Friendship Mix  2022-04-14  [MP3|320 Kbps] <Progressive House, Elec
-Electronic
-Radioshow, Live Mixes
-
-###  Подробнее
-
-01. Third ≡ Party ft. Alfie Bass - Take Me Away
-02. Eli Brown & Love Regenerator - Moving
-03. Maddix - Activating w Third ≡ Party ft. FMLYBND - Have No Fear
-04. Third ≡ Party - Arrival    Читать дальше...    Жанр: Progressive House, Electro HouseПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C14DE89A07F394BAE594DA3BB1E8F505FB71E76
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544424.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 327
-
-Blutengel - Child of Glass  1999  25th Anniversary Deluxe Edition, Remastered, 2022, 2CD, Out of
-Electronic
-Industrial, EBM, Dark Electro (Lossless)
-
-###  Подробнее
-
-01. Love  Remastered   05:22 
-02. Black Roses  Single Edit v.2 Remastered   04:49 
-03. Die with You  Still Suffering Remix Remastered   04:39 
-04. Black Roses  Opposite Sex Remastered   04:54     Читать дальше...    Жанр: Electro, Synth-pop, DarkwaveПродолжительность: 2CD, 01:39:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E63BFF28E32F771CB5721F40D944A4048532645
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544327.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 323
-
-Blutengel - Erlosung - The Victory of Light  2021  Deluxe Edition, 2CD Box Set [FLAC|Lossless|WE
-Electronic
-Industrial, EBM, Dark Electro  Lossless 
-
-###  Подробнее
-
-01 - Herrschaft  00:05:04 
-02 - Freak Out  00:04:38 
-03 - She s Not a Saint  00:04:17 
-04 - Purple Sky  00:04:19     Читать дальше...    Жанр: Electro, Synth-pop, DarkwaveПродолжительность: 2CD, 01:48:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:160B98B1E0FDA1460866E5B675AF02B2E77233F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544323.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 314
-
-Blutengel - Labyrinth  2007  Limited Edition, 2CD Box Set [FLAC|Lossless|image + .cue] <Electro,
-Electronic
-Industrial, EBM, Dark Electro  Lossless 
-
-###  Подробнее
-
-01. Lucifer  DubMixx By Jenne   4:59 
-02. Born Again  5:28 
-03. Stormy Rivers  4:50 
-04. Victory Of Death  6:23     Читать дальше...    Жанр: Electro, Synth-pop, DarkwaveПродолжительность: 2CD, 02:07:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:703649BFCCA26699FD68F23CDBBE9CFF40F48E1F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544314.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 243
-
-MORTEN - Miami Rooftop Sessions, Miami Music Week, United States  2022-03-23  [MP3|320 Kbps] <El
-Electronic
-Radioshow, Live Mixes
-
-###  Подробнее
-
-01. Öwnboss & Sevek - Move Your Body  Intro Edit  w Wildchild - Renegade Master  Acappella  w Usher ft. Ludacris & Lil Jon - Yeah!
-02. Swedish House Mafia ft. Sting - Redlight  Mark Roma Remix 
-03. David Guetta & MORTEN - Restless
-04. The Prodigy - No Good  Start The Dance   MORTEN Edit     Читать дальше...    Жанр: Electro House, Big RoomПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D99A01AE9B4B7CBDC4A09754792E2F18254DB216
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544243.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 215
-
-Space - Magic Fly  1977  Reissue, 2010, Repertoire Records [FLAC|Lossless|tracks + .cue] <Synth-
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Fasten Seat Belt
-02. Ballad For Space Lovers
-03. Tango In Space
-04. Flying Nightmare    Читать дальше...    Жанр: Synth-pop, DiscoПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A30745E474FDC26A90807F95656C32BDAA442207
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544215.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 191
-
-VA - Vocal Trance 2022 Vol 2  2022  [MP3|320 Kbps] <Uplifting Trance>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Ana Criado - Lockdown Heart  Original Mix   3:30 
-02. 4 Strings & Susana - Completely  Original Mix   2:49 
-03. James Dymond & Stine Grove - Birds Of A Feather  Original Mix   4:15 
-04. Alan Morris with La Antonia & Sue Mclaren - Nowhere Left To Hide  BiXX Remix   3:53     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 04:06:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E44EBDA386EC43B0D6FCB9BB7DF7892A51BC0D0A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544191.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 097
-
-VA - Buddha-Bar by Amine K & Ravin  2022  2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-CD1:
-01. Xingo - Secret Face  3:38 
-02. Saint Of Sin - Sacred History  4:10 
-03. Karmakind - Jaba  5:03     Читать дальше...    Жанр: Downtempo, Chillout, WorldПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02D1C10D4E511E6516C5296F988E410BFA870DCA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544097.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 047
-
-Chris van Buren - Дискография  2015-2018  [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthwave,
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Aim for the Moon  4:16 Жанр: Spacesynth, Synthwave, ItalodanceПродолжительность: 03:31:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8910519E33DAC75419E808ECB76A8A27923B705F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544047.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 867
-
-VA - Trip to Seville: Chillout Your Mind  2022  [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtem
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-01. Schwarz & Funk – Summerbreeze  original mix   05:45 
-02. Michael E – Mind Games  feat Ashley Slater & Fabio Testa - original mix   04:48 
-03. Gary B – It Feels Like Summer  03:54 
-04. Leo De La Rosa – Juego Facil  feat Maneela   05:16     Читать дальше...    Жанр: Balearic, DowntempoПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F15AA9BD7BB0F499C4EEF50BA93124F1555FB0B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543867.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 831
-
-VA - FGVIII  Mixed by Miss Monique   2019  [FLAC|Lossless|WEB-DL|tracks] <Progressive House,
-Electronic
-House, Techno, Electro, Minimal  Lossless 
-
-###  Подробнее
-
-01. Miss Monique - FG VIII  Continuous DJ Mix   57:06 
-02. Kamilo Sanclemente - From The Sky  Original Mix   8:55 
-03. Kamilo Sanclemente - Venus  Original Mix   7:51 
-04. Juan Deminicis - Aldebaran  Original Mix   8:19     Читать дальше...    Жанр: Progressive House, Melodic TechnoПродолжительность: 02:05:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:482AC2E464B8CECFA15547436BDA8BF2DB88F902
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543831.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 613
-
-NeoSpace - Flying to the Stars  2022  [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthwave>
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Cosmic Departure  6:45 
-02. Flying to the Stars  6:18 
-03. Virtu or Fama  5:24 
-04. Collision Course  5:46     Читать дальше...    Жанр: Spacesynth, SynthwaveПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FFDF2CD49FA124A4FA7E272A578DC791CC79C30B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543613.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 607
-
-NeoSpace - Flying to the Stars  2022  [MP3|320 Kbps] <Spacesynth, Synthwave>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Cosmic Departure  6:45 
-02. Flying to the Stars  6:18 
-03. Virtu or Fama  5:24 
-04. Collision Course  5:46     Читать дальше...    Жанр: Spacesynth, SynthwaveПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A1F78D669E092F89F24C1322A292F19277D6EF2F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543607.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 178
-
-The Brides of the Black Room - Blood And Fire  2022  [MP3|320 Kbps] <Synthpop, Dark Pop, Electro
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Fire Disciple [00:03:33]
-02. Blood [00:03:10]
-03. Mother Mother [00:03:58]
-04. Throne [00:03:31]    Читать дальше...    Жанр: Synthpop, Dark Pop, Electropop, Synth RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02EE1C46CB35C084A6A0167FAF86AB32F28FE2CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543178.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 134
-
-VA - Coffee Break Chillout Your Mind  2022  [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-01. Martin Hiska - Special  5:26 
-02. M-Sol Project Marga Sol - Silent Traveler  3:57 
-03. Beamy - Sierra De La Plata  4:51 
-04. James Butler - Dinner for Two  Original Mix   3:13     Читать дальше...    Жанр: Balearic, DowntempoПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F4CD93846646749E3B6813E7DF2E750581B75AF0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543134.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 543 002
-
-King Satan - Occult Spiritual Anarchy  2022  [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
-Electronic
-Industrial, EBM, Dark Electro  Lossless 
-
-###  Подробнее
-
-1 Left Hand Path Symphony
-2 The Faces of the Devil
-3 The Pagan Satan
-4 Devs Ex Satanas    Читать дальше...    Жанр: Industrial MetalПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B4E87E537E17CEDC68051B21FA85E119A37A1AB9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1543002.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 939
-
-Unkle - Rōnin I  2021  Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Trip-Hop, Leftfield, E
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-01.初登場  0:25 
-02.Ar.Mour  Rōnin Dub   6:39 
-03.The Other Side  Rōnin Def Mix   3:46 
-04.On My Knees  Rōnin Def Mix   5:06     Читать дальше...    Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 02:10:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:940FC666201F12865E717138F60119F83D524C48
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542939.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 934
-
-Unkle - Rōnin I  2021  Instrumental Version [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Leftfield,
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-01 - 初登場  00:00:24 
-02 - Ar.Mour  Rōnin Dub   00:06:39 
-03 - The Other Side  Rōnin Def Mix   00:03:46 
-04 - On My Knees  Rōnin Def Mix   00:05:06     Читать дальше...    Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:205A6BD3D085988EDFF0D9339FA07987D2B39A26
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542934.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 823
-
-Boris Brejcha - Die Maschinen sind Gestrandet  2022  Remastered [FLAC|Lossless|WEB-DL|tracks] <T
-Electronic
-House, Techno, Electro, Minimal  Lossless 
-
-###  Подробнее
-
-01. Verstaubter Fruchtzucker  Remastered   7:16 
- 02. Shikora  Remastered   7:03 
- 03. Push to Play  Remastered   7:02 
- 04. Anabella  Remastered   7:10     Читать дальше...    Жанр: Tech House, Techno, MinimalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EB37A94D499448C61F3B558ABDE3A61DB82DFED1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542823.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 673
-
-Johan Tronestam - Androids  2022  [MP3|320 Kbps] <Berlin-School, Space Music>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Cutting Edge  7:24 
-02. Self-Learning  9:00 
-03. Awakenings  11:37 
-04. Artificial Intelligence  7:18     Читать дальше...    Жанр: Berlin-School, Space MusicПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DDAC328CCE388FEE3133B1AD97F21CE81357A36
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542673.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 582
-
-VA - TrackWolves Best Of 2021 DJ Mix  2021-2022  [MP3|320 Kbps] <Electro House, Big Room, Trance
-Electronic
-Radioshow, Live Mixes
-
-###  Подробнее
-
-Alexander Popov - TrackWolves Best Of 2021 DJ Mix 2022-02-15:
-
-01. Alexander Popov & Whiteout - Right Back
-02. Alexander Popov & Kitone - Breathe  Ahmed Helmy Remix     Читать дальше...    Жанр: Electro House, Big Room, TranceПродолжительность: 18:55:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44103BA4C554F06F1D6662DA4733272BBE91F5C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542582.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 552
-
-Sally Shapiro - Sad Cities  The Remixes   2022  [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Forget About You  Johnny Jewel s Amnesia Remix 04:15
-02. Tell Me How  Sunglasses Kid Remix  05:11
-03. Believe In Me  Italoconnection Remix  06:45
-04. Million Ways  Gerd Janson Remix  06:22    Читать дальше...    Жанр: Synth-popПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:010F6B55E718AD3E739E7275EADF08821F16132A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542552.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 410
-
-New Arcades - Until Now: The Decade Retrospective  2022  [MP3|320 Kbps] <Synthwave, Retrowave>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Reappear  3:37 
-02. Reflections  3:48 
-03. Wherever You Are  3:57 
-04. Retribution  3:07     Читать дальше...    Жанр: Synthwave, RetrowaveПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:702DEB07E5275DD2CA074830FF346243FCEDF06C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542410.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 238
-
-VA - Progressive Vocal Trance Hits  2022  [MP3|320 Kbps] <Uplifting Trance>
-Electronic
-Trance
-
-###  Подробнее
-
-01. Costa & Kate Louise Smith - We Are The Universe  Original Mix   3:36 
-02. C-Systems & Hanna Finsen - Time  Original Mix   3:53 
-03. Hazem Beltagui & Sue Mclaren - Learn To Forgive  Radio Edit   4:22 
-04. Aurosonic & Sharon Valerona -  Original Mix   3:42     Читать дальше...    Жанр: Uplifting TranceПродолжительность: 04:10:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6529B60B550F889DD86AB5ACAEB0B45A3AF7F0AB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542238.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 090
-
-Stuka 696 - We Make Industrial Great Again  2022  [FLAC|Lossless|WEB-DL|tracks] <Industrial, Dar
-Electronic
-Industrial, EBM, Dark Electro  Lossless 
-
-###  Подробнее
-
-01 - Intro  00:02:48 
-02 - We Are the Cure  00:06:35 
-03 - Fuck You  00:04:59 
-04 - Killing Spree  00:04:17     Читать дальше...    Жанр: Industrial, Dark ElectroПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3653B3A98858B01484DFE4353124C95461E365AC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542090.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 542 051
-
-Statiqbloom - Threat  2022  [FLAC|Lossless|WEB-DL|tracks] <EBM, Industrial>
-Electronic
-Industrial, EBM, Dark Electro  Lossless 
-
-###  Подробнее
-
-01 - Shifting Fields  00:06:20 
-02 - Flesh Sacrifice  00:06:17 
-03 - The Unwinding  00:05:54 
-04 - Spectral Dimension  00:06:36     Читать дальше...    Жанр: EBM, IndustrialПродолжительность: 01:00:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:088A8856D00D1DB52843847D5923241FD6BC5173
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1542051.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 541 953
-
-New Arcades - Until Now: The Decade Retrospective  2022  [FLAC|Lossless|WEB-DL|tracks] <Synthwav
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01 - Reappear  00:03:36 
-02 - Reflections  00:03:47 
-03 - Wherever You Are  00:03:56 
-04 - Retribution  00:03:06     Читать дальше...    Жанр: Synthwave, RetrowaveПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D1B486D9C8636A305313276394F62707D1B749A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541953.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 541 942
-
-Gnod - Hexen Valley  2022  [FLAC|Lossless|WEB-DL|tracks] <Industrial, Alternative Rock>
-Electronic
-Industrial, EBM, Dark Electro  Lossless 
-
-###  Подробнее
-
-01 - Bad Apple  00:04:17 
-02 - Spotlight  00:14:50 
-03 - Skies are Red  00:03:11 
-04 - Antidepressants  00:07:23     Читать дальше...    Жанр: Industrial, Alternative RockПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F16068EDEA792BAEFED50CFB1A58838694ED6FB1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541942.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 541 901
-
-Dmitriy N Elpin  Dmitriy Nelepin  - Universe 2 Beyond Consciousness  2022  [MP3|320 Kbps]
-Electronic
-Industrial, EBM, Dark Electro (Lossless)
-
-###  Подробнее
-
-01 Secrets of the Universe [00:03:43]
-02 Space hunters [00:03:52]
-03 Dark Planet [00:03:52]
-04 Droid attack [00:04:31]    Читать дальше...    Жанр: Electronic, Industrial, Synth-popПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:26CB78E65B3A2252C530B6B6BED18C371E5A5C87
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541901.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 541 893
-
-Dmitriy N Elpin  Dmitriy Nelepin  - Universe 2 Beyond Consciousness  2021  [FLAC|Lossless|
-Electronic
-Synthpop, New Wave  Lossless 
-
-###  Подробнее
-
-01. Secrets of the Universe
-02. Space hunters
-03. Dark Planet
-04. Droid attack    Читать дальше...    Жанр: Electronic, Industrial, Synth-popПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:42D7A0483DED304D3F179F5693E642B3292BEF64
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1541893.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

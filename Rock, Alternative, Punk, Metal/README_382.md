@@ -1,4 +1,1085 @@
 ﻿
+###  Публикация: 875 203
+
+The Black Codex - Episodes 1 - 39  2014 - 2015  6CD [MP3|320 кб с]<Progressive Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+О группе: The Black Codex музыкальная серия созданная Christiaan Bruin. Его концепция уникальна: подписчики получают на электронную почту новые произведения каждую неделю вместе с текстами, иллюстрациями и другими бонусами. Планируется в течении года 52 эпизода.CD1:
+01. Is There Anyone Here?
+02. The Weasels Theme
+03. The Weasel And The Child
+04. The City In The Sky    Читать дальше...    Жанр: Progressive RockПродолжительность: 05:06:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B9509FCE1B3CEBE9CA90D98A33AC81CA6E1AF359
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 875 134
+
+Europe - Last Look at Eden  2009  Unofficial Release [FLAC|Lossless]<Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+01. Prelude
+02. Last Look At Eden
+03. Gonna Get Ready
+04. Catch The Plane
+05. New Love In Town    Читать дальше...    Жанр: Hard RockПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6542021D2F73094DC01E7488FF6E5FF74F44FD42
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_875134.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 875 080
+
+Furia - Nocel  2014  [MP3|320 кб с]<Post Black Metal, Experimental Black Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. Opętaniec  05:37 
+02. Ptaki idą  06:43 
+03. Zamawianie drugie  03:50 
+04. Niezwykła nieludzka nieprzyzwoitość  13:19 
+05. Nigdy i nigdzie  08:13     Читать дальше...    Жанр: Post Black Metal, Experimental Black MetalПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E455DCBC1D9E673DCB0310561FAAE151775201BE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 950
+
+Jorn Lande & Trond Holter - Dracula: Swing Of Death  2015  Japanese Edition [FLAC|Lossless]<Hard
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Hands Of Your God
+02. Walking On Water
+03. Swing Of Death
+04. Masquerade Ball
+05. Save Me    Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CF8486079DC6C874CBC30640B633815DA80EAA9F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 940
+
+Dakotafish - Many Moons  2011  [MP3|320 кб с]<Аlternative  Blues  Funk  Indie Rock  Po
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Jitter 02:56
+02. Midnight Lemonade 03:53
+03. 100 Days 02:53
+04. Strange Symmetry 04:31
+05. Great Ones 04:00    Читать дальше...    Жанр: Аlternative  Blues  Funk  Indie Rock  PopПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F64774A06A06CF508BA6A6B6CE8D2577371EDC8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 906
+
+Melechesh - Enki  2015  [FLAC|Lossless]<Black, Death, Middle Eastern Folk Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Tempest Temper Enlil Enraged
+ 02. The Pendulum Speaks
+ 03. Lost Tribes
+ 04. Multiple Truths
+ 05. Enki - Divine Nature Awoken    Читать дальше...    Жанр: Black, Death, Middle Eastern Folk MetalПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8569E4DC3E29A9F9785BC9FBEFCD665EFF3228E1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 892
+
+Dimitriy Pavlovskiy s PowerSquad - Shrine Of The Wanderer  2015  [MP3|320 кб с]<Neoclassical
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. Journey
+02. Spectrophobia  Fear 
+03. Molder
+04. Contour
+05. Natural Ground    Читать дальше...    Жанр: Neoclassical Progressive MetalПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F31391205C98ADBD141028BBCCEA5295CD2BF347
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 825
+
+VA - 80 From Australia  2014  4CD [MP3|320 кб с] <Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Angus & Julia Stone - Big Jet Plane   04:00 
+02. Empire Of The Sun - Walking On A Dream   03:19 
+03. Sneaky Sound System - Pictures   03:18 
+04. Rogue Traders - Voodoo Child   03:59 
+05. Havana Brown - We Run The Night   03:37     Читать дальше...    Жанр: RockПродолжительность: 05:07:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:15184744C130A8B53B7005A75C0AC7AD65B1EFA1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 797
+
+Адаптация - Цинга  2015  [MP3|320 кб с]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Лето любви
+ 02. Слово и дело
+ 03. Цинга
+ 04. Проза зимы
+ 05. Весь этот рейв    Читать дальше...    Жанр: RockПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2BA71B25B8BCA60E10C3D7A6AFCF468971BAA81F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 751
+
+Burden Of Grief - Unchained  2014  Limited Edition [FLAC|Lossless]<Melodic Death Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Awaken the Nightmare 04:29
+02. Unchained 03:58
+03. Sounds of Desperation 04:18
+04. Operation Eagle Eye 04:09
+05. Fearless Heart 04:26    Читать дальше...    Тип издания: DigipakЖанр: Melodic Death MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5F21B0065E11D1BDC3B6845509829138D9AB2ABF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 724
+
+Noel Gallagher s High Flying Birds - Chasing Yesterday  2015  2CD, Deluxe [MP3|320 кб с]<Alt
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+CD1
+01. Riverman  05:42 
+02. In The Heat Of The Moment  03:29 
+03. The Girl With X-Ray Eyes  03:20 
+04. Lock All The Doors  03:42     Читать дальше...    Жанр: Alternative  Indie Rock  Brit PopПродолжительность: 01:00:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41ECA822AF38719A874EFD45D5B726571B770CA1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 711
+
+Project NT - Имена  2015  EP [MP3|320 кб с]<Experimental, Psychedelic, Post Punk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Князь 06:49
+02. Егор 04:27
+03. Иван 05:44
+04. Савл 03:46Жанр: Experimental, Psychedelic, Post PunkПродолжительность: 00:20:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CD541F6B509ABBB136E3391FB3D0F7FCE629C68F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 686
+
+Arida Vortex - The Illustrated Man  2015  [MP3|320 кб с]<Heavy Metal, Power Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Foreword
+02. The Concrete Mixer
+03. Marionettes, Inc. I  Let Me Stop Your Heart 
+04. The Veldt
+05. Kaleidoscope  Instrumental     Читать дальше...    Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D26DA86625148D022368D79D308284DCFE431FD4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 594
+
+Europe - War Of Kings [Deluxe Version]  2015  [FLAC|Lossless|WEB-DL]<Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+01. War Of Kings
+02. Hole In My Pocket
+03. Second Day
+04. Praise You    Читать дальше...    Жанр: Hard RockПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C7E6962F814C2A1A58CC83CD6C2D47C19F27BC64
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_874594.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 558
+
+New Medicine - Breaking The Model  2014  [MP3|320 кб с]<Alternative  Modern Hard Rock  Pop
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Breaking The Model  03:36 
+02. Desire Into Gold  02:51 
+03. One Too Many  03:22 
+04. Broken Girl  03:24 
+05. All About Me  03:10     Читать дальше...    Жанр: Alternative  Modern Hard Rock  Pop PunkПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87C03CA2B9388E59D11B3C7D90D5552CCF840130
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 528
+
+Mahalia Barnes & The Soul Mates feat. Joe Bonamassa - Ooh Yea  The Betty Davis Songbook   2015
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. If I m In Luck I Might Get Picked Up  05:20 
+02. Steppin  In Her I. Miller Shoes  03:58 
+03. In The Meantime  05:10 
+04. He Was A Big Freak  04:30 
+05. Your Mama Wants You Back  04:31     Читать дальше...    Производство: Provogue – PRD74552Жанр: Rock, Blues Rock, Funk RockПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AFBFAC20B12396283C20747DFB78D3B039AF8749
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 477
+
+Bonjour Tristesse - Par Un Sourire  2011  [FLAC|Lossless]<Depressive Black, Post-Black Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+Немецкий депрессив-блек-метал-проект Bonjour Tristesse образовался зимой 2008 года. Единственным участником является музыкант Nathanael, участвовавший также в таких проектах, как Agrypnie, Thränenkind и Heretoir  в роли сессионного басиста на концертах . Сама же фраза  Bonjour Tristesse  переводится с французского как  привет, печаль .1. Tu Es Inscrite Dans Les Lignes Du Plafond  Histoire d  Isabelle Partie Une 
+2. Wieder Allein
+3. Mit Einem Lächeln
+4. Freiheit
+5. Lebenskraft    Читать дальше...    Жанр: Depressive Black, Post-Black MetalПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2399FDA5837BD425BB72D0C2FDFD34B0B07BE225
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_874477.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 468
+
+Nadiwrath - Nihilistic Stench  2011  [MP3|320 кб с]<Black Metal, Punk Rock>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+1. Darkness Has Lost Its Meaning
+2. Two Face Shit Fuckers
+3. Horns
+4. There Is No Light
+5. Another Pimping Whore    Читать дальше...    Жанр: Black Metal, Punk RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:96967CAC8B1B985FC3362FFFC732E2826C962267
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 463
+
+Anguished - Cold  2010  [MP3|320 кб с]<Raw Black Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+1. These Gray Days
+2. Come To Me Satan
+3. September Nights
+4. Depart This Life
+5. Tired    Читать дальше...    Жанр: Raw Black MetalПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A869BC114274B698CF4888F357CEF56B3D673AF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 402
+
+Эпидемия - Сокровище Энии  2014  [FLAC|Lossless]<Power Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Время героев
+02. Первый шаг
+03. Где рождаются рассветы
+04. Призрачный храм
+05. Дует ветер ледяной    Читать дальше...    Жанр: Power MetalПродолжительность: 01:35:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EA399191BE5C11FE1E07CBD73747AB3FB3071FB9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 394
+
+Arcane - Known Learned  2015  2CD [MP3|320 кб с]<Progressive Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. Hunter, Heart & Home
+02. Little Burden
+03. Impatience And Slow Poison
+04. Known
+05. Nightingale s Weave    Читать дальше...    Жанр: Progressive RockПродолжительность: 02:02:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:758F1D17836B160D2CD32CE56B7555919DA22D27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 390
+
+Arcane - Known Learned  2015  2CD [FLAC|Lossless]<Progressive Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Hunter, Heart & Home
+02. Little Burden
+03. Impatience And Slow Poison
+04. Known
+05. Nightingale s Weave    Читать дальше...    Жанр: Progressive RockПродолжительность: 02:02:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ABC3E695E32CCC503AC8E2616BCCD79DCEDEFDDB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 346
+
+Evolvent - Whatever Happens  2015  [MP3|320 кб с]<Symphonic Gothic Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. Dawn
+02. Win Or Die
+03. Hurricane
+04. Love Doesn t Love Me
+05. Our Fate    Читать дальше...    Жанр: Symphonic Gothic MetalПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B1D79188DD53FD8C4EE133CAA498CC78A001345
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 319
+
+Cinderella - Rocked, Wired & Bluesed: The Greatest Hits  2005  [FLAC|Lossless]<Hard Rock, Glam ,
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+Cinderella  Золушка  — американская рок-группа, основанная в 1983 году в Филадельфии. Неизменными участниками группы на протяжении всей её истории являются поющий гитарист и клавишник Том Кифер, басист Эрик Бриттингэм и соло-гитарист Джефф ЛаБар.01. Night Songs
+02. Shake Me
+03. Nobody’s Fool
+04. Somebody Save Me
+05. Bad Seamstress Blues   Fallin’ Apart At The Seams    Читать дальше...    Жанр: Hard Rock, Glam ,BluesПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6CD8BFF0DD1FA190F827E77CD53F0AD37AE6F17F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_874319.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 305
+
+Dew-Scented - Incinerate  2007  [FLAC|Lossless]<Thrash Metal Death Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. ExordiumТип издания: АльбомЖанр: Thrash Metal Death MetalПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9FE7CB84314BEA7E319CD5373C8D838413B7D302
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 301
+
+Владимир Кузьмин - Золотые Баллады vol.2  2002  [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Белая луна  5:09 
+02. Я не забуду тебя никогда  6:06 
+03. 5 минут до дома твоего  5:23 
+04. Еще одна блондинка  3:35 
+05. Осень нашей любви  5:18     Читать дальше...    Жанр: RockПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EA46849DA3E685D4591C733AB9F33C350DFE9658
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 293
+
+Владимир Кузьмин - Золотые Баллады vol.1  2002  [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Баллада о королеве  4:26 
+02. Голос  3:29 
+03. Если бы ты знала  5:08 
+04. Твоя улыбка для меня  4:19 
+05. Когда меня ты позовешь  5:28     Читать дальше...    Жанр: RockПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F6CC864C8F9799E545E659B1FB41226DD3A2D925
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 235
+
+Little River Band - I Dream Alone  1997  [MP3|320 кб с]<Rock>
+Rock, Alternative, Punk, Metal
+Rock, Alternative, Punk, Metal
+
+###  Подробнее
+
+01. I Dream Alone  04:50 
+02. If I Get Lucky  04:13 
+03. Soul Searching  04:20 
+04. A Cruel Madness  04:46 
+05. Two Emotions  04:29     Читать дальше...    Жанр: RockПродолжительность: 01:09:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:198B2929AC87042A250AD0F4055D234021AD210A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 217
+
+Winter Calling - As Darkness Falls  2015  [MP3|320 кб с]<Hard-n-Heavy>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. A World I Can Feel
+02. Self-Righteous Parade
+03. The Stand
+04. A Moment in the Sun
+05. Forever    Читать дальше...    Жанр: Hard-n-HeavyПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F3866613F6F232292A5CE90F2BC0CA6E644C00E3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 194
+
+Северный Флот - Всё внутри  2014  [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Надвигается Северный Флот 05:27
+02. Рождённый Убивать 04:02
+03. Вперёд и Вверх 03:51
+04. Харон 05:09
+05. Старый Крысолов 03:29    Читать дальше...    Жанр: RockПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D784952FDFE9C608ADF322F7E41629DD8F414566
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 106
+
+Drawn Awake - The New Era  2014  EP [MP3|320 кб с]<Melodic Death Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+1. The New Era 04:21
+2. You Will Fall 04:36
+3. Diversion 04:36Жанр: Melodic Death MetalПродолжительность: 00:14:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:06FACD27C8EBBEB9200B470B1B9DA62861B1B09B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 089
+
+Control The Storm - Beast Inside  2015  [MP3|320 кб с]<Melodic Power Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. Day of Days
+02. Hysteric Silence
+03. Believe
+04. No Chance At All
+05. Falling    Читать дальше...    Жанр: Melodic Power MetalПродолжительность: 00:46.25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6D7BB82FA51A18F085A66D10F7560CE4258F38AC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 078
+
+Europe - War of Kings  2015  Deluxe Edition [MP3|320 кб с]<Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+01. War Of Kings
+02. Hole In My Pocket
+03. The Second Day
+04. Praise You    Читать дальше...    Жанр: Hard RockПродолжительность: 00:54.21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3D643A94A749D800C56D7C98498D69A7797A7C84
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 070
+
+The Agonist - Eye of Providence  2015  [FLAC|Lossless]<Melodic Death Metal, Metalcore>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Gates of Horn and Ivory
+02. My Witness, Your Victim
+03. Danse Macabre
+04. I Endeavor
+05. Faceless Messenger    Читать дальше...    Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C1B780B579078C020A7D6C3D042E4D1823B68B37
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 874 033
+
+Epica - The Quantum Enigma  2014  3CD Earbook Edition [FLAC|Lossless]<Symphonic Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Originem
+02. The Second Stone
+03. The Essence of Silence
+04. Victim of Contingency
+05. Sense Without Sanity - The Imprevious Code    Читать дальше...    Жанр: Symphonic MetalПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:464C1B15DADFE0274906C5789C3D5C64E27FE6A4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 873 986
+
+Юрий Гаврилов  Тангейзер  - Экспрессия XXI  2010  Авторская раздача [MP3|320 кб с]<Neo-Cla
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Реквием
+02. Симфония №5 Л. Ван Бетховен
+03. Парафраз Ниаполи  памяти великого Enrico 
+04. Менуэт    Читать дальше...    Жанр: Neo-ClassicПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6345AC0F6FDC3AE4C0A8EEEF99CEAF70375EE69C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 873 967
+
+Александр Градский - Хрестоматия  2003  [FLAC|Lossless]<Rock, Funk, Soul, Blues, Pop, Classical>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Ливни на море  4:46 
+02. Не начинайте без меня  6:01 
+03. На рождение дочери  3:47 
+04. Намек  5:13 
+05. Фото со мной и с тобой  6:05     Читать дальше...    Жанр: Rock, Funk, Soul, Blues, Pop, ClassicalПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8BB0659F32992E22867657AE0270EFA4FCA0E136
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 873 745
+
+Красные Звёзды - За Пределами Понедельников  2014  [MP3|320 кб с]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Перекрёсток
+02. Русский
+03. Огонёк
+04. Любовь
+05. Ломать лёд смерти    Читать дальше...    Жанр: RockПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B1AF2AA72C10E7A83CBF18A8F6FD88C482021CF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 873 741
+
+Красные Звёзды - За Пределами Понедельников  2014  [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Перекрёсток
+02. Русский
+03. Огонёк
+04. Любовь
+05. Ломать лёд смерти    Читать дальше...    Жанр: RockПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6508D0FB5949D0ED7EA4FC0B3434C79DC0D4A3CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 873 736
+
+Красные Звёзды - Свобода 2012  2012  [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Свобода 2012
+02. Война
+03. Загадка
+04. Тут Нужен Я
+05. Васильки    Читать дальше...    Жанр: RockПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E4C736B4D4916F906F73606779FF2E338E7D2C1D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 873 726
+
+Ногу свело! - Съешь моё сердце  2014  [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Съешь моё сердце
+02. My name is dick
+03. 5 километров
+04. Earthquake shake
+05. Яйца фаберже    Читать дальше...    Жанр: RockПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B92EB683A3AFE28834458D532E10C297240C4DC1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 873 698
+
+Guns N  Roses - Best Ballads  1996  [MP3|320 кб с] <Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+01. Don t Cry  04:46 
+02. Since I Don t Have You  04:22 
+03. Yesterdays  03:15 
+04. Knockin  On Heavens Door  05:38     Читать дальше...    Жанр: Hard RockПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:555C83D10EECF64C4159204A621F718DB3DBB96B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_873698.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 873 616
 
 VA - Rock Legenden: Puhdys+City+Karat  2014  [FLAC|Lossless|WEB-DL]<Rock, East Rock, Classic Roc
@@ -968,1090 +2049,6 @@ Metal  Lossless
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:E8716B1B0634A5C21B6CAACE3325C7F15982CD48
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 648
-
-Moral Dilemma - 3 Albums, 2 EPs  2008-2014  [MP3|320 кб с]<Punk Rock, Street Punk>
-Rock, Alternative, Punk, Metal
-Alternative, Punk (Lossless)
-
-###  Подробнее
-
-Albums, EPs:
-2008 - Right To Remain Silent
-2009 - Agree To Disagree
-2010 - Under Surveillance  EP 
-2012 - Bigger Cages, Longer Chains  EP     Читать дальше...    Жанр: Punk Rock, Street PunkПродолжительность: 01:45:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:45D68D1FE6D466E11477AE98CEAB7C2561288493
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_872648.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 587
-
-Sons Of Angels - Slumber With The Lion  2001  [MP3|320 кб с]<Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. Burning Childhood  05:15 
-02. No Sorrow  05:03 
-03. Fire  03:54 
-04. Slumber With The Lion  05:28 
-05. Hopeless Kind  04:15     Читать дальше...    Производство: Z Records - ZR 1997059Жанр: Hard RockПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A173893797AE9BF28F1404B23C132255AA8E362E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 576
-
-Captain Ivory - Captain Ivory  2014  [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. Baroness  04:45 
-02. Bottle & a Penitentiary  04:26 
-03. False Remedy  04:36 
-04. Quiet Casualties  05:07 
-05. Here You Are  06:16     Читать дальше...    Жанр: RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B88BAFCEEEB5E96D5BFCCEDD63A735F7683494C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 568
-
-Grzegorz Kupczyk & Kruk - Memories  2006  [MP3|~245 кб с  V0 ]<Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. Black Dog  04:33   Led Zeppelin 
-02. Burn!  06:12   Deep Purple 
-03. Child In Time  10:14   Deep Purple 
-04. Gypsy  06:37   Uriah Heep 
-05. Mistreated  06:59   Deep Purple     Читать дальше...    Жанр: Hard RockПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1DA07576F0F49FE6F03D1467DF09D9F2C763DAC8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 511
-
-VA - Great Metal Hits  2015  [MP3|319-320 кб с]<Heavy Metal, Power Metal, Glam Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. Megadeth - She-Wolf [3:36]
-02. Darkseed - Nevermight [3:49]
-03. Helloween - Steel Tormentor [5:42]
-04. Ozzy Osbourne - Perry Mason [5:54]
-05. Motorhead - Don t Lie To Me [3:59]    Читать дальше...    Жанр: Heavy Metal, Power Metal, Glam MetalПродолжительность: 01:33:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:32ACC9C5BE72B3A75EA0CBCF12F49458E33FA3DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 494
-
-Bloodtruth - Obedience  2014  [FLAC|Lossless]<Brutal Death Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Subvenite 00:53
-02. Surrounded By Blind Bigots 03:17
-03. Throes Of Death 03:40
-04. Suppurating Of Deception 03:51
-05. Coerced To Serve 03:21    Читать дальше...    Тип издания: АльбомЖанр: Brutal Death MetalПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2A8B0E174B7E893E888653EC1151E41EA0AB4BD8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_872494.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 430
-
-Annot Rhul - Lost In The Woods  2007  [MP3|320 кб с]<Psychedelic Space Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-1. Lost In The Woods  6:47 
- 2. Ghost ChildrenЖанр: Psychedelic Space RockПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:34472D1E812D28DA0AEEB056BA6943CE4231EE40
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 402
-
-Балу  Александр Балунов  - Как Звезда  Single   2015  [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Как Звезда
-02. Где Твои Желания
-03. Подожди
-
-Лос Анжелес определенно сводит с ума всех музыкантов которые там работали. Три феерических дня в студии, три красивые песни.    Читать дальше...    Жанр: RockПродолжительность: 00:10:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:065D6DCA2B27EFCAD9229D67D32AC585C10A60CF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 370
-
-Fjord - On Icy Shores  2015  [MP3|320 кб с]<Post Rock, Post Metal, Shoegaze, Instrumental>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. As Time Stood Still  05:04 
-02. Endless  05:55 
-03. Amorphous  06:44 
-04. Fading Sun  05:24 
-05. The Abyss  05:56     Читать дальше...    Жанр: Post Rock, Post Metal, Shoegaze, InstrumentalПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CAC1D15702104A583F27DA78D07CA53EAE08FD38
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_872370.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 336
-
-The Ventures - In The Vaults Vol. 1 - 4  1997 - 2007  [FLAC|Lossless]<Surf Rock, Rock & Roll, Po
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-О группе: Американская музыкальная группа, играющая инструментальный рок и сёрф-рок. Основана в 1958 г. в городе Такома, штат Вашингтон, основателями группы являются музыканты Дон Вилсон и Боб Богл. Экспериментируя со стилями, со временем группа оказала огромнейшее влияние на развитие музыки во всем мире. The Ventures входит в список групп-бестселлеров, в мире на настоящий момент продано свыше 100 миллионов пластинок. В 2008-м году группа включена в Зал славы рок-н-ролла.01. Journey to the stars
-02. Delicado
-03. Night run
-04. Station breaks
-05. Driving guitars    Читать дальше...    Жанр: Surf Rock, Rock & Roll, Pop RockПродолжительность: 04:13:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:27BA7A1A1DA26BFC90E737D8987078D239606693
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_872336.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 319
-
-Svartsot - Veldet  2015  [MP3|320 кб с]<Folk Metal, Viking Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-1. Midsommer
-2. Urtekonen
-3. Kilden - I Marker Og I Lunde
-4. Allerkæresten Min
-5. Moder Hyld    Читать дальше...    Жанр: Folk Metal, Viking MetalПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:958D36DD74465B86A2DCF3C8A3CA9FB2B1E68129
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 313
-
-Ю-Питер - Гудгора  2015  [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Потоп  05:14 
-02. Девочка-панк  03:03 
-03. Возьми меня с собой  03:28 
-04. Гудгора  04:05 
-05. Иду к тебе  03:33     Читать дальше...    Жанр: RockПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8222C594BE5792F3F8FE35B49D11815EA436EB36
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 292
-
-The Alan Parsons Project - Platinum & Gold Collection  2003  [FLAC|Lossless]<Soft Rock, Prog Roc
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Sirius  1:53 
-02. Eye In The Sky  4:33 
-03. I Wouldn t Want To Be Like You  3:21 
-04. Don t Answer Me  4:11 
-05. Games People Play  4:18     Читать дальше...    Жанр: Soft Rock, Prog RockПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DDC1E976A210C2A991882B971CE74273AE4C6E61
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 279
-
-Homemade Wine - The Road To House Mountain  2015  [MP3|320 кб с]<Southern Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. The Road to House Mountain  04:33 
-02. Mary  04:40 
-03. Appalachia  03:50 
-04. Fireflies  04:30 
-05. Citico Creek  05:45     Читать дальше...    Жанр: Southern RockПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:27BF36DD352647D0BD7BFAD06BAF6EC95FD09D72
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 240
-
-VA - Manchester Punk Festival vol 1  2015  [MP3|320 кб с]<Punk Rock, Hardcore Punk>
-Rock, Alternative, Punk, Metal
-Alternative, Punk (Lossless)
-
-###  Подробнее
-
-01. The Restarts - Sheep  04:05 
-02. Holiday - Isolation Is A Lonely Place To Be  02:09 
-03. Stand Out Riot - Broadcast Delay  04:48 
-04. Tosserlad - F.O.M.O  01:23 
-05. The Murderburgers - My Inner Mental Room  03:31     Читать дальше...    Жанр: Punk Rock, Hardcore PunkПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1599C057F7AE76378729D10465B7DAECFF092D58
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 146
-
-Dodsferd - 2 Demo, 8 Album, 4 Split, 2 Compilation, 1 Live, 1 EP  2004-2013  [MP3|177-320 кб с
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-1. Breeding Chaos
-2. Creator Of Disease
-3. Stupid Worthless Sheep
-4. Doubting Your Worth
-5. We Are 138  Misfits Cover Жанр: Black Metal, Black n Roll, Depressive BlackПродолжительность: 00:30:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0D5ADBFC7C829B453E342B974FEA41581078397C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_872146.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 119
-
-Pack Of Wolves - Echo Of Love  2015  [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. Echo Of Love  03:54 
-02. Hear In My Heart  03:15 
-03. Crocodile Tears  02:59 
-04. Cut Me To The Bone  02:49 
-05. In Your Sleep  05:51     Читать дальше...    Жанр: RockПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FAEFAC362BFF68233B1E353FF9365E0CDEED9C1D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 105
-
-Risenstar - Unspoken  2014  [MP3|320 кб с]<Industrial, Industrial Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-1. Little Beast
-2. Save Me
-3. I Cant Believe
-4. Jester
-5. Human Herd    Читать дальше...    Жанр: Industrial, Industrial MetalПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:700530ED1A22BEC061B58AACF92F112E88221911
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 071
-
-Sleater - Kinney - No Cities To Love  2015  [FLAC|Lossless]<Alternative Rock, Garage Rock, Indie
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Price Tag
-02. Fangless
-03. Surface Envy
-04. No Cities to Love
-05. A New Wave    Читать дальше...    Жанр: Alternative Rock, Garage Rock, Indie RockПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:94E3F03344979DB283508347E91D6C57CE1276F5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 051
-
-Mortalium - Obligate Loneliness  2015  [MP3|320 кб с]<Doom Metal, Gothic Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-1. Chasing The Truth
-2. Chrysalis
-3. Ode To Deformity
-4. Social Suicide
-5. Eyes    Читать дальше...    Жанр: Doom Metal, Gothic MetalПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70604AAB87129E94E83ABCA63AE7A76CB6114461
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 048
-
-Endlesshade - Wolf Will Swallow The Sun  2015  [MP3|320 кб с]<Doom Death Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-1. Post Mortem
-2. 7
-3. Wolf Will Swallow The Sun
-4. Noctambulism
-5. Edge    Читать дальше...    Жанр: Doom Death MetalПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1A07AAE466B8CB0308948B4374B9F670E4A1B21B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 038
-
-Scorpions - Return To Forever  2015  Limited Deluxe Edition [WavPack|Lossless]<Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-01. Going Out With A Bang
-02. We Built The House
-03. Rock My Car
-04. House Of Cards
-05. All For One    Читать дальше...    Жанр: Hard RockПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06587FC0EB27C8F927E39B37A50FBBEFA051A918
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 872 020
-
-Copeland - Ixora  2014  Twin Edition [MP3|320 кб с]<Indie Rock, Alternative, Indie Folk>
-Rock, Alternative, Punk, Metal
-Alternative, Punk (Lossless)
-
-###  Подробнее
-
-Первый диск является расширенной версией альбома Ixora и содержит бонус-трек. Второй диск является альтернативной версией альбома Ixora и называется Twin. Как и любой альбом ремиксов его можно слушать отдельно, но его еще можно воспроизвести в синхронизации с первым диском. Так что если Вы раздобудите два CD проигрывателя, нажмите кнопку  Play  на них одновременно и Вы услышите квадрафоническую версию альбома Ixora.CD1 - Ixora
-01. Have I Always Loved You?
-02. Disjointed
-03. I Can Make You Feel Young Again
-04. Erase    Читать дальше...    Жанр: Indie Rock, Alternative, Indie FolkПродолжительность: 01:32:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:48F992D17B9020C067A1AAB7C11CA594E29E97F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 985
-
-Copeland - Ixora  2014  [FLAC|Lossless]<Indie Rock, Alternative, Indie Folk>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Have I Always Loved You?
-02. Disjointed
-03. I Can Make You Feel Young Again
-04. Erase
-05. Lavender    Читать дальше...    Жанр: Indie Rock, Alternative, Indie FolkПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E80A81CF1ADDFAB66096B76FB5AD494F7B0F1C3F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 976
-
-VA - Calling All Maniacs  2001  [MP3|320 кб с] <Rock, Pop Rock, Heavy Metal>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. Adema - The Way You Like It  03:41 
-02. Static‐X - Black and White  03:52 
-03. Dope - Stop  02:52 
-04. SOiL - Halo  03:17 
-05. Dry Kill Logic - Rot  04:31     Читать дальше...    Производство: USA - Geffen RecordsЖанр: Rock, Pop Rock, Heavy MetalПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D496EEFEAEEE8495850275E1266DB13B7C661BF1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 967
-
-Forest Silence - 3 Демо, 2 Альбома  2006-2010  [MP3|192-320 кб с]<Atmospheric Black, Black Met
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-1. The Symbol
-2. Winter Ritual
-3. The Eternal Winter
-4. I Feel The Claws Of Darkness
-5. SilenceЖанр: Atmospheric Black, Black Metal, Dark AmbientПродолжительность: 02:53:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:597D51CC1892DE231F9BDEE1C85EE6413D884362
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_871967.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 868
-
-VA - Black Dog - A Tribute To Led Zeppelin s Greatest Hits  2014  2CD [MP3|320 кб с]<Hard Ro
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. This Song Remainz the Same - Stairway To Heaven
-02. Chris Poland  feat. A. J. Caruso, Sergio Yetta & Richard Kendrick  - Ramble On
-03. High Voltage - Heartbreaker
-04. Wicked Garden - The Battle of Evermore
-05. Leaving Eden - Whole Lotta Love    Читать дальше...    Производство: Versailles RecordsЖанр: Hard RockПродолжительность: 01:40:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B80024805BF5DCDB876FF8ED1AAC29F7658ECFDA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_871868.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 814
-
-Lorna Shore - 5 альбомов + 4 EP + 1 сингл   2010-2022  [MP3|256-320 кб с]<Progressive Deathcor
-Rock, Alternative, Punk, Metal
-Alternative, Punk (Lossless)
-
-###  Подробнее
-
-01. Welcome Back, O  Sleeping Dreamer
-02. Into the Earth
-03. Sun  Eater
-04. Cursed to Die    Читать дальше...    Жанр: Blackened Deathcore, SymphonicПродолжительность: 05:17:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ED4DD0F926787A3B8286034ED2118930F9483C50
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_871814.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 777
-
-Phoenix Again - Look Out  2014  [MP3|320 кб с]<Neo Progressive Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-01. Adso Da Melk
-02. Oigres
-03. Look Out
-04. Summer
-05. The Endless Battle    Читать дальше...    Жанр: Neo Progressive RockПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7ACD5312597B07A63E028309D24BEE3F52C8845
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 770
-
-Phoenix Again - Look Out  2014  [FLAC|Lossless]<Neo Progressive Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Adso Da Melk
-02. Oigres
-03. Look Out
-04. Summer
-05. The Endless Battle    Читать дальше...    Жанр: Neo Progressive RockПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AA6F1D0DDCB3D478C1012A7BF1E1F3A0891A1D46
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 760
-
-Eclipse - Armageddonize  2015  [FLAC|Lossless]<Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-01. I Don t Wanna Say I m Sorry  4:25 
-02. Stand On Your Feet  3:45 
-03. The Storm  3:28 
-04. Blood Enemies  4:28     Читать дальше...    Жанр: Hard RockПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05B97E604E5E98A9B7970F292F7E90C6B06BD7BD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 675
-
-Brian Wilson - Reimagines Gershwin  2010  [FLAC|Lossless]<Pop-Rock, Ballad>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Rhapsody in Blue  Intro 
-02. The Like In I Love You
-03. Summertime
-04. I Loves You, Porgy
-05. I Got Plenty o  Nuttin     Читать дальше...    Жанр: Pop-Rock, BalladПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6F9014F6614918CB531C91BE83B65066C7744E5F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_871675.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 651
-
-Feed Her To The Sharks - Fortitude  2015  [MP3|320 кб с]<Metalcore>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. The World Is Yours
-02. Chasing Glory
-03. Burn The Traitor
-04. Shadow Of Myself    Читать дальше...    Жанр: MetalcoreПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E2EAE68F4297789619C00C67F8E124EB65198DCC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 636
-
-UFO - A Conspiracy Of Stars [Limited edition]  2015  [FLAC|Lossless]<Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-01. The Killing Kind
-02. Run Boy Run
-03. Ballad Of The Left Hand Gun
-04. Sugar Cane    Читать дальше...    Жанр: Hard RockПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0F8D390EE04890D3224D990463780A1FD1D4A6A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_871636.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 610
-
-Ругер - Путь 4  2015  [MP3|320 кб с]<Alternative Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Ярость  03:47 
-02. Часть 1: Свет  04:32 
-03. Часть 2: Тьма  05:46 
-04. Выход  03:46     Читать дальше...    Жанр: Alternative MetalПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AE0DA3501FEA5BAAE38165025F422F9CA26903FB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_871610.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 607
-
-NOFX And Friends - Home Street Home: Original Songs from the Shit Musical  2015  [MP3|320 кб с
-Rock, Alternative, Punk, Metal
-Alternative, Punk (Lossless)
-
-###  Подробнее
-
-01. Monsters  04:10 
-02. Three String Guitar  01:34 
-03. Urban Campers  02:17 
-04. Fecal Alcohol Syndrome  02:05 
-05. Three Against Me  03:17     Читать дальше...    Жанр: Punk RockПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CDD13B6CF243C919329C281279AD2B513D92C458
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 574
-
-The Agonist - Eye of Providence  2015  [MP3|320 кб с]<Melodic Death Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. Gates of Horn and Ivory  3:26 
-02. My Witness, Your Victim  4:47 
-03. Danse Macabre  4:01 
-04. I Endeavor  4:08 
-05. Faceless Messenger  5:00     Читать дальше...    Жанр: Melodic Death MetalПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:740DF3827106BC95DE4E834FEAEB53C8DD547F1B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 545
-
-Heaven - Brass Rock 1  1971  Reissue, Remastered  2008, Esoteric, UK  [FLAC|Lossless]<Rock,
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Things I Should ve Been  6:19 
-02. This Time Tomorrow  5:15 
-03. Never Say Die  3:57 
-04. Come Back  5:25 
-05. Song for Chaos  7:42     Читать дальше...    Жанр: Rock, Prog Rock, Jazz-RockПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1BF11A83355A7E2C3DCEDC53C28EE0A030DCD2BC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 541
-
-The Parlor Mob - Cry Wolf  2015  [MP3|320 кб с]<Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. The Day You Were Born  07:54 
-02. Dead Man  05:19 
-03. Doe Eyed Dear  04:11 
-04. Racing With A Beating Heart  05:52 
-05. Cry Wolf  06:29 Жанр: Hard RockПродолжительность: 00:29:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5FD13549F1816CFC1FC558D1996480F7695D9FA8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_871541.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 439
-
-Beyond The Black - Songs Of Love And Death  2015  [FLAC|Lossless]<Symphonic Metal | Power Metal
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. In The Shadows
-02. Songs Of Love And Death
-03. Unbroken
-04. When Angels Fall bomb
-05. Pearl In A World Of Dirt    Читать дальше...    Тип издания: АльбомЖанр: Symphonic Metal | Power Metal | Female VocalПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:362952B76D3CD13148CDD5AC2088BD1A902D6BD0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 391
-
-Black Rain - Requiem For A Killer  2015  [MP3|320 кб с]<Heavy Metal, Power Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. Requiem for a Killer
-02. Punished and Enslaved
-03. Encounter
-04. Nightmare
-05. In for the Kill    Читать дальше...    Жанр: Heavy Metal, Power MetalПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:38D3551486847FE7A0FA549E976B7DC0E9858D35
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 871 354
-
-Eric Woolfson - Edgar Allan Poe  2009  [APE|Lossless]<Progressive & Art-Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Angel Of The Odd
-02. Tiny Star
-03. Wings Of Eagles
-04. The Murder In The Rue Morgue
-05. Blinded By The Light    Читать дальше...    Жанр: Progressive & Art-RockПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DCC6523A45BFC6F6493A35E65F12188F72509015
 ```
 
 <div id="header" align="center">

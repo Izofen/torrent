@@ -1,4 +1,251 @@
 ﻿
+###  Публикация: 1 739 412
+
+Иракли - Лондон Париж (2004) [WavPack|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Лондон Париж
+ 02. Вова-Чума
+ 03. Дожди
+ 04. Закрой Глаза Рукой(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8BAA710D3E201DFAA7A0A65602333527030F097B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1739412.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 739 409
+
+Иракли - Сделай Шаг (2009) [WavPack|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Я С Тобой
+ 02. Ну И Что
+ 03. Капли Абсента
+ 04. Так Не Бывает (Lounge Version US Global DJ's)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D151BC9EF7BFD8BCDE1FA18F5F9E999E5F7BC489
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1739409.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 739 399
+
+Happy Sovok - Happy Sovok (2009) [WavPack|Lossless|image + .cue] <Pop, Folk, Stage>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Супер мега шашлыки
+ 02. Мы пели караоке
+ 03. Зачем ты мне влезла в душу
+ 04. Женись(   Читать дальше...   )Жанр: Pop, Folk, StageПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:76B12D3FA93F70BE155C33CC1943AE4F9A563247
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1739399.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 739 251
+
+VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 Kbps] <Electronic, Ro
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Жанр: Electronic, Rock, Funk / Soul, PopПродолжительность: 04:04:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0D6768FFB83515BBF7BCF73CB80D1F99A739CF22
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1739251.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 739 217
+
+VA - Now Yearbook Extra '90 3 x CD, Compilation, Collectors Edition (2024) [MP3|320 Kbps] <Electroni
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1-01	George Michael–Freedom! '90	6:29
+1-02	The B-52's–Roam	4:05
+1-03	Duran Duran–Serious (Single Edit)	3:57
+1-04	Belinda Carlisle–Runaway Horses	4:12(   Читать дальше...   )Жанр: Electronic, Hip Hop, Jazz, Rock, Reggae, Funk / Soul, PopПродолжительность: 04:00:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D307DC1E49AEC4BF58CF156653E719242D765941
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1739217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 739 040
+
+Duran Duran - All She Wants Is (1988) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Synth-pop
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. All She Wants Is (Single Mix) [00:04:26]
+02. All She Wants Is (Euro Dub Mix) [00:07:34]
+03. I Believe (Medley) [00:04:58]
+04. All She Wants Is (US Master Mix) [00:07:19](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:40C8B9E62D2C9BB3A1C9D7ACB8A23EB62214FAEC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1739040.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 739 032
+
+Gloria Gaynor - Never Can Say Goodbye (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. The Eye Of The Tiger
+ 02. The Heat Is On
+ 03. Feel So Real
+ 04. The Power Of Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43BC8237747C126F6C80B22AE26FE657B9A453BA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1739032.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 739 026
+
+Галина Невара - Когда цвели сады (2007) [WavPack|Lossless|image + .cue] <Stage, Schlager>
+Pop (сборники)
+Советская эстрада, Ретро (Lossless)
+
+###  Подробнее
+
+01. Когда цвели сады
+ 02. Сумерки
+ 03. Случайность
+ 04. У беды глаза зеленые(   Читать дальше...   )Жанр: Stage, SchlagerПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6C42A6CFA0ABE4BDE910FA0283A8578E1ABD4487
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1739026.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 854
+
+VA - Mega Hits Sommer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. OneRepublic, Leony & Meduza - Fire (Official UEFA EURO 2024 Song) (2:48)
+02. David Guetta, Billen Ted & Girl On Couch - Man In Finance (1:53)
+03. Post Malone Feat. Blake Shelton - Pour Me A Drink (3:15)
+04. Civo - Mach die Augen auf (1:51)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C805617CAC56924A45556D48BB0CB57A7B1E0A98
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738854.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 738 762
+
+Сергей Дубровин - Лучшие песни (2024) Remastered, 2024, United Music Group [FLAC|Lossless|WEB-DL|tra
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ласковая моя (Remastered 2024) [00:03:38]
+02. А над речкой туман (Remastered 2024) [00:03:58]
+03. Навсегда (Remastered 2024) [00:04:14]
+04. Сказочная женщина (Remastered 2024) [00:04:04](   Читать дальше...   )Жанр: Pop /Продолжительность: 03:31:00 /
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CF874A9B8774FFABD3D266FAC422F36C38A48AB1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1738762.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 738 621
 
 Wild Cherry - 4 Albums (1976-1979) Collection LP [MP3|320 Kbps] <Rock, Funk, Disco>
@@ -1744,256 +1991,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1733788.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 733 433
-
-VA - DJ Hits Vol. 122 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Dj Chroma Feat.Dj Youth - Na Na Hey
-02. Unique II - Break My Stride
-03. Leila K. - Rude Boy
-04. Captain Hollywood - Waiting So Long(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B61CF4F881994DE0C80B6C9A8D4EEA211A5C615F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1733433.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 733 360
-
-VA - DJ Hits Vol. 115 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Backstreet Boys - Get Down
-02. Pet Shop Boys - Se A Vida E
-03. 2 Unlimited - Spread Your Love
-04. Music Instructor - Hymn(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA5D5B49CF4FECBDEEB57424DB33C78986554994
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1733360.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 733 149
-
-Юта - Акустика (2024) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Струна (Acoustic Version)
-2. Я буду ждать тебя (Acoustic Version)
-3. Та самая девчонка (Acoustic Version)
-4. Тополя (Acoustic Version)(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFD859A88F97419E0BA2E08ED9D100DAC98CF6BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1733149.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 733 147
-
-Гоша Куценко - Слова под Музыку (2024) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Бог
-2. Звезда
-3. Жизнь без любви
-4. Жара(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:443696F70BCD197C51C314BA3D6B811B5B39C314
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1733147.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 733 038
-
-VA - DJ Hits Vol. 112 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. The Outhere Brothers - The Hitmix
-02. Marga Dredd - Fat Bottomed Girls
-03. Outta Control - Tonight It's Party Time
-04. Los Del Mar - Macarena(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:266B0AE2BD8245ADC94A7810200E4FB4E7E76287
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1733038.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 732 903
-
-VA - 80er - 100 Hits (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Jimmy Nail - Love Don't Live Here Anymore
-02. Peter Schilling - Major Tom (Single Version)
-03. Tina Turner - What's Love Got to Do with It
-04. Heinz Rudolf Kunze - Dein ist mein ganzes Herz (2008 Remaster)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:55:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:15B99F5B1C6A456F896EAEBA05CA024C113F9A7B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1732903.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 732 783
-
-VA - DJ Hits Vol. 111 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Brothers Inn Crime - Forever
-02. Groove Solution - Magic Melody
-03. Pulsar - Gimme Luv
-04. Hands of Belli - '74-'75 Dance(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE83A07091C9EB77441EFEE788558D0BC58F0DD9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1732783.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 732 629
-
-VA - DJ Hits Vol. 110 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. IMF - Theme From Mission Impossible
-02. The Blue Men - X-Files
-03. 4 Ties - Chirpy Chirpy Cheep Cheep
-04. Gina G - ...Ooh Aah... Just A Little Bit(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6AAD6C1A9DD4E2CF8AE04581A9E1B5848FAD7522
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1732629.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 732 513
-
-VA - DJ Hits Vol. 105 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Primary - 2001
-02. Daniel Amalm - Classical Gas
-03. Captain Jack - Soldier Soldier
-04. Fiesta Del Soul - Marinero(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0967008EDAFA319331CEABBC8B71B96F2805E32B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1732513.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 732 429
-
-VA - DJ Hits Vol. 103 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Bizz Nizz feat. Geoge Arrendell - DABADABIABOO
-02. Beat Society - Feel The Beat
-03. Rama - Light My Fire
-04. Paolo Ferrari & Andrea Giuditta - The Sun In The Night E.P.(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:14:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0AEF2CFA88187CEAC3E572DA70282B24F27ED582
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1732429.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

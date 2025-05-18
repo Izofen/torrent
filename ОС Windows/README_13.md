@@ -1,4 +1,192 @@
 ﻿
+###  Публикация: 1 222 815
+
+Microsoft Windows 10 10.0.17134.1 Version 1803  Updated April 2018  - Оригинальные образы от Mic
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы Windows 10 April 2018 Update от 30 апреля 2018 года.
+С обновлением Redstone 4 должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:10EB893A74488C15EAAAEBCD19FCC651C2FE2654
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1222815.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 212 499
+
+Microsoft Windows 10 Home Single Language 10.0.16299.125 Version 1709  December 2017  x64 - Ориг
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин     Читать дальше...    Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BF53843F5831B062AE0CED2EB223193074CDD72B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212499.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 207 916
+
+Microsoft Windows Server 2016 RTM Version 1607 Build 10.0.14393.1884  Updated Feb 2018  - Оригин
+ОС Windows
+Оригинальные версии Windows Server
+
+###  Подробнее
+
+Windows Server - это проверенная масштабируемая платформа корпоративного класса для облачных сред и центров обработки данных, на которой можно разместить самые ресурсоемкие рабочие нагрузки и использовать широкие возможности восстановления для защиты от перебоев в обслуживании. Это позволяет ускорить процесс получения прибыли за счет упрощения основной инфраструктуры,     Читать дальше...    Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DCDEE56C058C9BF7626C9AF0D1D27C67DC9E5092
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1207916.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 193 369
+
+Microsoft Windows 10 10.0.16299.125 Version 1709  Updated Dec. 2017  - Оригинальные образы от Mi
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы Windows 10 Fall Creators Update  версия 1709 16299.125  VLSC MSDN.
+Зимнее обновление Windows 10 Fall Creators Update  Redstone 3  от 19 декабря 2017 года.
+С обновлением Windows 10 Fall Creators Update  версия 1709  должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:78091D78EE07E914A9529E73FB36B0C15BE4CCB9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1193369.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 192 515
+
+Windows 10 Enterprise LTSB 10.0.14393 Version 1607  x86 x64  [Updates 4.0] by YelloSOFT [Ru]
+ОС Windows
+Сборки Windows 10
+
+###  Подробнее
+
+Сборки основаны на официальных образах MICROSOFT:
+ru_windows_10_enterprise_2016_ltsb_x86_dvd_9058173
+ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886
+Интегрированы обновления по 01.12.17    Читать дальше...    
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:64FA301CE02730809B3B23A6EB6A976CA37D451B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1192515.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 188 281
+
+Microsoft Windows 10 10.0.16299.64 Version 1709  Updated Nov. 2017  - Оригинальные образы от Mic
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы Windows 10 Fall Creators Update  версия 1709 16299.64  VLSC MSDN.
+Осеннее обновление Windows 10 Fall Creators Update  Redstone 3  от 28 ноября 2017 года.
+С обновлением Windows 10 Fall Creators Update  версия 1709  должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Украинский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CA53E7BDF16F2A1564E64915C9B7D609B46D8F58
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1188281.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 187 980
+
+Microsoft Windows 10 10.0.16299.64 Version 1709  Updated Nov. 2017  - Оригинальные образы от Mic
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы Windows 10 Fall Creators Update  версия 1709 16299.64  VLSC MSDN.
+Осеннее обновление Windows 10 Fall Creators Update  Redstone 3  от 28 ноября 2017 года.
+С обновлением Windows 10 Fall Creators Update  версия 1709  должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2719F110CB0C9AC3DAE17DB1D82A5BB02232FC84
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1187980.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 187 956
+
+Microsoft Windows 10 10.0.16299.64 Version 1709  Updated Nov. 2017  - Оригинальные образы от Mic
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы Windows 10 Fall Creators Update  версия 1709 16299.64  VLSC MSDN.
+Осеннее обновление Windows 10 Fall Creators Update  Redstone 3  от 28 ноября 2017 года.
+С обновлением Windows 10 Fall Creators Update  версия 1709  должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:540C017D5F74C638B1CAAF4EF13039B5002F297A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1187956.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 180 808
 
 Recovery DVD for Lenovo IdeaPad S10-3S   Windows 7 Starter  х32  [Ru]
@@ -1626,193 +1814,6 @@ Windows OEM Recovery СD DVD
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_991588.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 988 733
-
-Recovery USB-Flash for Dell Inspiron 3542   Windows 10 Home  х64  [Ru]
-ОС Windows
-Windows OEM Recovery СD DVD
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Dell_3542_W10.tib,
-записанный на ноутбуке Dell Inspiron 3542-7807 с помощью программы Windows Media Creator.
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6376800D605E97ADEE2BF4409EDE2DB3C530350
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_988733.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 978 297
-
-Recovery USB-Flash for Lenovo IdeaPad 100-15IBY   Windows 8.1  х64  [Ru]
-ОС Windows
-Windows OEM Recovery СD DVD
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Lenovo_100_15IBY_W81.tib,
-записанный на ноутбуке Ideapad 100-15IBY  80mj005hrk  с помощью программы Windows Media Creator.
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:676241CB7AD6D89C82E91BEF655ABB5B49974EA3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_978297.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 976 939
-
-Microsoft BackOffice Server 4.5 4.0.1381.1 [En]
-ОС Windows
-Музей Windows
-
-###  Подробнее
-
-Microsoft BackOffice Server - интегрированный набор серверных программ, оптимизированный для операционной системы Windows NT Server. BackOffice Server позволяет создавать мощные и интегрированные серверные решения в рамках как локальных, так и глобальных сетей. Этот пакет совместно с лицензией на доступ  Client Access License  предоставляет наиболее простой и экономичный     Читать дальше...    Язык интерфейса: английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6988C2769A5A8963A38C4A66012578062BB0AF03
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976939.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 974 365
-
-Microsoft Windows 2000 Small Business Server SP3 [En]
-ОС Windows
-Музей Windows
-
-###  Подробнее
-
-Microsoft Small Business Server 2000 - новый комплекс программных продуктов для создания типового сетевого решения для малых предприятий с количеством персональных компьютеров не более 50. Microsoft Small Business Server 2000 включает в себя операционную систему Windows 2000 Server и первое поколение серверных решений Microsoft .Net для организации электронной почты,     Читать дальше...    Язык интерфейса: английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A7E94F3E62DEBF2351A15F53F5A4BA81C7E7A91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_974365.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 973 925
-
-Microsoft Windows 2000 Advanced Server Build 2195 [En]
-ОС Windows
-Музей Windows
-
-###  Подробнее
-
-Windows 2000  также называемая Win2k, W2k или Windows NT 5.0  — это операционная система семейства Windows NT компании Microsoft, предназначенная для работы на компьютерах с 32-битными процессорами  с архитектурой совместимой с Intel IA-32 .
-Первая бета-версия системы была выпущена 27 сентября 1997 года. Изначально система носила название Windows NT 5.0, поскольку     Читать дальше...    Язык интерфейса: английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:639EECD9FB58D1E52B7D2BDD6967E5727FE8BF2D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_973925.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 973 904
-
-Microsoft Windows NT Server 4.0 Build 1381 Service Pack 1 [En]
-ОС Windows
-Музей Windows
-
-###  Подробнее
-
-В сложном мире компьютерных систем современным организациям требуется серверная операционная система, которая может обеспечить одновременно и простоту в использовании, и высокую производительность, и возможность запуска серверных приложений, и телекоммуникационные службы.
-Операционная система Windows NT Server 4.0 отвечает всем этим требованиям и является надежной     Читать дальше...    Язык интерфейса: английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FD605FECAD03EFB19D81B496111FB5AC52663E1D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_973904.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 970 187
-
-Windows 7 Профессиональная SP1 x86  OA CIS and GE  6.1.7601.17514 [Ru]
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Оригинальный образ диска Windows 7 Профессиональная х86 SP1 RU  Предназначена для распространения с новыми ПК на территории Содружества Независимых Государств и Грузии  X17-04750-02. Редакция содержит только одну версию - Professional. Образ создан с оригинального компакт диска Майкрософт. Предназначена для тех, кто имеет лицензионный ключ Windows 7 Pro OA CIS and     Читать дальше...    Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E307DE3D80B2F393719AA8F88727A2722911760F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970187.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 969 474
-
-Recovery USB-flash for Asus X555 LN   Windows 8.1  х64  [Ru]
-ОС Windows
-Windows OEM Recovery СD DVD
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Asus_X555LN_W81.tib
-записанной на ноутбуке Asus x555ln-xo184h  90nb0642-m05630 
-с помощью программы Windows Recovery Media Creator.
-Образ флешки создан программой Acronis True Image Home 2013.    Читать дальше...    Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC60F0498D70EBA62B54CA9FA26B374F7CD6B587
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_969474.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

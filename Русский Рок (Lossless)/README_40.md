@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 915 488
+
+Красный Смех - Воздухоплаватели  2015  Single [MP3|320 кб с]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. ВоздухоплавателиЖанр: RockПродолжительность: 00:05:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3BED1C02CF6A24A0E71C58CFF5B40534E58607D6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_915488.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 915 437
+
+Море Fиджи - Твоя Эволюция  2015  [MP3|320 кб с]<Rock, Grunge, Alternative>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Привет
+02. Твоя Эволюция
+03. Темный Снег
+04. Вернусь    Читать дальше...    Жанр: Rock, Grunge, AlternativeПродолжительность: 00:31:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9029C994DE14294FE3CA7F55ABE7D90EE1C05027
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_915437.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 915 317
+
+Fferyllt - Achanterez  2015  [MP3|320 кб с]<Folk Metal, Symphonic Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Call Of The Wild
+2. Disciples Of War
+3. A Sprengisandi
+4. The Final Sunrise    Читать дальше...    Жанр: Folk Metal, Symphonic MetalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A63EE90AD82002312F66113AB478A42C3DF31A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_915317.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 915 156
+
+Liorinkarmic - 6 альбомов  2014-2015  [MP3|320 кб с]<Post-rock, Experimental, Minimal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. The lost forgotten girl [05:16]
+02. Tecollection [05:24]
+03. Double black death butterfly [03:52]
+04. Jealous of the kind and lovely [02:49]Жанр: Post-rock, Experimental, MinimalПродолжительность: 03:44:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7C139AC2D887F600A8C82960FE87409FEEA3C412
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_915156.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 914 290
+
+Браво - Grand Collection  2008  [FLAC|image+.cue]<Rock, Rock-n-Roll>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Король Оранжевое Лето
+02. Верю я
+03. Московский бит
+04. Будь со мной    Читать дальше...    Жанр: Rock, Rock-n-RollПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3B00B37A57CF2B3107F384781468128F01F5F1CF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_914290.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 913 756
 
 Юта - Кстати  2014  [MP3|320 кб с]<Pop-Rock>
@@ -1891,136 +2013,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 870 092
-
-Чиж & Co - Дорожные песни  2014  compilation [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Дополнительный 38-Й
-02. Ветер Вырывает Из Рук  Последние Деньги 
-03. Поезд
-04. О.К.
-05. Ехал Всю Ночь    Читать дальше...    Жанр: RockПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:12B57B0DE6164AFA6DEE6BAC2DF0E2C8D9BB595D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 870 026
-
-Familia - Нейроны  2015  [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Нейроны
-2. Кругом враги
-3. Как ты, зая?
-4. Остывай
-5. Нужный человек    Читать дальше...    Жанр: RockПродолжительность: 00:25:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FB40F8F7AF46CB1D907BD217D053846E55775362
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 870 021
-
-Buzzheads - Boozed & Confused  2015  [MP3|320 кб с]<Alternative Rock, Progressive Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Gentle astronaut
-02. Murderer. 1st story
-03. Hypocrites
-04. Spoon of honey
-05. Murderer. 2nd story    Читать дальше...    Жанр: Alternative Rock, Progressive RockПродолжительность: 00:32:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6CC5481BF507D09BAC03E898554EF6F2F18A399
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 869 970
-
-Дмитрий Ревякин - Opus Magnum  Grandi canzoni   2015  [MP3|320 кб с]<Folk-Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Белая рака
-02. Ты да я
-03. Три казака
-04. Закрутило
-05. Караваны    Читать дальше...    Жанр: Folk-RockПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BC945BB18A0984A91ED5BCA22439584B2205667D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 869 488
-
-РадиоЦех - Панове Президенте  2015  [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Панове Президенте
-02. Колись
-03. Герої не вмирають
-04. Падай i вставай
-05. А у нас вiйна    Читать дальше...    Жанр: Industrial rockПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C2FD5A75B19C7AD354610864A837CF4F73AD54DE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_869488.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

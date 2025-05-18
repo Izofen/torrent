@@ -1,4 +1,186 @@
 ﻿
+###  Публикация: 1 409 207
+
+Microsoft Windows 10.0.18362.1082 Version 1903  Updated Sept 2020  - Оригинальные образы от Micr
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.1082.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FA36CF9A14CDCEA73F169E9FC94D59375FFA00D2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1409207.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 409 206
+
+Microsoft Windows 10.0.18362.1082 Version 1903  Updated Sept 2020  - Оригинальные образы от Micr
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.1082.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69DB209CF4166FB4DA30E65F8339950EA38830B0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1409206.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 409 205
+
+Windows Server 2019 LTSC Version 1809 Build 17763.1457  Updated Sept 2020  Оригинальные образы о
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки  файловые сервера, сервера приложений, инфраструктурные роли и т.п. . Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра  Server Core  и в     Читать дальше...    Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CDF72519DE64669DA1AB104A1DFB081084FDDA2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1409205.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 409 204
+
+Microsoft Windows 10.0.17763.1457 Version 1809  Updated Sept 2020  - Оригинальные образы от Micr
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1457.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43CF4BDCB023338A29042B6C074A138A62FE49F2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1409204.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 409 203
+
+Microsoft Windows 10.0.17763.1457 Version 1809  Updated Sept 2020  - Оригинальные образы от Micr
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1457.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:433C77FC72B38F843D9FEB659EF31D06DAFD1F09
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1409203.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 403 459
+
+Windows Server, Version 2004  10.0.19041.450   Updated Aug 2020  - Оригинальные образы от Mi
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для     Читать дальше...    Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:27511EEA3A2C6D7F849CE61372C83CC9DFA7E85B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403459.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 403 458
+
+Microsoft Windows 10.0.19041.450 Version 2004  Updated Aug 2020  - Оригинальные образы от Micros
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.450.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:970AD7C20A4E0BE1510D79CC2AE1F8FB14D50A11
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403458.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 403 457
+
+Microsoft Windows 10.0.19041.450 Version 2004  Updated Aug 2020  - Оригинальные образы от Micros
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.450.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA8530C2E09A9943F9EEEC25DDF54E0277546AF4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1403457.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 403 456
 
 Microsoft Windows 10.0.18363.1016 Version 1909  Updated Aug 2020  - Оригинальные образы от Micro
@@ -1631,186 +1813,6 @@ Microsoft Windows 10.0.17763.1039 Version 1809  February 2020 Update  - Ориг
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1364636.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 359 860
-
-Windows PowerShell 5.1 [Ru]
-ОС Windows
-Разное  RC, Beta и Service Packs 
-
-###  Подробнее
-
-Это автономный установщик Windows PowerShell 5.1. Не требующий подключения к сети интернет. Пакет установки только русский.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:32F26C86FD3249F3F1C917AAB2FF4F46B9EA2E3B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1359860.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 354 500
-
-Microsoft Windows 10.0.18363.592 Version 1909  January 2020 Update  - Оригинальные образы от Mic
-ОС Windows
-Музей Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.592.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C20163EE94793793ABE98A6FB00B7E574D67B7A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1354500.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 354 496
-
-Microsoft Windows 10.0.18362.592 Version 1903  January 2020 Update  - Оригинальные образы от Mic
-ОС Windows
-Музей Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.592.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2A2B883E9AA53F0B05988549DF70615EE12AC12B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1354496.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 354 488
-
-Microsoft Windows 10.0.17763.973 Version 1809  January 2020 Update  - Оригинальные образы от Mic
-ОС Windows
-Музей Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.973.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CD8D7342CB0D4BC1C69A2260E21FD26C568364F5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1354488.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 354 482
-
-Windows Server, Version 1909  10.0.18363.592  - Оригинальные образы от Microsoft MSDN [En Ru]
-ОС Windows
-Оригинальные версии Windows Server
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для     Читать дальше...    Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4629D209CDBC7BEE38BB4E3C82050E221010C073
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1354482.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 354 479
-
-Windows Server, Version 1903  10.0.18362.592  - Оригинальные образы от Microsoft MSDN [En Ru]
-ОС Windows
-Оригинальные версии Windows Server
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для     Читать дальше...    Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:74287E00A4E349FCE85E0C4C7BC4E81D47833E0E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1354479.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 354 467
-
-Windows Server 2019 LTSC 1809 Build 17763.973  Updated January 2020  Оригинальные образы от Micr
-ОС Windows
-Музей Windows
-
-###  Подробнее
-
-Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки  файловые сервера, сервера приложений, инфраструктурные роли и т.п. . Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра  Server Core  и в     Читать дальше...    Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:118BE9329A4B68A5305FAE8B1BB32DB4B2184350
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1354467.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 354 402
-
-Microsoft Windows 10.0.18363.592 Version 1909  January 2020 Update  - Оригинальные образы от Mic
-ОС Windows
-Музей Windows
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.592.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5301151B98F8ACD6D3740C6D925F453A29CD3DF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1354402.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 367 675
+
+Таймсквер - Вкус крови  2019  [MP3|320 Kbps] <Alternative Rock, Electronic>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Интро
+02. Вкус крови
+03. Я.Л.Н.Л.Л.  feat. DETACH 
+04. Соль и пепел    Читать дальше...    Жанр: Alternative Rock, ElectronicПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:62BBEDB2D5FA76FF2C50731A1ABA8620630E8C96
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1367675.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 367 456
+
+WastedSky - Мы все нули и единицы  2020  EP [MP3|320 Kbps] <Nu Metal, Rapcore>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 Искры [00:01:17]
+02 На краю [00:03:27]
+03 Карма [00:03:45]
+04 Бессонница [00:03:56]    Читать дальше...    Жанр: Nu Metal, RapcoreПродолжительность: 00:16:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D6905441882723A75D7320F15F4B8BA453464BF8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1367456.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 367 389
+
+Земля Легенд - 2 Albums: Начала Зимы, Стеклянный Утес  2016-2020  [MP3|V2-320 Kbps] <Folk, Art R
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. От имени Любви [00:03:39]
+02. Где ты [00:04:16]
+03. Северная чернь [00:04:51]
+04. Созвездие Стрельца [00:04:12]    Читать дальше...    Жанр: Folk, Art Rock, Female vocalПродолжительность: 2CDr 01:32:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0F046CFEEF71F624E22C3466824902BCFFC0B8A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1367389.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 367 127
+
+Пламя в нас  Рви Меха  - 3 Альбома: Речка, Жаворонок, Времена  2016-2020  [MP3|320 Kbps] <Fo
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 Пламя в нас [00:04:15]
+02 Весна [00:04:44]
+03 Времена [00:04:29]
+04 Красная луна [00:03:56]    Читать дальше...    Жанр: Folk MetalПродолжительность: 01:36:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D2CA99B7CAC8D71106EDCE25D2C5FA582B199E5C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1367127.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 366 918
+
+Ермак! - Collection  3 Albums: Весна, Мать, Птицы. Сторона А   2016-2020  [MP3|320 Kbps] <Po
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. На память [00:04:01]
+02. Из колодца видно звёзды [00:04:14]
+03. Отрок [00:04:05]
+04. Дотла [00:03:01]    Читать дальше...    Жанр: Post-Hardcore, Chaotic HardcoreПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DF3FB8639F56BDFD7F3FDF24E8A86D58EA3F4EDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1366918.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 366 833
 
 Аффинаж - Мимо. Ранен. Убит.  2020  [MP3|320 Kbps] <Rock>
@@ -1839,125 +1964,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345104.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 345 092
-
-Владимир Кузьмин & Динамик - Дурная репутация  2019  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Дикий мёд
-2. Пассажир
-3. Глюк
-4. Я сказал люблю    Читать дальше...    Жанр: RockПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:064A2216C49A8DBFCFF051921C44430DF252C767
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1345092.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 344 944
-
-Вольная стая - Джекпот  2019  [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. За мной
-02. Сгореть
-03. Первый раз убил
-04. Утоли мне боль    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DCE88AB7D1DD8B89BEABC47E2F5DE78EE8086D97
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344944.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 344 355
-
-Игра Миров - Мир неизведанный  2019  2CD [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Эхо [5:00]
- 02 - Танец ветра [4:50]
- 03 - Сихотэ-Алинь [4:14]
- 04 - По течению [4:20]    Читать дальше...    Жанр: RockПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4E3CB04D55C668B55A0EAD801373CBA77AF06E88
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1344355.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 478
-
-7Б - Художник отмечал…  2019  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Художник отмечал…Жанр: RockПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DE0049C114CE62EB18DA723BD5FBBD4185386613
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343478.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 343 444
-
-Сплин - Тайком  2019  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. ТайкомЖанр: RockПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:12672C16ABAE55ADC4A0A5E383CBB8C78D0EF7F4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1343444.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

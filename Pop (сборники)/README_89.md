@@ -1,4 +1,251 @@
 ﻿
+###  Публикация: 1 094 044
+
+VA - 10 песен о любви  2004  бесплатное приложение к журналу Yes! [FLAC|Lossless|image + .cue] <
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+В январе 2003 года журнал YES! обьявил о намерении собрать музыкальную группу с одноименным названием и устроил конкурс под названием  YES! зажигает звёзды!  Всё, что нужно было сделать - это прислать в редакцию фото, аудио- или видеозапись, где были бы  запечатлены таланты . В редакцию пришло n-ое количество записей. После жесткого отбора остались     Читать дальше...    01. Yes! - Ты не знаешь...
+02. Yes! - Передумала
+03. Мумий Тролль - Это по любви  Japanese version 
+04. Smash!! - Freeway    Читать дальше...    Жанр: Pop, RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B219D190C8C41BCB48B100B1ABF625EF98DBAF61
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1094044.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 094 006
+
+Linda Jo Rizzo - Fly Me High  The Album   2015  [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01|  Fly Me High   07:20  
+02|  There s A Fire   05:37  
+03|  Only One Night   07:34  
+04|  Heartflash   05:58      Читать дальше...    Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD1CF64748983CD8E367B585E5EAF38C78F11A39
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1094006.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 093 880
+
+Red Box - The Circle & The Square  1986  Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+На мой взгляд  и не только  шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
+02. Heart Of The Sun
+03. Billy s Line
+04. Bantu    Читать дальше...    Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1093880.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 093 836
+
+VA - The Disco Sessions  2017  [MP3|320 Kbps] <Disco, Nu-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Discotron - Disco Power  Original Mix  04:49
+02. Audio Jacker - You Say  Original Mix  06:17
+03. Boogie Freaks - The Mean Green  Original Mix  07:02
+04. Discotron - I Got This  Original Mix  06:13    Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CD95F75A2DE4F71C38F1899CC5E4E520E76A6F84
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1093836.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 093 728
+
+In Search Of Orchestra - In Search Of...  1977  [MP3|320 Kbps] <Electronic, Soundtrack, Jazz, Co
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+Авторы и продюсеры - W. Michael Lewis and Laurin Rinder.01. Time Traveler   8:27 
+02. A Taste of Ghosts   0:52 
+03. Phenomena Theme   5:45 
+04. An Atlantean Dream   6:54     Читать дальше...    Жанр: Electronic, Soundtrack, Jazz, Contemporary, DiscoПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E082EA8A6A40B1EC652EC9FDA3F6501062BAE058
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1093728.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 093 632
+
+Baccara - I Belong To Your Heart  2017  Single [FLAC|Lossless|WEB-DL|tracks] <Disco, Eurodisco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. I Belong To Your HeartЖанр: Disco, EurodiscoПродолжительность: 00:03:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:144E553DAF7423D817A7D7011253F66E37436DC1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1093632.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 093 286
+
+Corona X - And Me U  2000  [MP3|256 Kbps] <Europop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Volcano
+02. Everything You Need
+03. Good Love
+04. And Me U    Читать дальше...    Жанр: EuropopПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6FF70C085FF08C0EC378DD6ACF3E535F45A39658
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1093286.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 092 891
+
+VA - White Dance: Winter  2017  [MP3|320 Kbps] <Club, Future House, Vocal, Nu Disco, Tropical>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Deep System - I Need You  Extended Mix  04:32
+02. Dyana Dyà Shkendije - Paper Maché  Radio Mix  02:49
+03. Joanna Rays - Close To Me  Lesamoor Deep House Remix  05:20
+04. Dom Tufaro And Louis Inglese - Brand New Life  Dj Cheech Remix   Feat. Tamara Wallace  04:15    Читать дальше...    Жанр: Club, Future House, Vocal, Nu Disco, TropicalПродолжительность: 02:37:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7671247EAE01F30320526793ACD17B0CD551D4F1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1092891.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 092 687
+
+Кристалл - Всё ещё будет  2014  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Intro
+02. Помоги мне, звезда
+03. Всё ещё будет
+04. Мишка    Читать дальше...    Жанр: PopФормат: CD, AlbumПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BD4866C567EDB239E3B2B779421EDFA0105F962A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1092687.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 092 545
+
+Ria Mae - Ria Mae  2016  [FLAC|Lossless|tracks + .cue] <Alternative Pop, Alternative Rock, Urban
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Wherever We Go  03:05 
+02. Clothes Off  Single Version   03:23 
+03. Ooh Love  03:25 
+04. If You Don t Love Me  03:32     Читать дальше...    Жанр: Alternative Pop, Alternative Rock, Urban PopПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AEE10FBC34F61F31315E79D11C3B6A3653B84C7B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1092545.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 092 420
 
 VA - NRJ Winter Hits  2017  3CD [MP3|320 Kbps] <Pop>
@@ -1741,254 +1988,6 @@ Dan Lacksman - полное имя Daniel Pierre Lanckmans. Известен п�
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084177.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 084 176
-
-Annie Lennox - Diva  1992  Reissue, 2007, BMG Japan [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Why  4:54 
- 02. Walking On Broken Glass  4:13 
- 03. Precious  5:09 
- 04. Legend In My Living Room  3:46     Читать дальше...    Жанр: PopПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C6EFD7C568AF9C2FAB5A20C0E684C84FD348C9B1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084176.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 084 086
-
-Electronic System - Disco Machine  1977  Reissue, 2004, Musique Belgique Archive [MP3|320 Kbps]
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Проект от Dan Lacksman, продюсера и звуко-инженера известной группы  Telex .01. Flight to Tokio   6:13 
-02. Cosmos Trip   5:13 
-03. Fly to Venus   5:37 
-04. Sailing to an Unknown Planet   5:36     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1DCB1A43E24D26F7ACFD2EB6734C4932BA10103C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084086.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 084 007
-
-Transvolta - Disco Computer  1979  12  [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Проект от  Dan Lacksman, продюсера и звуко-инженера из группы  Telex .01. Disco Computer   6:53 
-02. You re Disco   6:43 Жанр: Electronic, DiscoПродолжительность: 00:13:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B91CE6D4E72B7363FAC45F0F76BB4D209CB63666
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1084007.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 083 806
-
-VA - DMC Monsterjam  2016  [MP3|320 Kbps] <Electronic, Hip Hop, Reggae>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01. Lil Wayne, Imagine Dragons, Ty Dolla Sign ‘Sucker For Pain’
-02. Twenty One Pilots ‘Stressed Out’
-03. Chainsmokers Fe. Phoebe Ryan ‘All We Know’    Читать дальше...    Жанр: Electronic, Hip Hop, Reggae, PopПродолжительность: 02:33:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6196EC121C97CD9D68AF77CC58F1C68053FAD1B3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1083806.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 083 691
-
-Champagne Explosion - Champagne Explosion  1978  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Action Is Tight   5:27 
-02. Sexy Changes   6:02 
-03. Love Now Hurt Later   7:03 
-04. Jesus Christ Super Star   4:06 Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:22:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BF52B544078B0ED4CD484B13115232F76681462B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1083691.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 083 681
-
-Cher - Living Proof  2001  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. The Music s No Good Without You  4:43 
- 02. Alive Again  4:19 
- 03.  This Is  A Song For The Lonely  4:02 
- 04. A Different Kind Of Love Song  3:52     Читать дальше...    Жанр: PopПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C29D88D35E45C841462DBA8CB3CE9EC3757136D2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1083681.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 083 494
-
-VA - Суперхиты 2017  2016  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Макс Барских - Туманы
-02. Марсель - Не отдам  feat. Artik & Asti 
-03. Руки Вверх! - Когда мы были молодыми
-04. Митя Фомин - Найти и не терять    Читать дальше...    Жанр: PopПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C767BE9BC983CE1C17B884BEA73704D5351FF7BC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1083494.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 083 304
-
-Sweetback - Sweetback  1996  Japanese Edition [FLAC|Lossless|image + .cue] <Electronic, Jazz, Tr
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Gaze  5:27 
- 02. Softly Softly  4:29 
- 03. Sensations  4:30 
- 04. Au Natural  4:15     Читать дальше...    Жанр: Electronic, Jazz, Trip-Hop, DowntempoПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D29D5CB264E3B19DC6680CF648697378622E2574
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1083304.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 083 042
-
-Sade - The Remix Deluxe  1992  Special Edition [FLAC|Lossless|image + .cue] <Pop, Soul>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Feel No Pain  Nellee Hooper Remix   5:12 
- 02. Love Is Stronger Than Pride  Mad Professor Remix   4:29 
- 03. Make Some Room  5:00 
- 04. Paradise  Ronin Remix   5:44     Читать дальше...    Жанр: Pop, SoulПродолжительность: 00:27:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E4BFAC6004B2027929B795B064657375E306746B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1083042.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 082 904
-
-Modern Talking - Die Erfolgreichsten Hits  Remastered   2016  [MP3|320 Kbps] <Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. You re My Heart, You re My Soul  Remastered  3:21
-02. You Can Win If You Want  Remastered  3:46
-03. Cheri Cheri Lady  Remastered  3:47
-04. Brother Louie  Remastered  3:42    Читать дальше...    Жанр: Euro-DiscoПродолжительность: 01:20:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:457AB0245954CF867B713260DF237E7E4807014A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1082904.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

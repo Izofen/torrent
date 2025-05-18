@@ -1,4 +1,601 @@
 ﻿
+###  Публикация: 1 424 075
+
+VA - Heavy Metal & Rock Christmas  2020  3CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. The Electric Christmas Orchestra,The Metal Heroes - Jingle Bells
+02. Willie Powell - O Come All ye Faithful  Instrumental 
+03. Helix - Santa Claus Is Back in Town
+04. The Electric Christmas Orchestra,The Metal Heroes - The Twelve Days of Christmas    Читать дальше...    Жанр: Rock, Hard Rock, MetalПродолжительность: 09:19:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9AEF16319D11B110DAD371D8FAF7D96FC8BAE336
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1424075.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 424 068
+
+VA - Громкие новинки Ноября 2  2020  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Anacondaz, кис-кис - Сядь мне на лицо  3:48 
+02. Anne-Marie - Problems  2:35 
+03. Armin van Buuren, Duncan Laurence - Feel Something  2:35 
+04. Aya Nakamura - Jolie nana  2:27     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 03:57:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6FCE5971B33E271E9814037B35761F0F6371FC18
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1424068.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 424 053
+
+VA - Record Super Chart 662  2020  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Moses & EMR3YGUL & Alexiane - A Million On My Soul  Remix   3:26 
+02. Slava Marlow - Снова я напиваюсь  1:56 
+03. Tiesto - The Business  2:43 
+04. Bastard! - F..k That  3:38     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:37:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9295039EE03BAD3E26D5D54F632829A762FBDCA1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1424053.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 985
+
+VA - Зайцев.нет Лучшие новинки Ноября  2020  [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. 2 Chainz feat. Mulatto - Quarantine Thick  3:10 
+02. Artem Smile & Emmanuil - Пьяным молодым  2:02 
+03. Asen - Два ангела  2:49 
+04. BENEE - Happen To Me  3:51     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:24:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6321D7DE0F6F118A728A2526D8C3369B1B0AF04C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423985.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 952
+
+VA - Music News vol.48  2020  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+001. NK  Настя Каменских  - A Huevo  LeKiD Remix   03:28 
+ 002. 3OH!3 feat. 100 Gecs - Lonely Machines  02:29 
+ 003. 369 feat. Agomel - Зеркала  02:28 
+ 004. a.Ja - Пусть Мой Дым  03:17     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 14:21:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1DDA6F9C63E573CAF97E452158EDDBE1A663AC3E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423952.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 918
+
+VA - New Rock 3 Русский  2020  [MP3|320 Kbps] <Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+01. Би-2 - Пекло  4:56 
+02. Lumen - Двести  4:48 
+03. Эскизы - Инди  3:15 
+04. Авантаж - Возвращайся  2:44     Читать дальше...    Жанр: RockПродолжительность: 02:37:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AD3110805A44929C46883F14445110552A1119CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423918.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 813
+
+VA - Romantic Jazz Nights  2020  [MP3|320 Kbps] <Jazz, Blues, Instrumental>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Nubya Garcia - Source
+002. Thor De Force - Machinuck
+003. Harrington, Gustin & Zahn - I Shall Tempo
+004. Alex Sadnik - Toreador    Читать дальше...    Жанр: Jazz, Blues, InstrumentalПродолжительность: 07:59:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D0E42BBF5C5E23EFB8FB2B446D61CF2216DADA4A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423813.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 711
+
+Hideki Naganuma, Richard Jacques, Guitar Vader - Jet Set Radio Future  2002  [MP3|320 Kbps] <Sou
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. The Concept of Love
+02. Fly Like a Butterfly
+03. Funky Dealer
+04. Shape Da Future    Читать дальше...    Жанр: OSTПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0FC6316A06D4C53CFD6CD6AB4F445CFB50ADD24A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423711.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 675
+
+Joel Nielsen - Black Mesa  2012-2019  Soundtracks Collection [MP3|320 Kbps] <Soundtrack>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 01:44:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC6D97E42B16B97EB5A9481C766F699C8F8993A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423675.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 617
+
+VA - ЕвроХит Топ 40 Europa Plus 13.11.2020 [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. Dotan - NUMB  3:38 
+02. Sam Smith - Diamonds  3:33 
+03. Foushee - Deep End  2:21 
+04. DaBro - Юность  3:39     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:11:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DBF630519B59F5BD629CC5D64B06F406092D5CB8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423617.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 545
+
+VA - Новички в попсе Vol 6  2020  [MP3|320 Kbps] <Pop, Rap>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Akim - Люби её  3:11 
+02. Asammuell - Идеал  3:28 
+03. ASAVVI - Слезы  2:35 
+04. DAASHA - Дождь идёт  2:53     Читать дальше...    Жанр: Pop, RapПродолжительность: 02:28:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E2D361A7DE0B8F9B67141E0DFDFB222C902A64D2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423545.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 523
+
+VA - Romantic French Chanson  2020  [MP3|320 Kbps] <Popular, Chanson>
+Неофициальные сборники
+Шансон, Авторская и Военная песня  сборники 
+
+###  Подробнее
+
+001. Mathieu Sempéré - Les Chevaux D andalousie
+002. Natasha St-Pier - Peu M importe
+003. Sarah Mikovski - Desoles
+004. Christophe Maé - Week-End Sur Deux    Читать дальше...    Жанр: Popular, ChansonПродолжительность: 08:01:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7DE5778159FBE4768CFF4EE3546F12BD676FD13A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423523.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 520
+
+VA - Future Party Trance  2020  [MP3|320 Kbps] <Trance, Psy Trance, Psychedelic>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Liddell - Take  Radio Edit 
+002. Aesis Alien - Unthinkable Happened
+003. Tommy Kierland - Nidavellir
+004. X-Men - Minus One    Читать дальше...    Жанр: Trance, Psy Trance, PsychedelicПродолжительность: 10:27:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8A195877F898F4CCD753E5A67D7A188E5CCE9AC9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423520.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 519
+
+VA - Disco Bolero  2020  [MP3|320 Kbps] <Disco, Remix, New Generation>
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+001. Igor Gonya - Forgotten Movie Hero
+002. Mammal Hands - Chaser
+003. Clive - Spring 1979
+004. Oja - Regarde    Читать дальше...    Жанр: Disco, Remix, New GenerationПродолжительность: 12:14:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:635114748565CC546B8CB99BCEA2F1291959E8BE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423519.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 468
+
+Leæther Strip - Introspective & Aggressive Dark Electro-Industrial  The best   2009-2018  Co
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Almost Too Much
+02. Anal Staircase
+03. Battle Mind
+04. Beat My Guest    Читать дальше...    Жанр: Industrial, EBMПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE3DE31427340ED73453DB74FEE83AB163A9C900
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423468.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 428
+
+VA - Worldwide Rap Singles - Октябрь 2020  2020  [MP3|320 Kbps] <Rap, Hip-Hop>
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae  сборники 
+
+###  Подробнее
+
+Новые синглы  из России, США, Франции, Испании, Германии и Кореи выпущенные в октябре 2020 годаRU  Россия  - 277 треков
+US  США  - 98 треков
+FR  Франция  - 94 трека
+ES  Испания  - 18 треков    Читать дальше...    Жанр: Rap, Hip-HopПродолжительность: 26:24:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:445B014C3F965F2678C51FA9557564D05B13454F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423428.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 062
+
+VA - Electro House Future Party  2020  [MP3|320 Kbps] <House, Club, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Nathan Lima - Komodo
+002. Jeff Haze - In My Soul
+003. Mizzo - Heliopolis
+004. Matisso - Quarantine    Читать дальше...    Жанр: House, Club, DanceПродолжительность: 11:16:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2B6065E89F3F64A4B1CFDE77BC58A7EBE8556914
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423062.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 423 060
+
+VA - Beatport Progressive Trance: Electro Sound Pack #201  2020  [MP3|320 Kbps] <Progressive Tra
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. H.X.E. - Transcend Dimensions
+002. Airi - It Was Alien
+003. Lasse Macbeth & Daniel Kandi - Gorgeous
+004. Upgrade - 90 Milion Degrees    Читать дальше...    Жанр: Progressive TranceПродолжительность: 10:35:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:411CC7DAF5F9FAF6B6E7E46AC86B770B3772CDD7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1423060.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 422 949
+
+VA - Hard Plylist  2020  [MP3|320 Kbps] <Metal, Hardcore, Hard Rock, Alternative>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal  сборники 
+
+###  Подробнее
+
+001. Cellar Stone - Live While You re Alive
+002. Shadow Witch - Sour
+003. Future Static - Adaptive Manipulator
+004. Lamb Of God - Checkmate    Читать дальше...    Жанр: Metal, Hardcore, Hard Rock, AlternativeПродолжительность: 08:50:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F12667398291CFB6922A141DAA434F01C30625B5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422949.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 422 947
+
+VA - Beatport Electro House: Sound Pack #200  2020  [MP3|320 Kbps] <Electro House, Dance>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+001. Ivan Afro5 - Moonlight  Original Mix 
+002. Curtis Daniels - Resistance
+003. Froogle - Patience
+004. Michael Conroy - Hold My Body    Читать дальше...    Жанр: Electro House, DanceПродолжительность: 11:07:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2EB39C008552CCDC6E7B2201A363B963031FD28F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422947.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 422 720
+
+VA - не Громкие новинки недели 87  2020  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. 5sta Family - Эгоистка  Yudzhin & Serg Shenon Radio Remix   3:02 
+02. Ana Baston - Черные Очки  2:42 
+03. Asammuell - Идеал  3:27 
+04. DaBro - Тебе Лучше Меня Не Знать  3:17     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:41:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A2F9DDED64F7163A3136DADE9E0C435D21FC1701
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422720.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 422 599
+
+VA - New Disco Hits 2020 от DON Music  2020  [MP3|320 Kbps] <Italo Disco, Pop, Dance, Electronic
+Неофициальные сборники
+Pop  сборники 
+
+###  Подробнее
+
+01. Savage - Every Second Of My Life
+02. Amadeus Angelus - One Step From Heaven
+03. Spatial Vox - Cause Of Shining In Your Eyes
+04. Bad Boys Blue - Killers    Читать дальше...    Жанр: Italo Disco, Pop, Dance, ElectronicПродолжительность: 05:29:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41B140403EB3A3BABCF47B18A1B0607C6F1FEFBE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422599.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 422 592
+
+VA - Music News vol.47  2020  [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее  сборники 
+
+###  Подробнее
+
+01. CARA - Tevere  03:18 
+ 02. Alter Bridge - Last Rites  04:08 
+ 03. Aris feat. ONEIL & Crosby - Lies  02:52 
+ 04. Asammuell - Идеал  03:28     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:24:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:928563C98188A5864982657E53BBC244751EF746
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422592.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 422 587
+
+VA - Velvet Evening: Classical Vocals In Jazz  2020  [MP3|320 Kbps] <Jazz, Blues>
+Неофициальные сборники
+Jazz, Blues, Soul  сборники 
+
+###  Подробнее
+
+001. Jamie Cullum - Everlasting Love
+002. Madeleine Peyroux - Smile
+003. Kathleen Grace - Embarcadero
+004. Eliane Elias - You’re Getting    Читать дальше...    Жанр: Jazz, BluesПродолжительность: 06:17:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F94FF073EAC53AD07169256BFED8AA95FBAD5B0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1422587.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 422 585
 
 VA - The Promise Land  2020  [MP3|320 Kbps] <Reggae, Ska, Soul>
@@ -1394,606 +1991,6 @@ Electronic  сборники
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1419468.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 419 401
-
-Robert Plant - Funny In My Mind  2CD Compilation   2020  [MP3|320 Kbps] <Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. Freedom Fries
-02. Morning Dew
-03. One More Cup Of Coffee
-04. Pledge Pin    Читать дальше...    Жанр: RockПродолжительность: 02:13:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA5BC997055E32A2B6D9FED439FEDAD027F1148E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1419401.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 419 371
-
-VA - не Громкие новинки недели 85  2020  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. 2 Маши - Мы Переживём Всё  3:17 
-02. Alexandra - Попадаем В Рек  2:22 
-03. Arsenaleen - Ангелы  2:56 
-04. DoppDopp - Потанцевально  2:53     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 02:40:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5778B977BBEDFDDC83F082951706EE278C66E02F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1419371.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 419 329
-
-VA - Рок впрок 15  2020  [MP3|320 Kbps] <Rock, Pop-Rock>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-01. 7линия - Меняем
-02. Лока 2.0 - По спирали
-03. Dругой Ветер - Нас не станет
-04. АЛЬТАВИСТА - Уникальная тварь    Читать дальше...    Жанр: Rock, Pop-RockПродолжительность: 03:14:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:679F535A69326DDB3A7D405C825C92564E092315
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1419329.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 419 107
-
-VA - Music News vol.43  2020  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-###  Подробнее
-
-001. Skaya - Мальчик-Футболист  02:55 
- 002. 2Wizard - Levitation  07:17 
- 003. 3 Inches of Blood - Deadly Sinners  04:31 
- 004. 7Roses - Out Of Control  04:28     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 15:12:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:15866E5D8215B2256957AD637AB18532F5CA0DFE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1419107.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 419 062
-
-VA - Rise In The Sky  2020  [MP3|320 Kbps] <New Age, Ambient, Relax Instrumental>
-Неофициальные сборники
-Instrumental New Age Meditative Relax  сборники 
-
-###  Подробнее
-
-001. Shizo Van De Sunflower - Rise In The Sky
-002. Laion - La Chica Del Campo
-003. Gilroy Mere - Adlestrop
-004. A.N.D.Y. - Oazis    Читать дальше...    Жанр: New Age, Ambient, Relax InstrumentalПродолжительность: 07:38:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:512EE3ABDCF8F9FFCF39781EC5840E3C462FFDE9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1419062.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 961
-
-VA - Yellow Day: National Pop Music  Vol.04   2020  [MP3|320 Kbps] <Pop, Dance, Folk>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Andriamad - Foule Sentimentale
-002. Cheeze - Excuse
-003. Nct Dream - Puzzle Piece
-004. Violeta Ikari - Aperanti Erimia    Читать дальше...    Жанр: Pop, Dance, FolkПродолжительность: 07:43:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:624A4E917A513AEDA8D3D144E4E1AA750F536E22
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418961.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 957
-
-Рождество - Песни Для Души  2020  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-01. Душа  05:02 
- 02. Зимний Вечер  04:53 
- 03. Лейся, Песня!  05:15 
- 04. Молодость  05:00     Читать дальше...    Жанр: PopПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CF80B22D87B8C25B27C8776452191A5B6CB7DA1E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418957.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 956
-
-VA - White Night Affair  2020  [MP3|320 Kbps] <Deep House, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Danny Hay - Grab A Bite
-002. Electronic DJ - Szahala
-003. Solari - Explod
-004. Kasey Kaotto - Cycles    Читать дальше...    Жанр: Deep House, ElectroПродолжительность: 11:21:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6351DAAD6F1B40E34ADE8E754957729D814DD05A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418956.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 955
-
-VA - The Music Liveshow  2020  [MP3|320 Kbps] <Vocal, Deep House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Channel East - Our Love
-002. Earth N Days - Give Me Your Love
-003. Andrew Spencer - You And Me
-004. Mat Gudelis - Drop The Beat    Читать дальше...    Жанр: Vocal, Deep HouseПродолжительность: 07:52:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ABA1B8A697C1961CF6AAA865ABE9218E9CE4153D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418955.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 952
-
-VA - Open Air House  2020  [MP3|320 Kbps] <Club, Dance, Future House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Francesco Gomez - No More  Original Radio Edit 
-002. Daniele Cognata - Don t You Feel  Original Mix 
-003. Dave Jayden - Get Get Down  Original Mix 
-004. Agawe - Confused Karma    Читать дальше...    Жанр: Club, Dance, Future HouseПродолжительность: 08:32:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A0B8329EDED890CBD521833F473A8D53E5C77A0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418952.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 948
-
-VA - Listen To Your Heart: Vocal House Session  2020  [MP3|257-320 Kbps] <Vocal House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Block & Crown - Can t Get You Out
-002. Kastomarin - Mindreader
-003. Vzxx - Want U More
-004. Slippy And Ash - Swing  Extended Mix     Читать дальше...    Жанр: Vocal HouseПродолжительность: 08:17:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B2FAFCA11226E150F505502ABB79450FBB2158A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418948.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 947
-
-VA - Funk & Soul: Jackin Club Model  2020  [MP3|320 Kbps] <Funk, Soul, Pop, R&B, Jazz>
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Helmut Lotti - Hallelujah I Just Love Her So
-002. Lea Lea - The Road
-003. Pieces Of A Man - Grits
-004. Solomon Burke - A Tear Fell    Читать дальше...    Жанр: Funk, Soul, Pop, R&B, JazzПродолжительность: 08:07:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D226FE77BD6135F327FBECF9F2B1C0221C2B0385
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418947.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 946
-
-VA - Beatport Trance: Electro Sound Pack #190  2020  [MP3|320 Kbps] <Trance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Structural Mind - Contreboost
-002. Jaytech - Lunero
-003. Cosmic & Nilson - See The Light
-004. Adrenalinn Drum - Acid Dog    Читать дальше...    Жанр: TranceПродолжительность: 08:05:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E37CFC3710F2976008C67FB888EDB63AA1F370A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418946.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 945
-
-VA - Beatport Electro House: Sound Pack #192  2020  [MP3|320 Kbps] <Electro House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Dreamer - Capo Legend
-02. Mirko And Meex - Time Out
-03. Nimbuster - Shimmer
-04. Shiffer - Gallows Bird    Читать дальше...    Жанр: Electro HouseПродолжительность: 08:22:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:208A64E0B1555F6004087E14F1A148684D3EE05F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418945.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 880
-
-VA - Зайцев.нет Лучшие новинки Октября  2020  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. 2nd Season - Чужой Тебе  3:18 
-02. Andrea Bocelli - You ll Never Walk Alone  3:21 
-03. Andro, Qontrast, Hiro - Гипноз  3:08 
-04. Armin van Buuren, Jake Reese - Need You Now  3:01     Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:43:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA1C36F84642368A70E18162DB37D04488AC46F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418880.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 832
-
-VA - Record Super Chart 659  2020  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-01. Rauf & Faik feat. NILETTO - Если тебе будет грустно  3:11 
-02. Bastard! - F..k That  3:38 
-03. Jason Derulo - Take You Dancing  3:10 
-04. Moses & EMR3YGUL & Alexiane - A Million On My Soul  Remix   3:26     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:39:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A68F4EDF501191A61F37CD9C4C417BE524EF9BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418832.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 820
-
-VA - ЕвроХит Топ 40 Europa Plus 23.10.2020 [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. RAYE - Natalie Don t  3:14 
-02. twocolors - Lovefool  3:10 
-03. Dotan - NUMB  3:38 
-04. Hurts - Redemption  4:18     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:12:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1787742CC8F27AFC50E5DEACD375F8B6DDF03F06
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418820.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 413
-
-VA - Eurobeat Classic  Vol.2   2020  [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop  сборники 
-
-###  Подробнее
-
-001. Kristofer Astroem - Ode To...
-002. Hype Blast - Tonight
-003. Agnete Johnsen - Icebreaker
-004. Pull N Way - Nothing Ever    Читать дальше...    Жанр: Pop, DanceПродолжительность: 09:24:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF46F3305BE66AA29EE201193A5FBD4A4B7CD4A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418413.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 407
-
-VA - Beatport Electro House: Sound Pack #191  2020  [MP3|320 Kbps] <Electro House>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Aus Aus - The Good Life
-002. Chilling Glow - Funkin  For Detroit
-003. Falstronic - Strike Force
-004. Nifiant - Hook Sunset    Читать дальше...    Жанр: Electro HouseПродолжительность: 09:40:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6BD595AD1C3E9344F1E3BD46056530B8C159EF50
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418407.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 405
-
-VA - Summer Chillout Area  2020  [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Marga Sol - Sacred Passage
-002. Stepo Del Sol - Mambo Soul
-003. Dmitry Evgrafov - Humble In Heart
-004. Quiroga - The Zoist  Original Mix     Читать дальше...    Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:31:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:59F7D3883C31D473FCB4F0D79A2C8E92C1B488A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418405.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 404
-
-VA - The Best Of  The Alternative  2020  [MP3|320 Kbps] <Indie Rock, Alternative>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal  сборники 
-
-###  Подробнее
-
-001. Charmer - Wolf Fang Fist
-002. Helicon - The Sun Also Rises
-003. Lovedrug - Black Wave
-004. Villagers - Hold Me Down    Читать дальше...    Жанр: Indie Rock, AlternativeПродолжительность: 06:05:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FAFB9F9447D9C689781688C16B02BA1048322F45
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418404.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 418 402
-
-VA - Urban Inspiration: Trance Session  2020  [MP3|320 Kbps] <Trance, Progressive, Electro>
-Неофициальные сборники
-Electronic  сборники 
-
-###  Подробнее
-
-001. Zirenz - Edge Of Space Ultimate
-002. Yvan - The Seeking
-003. York - Lilileaf Ladybell
-004. X Trude - Low Frequency    Читать дальше...    Жанр: Trance, Progressive, ElectroПродолжительность: 09:55:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D386280F015B9D7F1E416305BC2B4DC2FDDEA521
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1418402.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 417 970
-
-VA - Music News vol.42  2020  [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-001. Angelita - Karma  02:51 
- 002. 5sta Family - Эгоистка  03:04 
- 003. 36 Crazyfists - Installing the Catheter  03:51 
- 004. A.T feat. OKIAN - По Губам Дождь  02:50     Читать дальше...    Жанр: Pop, Dance, OtherПродолжительность: 12:29:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:96FA48F5D5F416F35936BC5F7F2291C72303946C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1417970.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 417 960
-
-VA - Fun for Halloween  2020  2CD [MP3|320 Kbps] <Pop, Rock, Alternative>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Walk The Moon - Ghostbusters
-02. 21 Savage,Offset,Metro Boomin,Travis Scott - Ghostface Killers
-03. Blue Oyster Cult - Godzilla
-04. Elle King - Good Girls  from the  Ghostbusters  Original Motion Picture Soundtrack     Читать дальше...    Жанр: Pop, Rock, AlternativeПродолжительность: 08:37:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CFD51235632E094697299E164C4F66273CC304DE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1417960.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

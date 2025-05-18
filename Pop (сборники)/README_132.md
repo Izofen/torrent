@@ -1,4 +1,313 @@
 ﻿
+###  Публикация: 520 476
+
+ABBA - The Visitors  2012  Deluxe Edition [FLAC|Lossless]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Visitors [05:48]
+02. Head Over Heels [03:49]
+03. When All is Said and Done [03:19]
+04. Soldiers [04:41]
+05. I Let the Music Speak [05:21]
+06. One of Us [03:57]
+07. Two for the Price of One [03:38]
+08. Slipping Through My Fingers [03:54]
+09. Like An Angel Passing Through My Room [03:35]Жанр: PopФормат: CD, Album, Reissue, RemasteredПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 519 977
+
+Giorgio Moroder & Joe Esposito - Solitary Men  1983  [MP3|320 кб с]<Pop Electronic>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1.Solitary Man
+2.Show Me The Night
+3.My Girl
+4.Too Hot To Touch
+5.Diamond Lizzy
+6.Washed In The Neon Light
+7.A Love Affair
+8.Nights In White Satin
+9.Lady, Lady
+10.White Hotel    Читать дальше...    Жанр: Pop ElectronicПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CE1B6BD1A5B89EE821D14C016E40B35144756516
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_519977.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 519 819
+
+Duran Duran - A Diamond in the Mind, Duran Duran – A Performance – 2011  2012  [MP3|320 кб с]<
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Before The Rain
+ 02. Planet Earth
+ 03. A View To A Kill
+ 04. All You Need Is Now
+ 05. Blame The Machines
+ 06. The Reflex
+ 07. Girl Panic!
+ 08. Ordinary World
+ 09. Notorious
+ 10. Hungry Like The Wolf    Читать дальше...    Жанр: Rock, PopПродолжительность: 01:12:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:37C0494C2833C7BD0AE3AE4697A601C8D1D6B3DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_519819.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 519 810
+
+VA - Самые Яркие Звёзды 80-х  2СD   2012  [MP3|320 кб с]<Pop, Disco>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Saphir — Shot In The Night
+ 02. Stage — Ocean Of Crime
+ 03. Savage — Radio
+ 04. Paul J.Qualley — Please Please
+ 05. Mike Mareen — Here I Am
+ 06. Linda Jo Rizzo — You re My First, You re My Last
+ 07. Jimmy & Susy — Come Back
+ 08. Sandy Marton — People From Ibiza
+ 09. Afric Simone — Hafanana
+ 10. Dschinghis Khan — Moskau    Читать дальше...    Жанр: Pop, DiscoПродолжительность: 04:23:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:92AB99B4DFA21513EAAAD63F2766F11E0F2A0B7E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_519810.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 519 568
+
+Кристина Орбакайте - Лучшая Коллекция  2012  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Смородина
+02. Перелетная птица
+03. Без тебя
+04. Просто любить тебя
+05. Не бей любовь
+06. Каждый день с тобой
+07. Пароходик
+08. Рио-де-жанейро
+09. Ты На Свете Есть
+10. Свет твоей любви    Читать дальше...    Жанр: PopПродолжительность: 02:08:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A3F7319A2D432D8895EFCDC98EF9BE6623B54C3C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_519568.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 519 284
+
+Валерия - Самое лучшее  1999  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Ты где-то там
+ 02. Обычные дела
+ 03. Не забудь былые увлеченья
+ 04. Кап-кап
+ 05. Жаль
+ 06. О том, что было
+ 07. Небеса
+ 08. Золотая рыбка
+ 09. Моя Москва
+ 10. Самолет    Читать дальше...    Жанр: PopПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:172CC9793C44EE88DC440E9C2A6A76808D5BC203
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_519284.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 518 778
+
+Ostrich - The ostrich effect  2012  [MP3|320 kbps] <Synthpop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. A need to believe  04:08 
+02. Lukewarm  04:25 
+03. Lonely ghost  03:17 
+04. Turn the tide  03:40 
+05. Es loco  04:04 
+06. Sleepy angels  05:00 
+07. I am out  04:12 
+08. Gold, silver & stones  03:27 
+09. Prepare to fall  03:40 
+10. Icecold kisses  03:05     Читать дальше...    Жанр: SynthpopПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1347F03304E2CACBBA5F5A7811D0B1817F4D5D8E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_518778.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 518 709
+
+Валерия - Самое лучшее  1999  [APE|Lossless]<Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Ты где-то там
+02. Обычные дела
+03. Не забудь былые увлеченья
+04. Кап-кап
+05. Жаль
+06. О том, что было
+07. Небеса
+08. Золотая рыбка
+09. Моя Москва
+10. Самолет    Читать дальше...    Жанр: PopПродолжительность: 01:07:07
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_518709.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 518 656
+
+Весёлые Ребята - Песни Вячеслава Добрынина  1996  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01 На земле живёт любовь
+02 Ни минуты покоя
+03 Мелочи жизни
+04 Напиши мне письмо
+05 Золотой ключик
+06 Розита
+07 Чашка чая
+08 Люби меня, как я тебя
+09 Хочу всё знать
+10 Бологое    Читать дальше...    Жанр: PopПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2811725E86C64BC67FA77498A98A8FD40395D937
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_518656.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 518 310
+
+Игорь Саруханов - Лучшая Коллекция  2012  [MP3|320 кб с]<Pop rock, pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Маскарад
+02.Вчерашний день
+03.Ящики почтовые
+04.Дорогие мои старики
+05.Зачем вернулась ты
+06.Ослепительная блондинка
+07.Серенада моей любви
+08.Скрипка-лиса
+09.Парижское такси
+10.Ты ли это    Читать дальше...    Жанр: Pop rock, popПродолжительность: 02:39:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B957DE4FDA3DA12D031B676DC558ACA90EA5CAFE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_518310.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 518 187
 
 Крис Кельми - Greatest Hits  1993  [MP3|320 кб с]<Pop, Rock>
@@ -2010,280 +2319,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_483329.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 483 319
-
-VA - Робинзон  1997  [FLAC|Lossless|image +.cue]<Retro, Pop>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01 Михаил Боярский – Робинзон 3.22
-02 Вячеслав Малежик – Двести лет 3.33
-03 Алла Пугачева – Белая дверь 4.49
-04 Михаил Боярский – Все пройдет 4.02    Читать дальше...    Жанр: Retro, PopПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D4BDE6D78AA50F924FBB4D60A2B6C98AF8CD0D4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_483319.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 482 567
-
-Вячеслав Добрынин - MP3 Collection  2006  [MP3|224 кб с]<Pop>
-Pop (сборники)
-Советская эстрада, Ретро
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 07:09:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80681370F8807F1D49A7731CADFA537F6ED097CC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_482567.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 482 008
-
-ВИА Пламя - Лучшее  2008  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Идет содлат по городу
-02. Оксана
-03. Чаклунка гир
-04. На дальней станции сойду    Читать дальше...    Жанр: PopПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B6AD79F6648D34939A1C585ABE0D08970F147BD2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_482008.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 481 669
-
-ВИА Лейся, Песня - Лучшее  2008  [FLAC|Lossless|image + .cue]<Pop>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Прощай
-02. Люблю тебя
-03. Последнее письмо
-04. Ласточка    Читать дальше...    Жанр: PopПродолжительность: 01:09:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E4FC449C27E8BC163C6DB83CD2CD0A206410DE3E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_481669.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 481 593
-
-Sandra - Greatest Hits  2008  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD-1
-Продолжительность: 01:18:15
-01. Maria Magdalena  5:57 
-02. In the Heat of the Night  5:21 
-03. Heaven Can Wait  4:05 
-04. Secret Land  4:40 
-05. Everlasting Love  3:42 
-06. Innocent Love  5:23 
-07. Stop for a Minute  4:05 
-08. One More Night  3:56     Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:14CD2BCC3A2891766B7C5255A68684353626F12D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_481593.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 481 500
-
-Cherry Laine - Greatest Hits  2000  [MP3|256 кб с]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Catch The Cat  3:06 
-02. Speed Freak Steam  4:17 
-03. Sergeant Rock  4:22 
-04. The Sea-Fare Folk  2:52 
-05. I m Hot  3:46 
-06. Mammy Blue  3:32 
-07. Black Jack  2:54 
-08. You Are The Song  3:17 
-09. Night In Chicago  3:36 
-10. Musicman  2:58     Читать дальше...    2000Жанр: DiscoПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C698E2D97B255E6E3E0D28ECEF63D1D0C4E1A1A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_481500.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 481 498
-
-Madonna - MDNA  2012  Japan Edition [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Girl Gone Wild [3:43]
-02. Gang Bang [5:26]
-03. I m Addicted [4:34]
-04. Turn Up The Radio [3:47]
-05. Give Me All Your Luvin   Featuring Nicki Minaj & M.I.A.  [3:23]
-06. Some Girls [3:54]
-07. Superstar [3:55]
-08. I Don t Give A  Featuring Nicki Minaj  [4:19]
-09. I m A Sinner [4:52]
-10. Love Spent [3:46]    Читать дальше...    Жанр: PopПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 481 470
-
-Юрий Шатунов - 3 альбома  2002-2004  [MP3|192 кб с]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-2002-2004Жанр: PopПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E7FB5CDF7AF1D207BAC2E795488E599FBF897826
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_481470.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 481 319
-
-Chilly - We Are The Popkings ... And Other Hits Of  2011  [MP3|320 кб с]<Electronic, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Energy 2:00
-02. We Are The Popkings 4:06
-03. For Your Love  12  Version  9:00
-04. Get Up And Move 4:00
-05. Johnny Loves Jenny 3:20
-06. Brainstorming 3:50
-07. Better Stop 3:40
-08. Come To L.A. 3:29
-09. Secret Lies 3:16
-10. Rosi Rice 2:50    Читать дальше...    Жанр: Electronic, PopПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_481319.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 480 849
-
-The Overtones - Gambling Man  2012  [MP3|~245 кб с  V0 ]<Pop, Doo-Wop, Vocal Harmony, Brit
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Second Last Chance
-02. Sh-Boom
-03. Gambling Man
-04. Come Back My Love
-05. Say What I Feel
-06. Carolyn
-07. The Longest Time
-08. Good Ol Fashioned
-09. Blue Moon
-10. Have I Told You Lately that I Love You    Читать дальше...    Жанр: Pop, Doo-Wop, Vocal Harmony, BritishПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E100DAE951A84554D4AD74CFBF14F6373BB00AB8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_480849.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

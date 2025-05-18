@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 640 063
+
+VA - ZYX Italo Disco Spacesynth Collection 9 (2023) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Sp
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Italo Emotion - My Dreams (Synthesis Remix) (6:54)
+02. Paralyze - Wonders Of Space (4:43)
+03. DJ CON-T - First Contact (4:38)
+04. KOTO - Chinese Revenge (Flemming Dalum Remix) (6:04)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthwaveПродолжительность: 02:31:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD467ED7CA1F96EAA9F2D23D3540A00B6397AAA4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1640063.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 639 926
+
+V.A. - ZYX Italo Disco Spacesynth Collection 9 (2023) 2CD [FLAC|Lossless|tracks] <Italo-Disco, Space
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+CD1:
+01. Italo Emotion - My Dreams (Synthesis Remix)
+02. Paralyze - Wonders Of Space
+03. DJ CON-T - First Contact(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Synthwave |Продолжительность: 02:30:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:15A2C02D3AC591648CB4806B98FAE66A20ED4463
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1639926.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 639 809
+
+VA - 80s & 90s Party Hits (2023) [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Backstreet Boys - I Want It That Way (3:33)
+02. Destiny's Child - Say My Name (4:27)
+03. Spin Doctors - Two Princes (4:15)
+04. Alice In Chains - Man in the Box (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 03:58:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D40B077CA6E8D04E3B985DF5566CE0170208109F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1639809.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 639 215
+
+New Baccara - Fun (1990) 2023 Reissue, , Remastered [FLAC|Lossless|WEB-DL|tracks] <Dance, Euro-Disco
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Fun
+02. Fantasy Boy (Radio Mix)
+03. Say A Little Prayer
+04. Touch Me (Radio Mix)(   Читать дальше...   )Жанр: Dance, Euro-DiscoПродолжительность: 01:21:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FB562C1B38F464BA3A6EFFCE66962ACB8A61FD2D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1639215.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 639 012
+
+Savage Garden - Savage Garden  1997  Original Version, 2023, Sony Music Entertainment [FLAC|Loss
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. To the Moon & Back [00:05:39]
+02. Carry On Dancing [00:03:44]
+03. Tears of Pearls [00:03:46]
+04. I Want You [00:03:51]    Читать дальше...    Жанр: Soft Rock, Pop Rock, Synth-popПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4F799C3218C806751D14B86616D903BDE6C2863F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1639012.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 638 844
+
+Jake Shears - Last Man Dancing  2023  [FLAC|Lossless|image + .cue] <Dance-pop, Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Too Much Music  4:38 
+02. Do the Television  4:38 
+03. feat. Kylie Minogue - Voices  4:26 
+04. I Used To Be In Love  3:28     Читать дальше...    Жанр: Dance-pop, Synth-popПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AC642524BD8222CEC45914135EFFCE20AC0159C4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1638844.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 638 516
+
+VA - Acoustic Delight  2023  [MP3|320 Kbps] <Pop, Rock, RnB>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Vance Joy - Riptide
+02. Ed Sheeran - Castle on the Hill  Acoustic 
+03. Christina Perri - A Thousand Years
+04. Coldplay - Everglow    Читать дальше...    Жанр: Pop, Rock, RnBПродолжительность: 02:51:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9C0B406E2DEC028211E197DEDEF978BCF53E032B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1638516.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 638 201
+
+Руки Вверх - Дышите Равномерно (1997) 2 x CD, Reissue, Remastered, 2023, Maschina Records, Deluxe Ex
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+CD - 1 - Дышите Равномерно:
+01. Доброе Утро
+02. Малыш (Complete Version)
+03. Студент(   Читать дальше...   )Жанр: Russian PopПродолжительность: 01:49:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EAF205567EB5BEACC6336E227577D950C478F5F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1638201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 638 141
+
+VA - 70s Pop Mega Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Bee Gees - Stayin Alive                                 [04:45]
+   02. Jerry Williams - Cotton Jenny                           [03:30]
+   03. Rupert Holmes - Escape (The Pina Colada Song)           [04:37]
+   04. Rod Stewart - Maggie May                                [05:44](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E973D11D8E8CE257D6456E6725ED6FCDC731D47A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1638141.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 638 140
+
+VA - Pop Blockbusters 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Troye Sivan - Angel Baby
+02. Shawn Mendes - Treat You Better
+03. Maroon 5 - Animals
+04. The Weeknd - Out of Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7DBE4A405EFF39C1856AD42BC36505B4AF20E65
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1638140.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 638 032
 
 VA - Best Road Trip 10's Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
@@ -1747,256 +1997,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627954.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 950
-
-VA - Премьер. 7 (1999) [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Демо - Солнышко
-02. Иванушки International - Небо
-03. Диана - Не жалей
-04. Л. Черникова - Покоритель стихии огня(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E789855629BFE12A294A775E6C2B8FAA64A3CFB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627950.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 892
-
-VA - ZYX Italo Disco New Generation Vol. 8  2016  2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Heaven 42 feat. Mirko Hirsch - Strong To Fight Extended Version 
-02. Lenroy - You Are The Girl Extended Edit 
-03. Magic System DJ - Angels Extended Version 
-04. Manzano, Christina - Only Dreams Extended Edit     Читать дальше...    Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:39:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8CA3BB437787647F74B80169F2A5C94862990143
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627892.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 757
-
-VA - ZYX Italo Disco New Generation Vol. 5 (2014) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disc
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Miko Mission - Universal Feeling (Vocal Version)
-02. Boris Zhivago - Love In Russia (ZYX Extended Mix)
-03. Siberian Heat - Pick Up The Phone (ZYX Summer Mix)
-04. TQ  Feat. Ken Laszlo & Fred Ventura - In The Night (Extended)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:24:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DE504609573E8B54CC3F30F2DCE720BA34958AD6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627757.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 742
-
-VA - ZYX Italo Disco New Generation Vol. 6 (2015) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disc
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Talking Eyes - The Summer Goes (extended version)
-02. M-Tracking - Give Me Your Hand (maxi version)
-03. Clock on 5 - Love Kills (The Mayerling, Part 2)
-04. Digitalo - Love Me Endlessly (extended version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:33:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC91E5B88D92DA4E71843AC022A5BD89426CCBC5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627742.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 713
-
-Petite Noir - MotherFather  2023  [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01 – 777
-02 – Blurry  feat. Sampa the Great 
-03 – Numbers
-04 – Concrete Jungle    Читать дальше...    Жанр: Indie PopПродолжительность: 00:27:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F897263C342A7AD26C29D2654DCA3AB2A63D1E9E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627713.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 574
-
-VA - ZYX Italo Disco New Generation Vol. 4 (2014) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disc
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Amaya - Trapped (Vocal Version)
-02. Siberian Heart - Don't Stop The Music (Spezial ZYX Maxi Version)
-03. The Sweeps - The Last Dream (Flashback Remix)
-04. Mention - Dreams (Vocal Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:37:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F2B68510E50E2D7E187EB59194ED367B510E5758
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627574.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 492
-
-VA - ZYX Italo Disco New Generation Vol. 3 (2013) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disc
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Savage - Save Me (Vocal Remix)
-02. Joey Mauro - Japan Kiss (Marschall Longdrink Remix)
-03. Tess - Cry Away (Italo Disco Extended Mix)
-04. TQ & Linda Jo Rizzo - Out Of The Shadow (Extended)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:32:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0ABF91E426086807817FD8310477F2E9C1D4422F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627492.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 451
-
-Пламя - Grand Collection  2001  [FLAC|Lossless|tracks + .cue] <Pop, Retro-Schlager>
-Pop (сборники)
-Советская эстрада, Ретро  Lossless 
-
-###  Подробнее
-
-01. Не надо печалиться  2:54 
- 02. На дальней станции сойду  3:19 
- 03. Снег кружится  4:10 
- 04. Детства последний звонок  3:51     Читать дальше...    Жанр: Pop, Retro-SchlagerПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3966006E5A59DEB3A2AE513ADEB212A2187BD98C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627451.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 411
-
-VA - Bravo Hits 80’s Vol.2 (2022) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Disco, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1
-01. Freddie Mercury - Living On My Own
-02. Eurythmics - Sweet Dreams (Are Made of This)
-03. Fancy - Flames Of Love(   Читать дальше...   )Жанр: Synthpop, Dance, Disco, RockПродолжительность: 01:21:42 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DC8B7D64ABC639B314B53ABE7A0878A5E12B06BB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627411.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 627 409
-
-VA - Bravo Hits 80's (2021) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Disco, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1
-01. Queen - Radio Ga Ga
-02. Irene Cara - Flashdance... What A Feeling
-03. Culture Club - Do You Really Want To Hurt Me(   Читать дальше...   )Жанр: Synthpop, Dance, Disco, RockПродолжительность: 01:18:22 hrs
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:53CEC7CC3F3511D4FBC0CDA8BF1387FB2038DAD7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1627409.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

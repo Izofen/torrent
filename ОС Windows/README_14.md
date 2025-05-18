@@ -1,4 +1,191 @@
 ﻿
+###  Публикация: 988 733
+
+Recovery USB-Flash for Dell Inspiron 3542   Windows 10 Home  х64  [Ru]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Dell_3542_W10.tib,
+записанный на ноутбуке Dell Inspiron 3542-7807 с помощью программы Windows Media Creator.
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C6376800D605E97ADEE2BF4409EDE2DB3C530350
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_988733.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 978 297
+
+Recovery USB-Flash for Lenovo IdeaPad 100-15IBY   Windows 8.1  х64  [Ru]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Lenovo_100_15IBY_W81.tib,
+записанный на ноутбуке Ideapad 100-15IBY  80mj005hrk  с помощью программы Windows Media Creator.
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:676241CB7AD6D89C82E91BEF655ABB5B49974EA3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_978297.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 976 939
+
+Microsoft BackOffice Server 4.5 4.0.1381.1 [En]
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Microsoft BackOffice Server - интегрированный набор серверных программ, оптимизированный для операционной системы Windows NT Server. BackOffice Server позволяет создавать мощные и интегрированные серверные решения в рамках как локальных, так и глобальных сетей. Этот пакет совместно с лицензией на доступ  Client Access License  предоставляет наиболее простой и экономичный     Читать дальше...    Язык интерфейса: английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6988C2769A5A8963A38C4A66012578062BB0AF03
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_976939.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 974 365
+
+Microsoft Windows 2000 Small Business Server SP3 [En]
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Microsoft Small Business Server 2000 - новый комплекс программных продуктов для создания типового сетевого решения для малых предприятий с количеством персональных компьютеров не более 50. Microsoft Small Business Server 2000 включает в себя операционную систему Windows 2000 Server и первое поколение серверных решений Microsoft .Net для организации электронной почты,     Читать дальше...    Язык интерфейса: английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6A7E94F3E62DEBF2351A15F53F5A4BA81C7E7A91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_974365.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 973 925
+
+Microsoft Windows 2000 Advanced Server Build 2195 [En]
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+Windows 2000  также называемая Win2k, W2k или Windows NT 5.0  — это операционная система семейства Windows NT компании Microsoft, предназначенная для работы на компьютерах с 32-битными процессорами  с архитектурой совместимой с Intel IA-32 .
+Первая бета-версия системы была выпущена 27 сентября 1997 года. Изначально система носила название Windows NT 5.0, поскольку     Читать дальше...    Язык интерфейса: английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:639EECD9FB58D1E52B7D2BDD6967E5727FE8BF2D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_973925.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 973 904
+
+Microsoft Windows NT Server 4.0 Build 1381 Service Pack 1 [En]
+ОС Windows
+Музей Windows
+
+###  Подробнее
+
+В сложном мире компьютерных систем современным организациям требуется серверная операционная система, которая может обеспечить одновременно и простоту в использовании, и высокую производительность, и возможность запуска серверных приложений, и телекоммуникационные службы.
+Операционная система Windows NT Server 4.0 отвечает всем этим требованиям и является надежной     Читать дальше...    Язык интерфейса: английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD605FECAD03EFB19D81B496111FB5AC52663E1D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_973904.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 970 187
+
+Windows 7 Профессиональная SP1 x86  OA CIS and GE  6.1.7601.17514 [Ru]
+ОС Windows
+Оригинальные версии Windows
+
+###  Подробнее
+
+Оригинальный образ диска Windows 7 Профессиональная х86 SP1 RU  Предназначена для распространения с новыми ПК на территории Содружества Независимых Государств и Грузии  X17-04750-02. Редакция содержит только одну версию - Professional. Образ создан с оригинального компакт диска Майкрософт. Предназначена для тех, кто имеет лицензионный ключ Windows 7 Pro OA CIS and     Читать дальше...    Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E307DE3D80B2F393719AA8F88727A2722911760F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970187.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 969 474
+
+Recovery USB-flash for Asus X555 LN   Windows 8.1  х64  [Ru]
+ОС Windows
+Windows OEM Recovery СD DVD
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Asus_X555LN_W81.tib
+записанной на ноутбуке Asus x555ln-xo184h  90nb0642-m05630 
+с помощью программы Windows Recovery Media Creator.
+Образ флешки создан программой Acronis True Image Home 2013.    Читать дальше...    Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EC60F0498D70EBA62B54CA9FA26B374F7CD6B587
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_969474.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 960 952
 
 Recovery USB-flash for Acer Aspire V3-551G   Windows 8  х64  [Русский]
@@ -1622,201 +1809,6 @@ Windows OEM Recovery СD DVD
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:29E801DF4D216FB09DD2911C0EA1B391B86A207B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 804 418
-
-Recovery USB-flash for Asus K551 LN   Windows 8.1  х64  [Ru En]
-ОС Windows
-Windows OEM Recovery СD DVD
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Asus_K551LN_W81.tib
-записанной на ноутбуке Asus K551LN-XX009H с помощью программы Asus BackTracker.
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления ноутбука к заводским настройкамЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B87F3D8B2B015908EEEE889AFFA0C4EFE5FE4B8E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 799 680
-
-Windows 8.1 with Update - Оригинальные образы от Microsoft MSDN [Hebrew]
-ОС Windows
-Оригинальные версии Windows
-
-###  Подробнее
-
-Windows 8.1 with Update - Оригинальные образы от Microsoft MSDNЯзык интерфейса: Hebrew
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:42B5141F43D97A4164AE672260C6B98EC0549F78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 798 460
-
-Recovery Partition for Samsung R425   Windows 7 Home Basic  х86  SP1 [Ru]
-ОС Windows
-Windows OEM Recovery СD DVD
-
-###  Подробнее
-
-В раздаче содержится образ скрытого раздела Recovery с жесткого диска ноутбука Samsung NP-R425-JU03RU
-Образ создан программой Acronis True Image Home 2013.
-Служит для восстановления ноутбука к заводским настройкамЯзык интерфейса: русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3057A3645EA2CACB8798A01B7A8A4B02C2A069C4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 796 000
-
-Recovery USB-flash for SONY VAIO VPC-EL3S1R  PCG-71C12V    Windows 7 Home Basic  х64  SP1
-ОС Windows
-Windows OEM Recovery СD DVD
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_SONY_VPCEL3S1R_W7.tib,
-записанный на ноутбуке SONY VAIO VPC-EL3S1R  PCG-71C12V  с помощью программы VAIO Care
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления ноутбука до заводских настроек.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5D4164EF40E5F03D159548C73E38D4F8AC6F0D6B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 789 862
-
-Recovery for Asus S301LP   S301LA Windows 8.1  х64  - Сервисный образ восстановления системы 1
-ОС Windows
-Windows OEM Recovery СD DVD
-
-###  Подробнее
-
-Это сервисный образ для восстановления ноутбука к заводским настройкам в сервисной службе , через восстановление скрытых партиций
-* Только для ноутбуков asus S301LP а так же S301LA.
-После долгих поисков найден в сети и выложен здесь. Так же вариант установки системы на SSD.
-Но лучше тренироваться на не родных HDDSSD. В раздаваемом образе 4 языка на выбор: Русский, Украинский, Английский, Сербский  sr-Latn-RS . Язык будет предложено выбрать при первой загрузке в систему.
-Перед установкой сохраните важные файлы , в процессе будет произведена полная переразбивка разделов на харде. Все данные будут уничтожены .
-
-    Читать дальше...    Язык интерфейса: Русский, Украинский, Английский, Сербский  sr-Latn-RS 
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:49A5C0061ABE1E62FC40D572FE2F709D7D19F48F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 782 366
-
-Recovery Partition for Asus X552EA   Windows 8  х64  [Ru En]
-ОС Windows
-Windows OEM Recovery СD DVD
-
-###  Подробнее
-
-В раздаче содержится образ разделов Recovery жесткого диска ноутбука Asus X552EA
-Образ Recovery_Partition_Asus_X552E_W8SL.tib содержит в себе оригинальный GPT и скрытые разделы восстановления, записанные на ноутбуке Asus X552EA  id mb X552E 
-Образ создан программой Acronis True Image Home 2014.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1AE13230E6DB43A7A1FD3E9C39F48553A5006057
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 853
-
-Recovery USB-Flash for DELL 3521   Windows 8.1  х64   [Ru En]
-ОС Windows
-Windows OEM Recovery СD DVD
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Dell_3521_W81.tib,
-записанный на ноутбуке Dell Inspiron 3521-7147 с помощью программы Dell BаckUp and Recovery после первого включения
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления ноутбука до заводских настроек.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BCCAA461C8477402F45CCB65A4B12EACD26F07D2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 775 935
-
-Windows Server 2012 R2 with Update  x64  - Оригинальные образы от Microsoft MSDN [Ru]
-ОС Windows
-Музей Windows
-
-###  Подробнее
-
-Windows Server 2012 R2 - это проверенная масштабируемая платформа корпоративного класса для облачных сред и центров обработки данных, на которой можно разместить самые ресурсоемкие рабочие нагрузки и использовать широкие возможности восстановления для защиты от перебоев в обслуживании. Это позволяет ускорить процесс получения прибыли за счет упрощения основной инфраструктуры, а также сократить издержки благодаря использованию оборудования отраслевого стандарта. Windows Server 2012 R2 помогает быстро разрабатывать,     Читать дальше...    Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3662F99268F13EC25F93162D54542F8A214D968C
 ```
 
 <div id="header" align="center">

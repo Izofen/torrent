@@ -1,4 +1,306 @@
 ﻿
+###  Публикация: 831 334
+
+Neoton Familia - I Love You  1986  [MP3|320 кб с]<Pop, Disco, Dancepop, East-Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. The Love That I Need
+02. Round The Track
+03. Another Saturday Night On My Own
+04. Love Is Magic
+05. Tonight
+06. I Love You
+07. Robinson
+08. Falling Star
+09. Fire
+10. When Christmas Time Is OverЖанр: Pop, Disco, Dancepop, East-RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3E676976193F34E198AD94F7844E138084EEA641
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 831 328
+
+Neoton Familia - Neoton Disco  1978  [MP3|256 кб с]<Pop, Disco, Dancepop, Pop Rock, East-Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Keep On Runnin   Te csak rohansz 
+02. Proud Mary  Büszke Mary 
+03. Hear Me  Hívlak 
+04. Over The Rainbow  Szivárvány 
+05. Downtown  Belváros 
+06. Don t Let Me Down  Ne hagyj el 
+07. Let s Go Dancing  Ha zene szól 
+08. California Dreamin   Kaliforniáról álmodom Жанр: Pop, Disco, Dancepop, Pop Rock, East-RockПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A326AEDD2BFF9166A0644B5982866B539FEA6C9B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 831 263
+
+Karel Gott - Music History  2001  [MP3|192 кб с]<Pop, Euro-Pop, Vocal Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01.  Měl jsem rád a mám  Soleado 
+02.  Tvůj stín se má
+03.  Záhadnou lásku mám
+04.  Kufr iluzí    Читать дальше...    Жанр: Pop, Euro-Pop, Vocal PopПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:237540E5549E1B75F3055752A457194A64FD1D99
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_831263.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 831 227
+
+Zespol instrumentalno-wokalny - Gdzie sie podzialy tamte prywatki Vol. 2  2005  [MP3|192 кб с]
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Żono moja, serce moje  3:20 
+02. Arivederci moja dziewczyno  3:36 
+03. Wielka miłość  5:14 
+04. Za tobą pójdę jak na bal  4:00 
+05. Zaświeciła moja gwiazdka  3:28 
+06. Hey baby baby  2:43 
+07. Więcej słońca nam się marzy  Więcej słońca   3:49 
+08. Nie ma jak u mamy  2:56 
+09. Tych lat nie odda nikt  2:29 
+10. Złoty pierścionek  2:54     Читать дальше...    Жанр: Pop, Dance, Disco PoloПродолжительность: 00:58:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0561FACADF33992965C0B94CC32FAE4E41D73687
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 831 201
+
+Minnie Driver - Ask Me To Dance  2014  [FLAC|Lossless]<Pop, Folk, Adult Alternative, Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Waltz #2  XO   4:15 
+02. Close To Me  3:10 
+03. Master Blaster  Jammin    3:36 
+04. Human  3:37 
+05. Fly Me To The Moon  2:57 
+06. Better Be Home Soon  3:21 
+07. Wild Wood  4:15 
+08. Tell Me Why  3:01 
+09. Speed Of The Sound Of Loneliness  3:23 
+10. Love Song  3:59 Жанр: Pop, Folk, Adult Alternative, Pop RockПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9F9123359B1D358EA1BE0B4FEABFDDCF23729964
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 831 006
+
+Roxette - Roxette - Hit Collection 2014  2014  2CD [FLAC|Lossless]<Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+CD1  01:13:46 
+01. The Look
+02. Neverending Love
+03. Listen To Your Heart
+04. The Sweet Hello,The Sad Goodbay
+05. Always Breaking My Heart  Demo 
+06. Real Sugar
+07. Wish I Could Fly
+08. Dangerous
+09. Waiting For The Rain    Читать дальше...    Жанр: Pop RockПродолжительность: 02:27:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3003ADBF40BB0F118030643A35686FF3D00F8BB6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 830 639
+
+Joe Dassin - Oh, Champs-Elysees - Seine Grossen Erfolge  1992  [MP3|320 кб с]<Chanson, Schlage
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Vade Retro
+2. Les Champs-Elysees
+3. Mon Village Du Bout Du Monde
+4. L Amerique  Yellow River 
+5. Guantanamera
+6. Ma Musique  Sailing 
+7. Et Si Tu N Existais Pas
+8. Ca Va Pas Changer Le Monde
+9. Darlin 
+10. Ma Bonne Etoile  My Little Lady     Читать дальше...    Жанр: Chanson, SchlagerПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:66D86237574BC3F33076EEC68A229E1EF40A89AF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 830 623
+
+Сантьяга - Какая есть  2014  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Неси Меня
+ 02. Какая Есть
+ 03. Я Улетаю
+ 04. Не Слышать
+ 05. Чем Живу
+ 06. Оставлю
+ 07. Вокзал
+ 08. Не Плачь
+ 09. Я Боюсь
+ 10. Сойти с ума    Читать дальше...    Жанр: PopПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CCDE649565B19821E0AD3D49B9D00773546D9BAC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 830 622
+
+Tarabarova  Светлана Тарабарова  - Мир всем  2014  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Мир Всем
+ 02. Радуга
+ 03. Это Твоя Жизнь
+ 04. Вдвоём
+ 05. Мне Это Нравится
+ 06. Главный Герой
+ 07. Ударами В Сердце
+ 08. Вьюга
+ 09. Дай мне знак
+ 10. Музыка Для Двоих  Dance Version     Читать дальше...    Жанр: PopПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1022BC41C5F5EB19181F733135A79A4963D93F8F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 830 585
+
+Jessie Ware - Tough Love  2014  Deluxe Edition [FLAC|Lossless]<Pop, Soul, R&B, Electronic, Downt
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Tough Love  3:28 
+02. You & I  Forever   3:59 
+03. Cruel  3:54 
+04. Say You Love Me  4:18 
+05. Sweetest Song  3:27 
+06. Kind Of... Sometimes... Maybe  3:34 
+07. Want Your Feeling  4:21 
+08. Pieces  3:27 
+09. Keep On Lying  3:31 
+10. Champagne Kisses  3:23     Читать дальше...    Жанр: Pop, Soul, R&B, Electronic, Downtempo, Adult AlternativeПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D72723BB8F270FC6D4525538B324FBDC361EEF1E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 830 563
 
 Мальвина - 2 альбома  1990  [MP3|192 кб с]<Pop>
@@ -2068,309 +2370,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_814558.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 814 436
-
-The New Pornographers - Brill Bruisers  2014  [MP3|320 кб с]<Indie>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Brill Bruisers
- 02. Champions of Red Wine
- 03. Fantasy Fools
- 04. War On the East Coast
- 05. Backstairs
- 06. Marching Orders
- 07. Another Drug Deal of the Heart
- 08. Born With a Sound
- 09. Wide Eyes
- 10. Dancehall Domine    Читать дальше...    Жанр: Indie Pop   Indie Rock   PowerpopПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:31619BC9EE2215A1D6B1631C1CC4101AEA510153
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 814 067
-
-Facundo Arana - Salir a Tocar  2014  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Stand By Me  03:54 
-02. You Got It  03:31 
-03. Never Tear Us Apart  03:13 
-04. Creep  04:02 
-05. Free Fallin   04:09 
-06. Give Me One Reason  02:29 
-07. Roxanne  04:27 
-08. Guilty  02:50 
-09. Sure Know Something  03:46 
-10. Knockin  on Heaven s Door  03:54     Читать дальше...    Жанр: Pop, Pop-RockПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CA21FA3579EAD2CE57C87183AE5ED95CCB221E6E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_814067.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 813 972
-
-NEA! - 80 14 - Das Album  2014  [MP3|320 кб с]<Euro-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Magic Mystery  Jetzt | Heute Hier   Radio Version   03:38 
-02. You ll Get Lucky  Fur Liebe Ist Es Nie Zu Spat   Radio Version   02:57 
-03. See The Light  Endlich Frei   03:18 
-04. Fearless  Angstlos   03:25 
-05. Backwards  Keine Angst Vor Dem Zuruck   03:56 
-06. Walking On My Dreams  Komm Mit Mir   03:35 
-07. You ll Get Lucky  Fur Liebe Ist Es Nie Zu Spat   Club Mix   04:28 
-08. Magic Mystery  Jetzt | Heute Hier   Club Mix   04:34 Жанр: Euro-DiscoПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AC13CD4D00182C7FF2D13780E55EE6BDC4CFCEC7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 813 499
-
-VA - Girls! Girls! Girls! The Best of Burlesque & Striptease Music vol. 1-2  2008, 2013  [FLAC|L
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Самые большие проблемы были с тем, в какой раздел поместить этот рип. Рекомендованный для определения жанра AllMusic выдал Pop Rock. ITunes не долго думая предложил R&B Soul, Music. Своим же умом я понимаю, что эти два диска очень близки к Jazz&Swing.
-Думаю, что это не главное. А главное, что эта коллекция винтажной стрип-музыки, которая звучала на ставших     Читать дальше...    01. Introduction   0:17 
-02. Three  For The Show   3:26 
-03. A Pretty Girl Is Like A Melody   3:17 
-04. Night Train   3:21     Читать дальше...    Жанр: Pop, Jazz, SwingПродолжительность: 01:50:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:155C6487F47C14F17F257A996E5FDD2A10CFCDC9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 813 170
-
-Miss 600 - Swing  Ting  2014  [MP3|320 кб с]<Pop, Electronic, Nu Jazz, Swing>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Swing  Ting  2:36 
-02. Vanishing Act  2:33 
-03. Don t Rain On My Parade  2:56 
-04. Moonlight Blue  3:41 
-05. Open  3:56 
-06. Ladies Do  What Ladies Do   3:08 
-07. Your Dance  4:10 
-08. Yours To Keep  3:45 
-09. Unspoken  3:07 
-10. Ruby Red  2:39     Читать дальше...    Жанр: Pop, Electronic, Nu Jazz, SwingПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1D8D0B1EF4C591CB980D07DF9CCDD5E086946C52
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 813 169
-
-Miss 600 - Swing  Ting  2014  [FLAC|Lossless|WEB-DL]<Pop, Electronic, Nu Jazz, Swing>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Swing  Ting  2:36 
-02. Vanishing Act  2:33 
-03. Don t Rain On My Parade  2:56 
-04. Moonlight Blue  3:41 
-05. Open  3:56 
-06. Ladies Do  What Ladies Do   3:08 
-07. Your Dance  4:10 
-08. Yours To Keep  3:45 
-09. Unspoken  3:07 
-10. Ruby Red  2:39     Читать дальше...    Жанр: Pop, Electronic, Nu Jazz, SwingПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EE2541219E295E3ED414157A8C4EBDF8F09D7171
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 639
-
-Babe - Hollands Glorie  2003  [FLAC|Lossless]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. The Drunken Sailor
-02. Ooh La La I m Falling
-03. Mister Blitzer
-04. Wanna Do  What Mamma Said 
-05. Please Me Please Do
-06.  Never Listen To A  Bouzouki Player
-07. I m A Rocking Machine
-08. Wonderboy
-09. Billy Joe
-10. Indian Habbits    Читать дальше...    Жанр: DiscoПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F22DB5801840F4E75C5FD6F3C2BE230DAA46D038
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812639.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 637
-
-Babe - Never Listen To A Bouzouki Player  2001  [FLAC|Lossless]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01.  Never Listen To A  Bouzouki Player
-02. Break Away
-03. Do You Know What Love Means
-04. It s Only A Matter Of Time
-05. L.O.V.E.
-06. Only A Woman
-07. Ooh La La I m Falling
-08. Please Me, Please Do
-09. Rain In Spain
-10. The Spanish Shuffle    Читать дальше...    Жанр: DiscoПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:57D9FB8B49EA2085812D7C3F8B85C53E19383CF4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812637.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 633
-
-Babe - Hollands Glorie  2003  [MP3|320 кб с]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. The Drunken Sailor
-02. Ooh La La I m Falling
-03. Mister Blitzer
-04. Wanna Do  What Mamma Said 
-05. Please Me Please Do
-06.  Never Listen To A  Bouzouki Player
-07. I m A Rocking Machine
-08. Wonderboy
-09. Billy Joe
-10. Indian Habbits    Читать дальше...    Жанр: DiscoПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3D71006148022159E3693D791A0CEF33C7365AAB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812633.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 812 632
-
-Babe - Never Listen To A Bouzouki Player  2001  [MP3|320 кб с]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01.  Never Listen To A  Bouzouki Player
-02. Break Away
-03. Do You Know What Love Means
-04. It s Only A Matter Of Time
-05. L.O.V.E.
-06. Only A Woman
-07. Ooh La La I m Falling
-08. Please Me, Please Do
-09. Rain In Spain
-10. The Spanish Shuffle    Читать дальше...    Жанр: DiscoПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:465C69FC5E42ECB83971A7ED6D145659036177F9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_812632.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

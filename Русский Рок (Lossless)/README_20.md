@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 1 465 808
+
+Kruger - Аномалия  2021  [MP3|320 Kbps] <Thrash Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Ховринский Призрак [00:06:35]
+02. Антихрист [00:04:21]
+03. Фарватер Смерти [00:04:18]
+04. Эмбрион Сатаны [00:05:50]    Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:29904975C498ADFEDBE7E92606C757AE443C630E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1465808.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 465 499
+
+ДДТ  DDT  - В постели  2021  Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. В постелиЖанр: RockПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ACFC579B92F451C8E119626A92F51287D12FF004
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1465499.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 465 385
+
+Infornal FuckЪ - 7 Albums  2008-2021  [MP3|320 Kbps] <Heavy Folk Black Metal, Parody Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Чем дальше в лес [00:03:09]
+02 - Культ борщевика [00:03:56]
+03 - Карельский Робинзон [00:03:10]
+04 - Тихвинтролль [00:03:48]    Читать дальше...    Жанр: Heavy Folk Black Metal, Parody MetalПродолжительность: 7CD, 04:25:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F226BE94106C94E1702F510F826A2B08D90EDF1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1465385.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 464 743
+
+НОМ - МАЛГИЛ  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Пробуждение элементов
+2. Смерть героя
+3. Жил мельник
+4. Котяты    Читать дальше...    Жанр: RockПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B91E0B92669F26EDCBA8F3E5C1E0C6A338026D2D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464743.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 462 941
+
+ЭлектропартиZаны - Сквозь время  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Все, что ты знаешь
+2. Исповедь революций
+3. Всадники на станции Роса
+4. Фонарщик    Читать дальше...    Жанр: RockПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A75EA58ED288455F3496AF47B476F9551FEE52B5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462941.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 462 845
 
 Завтраккусто - Приют для мертвецов  2021  [MP3|320 Kbps] <Indie Rock>
@@ -1859,128 +1981,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1448785.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 448 784
-
-Вася Обломов - The Best  2021  [MP3|320 Kbps] <Rock, Rap, Alternative Сhanson>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Магадан  TV Version 
-2. Начальник
-3. С чего начинается Родина
-4. Кто хочет стать милиционером?    Читать дальше...    Жанр: Rock, Rap, Alternative СhansonПродолжительность: 02:30:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1E698F63DC63B848445E4BF499EAFC51E1E3654C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1448784.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 447 384
-
-Ёк-Макарёк - Домашний лад  2020  [MP3|320 Kbps] <Ethno Punk>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Тихий Островок
-2. Вечерняя Тишь
-3. Ладога
-4. Мир в Дому    Читать дальше...    Жанр: Ethno PunkПродолжительность: 00:26:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81682A3397980E46A4A1D177DE4824E2B4A5AE45
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447384.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 447 201
-
-Теуникова и КоМПОзит - Один страшный день  2021  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Катится
-2. Wi-Fi
-3. Введи войска
-4. Сверхъестественный отбор    Читать дальше...    Жанр: RockПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8B1A003DBB162C37B9F1FC091A3E86F172E3B985
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447201.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 447 198
-
-Сплин - Вирус  2021  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. ВирусЖанр: RockПродолжительность: 00:04:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1071F6A582238394862804B9A3C435FD0A5BEC2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447198.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 447 194
-
-Операция Пластилин - Грустные песни для уставших людей  2021  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Чёрный факел
-2. Ашан  письмо Саше Г. 
-3. Моя провинция
-4. Все взрослые    Читать дальше...    Жанр: Punk RockПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:50CDD1975B351B7BAC470E534F06B359D36A2208
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1447194.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 167 939
+
+VA - NRJ Dance Hits  3CD   2017  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01.  Katy Perry feat. Skip Marley - Chained To The Rhythm  3:58
+02.  Luis Fonsi & Daddy Yankee - Despacito  3:49
+03.  Lartiste - Chocolat  feat. Awa Imani   3:55    Читать дальше...    Жанр: Pop, DanceПродолжительность: 03:25:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DDEB47D2390F24DF5239312DFF7268C78E9F0F0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167939.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 167 904
+
+Bumblebee Unlimited - Sting Like A Bee  1979  Reissue CD, Unidisc, 2000 [MP3|320 Kbps] <Electron
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. I Got A Big Bee  7:51 
+02. Lady Bug  9:52 
+03. I Love You  8:07 
+04. Space Shuttle Ride  6:34     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:44D76DBD8764F1BF1C7CC9C08B524D098DFE8946
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167904.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 167 890
+
+VA - Bravo Hits Vol. 99  2CD   2017  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01.  P!nk - What About Us  4:32
+02.  Kay One - Senorita  feat. Pietro Lombardi   3:59
+03.  J Balvin & Willy William - Mi Gente  3:09    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:32:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91B7B506891F5FBB0067B80F51032DA76A08A716
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167890.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 167 849
+
+Tempest Trio - Tempest Trio  1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Love Machine  7:49 
+02. You Keep Me Hanging On-Love Chains  9:57 
+03. Do You Like The Way That It Feels  6:18 
+04. Starlight  5:56     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AC43AF79BDB3799DA09DEF42226D0C93C4FF9CFB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167849.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 167 791
+
+VA - Retro Futurism - Italo Is Still Alive  2017  Compilation [FLAC|Lossless|image + .cue] <Ital
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Digital Emotion - Full Control  Original Mix  06:07
+02. Maxthor - Hunters  Extended Edit  05:30
+03. Italoconnection - Neon Disco  Also Playable Mono Remix  07:00
+04. Magic System DJ - Frozen Hearts  Extended Version  06:22    Читать дальше...    Жанр: Italo-Disco, Synthwave, Nu-DiscoПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CF4A7596B5AB25DA7BF8FC96FD422C7BEBFE32B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167791.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 167 600
+
+VA - Retro Futurism - Italo Is Still Alive  2017  [MP3|320 Kbps] <Italo-Disco, Synthwave, Nu-Dis
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Digital Emotion - Full Control  Original Mix  06:07
+02. Maxthor - Hunters  Extended Edit  05:30
+03. Italoconnection - Neon Disco  Also Playable Mono Remix  07:00
+04. Magic System DJ - Frozen Hearts  Extended Version  06:22    Читать дальше...    Жанр: Italo-Disco, Synthwave, Nu-DiscoПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F0B02B88183C62F89D37044D4363C9A44F47BF8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167600.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 167 537
+
+VA - The Kings Of Disco  2004  Compiled By Dimitri From Paris & Joey Negro [MP3|320 Kbps] <Elect
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Derrick Harriott - Black Skinned Blue Eyed Boys  7:08 
+02. Vincent Montana Feat. Goody Goody - It Looks Like Love  Dim s Compiled Edit   7:56 
+03. Crystal Dico Band - Nuclear Night  Dim s Dj Friendly Edit   7:50 
+04. Lime - Agent 406  Dim s Dj Friendly Edit   6:28     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 02:23:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5ADE65DA0A46E16D570118CA1119D0A32F51790C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167537.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 167 349
+
+Titan - Dama  2016  [FLAC|Lossless|tracks] <Electropop, Nu Disco>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Dama Fina
+02. HelL.A.  featuring Siobhan Fahey 
+03. Tchaikovsky
+04. Sangre    Читать дальше...    Жанр: Electropop, Nu DiscoПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A40B223A228EB4FAC47D0ADE75CB0CA7294BD35
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167349.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 167 321
+
+VA - Dance For Fans Vol.1  2017  [MP3|320 Kbps] <Eurodance, Eurobeat>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01.  Malu - Fotonovela 2004  Radio Mix 2004   3:28
+02.  Mythos  N Watergate - A Neverending Dream  Mythos Video Edit   3:57
+03.  Intrance - Always  feat. D-Sign   Video Mix   4:04
+04.  Ayla Presents Yel - Sun Is Coming Out  Intrance Single Mix   3:46    Читать дальше...    Жанр: Eurodance, EurobeatПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:964E80855039CAFC3152244A06DAA8271F21D8FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167321.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 167 234
+
+Systems In Blue - Melange Bleu  The 3rd Album   2017  [MP3|320 Kbps] <Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Back In Blue  4:16 
+02. There s No Heart  3:56 
+03. Lady Ocean  3:45 
+04. Take It Like A Man  4:55     Читать дальше...    Жанр: Euro-DiscoПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C36EE12455F269E0C2B2FCD9867793424566A6A4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1167234.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 167 023
 
 Emily Haines  of Metric  & The Soft Skeleton - Choir of the Mind  2017  [FLAC|Lossless|track
@@ -1748,255 +1998,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1157301.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 157 221
-
-Roger Meno - Collection  1986, 2001, 2010  [MP3|320 Kbps] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. What My Heart Wanna Say
-02. What My Heart Wanna Say  Instrumental Version 
-03. What My Heart Wanna Say  Galaxy Version Жанр: Italo-DiscoПродолжительность: 02:29:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:11FDDD052CD16A9F24D2462106FE30AA346C6A1B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1157221.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 157 202
-
-My Mine - Stone  1985  LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Juaresh  4:37 
-02. Crime Of Passion  4:13 
-03. Cupid Girl  4:02 
-04. Triangle  3:43     Читать дальше...    Жанр: Electronic, Synth-pop, Italo-DiscoПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:721B776157FEE84233906FA6E81360BC34454635
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1157202.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 823
-
-The Pinups - 2 Albums  1980, 1981  [MP3|320 Kbps] <Disco, Pop Rock, New Wave, Synth-pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Интересная женская поп группа, автором песен которых в основном был Tony Carey, более известный по своему Planet P Project. В раздаче представлены два основных альбома, поскольку третий стал лишь выборкой из них.01. Intro Showbusiness  0:07 
-02. New Wave Lover  3:26 
-03. Girl Of Wood  2:57 
-04. Wild Thing  3:27     Читать дальше...    Жанр: Disco, Pop Rock, New Wave, Synth-popПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6855E8BDD388BF16FEF1CA0A52E5D62D2634697E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156823.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 822
-
-VA - Top Of The Pops: Dance  3CD   2017  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01. King Of My Castle - The Wamdue Project 03:32
-02. The Only Way Is Up - Yazz 04:23
-03. The Rhythm Of The Night - Corona 03:38    Читать дальше...    Жанр: PopПродолжительность: 03:23:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F26F09207DF8C66CEA0061D3110783D413F84371
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156822.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 691
-
-Sia - The Spotify Sessions  EP   2017  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.  Bird Set Free  5:13
-02.  Elastic Heart  4:26
-03.  Space Between  5:32
-04.  Alive  4:24    Читать дальше...    Жанр: PopПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9FF89CC824779B02E4CEA760AD46BF5EA061C561
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156691.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 667
-
-Supermax - Dont Stop The Music  1976  Remastered, 2005, CD-Maximum <Electronic, Pop, Funk, Regga
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Dance Dance Dance
-02. Push Push  Sexy Chocolate Girl 
-03. Watch Out South Africa, Here We Come
-04. Don t Stop The Music    Читать дальше...    Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EBED198A8B507183DCF4F63E9D69709EFD4D57A6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156667.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 392
-
-VA - Het Allerbeste Uit Radio1 Classics 1000  2017  [MP3|320 Kbps] <Pop, Rock, Other>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Queen - Killer Queen  3:01
-02.  U2 - One  4:35
-03.  The Beach Boys - God Only Knows  2:51
-04.  Bob Dylan - Hurricane  8:34    Читать дальше...    Жанр: Pop, Rock, OtherПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:92879EA246DD2E914A8488C74FECA8F9BED57490
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156392.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 379
-
-Patrick Cowley - 3 Studio Albums  1981-1982  LP [MP3|320 Kbps] <Electro, Hi NRG, Synth-pop, Disc
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Патрик Коули  англ. Patrick Cowley; 19 октября 1950, Буффало, штат Нью-Йорк, - 12 ноября 1982, Сан-Франциско, Калифорния  -  американский музыкант и композитор работавший в жанрах Disco, Synth-pop и Hi-NRG. Создал практически все свои композиции - хитами и безвременно - печально покинул этот, жаждавший от него дальнейшего продолжения - мир.Список альбомов:
-1981 - Menergy
-1981 - Megatron Man
-1982 - Mind Warp    Читать дальше...    Жанр: Electro, Hi NRG, Synth-pop, DiscoПродолжительность: 01:53:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1534107F1EE98033E2213B4F6DD2519EF40CE3A7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156379.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 370
-
-Timecop1983 - Lovers, Part II  2017  EP [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthpop, Drea
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Sky  Prologue   1:47 
- 02. Girl  feat. Seawaves   5:00 
- 03. Letting Go  4:25 
- 04. Falling Apart  feat. By An Ion   5:46     Читать дальше...    Жанр: Retrowave, Synthpop, DreamwaveПродолжительность: 00:31:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:18D01A3B8CB357D04055290C1A486C0393E023BC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156370.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 156 233
-
-Roland Bocquet - 3 Albums  1977-1983  LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Experimen
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Roland Bocquet с 1969 по 1977 был лидером французской инструментальной рок-группы Catharsis. Далее, сменив стиль, продолжил свое творчество в качестве исполнителя и композитора. Выпустил три предлагаемых альбома и начал писать саундтреки к фильмам.Список альбомов:
-1977 - Paradia
-1982 - Robot Rose  Claviers Synthetiseur 
-1983 - Robot Bleu    Читать дальше...    Жанр: Electronic, Disco, Synth-pop, ExperimentalПродолжительность: 01:47:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6E16FE16100746C820D4DD48F3D0E37CD98B0619
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1156233.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

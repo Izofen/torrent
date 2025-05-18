@@ -1,4 +1,308 @@
 ﻿
+###  Публикация: 774 456
+
+Валерий Леонтьев - Любовь-капкан  2014  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Принцесса на горошине
+2. Змея
+3. Любовь-капкан
+4. Уполномочена небом
+5. Снайпер-любовь
+6. Виновник
+7. Кабаре  2014 
+8. Продавец цветов
+9. Эммануэль  2014 
+10. Сокровища Чёрного моря  2014     Читать дальше...    Жанр: PopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C2E3ACB094C402961A3237BCC74E2AD9C6578C66
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 773 707
+
+Gloria Gaynor - Greatest Hits  1988  [APE|Lossless]<Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. I Will Survive
+02. Honey Bee
+03. Never Can Say Goodbye
+04. Reach Out, I ll Be There
+05. Let Me Know  I Have A Right 
+06. Casanova Brown
+07.  If You Want It  Do It Yourself
+08. All I Need Is Your Good Lovin 
+09. Walk On By
+10. We Can Start All Over Again    Читать дальше...    Жанр: DiscoПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FB0253A93057D62328FBCCD8863C52B04B9E18CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 773 336
+
+VA - Pure... america  2011  Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B, Other>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+В ответ на американские санкции публикую очередной сборник американских песен, изданных Sony Music в 2011 году. Интересно, что на ebay его жанр определили как Country, а уж на AllMusic разошлись - здесь целый букет: Adult Contemporary, Adult Contemporary R&B, AM Pop, Contemporary Pop Rock, Country-Pop. Так что выбирайте, что вам хочется послушать больше из списка.01. Boston - More Than A Feeling   3:31 
+02. The Calling - Wherever You Will Go   3:29 
+03. Train - Drops Of Jupiter  Tell Me    4:21 
+04. Phantom Planet - California   3:15     Читать дальше...    Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 04:17:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F2F94E4500D658EDE8A005721C44C872A93FEE1A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_773336.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 773 110
+
+Vanessa Williams - Everlasting Love  2005  [FLAC|Lossless]<R n B, Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Tuning [00:18]
+02. Never Can Say Goodbye  Feat. George Benson  [05:04]
+03. Midnight Blue [03:47]
+04. Show And Tell [04:11]
+05. Let s Love [04:58]
+06. First Time Ever I Saw Your Face [05:43]
+07. Everlasting Love [04:31]
+08. With You Im Born Again  Feat. George Benson  [03:54]
+09. Send One Your Love [03:41]
+10. You Are Everything [03:47]    Читать дальше...    Жанр: R n B, PopПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9D11621D5EE78A09013BF45578A9E691C208232
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 773 026
+
+Barbra Streisand - Love Is The Answer  2009  2CD, Deluxe Edition [FLAC|Lossless]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Here s To Life  4:32 
+02. In The Wee Small Hours Of The Morning  3:59 
+03. Gentle Rain  4:21 
+04. If You Go Away  Ne Me Quitte Pas   4:13 
+05. Spring Can Really Hang You Up The Most  4:34 
+06. Make Someone Happy  4:03 
+07. Where Do You Start?  4:27 
+08. A Time For Love  5:14 
+09. Here s That Rainy Day  5:03 
+10. Love Dance  4:44     Читать дальше...    Жанр: PopПродолжительность: 01:53:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1486CFB7BFBE85051EB28503B669D9AECEC96B0B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_773026.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 772 743
+
+Nancy Sinatra - Shifting Gears  2013  [MP3|320 кб с]<Pop, Oldies>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Нэнси Синатра  Nancy Sinatra, род. 8 июня 1940 г. в Нью-Джерси  — американская певица, дочь великого Фрэнка Синатры, пик популярности которой пришёлся на вторую половину 1960-х гг.1. As Time Goes By
+2. When I Look in Your Eyes
+3. Holly Holy
+4. I ll Build a Stairway to Paradise
+5. Cockeyed Optimist  Guitar Version 
+6. I Can See Clearly Now
+7. Killing Me Softly with His Song
+8. Play Me
+9. Something
+10. MacArthur ParkЖанр: Pop, OldiesПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2D683AE8727D19FB2344FB6A5A6A0335FB49F8E2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 772 713
+
+Nancy Sinatra - The Greatest Hits of Nancy Sinatra  2002  [MP3|320 кб с]<Retro-Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Нэнси Сандра Синатра  англ. Nancy Sandra Sinatra; род. 8 июня 1940, Джерси-Сити, Нью-Джерси  — американская певица, пик популярности которой пришёлся на вторую половину 1960-х годов.01. Somethin  Stupid
+02. You Only Live Twice
+03. Friday s Child
+04. Summer Wine
+05. These Boots Are Made For Walking
+06. Jackson
+07. Tony Rome
+08. Lady Bird
+09. Son Of A Preacher Man
+10. You ve Lost That Lovin  Feelin Жанр: Retro-PopПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E1A3F5F3E8CE130ACEA3A6CBDC5FC15ADC5875DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_772713.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 772 301
+
+VA - NRJ Hit Music Only 2014  2014  [FLAC|Lossless]<Top 40, Pop Compilation>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Bruno Mars - Moonshine  3:45 
+02. OneRepublic - Counting Stars  4:17 
+03. Katy Perry - Unconditionally  3:48 
+04. Clean Bandit feat. Jess Glynne - Rather Be  3:46 
+05. Matt Houston & DJ Assad feat. Dylan Rinnez - Twist 2K14  Radio Edit   3:30 
+06. Ahzee - King  3:26 
+07. Dry feat. Tal - Maintenant ou jamais  4:01 
+08. Chuckie feat. Maiday - Skydive  3:32 
+09. John Mamann - Laissons les rêver  3:26 
+10. Fatboy Slim & Riva Starr feat. Beardyman - Eat Sleep Rave Repeat  Dimitri Vegas & Like Mike vs. Ummet Ozcan Tomorrowland Radio Edit   3:19     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Electronic, Dance, Club, House, Synthpop, Pop-Rock, R&B, SoulПродолжительность: 02:21:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0A1E99A638A580B28B499BEABAE584324DFDB83B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 772 024
+
+VA - MegaHits 2014: Die Zweite  2014  2CD [MP3|320 кб с]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Milky Chance - Stolen Dance  5:15 
+02. Bedouin Soundclash - Brutal Hearts  3:26 
+03. Afrojack - Ten Feet Tall  Feat. Wrabel   3:53 
+04. Tiësto - Red Lights  4:23 
+05. Sean Paul - Want Dem All  Feat. Konshens   3:18 
+06. Jason Derulo - Trumpets  3:37 
+07. Cash Cash - Take Me Home  feat. Bebe Rexha   3:25 
+08. Kylie Minogue - Into The Blue  4:11 
+09. Helene Fischer - Atemlos Durch Die Nacht  3:39 
+10. Der Tourist - Supergeil  feat. Friedrich Liechtenstein   4:04     Читать дальше...    Жанр: PopПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D2DD1086DB02E7B0815E1A2200835C6CC2A5B7D0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 771 756
+
+Silent Circle - The Original Maxi-Singles Collection  2014  [FLAC|Lossless]<Pop, Eurodisco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Hide Away - Man Is Comin   Special Mix 
+02. Touch In The Night  Crash Version 
+03. Stop The Rain  12  Version 
+04. Love Is Just A Word  Reggae Version 
+05. Moonlight Affair  12  Version 
+06. Time For Love  Super Action Mix 
+07. Danger Danger  Racing Mix 
+08. Oh, Don t Lose Your Heart Tonight  12  Version 
+09. I Am Your Believer  Club Version 
+10. Forget The Stranger  Simple Mix     Читать дальше...    Жанр: Pop, EurodiscoПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3AF9E5CA46CAC812FBBA9DB4AABC2CB3CC7257C7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 771 686
 
 Tina Turner - Love Songs  2014  [FLAC|Lossless]<Pop, Soul>
@@ -2095,300 +2399,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:F6A745956B39341879A4954257E7A65835B55286
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 755 476
-
-Bombers - Bombers  1978  [FLAC|Lossless]<Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Don t stop the Music  06:32 
- 02. Dance Dance Dance  05:57 
- 03. Supermax  06:31 
- 04. The Mexican  12:00 
- 05. Main Man  03:48 
- 06. Dance Dance Dance  12  Version - Special Disco Mix   06:07 
- 07. The Mexican  12  Version - Special Disco Mix   12:34 Жанр: DiscoПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02151FE28E9DE1276C50B34667B8352CD5A6D8F4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 755 474
-
-Animal X - Animal X  2000  [FLAC|Lossless]<Electronic, Dance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01.  N-Am Crezut    4:08 
-02.  Fara Rivali    3:41 
-03.  Sex    4:10 
-04.  Animal X    3:58 
-05.  Creatorul    4:07 
-06.  Iubirea Mea    4:08 Жанр: Electronic, DanceПродолжительность: 00:24:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3EA831DAB0629AF71121E46A1560AAA62F2CCB21
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 755 412
-
-Bad Boys Blue - Bad Boys Best  2007  [FLAC|Lossless|image + .cue]<Synth-pop, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01.  You re A Woman    3:55 
-02.  Back To The Future    3:45 
-03.  L.O.V.E. In My Car    3:32 
-04.  Jungle In My Heart    3:41     Читать дальше...    Жанр: Synth-pop, DiscoПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ED72348D9F811BFDECB80559DC09CCE2A9534C7D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 755 410
-
-Адреналин - Не забывай  2005  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.  Не забывай    3:29 
-02.  Гроза    3:43 
-03.  Ангел    3:53 
-04.  Друг    3:49 
-05.  Мальчуган    3:41 
-06.  Девочка    4:07 
-07.  Грустный мотив    3:59 
-08.  Игла    4:06 
-09.  Ночь    3:38 
-10.  Ты скажи только...    3:31     Читать дальше...    Жанр: PopПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13325FDD9C68AB3282EE06C254720B330DB5B2B8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 755 339
-
-VA - 100X Liefde 2014  5CD  [MP3|320 кб с]<Рор>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Anouk - Birds  03:24 
- 02. P!nk - Blow Me  One Last Kiss   04:15 
- 03. The Script - If You Could See Me Now  03:38 
- 04. Di-Rect - Times Are Changing  03:25 
- 05. Robin Thicke - Love After War  03:17 
- 06. Rigby - Earth Meets Water  03:21 
- 07. Lady Antebellum - Just A Kiss  03:33 
- 08. Toto - Stop Loving You  04:29 
- 09. Avril Lavigne & Chad Kroeger - Let Me Go  03:59 
- 10. Loпs Lane - I Wanna Be  04:14     Читать дальше...    Жанр: РорПродолжительность: 01:19:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:91E55D1322E6EA902658A8A1DF4DD8F156B00D85
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 755 066
-
-Fancy - The Original Maxi-Singles Collection  2013  [MP3|320 кб с]<Italo-Disco, Synth-pop, Dis
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Check It Out  12   Version   06:57 
-    02. Slice Me Nice  Slice Remix   05:36 
-    03. Come Inside  12   Version   05:02 
-    04. Get Lost Tonight  Special Dance Version Edit   07:14 
-    05. Burnin  Out The Light  Long Version   04:19 
-    06. Don t Know How To Cool It  Special Dance Version Edit   07:31 
-    07. Bodyguard  12   Version   06:27 
-    08. Moscow Is Calling  12   Version   05:12 
-    09. Fools Cry  Remix   05:58 
-    10. Angel Eyes  Extended Version   05:00     Читать дальше...    Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 01:15:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5D9DE71CCCF6BF96F019945D954ADC4AA06BCBE7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 755 064
-
-Fancy - DiscoFox of the 80 s, Vol. 1  2013  [MP3|320 кб с]<Italo>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Seven Sins  04:02 
-02. Stand Up for Love  04:12 
-03. Luxury Life  03:37 
-04. Go Cha Cha  03:06 
-05. No Tears  03:19 
-06. Follow Me  04:35 
-07. Fools Cry Rap  feat. Grandmaster Tess, Steve D5 Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8FE1B61A5C4BB510F25A1D6E63A71CF49F29BC1B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 754 978
-
-VA - Now That’s What I Call Music! Vol.49  2014  [MP3|320 кб с]<Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Pitbull feat. Ke$ha - Timber  03:22 
- 02. Lorde - Royals  03:08 
- 03. Miley Cyrus - Wrecking Ball  03:41 
- 04. Katy Perry - Unconditionally  03:47 
- 05. One Direction - Story Of My Life  04:04 
- 06. A Great Big World feat. Christina Aguilera - Say Something  03:47 
- 07. Imagine Dragons - Demons  02:54 
- 08. OneRepublic - Counting Stars  04:15 
- 09. Drake feat. Majid Jordan - Hold On, We re Going Home  03:45 
- 10. Lady Gaga feat. R. Kelly - Do What U Want  03:45     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9D281A827445E1A70D32DAFB0B225AF315630144
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 754 748
-
-Кристина Орбакайте - Маски  2013  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Маски
-02. Раз и навсегда
-03. Иероглиф любви
-04. До свидания, лето
-05. Три желания
-06. Облачко
-07. Рассветы
-08. Пиаф... Последний вечер
-09. Прогноз погоды
-10. Московская осеньЖанр: PopПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F183C89568F75A1444CEE6839AEB288E199BB5C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 754 691
-
-VA - We Love Fitness  2014  2CD[MP3|~245 кб с  V0 ]<Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Afrojack Feat. Spree Wilson - The Spark  03:58 
-02. Avicii - Levels  03:14 
-03. Duke Dumont Feat. A*M*E - Need U  100 Percent   Skreamix   06:29 
-04. Katy Perry - Roar  DallasK Remix   03:54 
-05. Swedish House Mafia Feat. Pharrell - One  Your Name   02:37 
-06. Deadmau5 - Ghosts  N   Stuff  03:08 
-07. Hardwell Feat. Matthew Koma - Dare You  03:36 
-08. Otto Knows - Million Voices  03:05 
-09. Alesso & One Republic - If I Lose Myself  Alesso Vs. One Republic   03:29 
-10. Sebastian Ingrosso, Tommy Trash & John Martin - Reload  03:36     Читать дальше...    Жанр: DanceПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B3D6A1841870DC681EB152590656405407E55D6A
 ```
 
 <div id="header" align="center">

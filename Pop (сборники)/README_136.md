@@ -1,4 +1,274 @@
 ﻿
+###  Публикация: 226 582
+
+Supermax - Greatest Hits  2008  2CD, Star Mark Compilation [FLAC|Lossless]<Disco, Pop, Reggae, S
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Supermax — проект авcтрийского композитора и продюсера Курта Хауенштайна  Kurt Hauenstein   14 января 1949 — 20 марта 2011 , основанный в 1976 году. Музыка Supermax сочетает в себе соул, фанк, диско, джаз, рэгги,    Читать дальше...    01 - Dance Dance Dance
+02 - World Of Today
+03 - It Ain t Easy
+04 - Hollywood
+05 - Lovemachine
+06 - Tonight
+07 - Don t Stop The Music
+08 - Fly With Me
+09 - Be What You Are    Читать дальше...    Жанр: Disco, Pop, Reggae, Soul, FunkПродолжительность: 02:36:03
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_226582.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 225 685
+
+Adriano Celentano - Greatest Hits  2009  2CD [FLAC|Lossless]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Soli
+02. Pay Pay Pay
+03. Susanna
+04. Stivali E Colbacco
+05. Azzuro
+06. Grazie Prego Scusi
+07. Amore No
+08. Non E
+09. Un Po Artista Un Po No
+10. Il Tempo Se Ne Va    Читать дальше...    Жанр: PopПродолжительность: 02:39:00
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 225 313
+
+ВИА Поющие Гитары - Синий иней (2002) [FLAC|Lossless]<Pop>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01.Синий иней (Н.Фидака - А.Азизов)
+02.Толстый карлсон (группа "Кристи" - И.Резник)
+03.Суббота ("Поющие гитары")
+04.Цыганочка (обработка "Поющих гитар")(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:255088C39D267366904CB76C6B195D512C7C8580
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_225313.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 225 312
+
+ВИА Поющие Гитары - Люди встречаются (2002) [FLAC|Lossless]<Pop>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01.Люди встречаются
+02.Песенка велосепидистов
+03.Воскресенье
+04.Аппачи(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:482DF48239DD4D7C1EB5F92DFA82A5152C56D150
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_225312.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 222 664
+
+Modern Talking & Blue System - Das Nummer 1. Album! (2010) [MP3|320 kbps]<Pop|Eurodisco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1.Modern Talking - Youre My Heart, Youre My Soul (3:50)
+2.Modern Talking - You Can Win If You Want (3:43)
+3.Modern Talking - Cheri Cheri Lady (3:45)
+4.Blue System - Sorry Little Sarah (3:30)(   Читать дальше...   )Жанр: Pop|EurodiscoПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2C192A4884CEBD46D29514165D29D33F5F66E4E3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_222664.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 222 316
+
+Валерий Ободзинский - Любимые песни от Музыкального огонька  2009  [MP3|320 kbps]<retro>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+001. Анжела
+002. Анна
+003. Аравийская песня
+004. Белые крылья    Читать дальше...    Жанр: retroПродолжительность: 06:06:16
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_222316.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 221 440
+
+2 Unlimited+Anita+Ray - 22 Albums & Compilations + 48 Singles & Remixes  1991 - 2014  [MP3|128-3
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+Список альбомов:
+
+1992 - Get Ready
+1992 - Megamix  Maxi-Single, Argentina 
+1993 - No Limit - Mini Album  Special Edition   Australia 
+1993 - No Limits
+1993 - Remixes  Argentina 
+1994 - Power Tracks  Celebrating Japan Visit 1994 
+1994 - Sin Limites  EP   US 
+1994 - The Real Things    Читать дальше...    Жанр: Eurodance , EuroHouseПродолжительность: 40:55:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B3FBE9F88D8D87E6986043F47F472CBBA9C2CBE3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_221440.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 218 124
+
+Песняры - 1971-1982  1999  [FLAC|Lossless]<folc-rock>
+Pop (сборники)
+Советская эстрада, Ретро (Lossless)
+
+###  Подробнее
+
+01. Белая Русь Ты Моя.
+02. Алеся  Олеся .
+03. За Полчаса До Весны.
+04. Вологда.    Читать дальше...    Жанр: folc-rockПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E58891839C2E5206B793AA9037C5E082624EF8FC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_218124.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 216 568
+
+Bryan Ferry - As Time Goes By  1999  [FLAC|Lossless]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Если вы знаете Брайана Ферри как исполнителя известных хитов  Don t Stop the Dance  и  Slave to Love  – вы не знаете о нем практически ничего. Однозначно must have для всех поклонников Ферри и для тех, кто хочет услышать, как можно спеть старые песни так, что их просто хочется слушать еще и еще.01.	As Time Goes By				 02:34 
+02.	The Way You Look Tonight		 03:36 
+03.	Easy Living				 02:16 
+04.	I m in the Mood for Love		 04:17 
+05.	Where Or When				 03:19 
+06.	When Somebody Thinks ...		 02:57 
+07.	Sweet And Lovely			 03:10 
+08.	Miss Otis Regrets			 02:39 
+09.	Time on My Hands			 03:02 
+10.	Lover Come Back to Me			 02:54     Читать дальше...    Жанр: PopПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 214 008
+
+Gwen Stefani - Greatest Hits  2008  [MP3|320 kbps]<pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Жанр: popПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_214008.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 213 790
 
 Кар-Мэн - Нитро (2008) [APE|Lossless]<Pop>
@@ -1807,260 +2077,6 @@ Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 127 194
-
-Plazma   Плазма - 607   Six Zero Seven  Extended   2004  [MP3|320kbps]<Pop-Rock>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-Жанр: Pop-RockПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_127194.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 126 273
-
-Жасмин - Дискография  2000-2005  [MP3|320kpbs]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Тебе понравится
-02. Как ты мне нужен
-03. Индийское диско
-04. Тук-тук  дуэт Д. Дюжевым 
-05. На одном дыхании любви  дуэт с В. Топаловым  Smash 
-06. Возьми от жизни все  дуэт с А. Гоманом 
-07. Девочка
-08. Кис-кис
-09. Шалом  дуэт с Ф. Киркоровым 
-10. Виртуальный мачо  дуэт с В. Винокуром     Читать дальше...    Жанр: PopПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 125 386
-
-Sandra - Discography [69 CD]  1976-2009  [MP3|192-320 kbps]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 41:04:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:58E4647AFF0000D268A9B5AE40407D37F581C1DF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 124 802
-
-Александр Иванов - Грешной души печаль  2006  [MP3|320kbps]<Pop-Rock>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Боже, какой пустяк!
-2. Я постелю тебе под ноги небо
-3. Моя неласковая Русь
-4. Ночь
-5. Москва
-6. Она поверила в сказку
-7. Я здесь живу
-8. Жаль
-9. Я верю огню
-10. Нежность    Читать дальше...    Жанр: Pop-RockПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_124802.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 124 135
-
-ABBA - Дискография  1970-2007  65CD [MP3|320] <PoP, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1970 - Lycka Remastered And Expanded - 01.16.17
-1973 - Ring Ring The Complete Studio Recordings - 00.57.36
-1974 - Waterloo  Unremaster  - 00.35.38
-1975 - ABBA  Unremaster  - 00.51.35    Читать дальше...    Жанр: Pop, RockПродолжительность: 64:47:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:57AA7421DC40855AA070D63DC20FD3DA5087F7EE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_124135.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 111 761
-
-МакSим - Трудный возраст (2006) [FLAC|lossless]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - Трудный Возраст
-02 - Сантиметры Дыханья
-03 - Нежность
-04 - Лолита(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F8F4544CFA2D34A65AAEC3ECD9ED614CC90C9CF0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_111761.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 108 504
-
-Нэнси - Дым сигарет с ментолом-15 лет [2008] [MP3|320 kbps]<Рор>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-«Стиль Рекордс Украина» представляет юбилейный альбом группы «НЕНСИ»-«Дым сигарет с ментолом 15 лет».В альбом вошли 3 новые песни и 12 лучших хитов!
-Мега-Хит «Дым сигарет с ментолом» от НЭНСИ появился на свет в 1993 году благодаря усилиям Анатолия и Елены Бондаренко, уже через два года стал любимой и популярной песней среди широкой аудитории на всем пост Советском (   Читать дальше...   )01. Дым Сигарет С Ментолом
-02. Чистый Лист
-03. Ночной Вокзал
-04. Светлана(   Читать дальше...   )Жанр: РорПродолжительность: 01:11:30 min.
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C2F2E319CD1D98CFB99B77C840F79EBBFC142BE3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_108504.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 106 831
-
-Kim Wilde - Discography  14 Albums   1981 - 2006  [APE | FLAC|lossless]<Pop, New Wave, Rock,
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Жанр: Pop, New Wave, Rock, DanceПродолжительность: 12:17:36
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_106831.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 101 190
-
-Джо Дассен  Joe Dassin  - Gold  1995  2CD [MP3|320 kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD 1
-01-Bip-Bip
-02-L Amerique
-03-L ete Indien    Читать дальше...    Жанр: PopПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:86F0E31BBEDCD7616A31D7523AC5ECF8F4B24DAE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_101190.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 99 690
-
-Captain Hollywood Project - Discography  1990 - 2009  [MP3|160 - 320 kbps]<Eurodance>
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-1. more and more. belmond parker radio edit  3:54 
-2. more and more. belmond parker mix  5:37 
-3. more and more. endless summer short mix  3:22 
-4. more and more. endless summer mix  5:35     Читать дальше...    Жанр: EurodanceПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_99690.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

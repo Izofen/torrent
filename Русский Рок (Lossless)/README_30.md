@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 250 155
+
+НЭП - Мама  2018  [MP3|320 Kbps] <Рок>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Зима
+2. Знай
+3. Один
+4. Вой стен    Читать дальше...    Жанр: РокПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:042FE9B33D99E0F85B9771C3A90E2CE16A3EF767
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1250155.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 250 005
+
+Хартыга - Amyrsanaa  2018  [MP3|320 Kbps] <Ethno Rock, Folk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. My Kargyraa
+2. Red Star
+3. Girl from Tozhu
+4. Collective Farmer    Читать дальше...    Жанр: Ethno Rock, FolkПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:54C7ADFBCB4D502D67DC6BE2D2C6061F371A54BA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1250005.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 249 924
+
+Хрен - Поле Чудес В Стране Дураков  2018  [MP3|320 Kbps] <Folk Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Среди Лесов...
+2. Вешать И Стрелять
+3. Голоса
+4. Поле Чудес В Стране Дураков    Читать дальше...    Жанр: Folk MetalПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B1975F5F31145D48E46C8B9637A240E04C3389E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1249924.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 249 525
+
+Марсу нужны любовники - Роза Компас  2018  [MP3|320 Kbps] <Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Метеоритами
+2. Тепло
+3. Звезда
+4. Прекрасна    Читать дальше...    Жанр: Indie RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:906E84957A843E14BAC39E7F1CE3EAC8020ED5B0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1249525.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 249 520
+
+Завтраккусто - *****  2018  [MP3|320 Kbps] <Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Тулуз-Лотрек
+2. Русалки
+3. Чёрных роз
+4. Кокаинетка    Читать дальше...    Жанр: Indie RockПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9CE2D00C7E7EAC9AFF5A430F6DF588E5EAD86AD3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1249520.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 249 518
 
 Зимавсегда - Ледовитый  2018  [MP3|320 Kbps] <Indie Rock>
@@ -1834,131 +1959,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220625.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 220 624
-
-Tequilajazzz - Небыло  2018  [MP3|320 Kbps] <Alternative Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Книги
-02. Смыты дождями
-03. Прольюсь
-04. Правило рек и дождей    Читать дальше...    Жанр: Alternative RockПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EE46EB91CD9214B99EC9799FE036DCE7A19761BD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220624.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 220 130
-
-Большой Лебовски - Любовь  2018  [MP3|320 Kbps] <Grunge Blues Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Сестрички
-02. Летняя
-03. Футболист
-04. Зая    Читать дальше...    Жанр: Grunge Blues RockПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EE91496022DB13371193AE8C4D82E3564E284B39
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220130.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 220 009
-
-Becoming A Hero - Becoming A Hero  2018  [MP3|320 Kbps] <Alternative Rock, Female Vocal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Shame On You
-02. Checkmate
-03. We re Done
-04. War    Читать дальше...    Жанр: Alternative Rock, Female VocalПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:66AFE7AF41894553411BBDF9DD065196A77C6F4F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220009.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 220 003
-
-Ногу свело! - Материки моей планеты  2018  Live [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Идем на восток!
-2. Сибирская любовь
-3. Яйца фаберже
-4. Московский романс    Читать дальше...    Жанр: RockПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:83C839AD33CA69A65BE4DA8F9E8A7194FBA54B8D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1220003.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 219 759
-
-Егор Летов  Гражданская Оборона  Коммунизм  - 57 альбомов [MP3|320 Kbps] <Отечественный Рок, Пан
-След.
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Егор Летов  настоящее имя: Игорь Фёдорович Летов; 10 сентября 1964, Омск, СССР — 19 февраля 2008, там же  — советский и российский поэт и музыкант, а также звукорежиссёр, художник-оформитель и коллажист; основатель, лидер и единственный постоянный участник группы «Гражданская оборона», также известен по музыкальным проектам «Егор и Опи%деневшие» и «Коммунизм». Младший     Читать дальше...    1985 - Psychedelia Today
-1985 - Поганая молодёжь
-1986 - Оптимизм
-1987 - Игра в бисер перед свиньямиЖанр: Отечественный Рок, Панк, АльтернативаПродолжительность: 51:01:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87593462CD55D7AFE4CF97A3B9FC0F57652F3394
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219759.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

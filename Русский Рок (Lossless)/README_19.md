@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 485 879
+
+Багира - И Грянет Гром  2021  [MP3|320 Kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - И Грянет Гром  04:56 
+ 02 - Риск  04:50 
+ 03 - Ангел Ада  04:07 
+ 04 - Брат На Брата  03:45     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1114EBBE11F820895D6E40D30A1930EAC9F80EA4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1485879.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 485 828
+
+Digimortal - Гравитация  2021  [MP3|320 Kbps] <Industrial Metal, Modern Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Дай Нам Силы [00:02:00]
+02 - Правда [00:05:23]
+03 - Кровью [00:03:22]
+04 - Свет Нового Дня [00:04:59]    Читать дальше...    Жанр: Industrial Metal, Modern MetalПродолжительность: 01:26:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C739C63239E6865B352A7DAA9D26A9454BEECC03
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1485828.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 484 997
+
+2ва Самолёта - Лучшее, Часть 2  2021  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Македонский
+2. Закрыты двери латифундий
+3. Дельфин - колбаска
+4. Язык цветов    Читать дальше...    Жанр: RockПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:398FD460A631C1BB898AE878C74081F72F9A5B87
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484997.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 484 088
+
+Пи4алька - Молитва за самониубийцу  2021  2CD, Deluxe Edition [MP3|320 Kbps] <Progressive Scream
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Я+ты [00:04:21]
+02. Перекрыло [00:03:16]
+03. Эмо песня 2.0 [00:03:14]
+04. 5:42 [00:04:09]    Читать дальше...    Жанр: Progressive Screamo, Post-Rock, New Wave EmoПродолжительность: 2CD, 01:04:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DEAC95D0AF53F987CF6E06BAAF518DB4C020DF6B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1484088.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 483 902
+
+ТимерТау - Химия  2021  [MP3|320 kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Лимитеры  03:15 
+02. Siri  03:05 
+03. Ризограф  03:03 
+04. Химия  03:46     Читать дальше...    Жанр: RockПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AF6575D900E2E996BDE128F410508CBEBB4C6150
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1483902.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 483 589
 
 Ногу свело! - ***beep***ЛАН  2021  Single [MP3|320 Kbps] <Rock>
@@ -1868,128 +1993,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1466111.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 465 808
-
-Kruger - Аномалия  2021  [MP3|320 Kbps] <Thrash Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Ховринский Призрак [00:06:35]
-02. Антихрист [00:04:21]
-03. Фарватер Смерти [00:04:18]
-04. Эмбрион Сатаны [00:05:50]    Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:29904975C498ADFEDBE7E92606C757AE443C630E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1465808.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 465 499
-
-ДДТ  DDT  - В постели  2021  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. В постелиЖанр: RockПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ACFC579B92F451C8E119626A92F51287D12FF004
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1465499.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 465 385
-
-Infornal FuckЪ - 7 Albums  2008-2021  [MP3|320 Kbps] <Heavy Folk Black Metal, Parody Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01 - Чем дальше в лес [00:03:09]
-02 - Культ борщевика [00:03:56]
-03 - Карельский Робинзон [00:03:10]
-04 - Тихвинтролль [00:03:48]    Читать дальше...    Жанр: Heavy Folk Black Metal, Parody MetalПродолжительность: 7CD, 04:25:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7F226BE94106C94E1702F510F826A2B08D90EDF1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1465385.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 464 743
-
-НОМ - МАЛГИЛ  2021  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Пробуждение элементов
-2. Смерть героя
-3. Жил мельник
-4. Котяты    Читать дальше...    Жанр: RockПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B91E0B92669F26EDCBA8F3E5C1E0C6A338026D2D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1464743.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 462 941
-
-ЭлектропартиZаны - Сквозь время  2021  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Все, что ты знаешь
-2. Исповедь революций
-3. Всадники на станции Роса
-4. Фонарщик    Читать дальше...    Жанр: RockПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A75EA58ED288455F3496AF47B476F9551FEE52B5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1462941.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

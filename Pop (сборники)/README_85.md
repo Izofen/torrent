@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 133 761
+
+White Sea - Tropical Odds  2017  [FLAC|Lossless|tracks] <Indie Pop, Dream Pop, Synthpop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Bloodline
+02. Arcadia
+03. Yesterday
+04. Stay Young, Get Stoned    Читать дальше...    Жанр: Indie Pop, Dream Pop, SynthpopПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F68F4419AFBAC93E7A2B103A52D649A12123112D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1133761.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 133 534
+
+Анжелика Варум - Женщина шла  2016  [FLAC|Lossless|image + .cue] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Женщина шла
+02. Моя любовь
+03. Голос
+04. Одиночество    Читать дальше...    Жанр: PopПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F4B3246D209B7BE120DD3D0AD9348C5579B24620
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1133534.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 133 524
+
+Sirena - The Dancer  1979  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. The Dancer  5:48 
+02. Killing Me Softly  6:06 
+03. Comparsita  4:14 
+04. Saturday Night  4:19     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DECF70AE339A1F95E7DF6CC25FAA22B5D9D037F6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1133524.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 133 223
+
+Masquerade - The Sound of Masquerade  1984  CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Prologue  2:01 
+02. Guardian Angel  4:25 
+03. Love Hurts  3:46 
+04. Deep Under My Skin  4:18     Читать дальше...    Жанр: Electronic, Pop, Synth-popПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AC9AB2318F0BF1CD6AB141EC3B1F3B1A6BA575D4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1133223.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 133 044
+
+Leftfield - Leftism 22  1995  Remastered & Remixed, 2017, Sony Music, 2CD [MP3|320 Kbps] <Electr
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+Leftfield — английский электронный дуэт, состоящий из Пола Далей  Paul Daley   работал также в проектах The Rivals, A Man Called Adam и Brand New Heavies  и Нила Барнса  Neil Barnes  основанный в 1989 году в Лондоне. Первоначально под именем Leftfield Нил Барнс выпустил сингл «Not Forgotten», но несколько позже к нему присоединился Пол Далей. Под этим псевдонимом     Читать дальше...    01. Release the Pressure  Adrian Sherwood Mix   4:56 
+02. Afro Left  Hodge & Peverelist Mix   6:20 
+03. Melt  Quiet Village Mix   7:50 
+04. Song of Life  BodyJack Mix   8:51     Читать дальше...    Жанр: Electronic, Leftfield, Progressive House, BreaksПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5554A37105C2B8718D4CC7F06A3ACC909D4EB5A8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1133044.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 132 939
+
+VA - Space Oddities  2008  CD, Vol. 1 [MP3|320 Kbps] <Electronic, Experimental, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Roland Bocque - Exotique  2:32 
+02. Jean Pierre Decerf & Gerard Zajd - Reaching The Infinite  3:23 
+03. Alan Shearer - Sons Of The Snake  5:24 
+04. Phil Davies & Christopher Ried - Muscle And Heat  4:00     Читать дальше...    Жанр: Electronic, Experimental, DiscoПродолжительность: 01:13:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:34E3202F6DD6387E481AD3DA960F3068D8730AEB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132939.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 132 768
+
+The Korvids - The Korvids  2017  [FLAC|Lossless|tracks + .cue] <Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Bad Faith  03:49 
+02. Spyboy  03:33 
+03. Tender Tyrannies  04:54 
+04. Slouch  04:07     Читать дальше...    Жанр: Pop RockПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4D45206540977D2F5786F6AC755E6EB2DEE5E3B6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132768.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 132 759
+
+Sylvie Vartan - Confidanses  1989  [FLAC|Lossless|tracks + .cue] <Pop , Chanson>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. C est Fatal 3:31
+YouTube: Q6SUwv4RmmM
+ Michael Cretu   D.Barbelivien 
+02. Ca va de soi 3:32    Читать дальше...    Жанр: Pop , ChansonПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B770936FE8026180B70BED09EC1316C436DBBB7C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132759.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 132 511
+
+Lola Coca - The Only Child  2017  [MP3|320 Kbps] <Pop, Britpop, Alternative Hip Hop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Love Songs
+02. Big Ben
+03. Dream Date
+04. GQ    Читать дальше...    Жанр: Pop, Britpop, Alternative Hip HopПродолжительность: 00:30:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:98D0167AF95C890A4400BE7A4F18FFF5DF317B48
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132511.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 132 415
+
+Alyzee - My Life  2017  [MP3|320 Kbps] <Alternative Pop, Ethnic Electronic Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. I d Give My Life
+02. All My Lying
+03. No No
+04. The Search    Читать дальше...    Жанр: Alternative Pop, Ethnic Electronic RockПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:77B45D7B688A694C4D8E5ED68BD41E4FB8F8B47F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1132415.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 132 295
 
 Julio Iglesias - Mexico & Amigos  2017  [FLAC|Lossless|tracks + .cue] <Pop, Latin>
@@ -1736,256 +1986,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126960.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 126 958
-
-The Three Degrees - 2 Albums  1978, 1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-Единственные два знаменитых альбома известной американской поп-группы The Three Degrees  основана еще в 1963м. году, сменный состав  в которых, поднимая их угасающий рейтинг, автором и продюсером стал Giorgio Moroder.01. Giving Up, Giving In  6:09 
-02. Falling In Love Again  5:34 
-03. Looking For Love  5:29 
-04. The Runner  6:19     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:08:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3CA879A0963C64B3052488FE03314B0342EF1DC7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126958.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 126 625
-
-Espionage - Espionage  1983  Vinyl, LP [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. The Sound Of Breaking Hearts
-02. Your Love Is For Sale
-03. The Great Escape
-04. Freedom    Читать дальше...    Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:550FBAABC0D7E47A24062955B826D8D2D3C38E6E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126625.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 126 624
-
-VA - Club Latino  2000  приложение к журналу Stereo & Video 032 [FLAC|Lossless|image + .cue] <La
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Jessica Jay - Chilly Cha Cha
-02. Gato Santos - La Gallinita
-03. Lia Crucet - La Movidita  fun dance mix 
-04. 40 - Corazon Perdio    Читать дальше...    Жанр: Latin, Pop, Mambo, Lambada, Cha-ChaПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B80D33BA0CC1D8D9F9FD33EC6B3F90BDBBB921A2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126624.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 126 607
-
-Sound Of Music - 2 Albums  1986, 1987  CD [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Шведская поп-группа, существовавшая с 1985 по 1987 год в составе вокалисток Angelique Widengren, Nanne Nordqvist со своим мужем Питерем Gronvall, композитором, клавишником и продюсером, сыном известного Benny Andersson из ABBA.01. A Pretty Lovesong  4:27 
-02. Eldorado  4:49 
-03. Peek-A-Boo  3:30 
-04. West Indies Nights  4:45     Читать дальше...    Жанр: Electronic, Synth-pop, PopПродолжительность: 01:50:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1DD7894390B2DD6CFEDD54D297290BB2ECA0E699
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126607.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 126 598
-
-ESTRADARADA - Дискотека Века  2017  [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Дауншифт  5:12 
-02. Love Is  Асфальт   3:30 
-03. Лайф из лайф  #Lifeislife   2:59 
-04.Жанр: Pop, DanceПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81EA0C8E4B7378D4AE6D88E3F1190BBC02DADF0C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126598.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 126 548
-
-Tam Harrow - Incredible Idiot  2015  LP, The Italo Disco Album [MP3|320 Kbps] <Electronic, Italo
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Incredible  3:44 
-02. I Look Into Your Eyes  5:26 
-03. Not Today Not Tonight  4:17 
-04. Toledo  5:00     Читать дальше...    Жанр: Electronic, Italo-Disco, Eurobeat, Parody, PopПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:89FF41B01B6BF511622AF688AE8E2F96432D9CC5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126548.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 126 526
-
-Sign System - Burning Down  1985  LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco, Europop
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Man On The Run  3:48 
-02. On Fire  4:24 
-03. Stay With Me  4:44 
-04. Game Of Love  4:01     Читать дальше...    Жанр: Electronic, Synth-pop, Italo-Disco, EuropopПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BF038A9698B09A76FC136D2DF3FFB8695E70A5DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126526.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 126 512
-
-VA - Total Disco  2017  [MP3|320 Kbps] <Disco, Nu-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Discotron – Mr Worldwide  Original Mix 
-02. Jack Le Funk – The Disco Ride  Audio Jacker Remix 
-03. Serial Thrilla – Ain’t A Game  Hype The Phunk Remix 
-04. Discotron – I Gotta Go  Original Mix     Читать дальше...    Жанр: Disco, Nu-DiscoПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:33EB826816DFE1B64B5877AF84ED29C88F6561BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126512.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 126 353
-
-Ariane - Boogie Me  1979  LP [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Boogie Me  5:22 
-02. Taxi Driver  5:04 
-03. Wig Wam Lady  Cherokee Lover   4:54 
-04. Your Love Is Heaven And Hell  8:14     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:31:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8098E43D6116213ADB54344885707C1AAE6F8EE9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126353.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 126 303
-
-VA - 100 Hits 80s Pop  2017  5CD, Box Set[FLAC|Lossless|tracks + .cue] <80s, Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Легкая ностальгия вас иногда пронизывает? Меня ностальгия не мучает – разве что иногда приятно вспомнить суету и веселье тех времен когда ничего в магазинах не было, но у всех всё было, когда была бесшабашная молодость и шабашки летом. А вы когда путешествуете по родным, далеким местам, какие чувства испытываете? Вот и этот сборник по волнам нашей памяти унесет нас     Читать дальше...    CD1:
-01. Dead Or Alive - You Spin Me Round  Like A Record    3:16 
-02. Haircut 100 - Fantastic Day   3:15 
-03. Bros - I Owe You Nothing   3:36     Читать дальше...    Жанр: 80s, Pop, RockПродолжительность: 06:28:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E5B5AFCA43564E2B160C45ED7218C3E146A3854C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1126303.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

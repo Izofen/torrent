@@ -1,4 +1,126 @@
 ﻿
+###  Публикация: 956 690
+
+Dolphin  Дельфин  - Андрей  2014  Remastered Deluxe Version, 2015 [MP3|320 кб с|Web-DL] <R
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Новая инкарнация пластинки полностью отличается по звучанию от версии декабря 2014 года: альбом был перемастерён, а в финале песни «Искра» теперь звучит соло на саксофоне, но главное, издание включает две абсолютно новые песни – «2030» и «Ахматова».01. Листья  5:25 
+02. Девять  4:24 
+03. Двое  3:08 
+04. Обман  5:07     Читать дальше...    Жанр: Rock, indie, AlternativeПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:94EB092008D52061EFBE5CC38CAD7D82B3FB5A86
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956690.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 956 295
+
+Biopsyhoz  Биопсихоз  - Демонстрация 15  2015  [MP3|320 кб с]<Alternative, EBM, Industrial
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Пульс
+02. Купол   Сыворотка Бога
+03. Пепел
+04. Оглушающая Тишина    Читать дальше...    Жанр: Alternative, EBM, IndustrialПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:47E331F07DFD72F41365972FA81214BBD8A98237
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_956295.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 665
+
+VA - Dawai Rock n Roll - Давай Рок н Ролл  1989  [MP3|320 кб с]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Звуки Му - Постовой
+02. Мистер Твистер - Давай Рок-н-Ролл
+03. АукцЫон - Вечер
+04. Чудо Юдо - Чудо Юдо    Читать дальше...    Жанр: RockПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D90BCC61F04DA6C34AC88ECEA9B1EF4BD67BFCFC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955665.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 556
+
+Aillion - Война миров  2015  [MP3|320 кб с]<Melodic Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Музыканты комментируют свою работу так:  Альбом получился проблемным и, на наш взгляд, вполне отражающим ситуацию в нашем сегодняшнем мире. Красной нитью сквозь него проходит антивоенная тема, а также борьба за светлые идеалы, несмотря на массу окружающих нас проблем как в социальном, так и в духовном планах. Вера и надежда на лучшее никогда не должны оставлять     Читать дальше...    01. Под огнем
+02. Война миров
+03. Зверь
+04. Пустые слова    Читать дальше...    Жанр: Melodic Heavy MetalПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6FFB420709D87C53311BE870652516351865739B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955556.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 955 468
+
+Пилот - Нелюбовь  2015  Single [MP3|320 кб с]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Сейчас музыканты работают сразу над двумя пластинками, «Нелюбовь» - это песня, как раз, с еще невыпущенного альбома группы:  Ну, если работа пойдет по плану, то я, надеюсь, что фолковый альбом под рабочим названием пока что «Кукушка». Он будет, наверное, видимо выходить весной 2016 года. Где-нибудь ближе к концу весны. А еще следующая пластинка под рабочим названием     Читать дальше...    01. НелюбовьЖанр: RockПродолжительность: 00:05:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F4A2A5D7F80D93211F246157FE17376FC70D0071
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_955468.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 955 466
 
 Линда - Карандаши и спички  2015  [MP3|320 kbps] <Rock, Female Vocal>
@@ -1856,128 +1978,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_916587.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 915 488
-
-Красный Смех - Воздухоплаватели  2015  Single [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. ВоздухоплавателиЖанр: RockПродолжительность: 00:05:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3BED1C02CF6A24A0E71C58CFF5B40534E58607D6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_915488.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 915 437
-
-Море Fиджи - Твоя Эволюция  2015  [MP3|320 кб с]<Rock, Grunge, Alternative>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Привет
-02. Твоя Эволюция
-03. Темный Снег
-04. Вернусь    Читать дальше...    Жанр: Rock, Grunge, AlternativeПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9029C994DE14294FE3CA7F55ABE7D90EE1C05027
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_915437.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 915 317
-
-Fferyllt - Achanterez  2015  [MP3|320 кб с]<Folk Metal, Symphonic Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Call Of The Wild
-2. Disciples Of War
-3. A Sprengisandi
-4. The Final Sunrise    Читать дальше...    Жанр: Folk Metal, Symphonic MetalПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A63EE90AD82002312F66113AB478A42C3DF31A9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_915317.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 915 156
-
-Liorinkarmic - 6 альбомов  2014-2015  [MP3|320 кб с]<Post-rock, Experimental, Minimal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. The lost forgotten girl [05:16]
-02. Tecollection [05:24]
-03. Double black death butterfly [03:52]
-04. Jealous of the kind and lovely [02:49]Жанр: Post-rock, Experimental, MinimalПродолжительность: 03:44:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7C139AC2D887F600A8C82960FE87409FEEA3C412
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_915156.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 914 290
-
-Браво - Grand Collection  2008  [FLAC|image+.cue]<Rock, Rock-n-Roll>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Король Оранжевое Лето
-02. Верю я
-03. Московский бит
-04. Будь со мной    Читать дальше...    Жанр: Rock, Rock-n-RollПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3B00B37A57CF2B3107F384781468128F01F5F1CF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_914290.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

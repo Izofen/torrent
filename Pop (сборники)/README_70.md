@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 237 555
+
+Валерий Сёмин и Белый день - Играй, баян!  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Играй, баян, душа моя  3:02 
+02. Элечка, Эля, Элина  3:41 
+03. Оксана  4:14 
+04. Кристина  3:38     Читать дальше...    Жанр: PopПродолжительность: 01:27:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:55A2FC79949274ECD0969F9C91878965066034C1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237555.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 237 552
+
+VA - Star 80 New Generation Vol. 1  2015  [MP3|320 Kbps] <Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Mode One - I Wanna Feel You  5:21 
+02. Ryan Paris - Light In The Dark  5:56 
+03. Talking Eyes - In the Sun  6:33 
+04. Magic System DJ - Angels  6:30     Читать дальше...    Жанр: DiscoПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9EAA893A62D30BFBA4EBFCED7CD12C455DFB6D0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237552.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 237 506
+
+VA - We Love Summer  2018  2CD [MP3|320 Kbps] <Dance, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD1:
+01. Luis Fonsi & Stefflon Don - Calypso [03:20]
+02. Alvaro Soler - La Cintura [03:23]
+03. Jax Jones Feat. Mabel & Rich The Kid - Ring Ring [03:37]    Читать дальше...    Жанр: Dance, DiscoПродолжительность: 02:36:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE4C9F17251F0BDCFD377902C273647B5169D3EC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237506.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 237 106
+
+Daddy DJ - Let Your Body Talk  2001  [FLAC|Lossless|tracks + .cue] <Euro-House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop  Lossless 
+
+###  Подробнее
+
+01. Daddy DJ  Chico & Tonio Radio Edit   3:39 
+02. Where Are You?  3:30 
+03. Over You  Original Radio Edit   3:36 
+04. Let Your Body Talk  4:30     Читать дальше...    Жанр: Euro-HouseПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:418A304154DF64EF624619B02028F9E44214898E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237106.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 237 103
+
+Daddy DJ -  Folder  2015  Deluxe Version [MP3|320 Kbps] <EuroDance, Euro-House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. In The Mirror  4:02 
+02. That s The Way Life Goes  3:50 
+03. Crying  3:30 
+04. Crying  HiLo Mix   3:40     Читать дальше...    Жанр: EuroDance, Euro-HouseПродолжительность: 01:57:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6AD1F68CFC1B43719AAF53231BE196DD39680786
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237103.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 237 101
+
+Daddy DJ - Let Your Body Talk  2001  [MP3|320 Kbps] <Euro-House>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Daddy DJ  Chico & Tonio Radio Edit   3:39 
+02. Where Are You?  3:30 
+03. Over You  Original Radio Edit   3:36 
+04. Let Your Body Talk  4:30     Читать дальше...    Жанр: Euro-HouseПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:44DF145757E6A28B5951FBD54EDA3577F453F3DF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237101.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 237 082
+
+Die Flippers - Heimweh nach Tahiti  1979  [FLAC|Lossless|image + .cue] <Schlager>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Ich hab  Heimweh nach Tahiti
+2. Alles was du lieben kannst
+3. Vagabunden der Strasse
+4. Virginia    Читать дальше...    Жанр: SchlagerПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:442CCCC0EF66773AC428ADFEFC92242D10298E3B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237082.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 237 056
+
+VA - 30 Magic Summer Chart Hits Of 2018 [MP3|320 Kbps] <Euro Dance, Pop Dance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. B.G. The Prince Of Rap feat. Timi Kullai & Nathan Reynolds III - You ll Be Mine  Chrizz Morisson Remix  3:31
+02. Greg Bannis feat. Djane Monique - You Sexy Thing 2018  Dolls Remix  2:38
+03. Chrizz Morisson & Timi Kullai - Here I Go 2018  Potenza Edit  2:41
+04. Linda Rocco, Chrizz Morisson, Andy Stead - Take Me To The River  Dolls House Remix  4:08    Читать дальше...    Жанр: Euro Dance, Pop DanceПродолжительность: 01:51:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:885FC962C70C4298F66B5A1186B257CD5B40A84B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1237056.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 236 959
+
+Ada Fijal - Ninoczka  2011  [FLAC|Lossless|tracks + .cue] <Pop, Jazz>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Zulejka  o poranku   5:30 
+02. Abdul Bey  3:14 
+03. Rebeka tanczy tango  3:58 
+04. Blekitny Ekspres  3:20     Читать дальше...    Жанр: Pop, JazzПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9289736B1D68756EB0FED96E537DE17938376CBB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1236959.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 236 950
+
+VA - 100X Zomer  2018  5CD [MP3|320 Kbps] <Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD01
+01. Luis Fonsi & Demi Lovato - Echame La Culpa
+02. Zedd ft. Maren Morris & Grey - The Middle
+03. Axwell - Dreamer    Читать дальше...    Жанр: DanceПродолжительность: 05:35:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B7165745B81CD849278C44DA1B237B6E9A002D8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1236950.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 236 866
 
 Монеточка - Раскраски для взрослых  2018  [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Teen Po
@@ -1751,259 +2001,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231331.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 231 324
-
-VA - NOW That s What I Call Summer Party 2018  3CD   2018  [MP3|320 Kbps] <Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD 01
-
-01. Camila Cabello feat. Young Thug - Havana
-02. DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I m The One    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:05:49
-
-01. French Montana feat. Swae Lee - Unforgettable
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ECA9FCB23C009769D277DF2EB15F22E5D411744B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231324.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 231 321
-
-VA - Еще одна вечеринка! Выпуск 2  1996  [FLAC|Lossless|image + .cue]<Pop, Dance>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Радиотранс - Я Хочу Стать Космонавтом
-02. Роман Рябцев - Дед-Мороз
-03. Био - Новое Искусство
-04. Вояж - Ты Для Него  Уже Не Значишь Ничего     Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C083C459417CEEA1BCC16E8A20B9F6B93222CE93
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231321.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 231 320
-
-Алёна Апина - Пропащая душа  1995  [FLAC|Lossless|image + .cue]<Pop>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Пропащая душа
-02. Семечек стакан
-03. Дочь городничего
-04. День вчерашний    Читать дальше...    Жанр: PopПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF384AC8CF9F8FBDC70A4D304D6A0678665E1177
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231320.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 231 297
-
-VA - Booom Summer 2018  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD 01
-
-01. Enrique Iglesias x Pitbull - MOVE TO MIAMI
-02. Namika - Je ne parle pas français  Beatgees Remix     Читать дальше...    Жанр: PopПродолжительность: 02:32:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7C7526FE2FE4DFC32E36CADE5E2782B6B3CECFD9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231297.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 231 219
-
-VA - DMC DJ Promo 232  2018  [MP3|320 Kbps] <Electronic, Hip Hop, Latin, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Seconds Of Summer - Youngblood
-02. Aloe Blacc - Brooklyn In The Summer  Steve Smart Epic Short Edit 
-03. Armin Van Buuren Fe. James Newman - Therapy  Club Mix 
-04. Backstreet Boys - Dont Go Breaking My Heart    Читать дальше...    Жанр: Electronic, Hip Hop, Latin, PopПродолжительность: 02:39:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8DFAB9E2E7B390F8AB551EDA1FE5A83AF132C58B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231219.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 231 085
-
-VA - O3 Greatest Hits Vol.81  2018  [MP3|320 Kbps] <Pop, Dancefloor, Dance Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Justin Timberlake – Say Something  feat. Chris Stapleton 
-02. Rudimental – These Days  feat. Jess Glynne, Macklemore & Dan Caplen 
-03. George Ezra – Paradise
-04. Shawn Mendes – In My Blood    Читать дальше...    Жанр: Pop, Dancefloor, Dance PopПродолжительность: 01:20:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1E87C073F91E0908C039E41AC1E2BCCD746A9D05
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231085.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 230 865
-
-Christina Aguilera - Liberation  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Liberation
-02. Searching For Maria
-03. Maria
-04. Sick Of Sittin     Читать дальше...    Жанр: PopПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:41BEE3336D46328BB96C4BEC7E59EBE3E88B8E1D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230865.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 230 688
-
-VA - Top Of The Pops  1976  2018  Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Сегодняшним релизом продолжаю небольшую  пока  серию путешествий по победителям топов прошлого века  ссылки на предыдущие релизы смотрите внизу .
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители     Читать дальше...    CD1:
-01. ABBA - Dancing Queen    3:50 
-02. Billy Ocean - Love Really Hurts Without You    3:00 
-03. Tavares - Don t Take Away The Music    3:40     Читать дальше...    Жанр: 1970s, pop, rockПродолжительность: 03:07:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CFFF959756E49A42AB79F49E508DC9609E23C5CE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230688.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 230 667
-
-Gepy & Gepy - Body To Body  1979  LP [MP3|320 Kbps] <Electronic, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01.  Body To Body  7:44 
-02.  Machine Man  5:48 
-03.  Oh Darling, Stay With Me  4:52 
-04.  African Love Song  6:47     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DE4A15F0014808A4B0D0A55E29FC97E342622543
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230667.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 230 642
-
-Italove - Extended And Remixed  2018  [MP3|~245 Kbps  V0 ] <Synthpop, Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Stockholm Is Calling  Extended Mix   04:43 
-02. Follow Me To Mexico  Extended Mix   04:42 
-03. Rhythm Of Love  Extended Mix   07:10 
-04. Too Late To Cry  Matt Pop Club   07:19     Читать дальше...    Жанр: Synthpop, Italo-DiscoПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4E7A26F6C460E1585A447A084EE95DFE6DC96DC1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230642.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

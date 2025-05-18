@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 389 769
+
+Вера Брежнева - V.  2020  Deluxe Edition [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Intro V.
+2. Просто люди  Intro 
+3. Просто люди
+4. Тихо  Intro     Читать дальше...    Жанр: PopПродолжительность: 00:24:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6DDD946C1735BA35546C6FC29539D84A95AEAE72
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389769.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 389 748
+
+Mariah Carey - Music Box  1993  Columbia CCK 53205 [FLAC|Lossless|image + .cue]<Pop, R&B>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Dreamlover  3:54 
+ 02. Hero  4:20 
+ 03. Anytime You Need A Friend  4:26 
+ 04. Music Box  4:58     Читать дальше...    Жанр: Pop, R&BПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D73EFA954A7631F66948BDE5E662B8D4712E00E3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389748.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 389 691
+
+Jehnny Beth - To Love is to Live  2020  [MP3|320 Kbps] <Indie Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. I Am  03:42 
+ 02. Innocence  03:22 
+ 03. Flower  03:20 
+ 04. We Will Sin Together  03:00     Читать дальше...    Жанр: Indie PopПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90DF803F95B9DCA4F5DA5AECFFECE97413E593A3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389691.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 389 643
+
+Kodaline - One Day at a Time  2020  [MP3|320 Kbps] <Pop-Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Wherever You Are  03:05 
+ 02. Sometimes  03:48 
+ 03. Saving Grace  03:51 
+ 04. Say Something  03:54     Читать дальше...    Жанр: Pop-RockПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EB69744EA52BC8D289B010565D10BBBDC90CB0B0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389643.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 389 639
+
+The Replacements - Let It Be  Deluxe Edition   1984  [FLAC|Lossless|tracks + .cue] <Rock & R
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. I Will Dare  3:17 
+02. Favorite Thing  2:20 
+03. We re Comin  Out  2:21 
+04. Tommy Gets His Tonsils Out  1:54     Читать дальше...    Жанр: Rock & RollПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:88650D50D2EDCA4B9C4BE9E49E2E5D131C1BDA96
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389639.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 389 636
+
+Frankie Goes To Hollywood - Welcome To The Pleasuredome  1984  [FLAC|Lossless|tracks + .cue] <Po
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The World Is My Oyster-Snatch Of Fury  Stay   1:58 
+02. Welcome To The Pleasure Dome  13:39 
+03. Relax  Come Fighting   3:56 
+04. War  And Hide   6:14     Читать дальше...    Жанр: Pop-RockПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CB7781725183440E0E0F3367E2C2E7A3F3913CC0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389636.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 389 179
+
+VA - NOW 80 s Generation Hits  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. ABC - The Look Of Love  Pt. 1   3:32 
+2. Soft Cell - Tainted Love  2:40 
+3 .Blondie - The Tide Is High  4:45 
+4. The Police - Every Breath You Take  4:16     Читать дальше...    Жанр: PopПродолжительность: 1:56:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F9AD739251CC761FB556A4978BA7A4593A0A6B0C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389179.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 389 176
+
+VA - NOW 90 s Generation Hits  2020  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. New Radicals - You Get What You Give  5:05 
+2. No Doubt - Don t Speak  4:28 
+3. Shania Twain - That Don t Impress Me Much  4:03 
+4. Sheryl Crow - All I Wanna Do  4:37     Читать дальше...    Жанр: PopПродолжительность: 02:00:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2541E7F69807FBCF365938BBBA89F8DED1E2A00E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389176.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 389 167
+
+Виктория Черенцова - С:СРР  Серия: Современные Русские Романсы   2017  [FLAC|Lossless|WEB-DL
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Только не исчезай  3:30 
+02. Молитва  3:36 
+03. Плед  2:32 
+04. Я выхожу на млечный путь  2:34     Читать дальше...    Жанр: PopПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E10E6B074F1F19E0325E1459BAC6C4414130E49
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389167.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 389 166
+
+Виктория Черенцова - Второй  2016  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Первый день без тебя  3:46 
+02. Не остыло сердце  3:34 
+03. Однажды  3:44 
+04. Всё уже решено  3:42     Читать дальше...    Жанр: PopПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DAC3EB7FE547371DEFA1D2BF5A54A34F103012CB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1389166.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 389 164
 
 Виктория Черенцова - 10 дней  2016  [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -1743,256 +1993,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384234.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 151
-
-VA - Eurovision Song Contest 2020 - A Tribute to the Artists and Songs  2020  [FLAC|Lossless|tra
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD1:
-01. Arilena Ara - Fall From the Sky  Albania   3:10 
-02. Athena Manoukian - Chains on You  Armenia   3:03 
-03. Vincent Bueno - Alive  Austria   3:03      Читать дальше...    Жанр: PopПродолжительность: 02:02:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:29B76D573A5E63E56ED7961D5CC159C022859A41
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384151.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 095
-
-Sarah Brightman - Hymn In Concert  2019  [FLAC|Lossless|tracks + .cue] <Vocal, Easy Listening, P
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Fleurs Du Mal
-02. Anytime, Anywhere
-03. Gia Nel Seno  La Storia Di Lucrezia 
-04. Follow Me    Читать дальше...    Жанр: Vocal, Easy Listening, PopПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0EEA79DE491DDEBE2C4669D5E5163561487D3141
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384095.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 094
-
-VA - Ballads  2020  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Foreigner - I Want to Know What Love Is  2013 Remaster 
-02. Spandau Ballet - True  Single Edit 
-03. Dua Lipa - Homesick
-04. Paolo Nutini - Last Request    Читать дальше...    Жанр: PopПродолжительность: 03:13:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7F3B217E70A0D39507BA521761328369255A5853
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384094.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 384 071
-
-Lara Fabian - Papillon S   2020  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Papillon
-02. Je Suis A Toi
-03. Changer Le Jeu
-04. Par Amour    Читать дальше...    Жанр: PopПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FF53B2CEDBE90ADDE89D98E5DF648BF245332A3E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1384071.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 946
-
-Николай Носков - Блажь  1998  [FLAC|Lossless|image + .cue] <Pop, Rock>
-Pop (сборники)
-Отечественная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Я тебя люблю
-02. Я не модный
-03. Дай мне шанс
-04. Сердца крик    Читать дальше...    Жанр: Pop, RockПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7373F3030373B227E51DAB6D9EFBD625C6F29D9C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383946.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 920
-
-Moleskine - Moleskine  1979  LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Sunny Day  4:12 
-02. A New Man  4:23 
-03. Camel Break Down  5:46 
-04. Hurry  3:50     Читать дальше...    Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FEF54672FF3E32768A791565A5443488416D4AF9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383920.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 859
-
-VA - Electro Pop 2020 [MP3|320 Kbps] <Electro Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Kungs, Cookin  On 3 Burners - This Girl  Kungs Vs. Cookin  On 3 Burners  3:16
-02. Møme - Club Sandwich 4:34
-03. Fakear - Nausicaa 3:53
-04. Aslove, Dalvin - Dancing 3:24    Читать дальше...    Жанр: Electro PopПродолжительность: 02:14:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E686D75D5FA110699E1D752CC49CB9B446084AE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383859.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 791
-
-VA - Summer Ballads  2020  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Chris Rea - On The Beach 3:41
-02. All Saints - Pure Shores 4:29
-03. The Corrs - Summer Sunshine 2:52
-04. Gordon Lightfoot - Sundown 3:37    Читать дальше...    Жанр: PopПродолжительность: 01:56:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3CDEA337319395FD8EF0BAC9E786A1A356A3AEB3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383791.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 782
-
-VA - Covers  2020  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Faith No More - Easy
-02. Dua Lipa - I d Rather Go Blind  Live 
-03. Ramones - Have You Ever Seen the Rain?
-04. Logan Henderson - Rocket Man    Читать дальше...    Жанр: PopПродолжительность: 03:05:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:33A10E159D4D5E05B660FC6CBAB54181549053A1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383782.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 383 781
-
-Светлана Лобода - Чёрный ангел  2006  [FLAC|Lossless|tracks + .cue]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:42:49Трэклист: 01. Чёрный ангел   Q-Coba  
-02. Дай мне   MBM music  
-03. Там за облаками   MBM music  
-04. Возьми   T.Pash      Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D3DF06DCC576D53CC696A6255ADB819DC5CA5948
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1383781.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,308 @@
 ﻿
+###  Публикация: 713 968
+
+VA - Now That’s What I Call Movies  2013  3CD  PreRelease  [MP3|~245 кб с  V0 ]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Bryan Adams -  Everything I Do  I Do It For You  Robin Hood Prince Of Thieves   06:33 
+ 02. Whitney Houston - I Will Always Love You  The Bodyguard   04:22 
+ 03. Bruce Springsteen - Streets Of Philadelphia  Philadelphia   04:18 
+ 04. Berlin - Take My Breath Away  Top Gun   04:13 
+ 05. Phil Collins - Against All Odds  Take A Look At Me Now   Against All Odds   03:27 
+ 06. Maria Mckee - Show Me Heaven  Days Of Thunder   03:48 
+ 07. Wet Wet Wet - Love Is All Around  Four Weddings And A Funeral   03:52 
+ 08. Roxette - It Must Have Been Love  Pretty Woman   03:52 
+ 09. Patrick Swayze Feat. Wendy Fraser - She s Like The Wind  Dirty Dancing   03:54 
+ 10. Lana Del Rey - Young And Beautiful  The Great Gatsby   03:56     Читать дальше...    Жанр: PopПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2395C6E3C08594134FF693981260DC43200011A6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 713 768
+
+Евгений Осин - ... в  России   1994  [FLAC|Lossless]<Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. 8 Марта  4:22 
+02. Друзьям  3:21 
+03. Не ходи со мною рядом  3:07 
+04. Не верю  3:45 
+05. Осенний вечер  2:55 
+06. Осень  3:59 
+07. Стоп, стоп люди...  5:24 
+08. Я тебя люблю  3:35 
+09. Для чего  3:54 
+10. Девчонки семидесятых  4:56     Читать дальше...    Жанр: PopПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5E5DED87A1D6F755AC6C2A392E22D03245646B96
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 713 708
+
+VA - Tubes Rentree 2013  2013  [FLAC|Lossless]<Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Продолжитeльность: 01:01:20
+
+01. Robin Thicke & TI & Pharrell - Blurred Lines
+02. Martin Garrix - Animals
+03. DJ Assad & Alain Ramanisum & Willy William - Li Tourner
+04. James Arthur - Impossible
+05. Calvin Harris & Ellie Goulding - I Need Your Love
+06. Zaho - Tout Est Pareil
+07. Pink & Lily Allen - True Love
+08. Miguel  US  - Adorn    Читать дальше...    Жанр: Pop, DanceПродолжительность: 02:00:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B5B4F6CFFE3DFE7BDB71CF116E9A9894AC84E3E9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 713 129
+
+VA - Grand 12 Inches 10  2013  6CD  Compiled by Ben Liebrand  [FLAC|Lossless]<Latin, Hi NRG,
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Earth, Wind & Fire - Fall In Love With Me  Special Remix Extended Version  [05:51]
+02. Chic - Everybody Dance  12  Mix  [08:25]
+03. Alexander O Neal - Fake  Extended Version  [05:21]
+04. Donna Summer - Hot Stuff  12  Version  [06:50]
+05. The Gap Band - Oops Up Side Your Head  Maxi Single  [08:43]
+06. Melba Moore - You Stepped Into My Life  Special Disco Version  [07:50]
+07. Brass Construction - Movin   Album Version  [08:41]
+08. Boney M. - Dancing In The Streets  12  Version  [06:23]
+09. Bohannon - Let s Start The Dance  Remix  [08:04]
+10. The New York Community Choir - Express Yourself  Disco Mix  [11:41]Жанр: Latin, Hi NRG, Italo-Disco, DiscoПродолжительность: 07:48:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:52E878265207ECED54494C6CC1FF8C7AF400327A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 712 738
+
+Demis Roussos - Greatest Hits  2013  [FLAC|Lossless]<Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. From Souvenirs To Souvenirs  2:35 
+02. Goodbye my love goodbye  3:54 
+03. My Friend The Wind  3:54 
+04. I ll Be Your Friend  4:07 
+05. Velvet Mornings  3:40 
+06. My Reason  3:59 
+07. With you  3:21 
+08. Action Lady  3:01 
+09. Follow me  7:24 
+10. Forever And Ever  3:35     Читать дальше...    Жанр: PopПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FA28FCB1C1A8FDD9A12F62DE34D0C91F75F1A536
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_712738.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 712 140
+
+Наталия Власова - Романсы  2013  [MP3|320 кб с]<Поп>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Колкими фразами
+02. На закате
+03. Я у твоих ног
+04. Не беда разлука
+05. Ночами
+06. Русалки
+07. Та любовь
+08. Луч
+09. Не понимаю
+10. Блюз    Читать дальше...    Жанр: ПопПродолжительность: 01:07:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E6258835A44598A5E9CE863B1001BB645381360A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 711 807
+
+VA - I Love Tocata 80 s  2012  2CD [FLAC|Lossless]<Italo-Disco, Hi-NRG, Synthpop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
+
+###  Подробнее
+
+01. Atlanta - Romantic Break [5:06]
+02. Modern Talking - You re My Heart, You re My Soul [5:33]
+03. Spagna - Easy Lady [6:53]
+04. Baltimora - Woody Boogie [5:51]    Читать дальше...    Жанр: Italo-Disco, Hi-NRG, Synthpop •Продолжительность: 02:36:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:19C923D32420E45E7BD910368EAC9EC449F7A13B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_711807.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 711 737
+
+VA - I Love Disco Germany 80 s  2012  2CD [FLAC|Lossless]<Italo-Disco, Hi-NRG, Synthpop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Falco - Der Kommissar  Extended Version  [6:27]
+02. Trio - Da Da Da [6:33]
+03. Nena - 99 Red Balloons [4:43]
+04. Alphaville - Big In Japan [7:24]
+05. Propaganda  - P:Machinery [9:22]
+06. Fox The Fox - Precious Little Diamond [7:26]
+07. Modern Talking - You re My Heart, You re My Soul [5:33]
+08. Twins, The  - Face To Face, Heart To Heart [5:00]
+09. Fancy - Turbo Dancer Remix [8:12]
+10. Bad Boys Blue - You re A Woman [5:21]    Читать дальше...    Жанр: Italo-Disco, Hi-NRG, Synthpop •Продолжительность: 02:34:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:749CBE0D0C119DFD18C9C15B48397214905FEDD0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_711737.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 711 731
+
+VA - I Love Disco UK 80 s  2012  2CD [FLAC|Lossless]<Italo-Disco, Hi-NRG, Synthpop>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+###  Подробнее
+
+01. Eurythmics - Sweet Dreams  Are Made Of This  [4:52]
+02. Imagination - Just An Illusion  Claps Mix  [8:15]
+03. Pet Shop Boys - West End Girls  Original Extended  [7:51]
+04. Dead Or Alive - You Spin Me Round  Like A Record   Performance Mix  [7:24]
+05. Samantha Fox - Touch Me  I Want Your Body   Blue Mix  [5:51]
+06. Bros - When Will I Be Famous? [5:41]
+07. Jason Donovan - Too Many Broken Hearts  Extended Mix  [5:43]
+08. Mandy Smith - I Just Can t Wait [7:17]
+09. Sinitta - Toy Boy  Bicep Mix  [7:35]
+10. Shooting Party - Safe In The Arms Of Love  Original Extended  [6:33]    Читать дальше...    Жанр: Italo-Disco, Hi-NRG, Synthpop •Продолжительность: 02:25:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7EB2186D98F87271A4CDB3A1AD64D83DC5908A9E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_711731.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 711 162
+
+James Blunt - Moon Landing  2013  [MP3|320 кб с]<Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Face The Sun  04:01 
+ 02. Satellites  03:12 
+ 03. Bonfire Heart  03:57 
+ 04. Heart To Heart  03:28 
+ 05. Miss America  03:05 
+ 06. The Only One  03:41 
+ 07. Sun On Sunday  03:15 
+ 08. Bones  02:51 
+ 09. Always Hate Me  03:37 
+ 10. Postcards  04:45     Читать дальше...    Жанр: Pop RockПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5BBED22259377AE457CE929175B0C0EB0A6AC48C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 711 047
 
 Ruslan Tagirov - Standing On A Bridge  2011  [Limited Edition] [FLAC|Lossless]<Electropop, Instr
@@ -2085,316 +2389,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:0E5816CF3F711385890E8C2C63AF791424299E45
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 698 969
-
-VA - Super Hot Hits  2013  [MP3|320 кб с]< Dance, Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Antonia - Marabou  03:39 
- 02. Katia feat. Wildboyz - Boom Sem Parar  03:49 
- 03. Ahmed Chawki feat. Pitbull - Habibi I Love You  Radio Edit   03:42 
- 04. Marquess & Jessie D feat. Jimmy Dub - Beso  03:30 
- 05. Lylloo & Matt Houston - Tu Y Yo  Original Version   03:04 
- 06. Spankox feat. Yunna - Makaroni  Radio Edit   03:12 
- 07. Faydee - Psycho  03:06 
- 08. Tacabro - Asi Asi  Radio Edit   03:05 
- 09. Alien Cut & Dino Brown feat. Vivian B - Love Me Boy  Radio Edit   03:25 
- 10. Gary Caos vs Rico Bernasconi feat. In-Grid - La Trompette  Bernasconi Radio Edit   03:02     Читать дальше...    Жанр: Dance, PopПродолжительность: 00:59:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6F1863E3A377735C9BB9B508AFB18975E869F0CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 698 741
-
-Madonna - Supersonic Bonus Tracks  2012  [MP3|320 кб с]<Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Some Girls  Idaho s Sweet Virgin Mix   05:44 
-02. Gang Bang  Idaho s Lovershoot Extended   07:29 
-03. Best Friend  Idaho s Poetry and Challenge Mix   05:08 
-04. I m A Sinner  Idaho s Deeper Sinner Mix   06:52 
-05. I don t Give A  Idaho s Elevator Suite   04:14 
-06. Love Spent  Idaho s Spiritchaser Edit   04:51 
-07. Turn Up The Radio  Idaho s Heatloverz Mix   05:00 
-08. I m Addicted  Idaho s Magic language Edit   04:50 
-09. GMAYL  Idaho s Rejoice Edit   04:31 
-10. Beautiful Killer  Idaho s Beautiful Stranger Edit   04:13     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:05:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E621BB9CD655A1B7D0EE10F60776D956DAB795BE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 698 701
-
-VA - Italo Holiday Vol 2  2013  [MP3|192 кб с]<Italodisco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Emmy Care - Once In A lLfetime  Dream Mix   6:23 
-02. Boris Zhivago - Russian Girl  Summer Mix   6:22 
-03. Limelight - Forever Love  Album Mix   6:07 
-04. Aldo Lesina - Together  Extended   6:59 
-05. Ranger - Breaking My Heart  Disco Mix   7:17 
-06. Boy Blue - Tears  Euro Mix   6:39 
-07. Marco Polo - Dont Stop  Disco Mix   6:22 
-08. Alan Brando - Heartbeat  Vocal   6:29 
-09. Tommy Sun - No More In Love  Italo Mix   6:00 
-10. Casanova - Holiday  Love Mix   6:05     Читать дальше...    Жанр: ItalodiscoПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:49D8A74A0A609A916FCC384E25852846B90DA46F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 698 442
-
-VA - Different Shades Of Savage  2011  2СD [MP3|320 кб с]<Italo-Disco, Synth-Pop, Italodance>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-CD1:
-01. G.A.N.G. – Incantations  Vocal  9:40
-02. Joey Moon – Angelica  Original  6:28
-03. Rose – Magic Carillon  Vocal  6:07
-04. Tango – Computerized Love  Original  5:14
-05. Lena – Run To Me  Extended Version  4:51
-06. Frank Raja – Born To Be Alive  Original  6:00
-07. Limit Eccitation – In The Dark  Original  5:10
-08. Wilson Ferguson – I m Singing Again  Extended Version  5:45
-09. Paula Evans – Ciao  Extended Version  5:08    Читать дальше...    Жанр: Italo-Disco, Synth-Pop, ItalodanceПродолжительность: 02:10:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3DD2C927FB0185207332F08EBA3FB723DAF40C2F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 698 283
-
-Bonnie Tyler - Gold  2013  [MP3|224 - 276 кб с]<Pop-Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Lost In France  04:05 
-02. It s A Heartache  03:37 
-03. Heaven  03:02 
-04. Goodbye To The Island  03:20 
-05. I Believe In Your Sweet Love  04:33 
-06. Have You Ever Seen The Rain  04:29 
-07. Total Eclipse Of The Heart  07:12 
-08. Straight From The Heart  03:54 
-09. If You Were A Woman   And I Was A Man    05:09 
-10. Holding Out For A Hero  05:50     Читать дальше...    Жанр: Pop-RockПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9AAAC6363C8A72B0B1E407F0DF63488AB0ECFCC9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 698 223
-
-Mylene Farmer - - Live Paris Bercy 07.09.2013  2013  [MP3|256 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. Introduction
-2. A force de...
-3. Comme j ai mal
-4. C est une belle journée
-5. Monkey Me
-6. Crier la vie
-7. Elle a dit
-8. Oui mais... non
-9. Interlude
-10. Mad World    Читать дальше...    Жанр: PopПродолжительность: 02:01:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6FFA192874C73FFC60A158F9EC09758576D2CCF4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_698223.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 698 184
-
-VA - Fun Radio: Party Fun Summer 2013  2CD  [MP3|320 кб с]<Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Major Lazer Feat. Busy Signal & The Flexican & FS Green - Watch Out For This  Bumaye   04:30 
- 02. David Guetta Feat. Ne-Yo & Akon - Play Hard   New Edit   03:29 
- 03. Tropical Family  Lynnsha, Fanny J & Louisy Joseph  - Maldon  Radio Edit   03:12 
- 04. Lumidee Feat. Fatman Scoop - Dance!  Voodoo & Serano Radio Edit   03:23 
- 05. Sebastian Ingrosso & Tommy Trash & John Martin - Reload  Vocal Version   Radio Edit   03:42 
- 06. Icona Pop Feat. Charli XCX - I Love It  Tiлsto Remix   05:11 
- 07. Axwell - Center Of The Universe  Original Radio Edit   03:36 
- 08. Avicii vs Nicky Romero - I Could Be The One  Avicii vs Nicky Romero   Nicktim - Radio Edit   03:29 
- 09. Flavel & Neto Feat. Anna Torres - Pedida Perfeita Tararatata  Version Franзaise   02:52 
- 10. Matt Houston - La Vie Est Belle  02:54     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:16:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FA5E9ED3DC0D9F022A62B77BB0D999CDF5DD5118
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 698 181
-
-VA - NRJ Party Hits  2013  2CD [MP3|320 кб с]<Pop, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. David Guetta & Ne-Yo & Akon - Play Hard  03:27 
- 02. Robin Thicke & TI & Pharrell - Blurred Lines  03:50 
- 03. Tropical Family  Lynnsha & Fanny J & Louisy Joseph  - Maldon  02:58 
- 04. Calvin Harris & Ellie Goulding - I Need Your Love  03:44 
- 05. Pink & Lily Allen - True Love  03:51 
- 06. Empire Of The Sun - Alive  03:24 
- 07. Lumidee & Fatman Scoop - Dance  03:23 
- 08. Amel Bent & Soprano  Generation Goldman 2  - Quand La Musique Est Bonne  03:10 
- 09. DJ Mam s & Tony Gomez & Ragga Ranks - Hella Decale  Remix 2013   02:57 
- 10. James Arthur - Impossible  03:27     Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:463DD0F116ECD6F75E019B8FE905C739FEAE2DF9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_698181.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 698 104
-
-Madonna - MDNA World Tour Live 2CD  2013  [APE|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Virgin Mary  Intro 
-02. Girl Gone Wild
-03. Revolver
-04. Gang Bang
-05. Papa Don t Preach
-06. Hung Up
-07. I Don t Give A
-08. Best Friend  Video Interlude 
-09. Express Yourself
-10. Give Me All Your Luvin     Читать дальше...    Жанр: PopПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:561EE940F8FD971F2BFD25064E7F6B834DE8B71C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 697 995
-
-Ofra Haza - Greatest Hits  2001  3СD[FLAC|Lossless]<Ethno-Pop, Folk>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Amen for Words
-02. Mutual Destiny
-03. Prayer
-04. Alive  Chai 
-05. Gabriel
-06. Frecha Song
-07. You Call Me
-08. Like a Bird
-09. Love Song to a Solider
-10. Keep Walking    Читать дальше...    Жанр: Ethno-Pop, FolkПродолжительность: 03:44:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:572593054885CDDABA835F1FF8A522C8C3542932
 ```
 
 <div id="header" align="center">

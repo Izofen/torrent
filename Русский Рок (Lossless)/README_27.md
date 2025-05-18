@@ -1,4 +1,129 @@
 ﻿
+###  Публикация: 1 316 927
+
+Собаки Табака - В другой Вселенной  2019  [MP3|320 Kbps] <Alternative, Electronic, Industrial>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+Спустя 7 лет с момента выхода в свет альбома  Новое Тело», 10 лет альбома «Найду, убью!..» и 23 года альбома «В Мозг..!!», проект СОБАКИ ТАБАКА выпускает, пожалуй, лучшее творение в своей истории. Альбом «В другой Вселенной» обречён на статус культового, поскольку абсолютно не привязан к действительности. Его звучание можно определить как - Блаженство! Безусловным     Читать дальше...    1. Где-то в пустоте
+2. За горизонт событий
+3. Это Я
+4. Из темноты    Читать дальше...    Жанр: Alternative, Electronic, IndustrialПродолжительность: 00:27:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:72D567A4F793216FB3C8EA0D54C980F8937B5E27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316927.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 316 662
+
+Babooshka - На страже Православия  2019  [MP3|320 Kbps] <Punk Rock, Alternative>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. На страже Православия
+2. Материнский капитал
+3. Мне всегда 88
+4. Стань скином    Читать дальше...    Жанр: Punk Rock, AlternativeПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E2F1F228ECE529B9E3297D9D7412EA59FB15AA1E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1316662.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 969
+
+Наутилус Помпилиус  Nautilus Pompilius  - Золотой век  2015  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Князь тишины
+02. Хлоп-хлоп
+03. Скованные одной цепью
+04. Казанова    Читать дальше...    Жанр: RockПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4D4096963E308DB4C0F82D804FC35C9E50119416
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315969.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 968
+
+Наутилус Помпилиус  Nautilus Pompilius  - Серебряный век  2015  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Титаник
+02. Дыхание
+03. Утро Полины
+04. На берегу безымянной реки    Читать дальше...    Жанр: RockПродолжительность: 01:46:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EBE11B21C5AA1B261A75866E73E543639DC2FF5E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315968.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 315 962
+
+VA - Охота 88  2019  [MP3|320 Kbps] <Rock, Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Иоганн Хан - Город на Неве
+02. Берур - Друзья, это радость
+03. Ничего страшного - Come on
+04. Orisha Sound - One Way Trip    Читать дальше...    Жанр: Rock, Indie RockПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:12698F6AB7CEFE22D582507D3D01B5E234B98E43
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1315962.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 315 923
 
 Тинтал - Дикий танец  2019  [MP3|320 Kbps] <Celtic Rock, Folk Rock>
@@ -1853,122 +1978,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1288757.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 288 308
-
-BY Effect - Первый шаг  2012  [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Обратная сторона
-02. Мы
-03. Холод истин
-04. Первый шаг    Читать дальше...    Жанр: RockПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E14C6C2E1186EA59593BAA4E3FBEE19E4DF7C69
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1288308.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 288 150
-
-Чайф - Все девушки Бонда  2019  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Все девушки БондаЖанр: RockПродолжительность: 00:04:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DCA2E73BD5A40B7873C597E0C2943E0198FD324B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1288150.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 288 147
-
-Radio Tapok - Просто я сегодня...  2019  Single [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-Трек выполнен в стиле группы Сектор Газа.1. Просто я сегодня...Жанр: Punk RockПродолжительность: 00:03:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:09F9FDDFC3A6445AB5BEB1CED4C9936A8944B9E0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1288147.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 287 827
-
-Ночные Снайперы - Рингтоном  2019  Single [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. РингтономЖанр: RockПродолжительность: 00:03:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C3675B7FCBFD302992933850797A599226C20017
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287827.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 287 824
-
-Курара - Кафка  2019  [MP3|320 Kbps] <Rock, Indie Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Ненастоящий мужчина
-2. Человек
-3. Барнаул
-4. Кафка    Читать дальше...    Жанр: Rock, Indie RockПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6697BD7C44282B721940651B858BF6B53D136A9F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1287824.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

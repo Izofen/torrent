@@ -1,4 +1,256 @@
 ﻿
+###  Публикация: 1 219 644
+
+Kenny Chesney  Кенни Чесни  - In My Wildest Dreams  1994  Capricorn Records [MP3|320 Kbps] <
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Кенни Чесни - американский исполнитель кантри-музыки, один из самых популярных в 2000-2010 годах в своём стиле. Он записал 16 альбомов, 14 из которых сертифицированы как золотые и платиновые по данным RIAA, а 7 альбомов возглавляли национальный хит-парад Billboard 200. Также он является автором более 30 синглов, вошедших в Top 10 списка Hot Country Songs журнала     Читать дальше...    01. Whatever It Takes 3:01
+02. Somebody s Callin  2:36
+03. The Tin Man 3:29
+04. High And Dry 2:58    Читать дальше...    Жанр: CountryПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B5383E2EEDF1B19BC585ECA4CFA44416D8066905
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219644.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 611
+
+Reba McEntire  Риба МакИнтайр  - Reba McEntire  1977  Mercury [MP3|320 Kbps] <Country>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Риба МакИнтайр  полное имя - Риба Нилл МакИнтайр  - американская кантри певица, автор песен, продюсер и актриса, которая за свою карьеру продала более семидесяти миллионов копий своих альбомов по всему миру. Она выпустила 26 студийных альбомов, выпустила 24 синглов, которые стали №1, 28 альбомов были сертифицированы как Золотые, Платиновые и Мульти-Платиновые по     Читать дальше...    01. Glad I Waited Just for You 3:01
+02. One to One 2:41
+03. Angel In Your Arms 2:51
+04. I Don t Want To Be A One Night 3:03    Читать дальше...    Жанр: CountryПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:629C13E2C40623A29E9CE9D3CD6434424DFE2E87
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219611.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 521
+
+VA - ZYX Italo Disco Spacesynth Collection 1-4  2014-2018  8CD, Compilation [MP3|320 Kbps] <Spac
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Laserdance - Moon Machine  5:34 
+02. Galactic Warriors - Koto Tribute Mix  13:58 
+03. Protonic Storm - Dreamscape  Short Mix   6:42 
+04. Rygar - Modulation  5:29     Читать дальше...    Жанр: Spacesynth, Italo-Disco, Space-DiscoПродолжительность: 10:04:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7943D14C8A6E4D991D1ABC1D995A74CA67B1D58
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219521.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 515
+
+VA - Maxi Disco  1979  LP [MP3|320 Kbps] <Electronic, Pop, Disco>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. M - Pop Muzik  5:00 
+02. Amii Stewart - Knock On Wood  6:01 
+03. Ganymed - It Takes Me Higher  4:53 
+04. Patrick Juvet - Lady Night  6:46     Читать дальше...    Жанр: Electronic, Pop, DiscoПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:97F1E15A09CD72D7AA0AC5BB7D6A76E8AA391C28
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219515.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 459
+
+The Nolans - 1 Album, 1 Compilation  1978, 1996  [MP3|320 Kbps] <Electronic, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+Ирландская поп группа в составе из пяти сестер, которая до 1980 года так и называлась - The Nolan Sisters. Мировую известность получили за хит  I m In the Mood for Dancing . Выпущенная в декабре 1979 года, песня достигла третьего места в Великобритании в феврале 1980 года и возглавила японские чарты в ноябре 1980 года.01. Something Tells Me  Something s Gonna Happen Tonight   2:24 
+02. Sailing  4:08 
+03. Don t It Make My Brown Eyes Blue  2:32 
+04. Mull Of Kintyre  4:17     Читать дальше...    Жанр: Electronic, PopПродолжительность: 02:18:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:532D022F031F86EBE3D8AE0BA83172AD5129DB69
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219459.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 397
+
+VA - The Sound Of Summer  2017  Limited Special Edition[FLAC|Lossless|tracks + .cue] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Приближается лето. По всем признакам, в том числе и музыкальным. Из последней командировки предлагаю свой улов.
+Уж не знаю, каким принципом руководствовались составители - скорее всего всем сестрам по серьгам. Уж больно широк спектр исполнителей. Но небольшой и содержательный буклет прикладывается.
+Не знаю как Вам, а у меня в машине уже неделю крутиться... С наступающим     Читать дальше...    01. Pharrell Williams - Happy   3:54 
+02. Marvin Gaye & Kygo - Sexual Healing   3:07 
+03. Olly Murs feat. Demi Lovato - Up   3:44 
+04. Mr. Probz - Waves   3:29     Читать дальше...    Жанр: PopПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0681DDFF01F7A8E836171E2BEF2ECA9D6F069DCF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219397.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 121
+
+Tina Turner - The Best (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Rock, Soul, Blues
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. The Best (Extended Mix) (6:37)
+02. Nutbush City Limits (The 90's Version) (3:44)
+03. Afterglow (12'' Dance Mix) (7:13)
+04. We Don't Need Another Hero (6:10)(   Читать дальше...   )Жанр: Pop, Rock, Soul, BluesПродолжительность: 02:33:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE915F497CCAE302451A3DB260423A78DC180F3C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219121.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 116
+
+Tina Turner - The Best  2018  2CD, Compilation [MP3|320 Kbps] <Pop, Rock, Soul, Blues>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. The Best  Extended Mix   6:37 
+02. Nutbush City Limits  The 90 s Version   3:44 
+03. Afterglow  12   Dance Mix   7:13 
+04. We Don t Need Another Hero  6:10     Читать дальше...    Жанр: Pop, Rock, Soul, BluesПродолжительность: 02:33:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57641F3A051C27FF7A3C3D91AECBA54A1AD65FFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219116.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 097
+
+C.C. Catch - The Best of  2018  [MP3|320 Kbps] <Disco, Euro-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Good Guys Only Win In Movies  Long Version   5:45 
+02. I Can Lose My Heart Tonight  Maxi-Version   5:53 
+03. Like A Hurricane  3:17 
+04. Are You Man Enough  Long Version - Muscle Mix   6:05     Читать дальше...    Жанр: Disco, Euro-DiscoПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E92CF00EFECAABBCE5ABBED3AC7ECB9560719AEE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219097.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 219 064
+
+Saturn EA1 - Magic Fly  1977  LP [MP3|320 Kbps] <Electronic, Space-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Magic Fly  2:57 
+02. Saturn s Brass  3:07 
+03. Byzantine Galaxy  2:56 
+04. Gammaray Dance  3:07     Читать дальше...    Жанр: Electronic, Space-DiscoПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CF663DB186B87763D1F44CCE6D5D6C0AB249C131
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1219064.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 219 037
 
 Donna Summer - The Dance Collection  1987  Reissue, Mercury, 2013 [MP3|320 Kbps] <Electronic, Fu
@@ -1743,256 +1995,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213697.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 691
-
-Dalida - Dalida  2018  [MP3|320 Kbps] <Pop, Chanson française>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  La chanson d’orphée
-02.  Bambino
-03.  Gondolier
-04.  Buenas noches mi amor    Читать дальше...    Жанр: Pop, Chanson françaiseПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:150207D40E69B57AFF0C67BC5BF40D97386AAEB1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213691.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 682
-
-Gazebo - Italo By Numbers  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 – Passion
-02 – Give Me One Day
-03 – Self Control
-04 – Wait    Читать дальше...    Жанр: PopПродолжительность: 01:14:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4F900270EB62C22AA3A0381EE5A2FC5BB45D5BC2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213682.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 563
-
-Clara Louise - Die guten Zeiten  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01.	Aufstehen	3:26
-02.	Bis wir bei uns sind	3:27
-03.	Kein Beweis	3:50
-04.	Schlie die Augen	3:43    Читать дальше...    Жанр: PopПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F48636AAB513E79E44C04CE327411C7C06E20B57
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213563.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 456
-
-Laura Pausini - Fatti sentire  2018  [FLAC|Lossless|WEB-DL|tracks] <Pop, Italian>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Non e detto
-02. Nuevo
-03. La soluzione
-04. E.STA.A.TE    Читать дальше...    Жанр: Pop, ItalianПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2765966AB6F163F402F481AB34F9FA1B2F0C4717
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213456.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 321
-
-VA - Magic 80s  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-CD1:
-01.  Queen  -  A Kind Of Magic  4:24
-02.  Culture Club  -  Karma Chameleon  4:00
-03.  The Human League  -  Don t You Want Me  3:58    Читать дальше...    Жанр: PopПродолжительность: 05:08:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C4146CDCFF71E6A50D71BE82798EF010ADD0D620
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213321.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 236
-
-Flyers - You re My Lady  1979  LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Discomotion  6:17 
-02. Need Your Lovin  Eyes  6:30 
-03. My Lady  3:32 
-04. Get On Movin   3:37     Читать дальше...    Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EB904D809746C4D634BAF50F0AE65494D58EF8F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213236.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 189
-
-E-Type - Russian Lullaby  1998  [FLAC|Lossless|image + .cue] <Eurodance, Euro-House>
-Pop (сборники)
-Eurodance, Euro-House, Technopop  Lossless 
-
-###  Подробнее
-
-01. Russian Lullaby  3:14 
-02. Until the End  3:32 
-03. When Religion Comes to Town  3:23 
-04. You Will Always Be A Part of Me  4:08     Читать дальше...    Жанр: Eurodance, Euro-HouseПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFF8C0E5354FDA1CB1697BE96D7C192ADC55054A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213189.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 213 044
-
-VA - Robot Is Systematic  2009  EP  Franco Rago & Gigi Farina feat.  Lectric Workers  [MP3
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01.  Lectric Workers - Robot Is Systematic  8:59 
-02.  Lectric Workers - The Garden  6:56 
-03. Pleasure Discipline - For Hours Now  Remix   7:01 
-04. Expansives - Life With You ....  6:56     Читать дальше...    Жанр: Electronic, Italo-Disco, ElectroПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DFA4A390BABB8C9DB002C7521595377F6F925928
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1213044.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 212 833
-
-Boris Zhivago - Memories  2018  [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop, Hi NRG>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Memoires  5:29 
-02. Love Is A Memory Away  7:56 
-03. Russian Fantasy  5:25 
-04. The Girl That Saved My Life  7:02     Читать дальше...    Жанр: Italo-Disco, Synth-pop, Hi-NRGПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70C69CD6906618A660241219EB1064C24B128A04
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212833.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 212 815
-
-Boris Zhivago - Collection  2013, 2014, 2018  [MP3|320 Kbps] <Italo-Disco, Synth-pop, Hi NRG>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Another Life  7:22 
-02. Rainy Day  6:29 
-03. In A World Of Fantasy  8:59 
-04. In The Streets Of Moscow  6:43     Читать дальше...    Жанр: Italo-Disco, Synth-pop, Hi NRGПродолжительность: 03:56:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6A2107246E2E6ED5867EC7BC9E550A2FCE090E09
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1212815.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

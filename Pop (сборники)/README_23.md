@@ -1,4 +1,254 @@
 ﻿
+###  Публикация: 1 577 030
+
+Eros Ramazzotti - Battito Infinito  2022  [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Ama
+02. Madonna de Guadalupe
+03. Ritornare a ballare
+04. Figli della terra  feat. Jovanotti     Читать дальше...    Жанр: PopПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D46A7B9E6E062A656335B7CB11F6ACABE655C16C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1577030.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 890
+
+Julian Lennon - Jude  2022  [FLAC|Lossless|tracks + .cue] <Pop Rock>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Save Me  03:03 
+02. Freedom  04:07 
+03. Every Little Moment  03:42 
+04. Not One Night  03:52     Читать дальше...    Жанр: Pop RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E3A52D665880424FAB385C2D6B0F2B35921FE1B5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576890.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 860
+
+VA - Best 80s Pop 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. ABBA - The Winner Takes It All  04:55 
+02. M.C. Hammer - U Can t Touch This  04:17 
+03. Salt-N-Pepa - Push It  04:28 
+04. Cameo - Word Up  04:18     Читать дальше...    Жанр: PopПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8025C939DB61502C2E1B4379FA401F42B73144F8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576860.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 790
+
+La Bouche - Sweet Dreams  1995  [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Forget Me Nots	4:10
+02. Sweet Dreams	3:23
+03. Be My Lover	3:58
+04. Fallin  In Love	3:55    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D02E0022D4733B9397A95418EA90C098A736A881
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576790.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 700
+
+Basic Element - The Empire Strikes Back  2007  [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eu
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Intro  Intro-Wire 
+02. I ll Never Let You Know
+03. Entourage
+04. Raise The Gain    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E24CE4AD3416500231CD56ED01EA7248B7416E6E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576700.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 675
+
+Basic Element - The Earthquake  1998  [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Secret Love	4:01
+02. Love 4 Real	3:22
+03. Life In Vain	4:19
+04. Deep Down	3:21    Читать дальше...    Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0E5448D3DB3D067B7410B07FD916060069E187B5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576675.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 584
+
+E-Type - Made In Sweden  1994  [OGG Vorbis|484 Kbps] <Electronic, Pop, 	Eurodance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. Made  In  Sweden
+02. Set  The  World  On  Fire
+03. This  Is  The  Way
+04. So  Dem  A  Com    Читать дальше...    Жанр: Electronic, Pop, EurodanceПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:92805B316A502422230203723BE64DA6E4ACE67E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576584.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 393
+
+Pharao - Pharao  1994  [OGG Vorbis|484 Kbps] <Electronic, Eurodance>
+Pop (сборники)
+Eurodance, Euro-House, Technopop (Lossless)
+
+###  Подробнее
+
+01. There is a Star
+02. King Pharao
+03. I Show You Secrets
+04. World of Magic    Читать дальше...    Жанр: Electronic, EurodanceПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91D6FE59D1E27FC72AE817BDF02C1D7CC49181E6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576393.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 364
+
+Ace Of Base - Hidden Gems  2015  [OGG Vorbis|484 Kbps] <Electronic, Pop, 	Eurodance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Would You Believe                   	2:50
+02. Go Go Go                                 	3:29
+03. Into The Night Of Blue          	4:13
+04. Don’t Stop                               	2:49    Читать дальше...    Жанр: Electronic, Pop, 	EurodanceПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A55758E09996C0DF3196671BAF56893C49539DB6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576364.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 576 250
+
+Cliff Richard - Love Songs  1981  Remaster, 1987, Parlophone[MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01 - Miss You Nights  1987 Remaster  [00:03:57]
+02 - Constantly  1987 Remaster  [00:02:38]
+03 - Up in the World  1987 Remaster  [00:02:40]
+04 - Carrie  1987 Remaster  [00:03:27]    Читать дальше...    Жанр: PopПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5AC8660E9A82150F8A05D0B25F39CF107511B523
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576250.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 576 246
 
 Chris Norman - Rediscovered Love Songs  2022  [MP3|320 Kbps] <Pop>
@@ -1740,256 +1990,6 @@ Pop (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1570113.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 911
-
-Ken Laszlo - Greatest Hits & Remixes  2016  [OGG|485 Kbps] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Don t Cry              	6:37
-02. Tonight  Vocal Version 	5:49
-03. Hey Hey Guy          	5:50
-04. Everybody Is Dancing	7:16    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:11FB203238D4F84DEF043C4C99260D17B58B7F19
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569911.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 830
-
-VA - The Best Of Italo-Disco Vol. 8  1987  [OGG|485 Kbps] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Solo – Harem	5:36
-02. Linda Jo Rizzo – Heartflash  Tonight 	5:58
-03. Silver Pozzoli – Pretty Baby	5:58
-04. Mike Mareen – Agent Of Liberty	8:50    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CC2706F85D77DC620EF7C93917769864C43DF775
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569830.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 818
-
-VA - The Best Of Italo-Disco Vol. 5  1986  [OGG|485 Kbps] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Solid Strangers – My Delight	6:12
-02. Jimmy & Susy – Come Back	6:03
-03. Max-Him – Japanese Girl	5:58
-04. Cruisin  Gang – America Medley With Machinery	7:27    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:38:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0B0E796CEBA427BA1CBECA06B2202D0EB5FB98ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569818.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 806
-
-VA - The Best Of Italo Disco Hits Vol. III  1985  [OGG|485 Kbps] <Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Baby s Gang - Challenger
-02. Miko Mission - The World Is You
-03. Charlie - Space Woman
-04. Mike Rogers - Just A Story    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7D4EFB2C52036315F24576D431992AB52C09ECC6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569806.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 728
-
-Daryl Hall - BeforeAfter  2022  2xCD, Compilation, Japanese Edition [FLAC|Lossless|image + .cue]
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-CD - 1:
-01. Dreamtime  4:46 
-02. Babs And Babs  7:44 
-03. Foolish Pride  3:58     Читать дальше...    Жанр: Pop RockПродолжительность: 02:31:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:71E0008DDA133025200425AC56A65602B3518D2B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569728.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 666
-
-Sandra - Fading Shades  1995  [OGG|485 Kbps] <Downtempo, Synth-pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Fading Shades  Part I 	1:02
-02. Nights In White Satin   3:34
-03. Son Of A Time Machine	5:01
-04. Won t Run Away	4:14    Читать дальше...    Жанр: Downtempo, Synth-popПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B22B67A1228CC40537E68ACF092A8CC5ADA5D650
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569666.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 651
-
-Modern Talking - Romantic Warriors - The 5th Album  1987  [OGG|485 Kbps] <Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Jet Airliner	4:19
-02. Like A Hero	3:45
-03. Don t Worry	3:31
-04. Blinded By Your Love	4:02    Читать дальше...    Жанр: DiscoПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6549B6BD87D717EFCC7431ED5B61F38536897CD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569651.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 615
-
-Oscar Rocchi s Orchestra - Video Dance  1981  LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Supersonic  3:25 
-02. Cabala  3:29 
-03. Open Gate  2:53 
-04. Altro Mondo  2:32     Читать дальше...    Жанр: Electronic, Italo-DiscoПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2069A5ADEECC705D4AAF2B4BADD013E60F9A6956
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569615.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 610
-
-Modern Talking - The 1st Album  1985  [OGG|485 Kbps] <Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. You re My Heart, You re My Soul	5:36
-02. You Can Win If You Want	3:55
-03. There s Too Much Blue In Missing You	4:40
-04. Diamonds Never Made A Lady	4:05    Читать дальше...    Жанр: DiscoПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E7A306C15C5606DE36F450A18F3D813DEBC36028
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569610.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 569 555
-
-Blue System - Obsession  1990  [OGG|485 Kbps] <Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Love Is Such A Lonely Sword  4:10
-02. When Sarah Smiles	3:41
-03. Behind The Silence	3:32
-04. 2000 Miles	3:46    Читать дальше...    Жанр: DiscoПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9EDFB670198CCD3B02CB81A28F198638890C991E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1569555.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

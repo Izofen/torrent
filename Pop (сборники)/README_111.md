@@ -1,4 +1,307 @@
 ﻿
+###  Публикация: 849 198
+
+Валерий Ободзинский - Золотые шлягеры 60-70  1999  [APE|Lossless]<Pop retro>
+Pop (сборники)
+Советская эстрада, Ретро (Lossless)
+
+###  Подробнее
+
+1. Неотправленное письмо
+2. Что-то случилось
+3. Олеандр
+4. Белые крылья
+5. Запомни
+6. Наше танго
+7. Восточная песня
+8. Небо мое
+9. Эти глаза напротив
+10. Первое апреля    Читать дальше...    Жанр: Pop retroПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F5EF64E3B1D3C8058F6A48CEDEA31DA6FA2FEBCE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 849 045
+
+Анна Герман - Наши любимые песни  2005  [MP3|320 кб с]<Retro Pop>
+Pop (сборники)
+Советская эстрада, Ретро
+
+###  Подробнее
+
+01. Когда цвели сады
+ 02. Белая черёмуха
+ 03. А он мне нравится
+ 04. Быть может  на польском 
+ 05. Вернись в Сорренто  на англ., польском 
+ 06. Весна
+ 07. Двое
+ 08. Ave Maria  на итальянском 
+ 09. Гори, гори, моя звезда
+ 10. Надежда    Читать дальше...    Жанр: Ретро, эстрадаПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:64CCA5588A5AC2A566CA5DDDE379F454CDC056B8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 774
+
+Robbie Williams - Under The Radar Vol. 1  2014  [MP3|320 кб с]<Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Bully
+ 02. Raver
+ 03. H.E.S.  Heavy Entertainment Show 
+ 04. The Edge
+ 05. All Climb On
+ 06. Surrender
+ 07. Love Is You
+ 08. The Cure
+ 09. The Pilot
+ 10. The BRITS    Читать дальше...    Жанр: Pop, RockПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD74BD5E8966F6295B0B39A5678BC21533C83CAC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 728
+
+Robbie Williams - Under The Radar Vol. 1  2014  [FLAC|Lossless]<Pop, Pop Rock, Soft Rock, Brit P
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Bully  3:22 
+02. Raver  3:56 
+03. H.E.S.  Heavy Entertainment Show   3:39 
+04. The Edge  4:08 
+05. All Climb On  4:36 
+06. Surrender  4:07 
+07. Love Is You  3:45 
+08. The Cure  4:11 
+09. The Pilot  3:50 
+10. The BRITS  4:50     Читать дальше...    Жанр: Pop, Pop Rock, Soft Rock, Brit PopПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A13158E8614E6CCE0EBEAFAAF3914122B7F5CA7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 727
+
+Charli XCX - Sucker  2014  [MP3|320 кб с]<Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Sucker
+ 02. Break The Rules
+ 03. London Queen
+ 04. Breaking Up
+ 05. Gold Coins
+ 06. Boom Clap
+ 07. Doing It
+ 08. Famous
+ 09. Body of My Own
+ 10. Hanging Around    Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63E5963C2A66E822F690F02380069933D15DB250
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 692
+
+Robbie Williams - Swings Both Ways Live  2014  [MP3|320 кб с]<Pop, Swing>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+1. Overture
+2. Shine My Shoes
+3. Puttin  On the Ritz
+4. Ain t That a Kick in the Head
+5. Minnie the Moocher
+6. Swing Supreme
+7. No One Likes a Fat Pop Star
+8. That s Amore
+9. Mr. Bojangles
+10. Ignition    Читать дальше...    Жанр: Pop, SwingПродолжительность: 01:49:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA0E374C58DA563AE5715ECD4D9EC02878BAD31D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 638
+
+Alien24  Дима Билан  - Alien  2014  [MP3|320 кб с]<Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Alien
+ 02. Music Is In My Soul
+ 03. Fairy World
+ 04. Angel
+ 05. Wally
+ 06. Light & Sky
+ 07. Fantom
+ 08. Tonight
+ 09. D Or D
+ 10. Hypnosis    Читать дальше...    Жанр: PopПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:970619E13FE46D45E155CC3007B75BF680CA7ECB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 544
+
+Belinda Carlisle - The Collection  2014  [MP3|320 кб с] <Pop, Rock>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01.  We Want  The Same Thing
+02. Heaven Is a Place On Earth
+03. Live Your Life Be Free  Single Edit 
+04. Leave a Light On  7”     Читать дальше...    Жанр: Pop, RockПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0A4BD66BD73EA1F5C83684081A27B2C075656162
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 508
+
+ВИА «Пламя» - DeLuxe Collection  2002  [FLAC|Lossless]<Retro Pop>
+Pop (сборники)
+Советская эстрада, Ретро  Lossless 
+
+###  Подробнее
+
+01.  Снег кружится  С. Березин - Л. Козлова  
+02.  На дальней станции сойду  В. Шаинский - М. Танич  
+03.  Аты - баты  В. Мигуля - М. Танич  
+04.  Под музыку Вивальди  С. Никитин , В. Берковский - А. Величанский  
+05.  Строим БАМ  З. Бинкин - В. Петров  
+06.  Дорога железная  В. Шаинский - М. Пляцковский   
+07.  Идёт солдат по городу  В. Шаинский - М. Танич   
+08.  Не надо печалиться  А. Экимян - Р. Рождественский   
+09.  У     Читать дальше...    Жанр: Retro PopПродолжительность: 01:19:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87E9C88D5E0EB8DD8F0257EB1514BAFCF472AC79
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 374
+
+Марк Бернес - Неизвестный Бернес  2009  [FLAC|Lossless]<Retro>
+Pop (сборники)
+Советская эстрада, Ретро (Lossless)
+
+###  Подробнее
+
+1. Наша любовь  1:55
+2. Тучи над городом встали  2:24
+3. Шаланды 2:37
+4. Песня посвящается моя  3:13
+5. Три года ты мне снилась  3:00
+6. Гитара  3:06
+7. Разгулялся вольный ветер  2:18
+8. Очень часто в жизни так случается  2:23
+9. Когда разлюбишь ты  3:12
+10. Я работаю волшебником  3:14    Читать дальше...    Жанр: RetroПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F20B401111A32013A57A8EDECD964D438B72ED2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 848 369
 
 ВИА «Песняры» - Вологда  1996  [FLAC|Lossless]<Retro Folk-Rock>
@@ -2110,313 +2413,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
     magnet:?xt=urn:btih:79ABBBC47F4D08D32107DDBD88A3BDA0489BB810
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 842 092
-
-Atomic Kitten - The Greatest Hits  2004  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01 - Whole Again
- 02 - Ladies Night  feat. Kool and The Gang 
- 03 - The Tide is High  Get the Feeling 
- 04 - It s OK!
- 05 - Be with U
- 06 - If U Come to Me
- 07 - Eternal Flame
- 08 - Love Doesn t Have to Hurt
- 09 - The Last Goodbye
- 10 - Right Now 2004    Читать дальше...    Жанр: PopПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:74C1B1C082555C00384AF19F33E60FC696A15AF9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 842 035
-
-Лолита - Анатомия  2014  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Я
-02. Секси
-03. Анатомия
-04. Шпилька-Каблучок
-05. 9 Жизней
-06. Несовсем
-07. Ожидание
-08. Брюки
-09. На Скотч
-10. Сошедшая Не С НебесЖанр: PopПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB66E3AF8CECA1FEC8E1008C825F0E554F18CA11
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 841 961
-
-VA - NOW That s What I Call Music! 89  2014  2CD [MP3|320 кб с]<Top 40, Pop Compilation>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Meghan Trainor - All About That Bass  3:07 
-02. Olly Murs feat. Travie McCoy - Wrapped Up  3:03 
-03. Jessie J, Ariana Grande & Nicki Minaj - Bang Bang  3:17 
-04. Nico & Vinz - Am I Wrong  4:04 
-05. MAGIC! - Rude  3:43 
-06. Sam Smith - I m Not The Only One  Radio Edit   3:23 
-07. Tom Odell - Real Love  2:16 
-08. Taylor Swifeat. - Shake It Off  3:36 
-09. Ed Sheeran - Don t  3:36 
-10. George Ezra - Blame It On Me  3:14     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Pop-Rock, Dance, New Wave, Electronic, Funk, Soul, House, R&B, SoulПродолжительность: 02:40:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:883A6F278E4696A26266EA045F96DD93B785F4C7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 841 907
-
-VA - BRAVO The Hits 2014  2014  2CD [FLAC|Lossless]<Top 40, Pop, Rock, Dance, R&B>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Kwabs - Walk
-02. Sheppard - Geronimo
-03. Maroon 5 - Animals
-04. Avicii feat. Robbie Williams - The Days  Radio Edit 
-05. David Guetta feat. Sam Martin - Lovers On The Sun
-06. Coldplay - A Sky Full Of Stars
-07. Robin Schulz feat. Jasmine Thompson - Sun Goes Down  Radio Mix 
-08. Mr. Probz - Waves  Robin Schulz Radio Edit 
-09. Klangkarussell - Netzwerk  Falls Like Rain 
-10. Kiesza - Hideaway  Album Version     Читать дальше...    Жанр: Top 40, Pop Compilation, Pop, Indie Pop, Rock, Pop Rock, Electronic, Hip Hop, Electro, Synthpop, Europop, R&B, Pop Rap, Euro House, Indie RockПродолжительность: 02:43:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4D343C1F7DF8B6FB4F9CF596C231D6E9BA0F6884
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 841 853
-
-Julio Iglesias - Ein Weihnachtsabend  2006  [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-1. Leise Rieselt Der Schnee - Es Ist Ein Ros  Entsprungen
-2. Weisse Weinhnacht  White Christmas 
-3. Ihr Kinderlein Kommet - Am Weihnachtsbaum Die Lichter Brennen -
-O Du Frohliche
-4. Susser Die Glocken Nie Klingen
-5. La Huida  Vidala Tucamana  - El Nacimiento  Vidala Catamarquena  -
-Los Pastores  Chaya Riojana 
-6. O Tannenbaum
-7. Stille Nacht, Heilige Nacht
-8. Weisser Winterwald  Winter Wonderland  - Pferdchen Lauf  Jingle Bells     Читать дальше...    Жанр: PopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DD3B698418474AA383CEFFFBF50813B748C7AC62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 841 519
-
-Rumer - Into Colour  2014  [MP3|320 кб с]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Intro  Return Of Blackbird 
-02. Dangerous
-03. Reach Out
-04. You Just Don t Know People
-05. Baby Come Back To Bed
-06. Play Your Guitar
-07. Sam
-08. Better Place
-09. Pizza And Pinball
-10. Butterfly    Читать дальше...    Жанр: PopПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:36F98000E21E5FED8F4EC9732CBA5641B7BB0623
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 841 374
-
-VA - Radio 538 Hitzone: Best Of 2014  2014  2CD [FLAC|Lossless]<Top 40, Pop, Dance, Electronic,
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Clean Bandit feat. Jess Glynne - Rather Be  The Magician Remix   4:34 
-02. Mr. Probz - Nothing Really Matters  3:42 
-03. Marco Borsato, Jade Borsato, Day Ewbank & John Ewbank - Samen Voor Altijd  Radioversie   4:08 
-04. Calvin Harris - Summer  3:40 
-05. Milky Chance - Stolen Dance  Radio Edit   3:22 
-06. George Ezra - Budapest  3:21 
-07. Jessie J feat. Ariana Grande & Nicki Minaj - Bang Bang  3:17 
-08. Nico & Vinz - Am I Wrong  4:05 
-09. Tove Lo feat. Hippie Sabotage - Stay High  Habits Remix      Читать дальше...    Жанр: Top 40, Pop, Dance, Dancepop, Electronic, House, Rock, Pop Rock, Alternative Rock, R&B, Hip-Hop, Soul, Latin, BalladПродолжительность: 02:37:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E1E4D335F4840BCCD3FF332A7BD702663BE2F262
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 841 216
-
-Dee - The Space Between Us  2014  [MP3|320 кб с]<Electropop  Dance Rock  Synthpop  Indie
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. The Space Between Us [05:50]
-02. The Voyage [07:44]
-03. The Flow [04:24]
-04. No Earth Pt2 [04:09]
-05. Let It Rise  free  [04:45]
-06. No Earth Pt1 [04:06]
-07. Release [03:56]
-08. The End [08:00]Жанр: Electropop  Dance Rock  Synthpop  IndietronicaПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C01561CF22C5056680CD20C778033A473777FCDF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 841 104
-
-Monica Molina - Mar Blanca  2012  [FLAC|Lossless]<Latin Pop, Fado>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Mar blanca  3:07 
-02. Adiós a España  2:38 
-03. Caminito del olvido  3:50 
-04. Soy minero  2:52 
-05. Yo quiero vivir contigo  3:31 
-06. Cocinero, cocinero  2:49 
-07. María de los Remedios  3:01 
-08. Soy del norte  3:15 
-09. Adiós lucerito mío  2:40 
-10. Nana  2:28 Жанр: Latin Pop, FadoПродолжительность: 00:30:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DE91595B80DF737B8F0A65CDE9A1AD2343A28854
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 840 698
-
-Massimo Ranieri - Napoli Ed Io  2007  3CD [FLAC|Lossless]<Pop>
-Pop (сборники)
-Зарубежная поп-музыка  Lossless 
-
-###  Подробнее
-
-01. Te Vojo Bene Assaie  3:19 
-02. Reginella  4:18 
-03. Tu si Na Cosa Grande  3:41 
-04. Malafemmena  4:24 
-05. E Spingule Francese  4:02 
-06. Voce E  Notte  4:34 
-07. Piscatore  E Pusilleco  3:52 
-08. Suonne Suonnate  3:30 
-09. Furturella  3:14 
-10. Scalinatella  3:59     Читать дальше...    Жанр: PopПродолжительность: 02:47:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A2676EC133E06BE3CDCDA37761A1FFD77B46B3F3
 ```
 
 <div id="header" align="center">

@@ -1,4 +1,124 @@
 ﻿
+###  Публикация: 1 554 538
+
+ДДТ - Уфа 2020. Live  2022  [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Уфа. Приветствие  Live 
+2. Дождь  Live 
+3. Что такое осень  Live 
+4. Реальность  Live     Читать дальше...    Жанр: RockПродолжительность: 02:13:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BD454CF8BB53DD65ECFB9EEEDC342B9FDDD423E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554538.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 554 202
+
+The Crossed - 5 Relises  2013-2019  [MP3|320 Kbps] <Extreme Metal, Deathcore, Mathcore>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Beautiful [00:02:45]
+02. Fucking Cattle [00:03:55]
+03. We Are Not Equal [00:03:18]
+04. There s No Ark [00:05:49]    Читать дальше...    Жанр: Extreme Metal, Deathcore, MathcoreПродолжительность: 5 CD, 02:29:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BDB790944CAC0C57270483165F6CBCA6EE18BD68
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554202.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 554 125
+
+Math Marriage Abel and Krell - Откровение  2021  [MP3|320 Kbps] <Extreme Metal, Deathcore, Mathc
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 - Найти и потерять [00:04:25]
+02 - Волны [00:02:57]
+03 - Блеск плоскостей [00:04:18]
+04 - Флёр [00:06:36]    Читать дальше...    Жанр: Extreme Metal, Deathcore, MathcoreПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2C101229E1DADBE8DC0272FD63A208F39A68F7BC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1554125.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 553 954
+
+Ногу свело! - Нам не нужна война!  2022  single [MP3|270-320 Kbps] <Rock, Pop-Punk, Alternative
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Нам не нужна война! | 320 Kbps | 00:02:40
+02. Нам не нужна война! feat. Лавров | 270 Kbps | 00:02:40Жанр: Rock, Pop-Punk, Alternative RockПродолжительность: 00:05:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7A7FECC06007609BF8331418B3DA3248E7A3FEE7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553954.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 553 953
+
+Ногу свело! - Назад, Россия!  2022  single [MP3|320 Kbps] <Rock, Pop-Punk, Alternative Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Назад, Россия!Жанр: Rock, Pop-Punk, Alternative RockПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89CF1C602B5AA2604EF7CDDA96BB08F1854A17BB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1553953.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 553 952
 
 Ногу свело! - Буква Zю  2022  single [MP3|320 Kbps] <Rock, Pop-Punk, Alternative Rock>
@@ -1861,131 +1981,6 @@ Rock, Alternative, Punk, Metal
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537611.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 537 602
-
-Radio Tapok - Наследие  2022  [MP3|320 Kbps] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Цусима
-2. Высота 776
-3. Жизнь за царя
-4. Операция  союзная сила     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0727AD0C1244FDA2AB2C50246D04C45CD2DB8BB3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1537602.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 536 878
-
-Виктор Зинчук - Секрет релакса  2021  [MP3|320 Kbps] <Instrumental Rock, Classical>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Апрель  Времена года   03:28 
- 02. Лето  Времена года   02:39 
- 03. Осень  Времена года   01:38 
- 04. Рождество  Времена года   01:49     Читать дальше...    Жанр: Instrumental Rock, ClassicalПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4F1A524DE0E0749F6A2CCE934EC0DFE6E78444DE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1536878.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 535 190
-
-VA - Трибьют ВИА Лампасы  2022  [MP3|320 Kbps] <Punk Rock, Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. ВИА «Волга-Волга» - Босоножки
-2. CWT - Песня протеста
-3. АНАНАСОВ и Ко - Да, я выпил
-4. Сектор Газовой Атаки - Кибитка    Читать дальше...    Жанр: Punk Rock, RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:611724C2C4C43221D09227FD09A37B568D0EFBF6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1535190.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 834
-
-Колибри - Манера Поведения  1991  Remastered, 2022, Колибри [MP3|320 Kbps] <Pop Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Интро  Remastered 2022 
-2. Тропическая птица  Remastered 2022 
-3. Американская жена  Remastered 2022 
-4. Фудзи  Remastered 2022     Читать дальше...    Жанр: Pop RockПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5B039E660E334CDC54441E48C21356A33C6AD6C5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534834.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 534 689
-
-Nalien - Твоей маме понравится  2022  [MP3|320 Kbps] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-1. Твоей маме понравится
-2. Мультики
-3. Выключи стерву
-4. 500 рублей    Читать дальше...    Жанр: Punk RockПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75F97C0216F2592D67FEA2AC1BD54C77CB49D73E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1534689.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

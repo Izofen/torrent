@@ -1,523 +1,1222 @@
 ﻿
-###  Публикация: 1 702 304
+###  Публикация: 1 704 178
 
-JJ Grey & Mofro - Olustee (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. The Sea (4:45)
-02. Top Of The World (3:30)
-03. On A Breeze (4:35)
-04. Olustee (5:10)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C47751C6BCA168009E5BB4B15F04BE2E44359883
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702304.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 303
-
-Weber & Weber - World In Motion  2024  [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Chillout, Lounge>
-Electronic
-Downtempo, Trip-Hop, Lounge  Lossless 
-
-###  Подробнее
-
-01. Tomorrow s Another Day
-02. What If...
-03. World In Motion
-04. Love Generation    Читать дальше...    Жанр: Nu Jazz, Chillout, LoungeПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:879CE6AA6B47536552E30F119BDD210EA341F942
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702303.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 302
-
-Arkado - Open Sea  2024  [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. Voyage
-02. Open Sea
-03. Running Through The Night
-04. I Gave My Heart    Читать дальше...    Жанр: Melodic RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C92243B947B834F3258A686BF0B4D1F94AA04ACE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702302.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 301
-
-Katie Henry - Get Goin' (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Love Like Kerosene (3:30)
-02. Jump (3:58)
-03. A Doll's Heart (4:11)
-04. Clear Vision (3:39)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:13CA1D8FB5FC0B4088BA6BC2D868092D9E562255
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702301.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 300
-
-VA - Peaceful Classical  2024  [FLAC|Lossless|WEB-DL|tracks] <Classical>
-Классика кино и Старые фильмы до 90-х
-Классика  сборники   Lossless 
-
-###  Подробнее
-
-01. Leonard Slatkin - Satie - 3 Gymnopédies - No. 1 in D Major  3:19 
-02. John O Conor - Debussy - Préludes, Book 1, L. 117 - No. 8, La fille aux cheveux de lin  2:35 
-03. John O Conor - Debussy - Suite bergamasque, L. 75 - III. Clair de luneЖанр: ClassicalПродолжительность: 03:55:31
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:22A4DC888BA0BEF1C3D3BE06F59C6BE13987267B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702300.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 299
-
-Mike Zito - Life Is Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Lonely Man (3:51)
-02. Life Is Hard (4:34)
-03. Have A Talk With God (4:34)
-04. Forever My Love (6:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D14AC44D3A556E9861ACDBB71D3A6FC4ECBF09FC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702299.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 298
-
-Mick Mars - The Other Side Of Mars (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. Loyal To The Lie
-02. Broken On The Inside
-03. Alone
-04. Killing Breed(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C7525976EAD231AFFAA48E6559F707F1ABDC37B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702298.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 297
-
-Dissolving of Prodigy - Lamentations of Innocents  1995  [FLAC|Lossless|image + .cue] <Doom, Dea
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Lovely  05:17 
-02. Affliction  07:39 
-03. The Torment in Blind Eyes  08:19 
-04. Damocles Gladius  07:04     Читать дальше...    Жанр: Doom, Death MetalПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87E19648363DBE3E11CFBB609BFB1BFDE9332AFE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702297.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 296
-
-Erika de Casier - Still (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Right This Way (1:48)
-02. Home Alone (3:31)
-03. Lucky (3:25)
-04. The Princess (2:17)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3B82DC5E0C96B804DCBB40DDD84A390296CB931D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702296.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 295
-
-Журнал | SALON-interior №03 (301) (2024) [PDF]
-Журналы
-Домоводство (журналы)
-
-###  Подробнее
-
-Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E9E8B118B01AB587E25B31CF6A5DDCC21CC2AA6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702295.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 294
-
-Журнал | SALON-interior №02 (300) (2024) [PDF]
-Журналы
-Домоводство (журналы)
-
-###  Подробнее
-
-Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:07150B2F9A7677B64460014074042C478D1FC68F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702294.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 293
-
-Jean Michel Jarre - Versailles 400 Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic Techno>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-###  Подробнее
-
-01. Le Château (Live) [00:02:26]
-02. Epica Oxygene (Live) [00:03:14]
-03. The Opening (Live) [00:03:42]
-04. Oxygene 2 (Live) [00:06:40](   Читать дальше...   )Жанр: Electronic TechnoПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7743E0B236C60C951529A2593F10212B60299B2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702293.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 292
-
-Rob Tognoni - 17 Albums (1995 - 2020) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock>
-Jazz, Blues, Soul
-Blues, Soul (Lossless)
-
-###  Подробнее
-
-Rob Tognoni играет на сценах по всему миру в течение последних 40 лет. Он выступал на разогреве у великих: Roy Buchanan, Stevie Ray Vaughan's mentor Lonnie Mack, Joe Walsh из The Eagles, делил сцену с Peter Green, Sting, ZZ Top, Bo Diddley. Он представлял Австралию на королевских свадебных торжествах принца Фредерика и принцессы Марии Датских, выступал на чемпионате (   Читать дальше...   )Список альбомов:
-1995 - Stones And Colours
-1997- Headstrong
-1999 - Live At The TwilightЖанр: Blues RockПродолжительность: 17:04:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:457B648CDE1FE1D3BEC81273162DB56521BCDCB2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702292.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 291
-
-Затерянные в Рио Браво / Taken from Rio Bravo (2024) WEBRip [H.264]
-След.
-Зарубежные Новинки (SD, DVD)
-
-###  Подробнее
-
-1874 год, Восточный Техас. Двое друзей преследуют группу садистов-торговцев людьми, которые похитили пять женщин. Вместе с индейским разведчиком они должны как можно быстрее найти и освободить женщин, пока торговцы не продали их в качестве секс-рабынь на мексиканской границе.Производство: США / Hollywood StormЖанр: боевик, вестернРежиссер: Джо КорнетАктеры: Александр Невский, Джо Корнет, Синтия Ротрок, Маттиас Хьюз, Дон Уилсон, Ирина Антоненко, Джон Мак, Джеймс Чок, Мария ПэрисПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E828084199EDFB2CBC3095323436ED98ACB511BD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702291.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 288
-
-MGMT - Loss of Life (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie, Psychedelic Pop>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01 – Loss Of Life (part 2)
-02 – Mother Nature
-03 – Dancing In Babylon
-04 – People In The Streets(   Читать дальше...   )Жанр: Indie, Psychedelic PopПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E3D5CC2910B70AFAC7868A8925DB63EB73196A0B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702288.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 287
-
-Карающая длань   Red Right Hand  2024  WEB-DLRip
-Горячие новинки
-Зарубежные Новинки  SD, DVD 
-
-###  Подробнее
-
-Кэш живет скромной и мирной жизнью, помогает мужу покойной сестры воспитывать племянницу Саванну и управляться с фермой в небольшом городишке в Аппалачах. Но когда Кошка, глава местной банды и садистка, начинает угрожать его семье, Кэш понимает, что готов на все ради их защиты. И чем дольше длится противостояние, затягивая Кэша в водоворот насилия, тем сильнее стирается     Читать дальше...    Производство: США   Asbury Park Productions, Studio 507, Sweet Tomato FilmsЖанр: Боевик, триллерРежиссер: Эшом Нелмс, Иэн НелмсАктеры: Орландо Блум, Энди Макдауэлл, Гаррет Диллахант, Брайан Джерати, Джеймс Лэфферти, Скотт Хейз, Джереми Рэчфорд, Александра Парк, Николас Логан, МоПеревод: Дублированный  Мосфильм-Мастер Язык озвучки: РусскийСубтитры: Русские  Forced, Full  отдельноПродолжительность: 01:47:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6D1843BDF10AA695EC200DE182FB3F25872B7D70
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702287.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 286
-
-Cynic - Uroboric Forms - The Complete Demo Recordings (2017) Compilation [FLAC|24/192|image + .cue|V
+AC DC - Powerage  1978  [FLAC|24 192|image + .cue|Vinyl-Rip] <Hard Rock>
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-А1 - Uroboric Forms (Demo 1991)
-A2 - The Eagle Nature (Demo 1991)
-A3 - Pleading For Preservation (Demo 1991)
-A4 - Lifeless Irony (Demo 1990)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:56:31
+01. Rock  n  Roll Damnation
+02. Down Payment Blues
+03. Gimme a Bullet
+04. Riff Raff    Читать дальше...    Жанр: Hard RockПродолжительность: 00:40:02
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:30F0149CFF692D5C6EBBAE46EE101C42F615E2BB
+    magnet:?xt=urn:btih:CA1900260B7544077A876F8BDC733B2192B28E76
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702286.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704178.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 285
+###  Публикация: 1 704 176
 
-Toxikull - Under The Southern Light  2023  [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
+Патриот   The Patriot  2000  BDRip [AV1 2160p] [4K, SDR, 10-bit] [Театральная версия] [hand
+След.
+hand made * video
+
+###  Подробнее
+
+Когда над страной вспыхнуло смертоносное пламя страшной войны, прославленный ветеран и отец семерых детей Бенджамин Мартин остался в стороне. Но хладнокровное убийство его сына в одночасье меняет всю его жизнь.
+Жажда мести превратила воинскую науку в жестокую бойню, а мирного плантатора — в безжалостного командира самого опасного отряда повстанцев…Производство: США, Германия   Alianza Films International Inc.Жанр: боевик, драма, военный, историяРежиссер: Роланд ЭммерихАктеры: Мэл Гибсон, Хит Леджер, Джоэли Ричардсон, Джейсон Айзекс, Крис Купер, Чеки Карио, Рене Обержонуа, Лиза БреннерПеревод: Дублированный  Лицензия Язык озвучки: русский, английскийСубтитры: русские, английскийПродолжительность: 02:44:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:982735E2C87A4EDAFF32FA3C5B05C1F49A314F97
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704176.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 175
+
+Affinity Photo 2 v.2.4.0 [Multi]
+Программы для macOS
+Графика для macOS
+
+###  Подробнее
+
+Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2024 Serif  Europe  LtdПоддерживаемая ОС: OS X 10.15 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:05134E839598705E0729385EE3AE9B00F1B8C665
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704175.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 174
+
+Affinity Designer 2 v.2.4.0 [Multi]
+Программы для macOS
+Графика для macOS
+
+###  Подробнее
+
+Профессиональное приложение для графического дизайна для Mac.
+Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные     Читать дальше...    Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2024 Serif  Europe  LtdПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FCCC4D82CD9F5D4DD66B79FD9B6A618C4F34179D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704174.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 173
+
+Assistive Volume Button v0.9.4 Mod by Alex.Strannik [Ru Multi]
+Программы, Игры и прочее
+ПО для Android
+
+###  Подробнее
+
+Небольшое приложение для создания наэкранных виртуальных кнопок громкости. Позволяет подробно настраивать внешний вид создаваемого наложения. Поддерживает виртуализацию кнопки питания  на Андроид 9.0+ . Позволяет создавать определённые наложение под отдельные приложения.Тип издания: PremiumРелиз состоялся: 03.03.2024Разработчик: mCreationsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский   Мульти
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7048788ABBE2084DFE13F75EADB21D5973DB0894
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704173.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 172
+
+Navicat for SQLite on Mac 16.3.6 [Multi Ru]
+Программы для macOS
+Офис, Интернет для macOS
+
+###  Подробнее
+
+Клиент Navicat для SQLite от PremiumSoft — это интегрированный инструмент с графическим пользовательским интерфейсом, позволяющий упростить администрирование SQLite и разработку баз данных. Расширенные функции позволяют создавать модели баз данных, импортировать экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать запросы и управлять     Читать дальше...    Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:54F43540AC0645623C98C882D57068DC5E2B8F0D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704172.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 171
+
+Ричард О’Коннор | Перепрограммируйте свой мозг  2024  [MP3, Алексей Воскобойников]
+Обучающие аудиоматериалы
+Популярная психология и саморазвитие  аудиоматериалы 
+
+###  Подробнее
+
+Мы часто попадаем в ловушку своих плохих привычек, будь то неудачные попытки соблюдать диету, провальные попытки бросить курить или вечное откладывание дел в долгий ящик. Известный психотерапевт Ричард О Коннор раскрывает, как с этим бороться.
+У нас есть два мозга – один – вдумчивое, сознательное, совещательное «я», а другой – автоматическое «я», которое принимает     Читать дальше...    Жанр: ПсихологияИздательство: БОМБОРАПродолжительность: 11:38:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5B57C9A7FB32158507A5CC50590AC819F03800D4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704171.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 169
+
+Believer - Sanity Obscure  1990  [FLAC|Lossless|image + .cue] <Progressive, Technical Thrash Met
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Sanity Obscure
+02. Wisdom s Call
+03. Nonpoint
+04. Idols of Ignorance    Читать дальше...    Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:45E1D91F7B33062A129E0C3CAF0577DDAAEFC85C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704169.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 168
+
+Caravan Palace - Gangbusters Melody Club  2024  [FLAC 24 44.1|Lossless|WEB-DL|tracks] <swing>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+1. MAD  2:47 
+2. Mirrors  3:41 
+3. 81 Specials  3:56 
+4. Raccoons  3:27     Читать дальше...    Жанр: swingПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AF885EBB7B33FC835D384B3D321703A979D5E5AB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704168.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 167
+
+Navicat for MySQL for Mac 16.3.6 [Multi Ru]
+Программы для macOS
+Офис, Интернет для macOS
+
+###  Подробнее
+
+Navicat для MySQL Client от PremiumSoft — это интегрированный инструмент с графическим интерфейсом, позволяющий упростить администрирование MySQL и разработку баз данных. Расширенные функции позволяют создавать модели данных, импортировать экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать запросы и управлять локальным или удаленным     Читать дальше...    Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:94B0037725FEC6074A2C7642B4390ABEE602ADFA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704167.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 166
+
+VA - Крутые пушки Весна 2024 [MP3|320 Kbps] <Club, Dance, Other>
+Неофициальные сборники
+Electronic  сборники 
+
+###  Подробнее
+
+01. Robin Stoll Vs. Gustavo Mota, Volac - Girls Drop That Thang Low Vs. Like Dis  VLLV Club MashUp   2:34 
+02. Culture Beat - Mr. Vain  Silichev Remix   3:04 
+03. Xassa, BODIEV - Самолёт  Andy Shik x EVGL Remix   Radio Edit   3:20 
+04. La Bouche - Be My Lover  Jenia Smile & Ser Twister Remix   2:39     Читать дальше...    Жанр: Club, Dance, OtherПродолжительность: 05:42:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:454D8F143FF814A4A8E4F44C71FB1B207FE6E8ED
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704166.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 165
+
+Caravan Palace - Gangbusters Melody Club  2024  [FLAC|Lossless|image + .cue] <Electro Swing, Ele
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+На протяжении всей своей карьеры Caravan Palace последовательно бросали вызов музыкальным условностям и жанрам, создавая свое не поддающееся классификации гибридное фирменное поп-звучание. Превратив свои песни в вирусные хиты, группа добилась огромного успеха, собрав несколько миллиардов прослушиваний на всех платформах, а также получив платиновый сертификат RIAA     Читать дальше...    01. MAD  2:47 
+02. Mirrors  3:41 
+03. 81 Specials  3:56 
+04. Raccoons  3:27     Читать дальше...    Жанр: Electro Swing, Electro PopПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EFC13E6D6616E579189FDB9B6433167D51278EEF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704165.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 164
+
+Saturnalia Temple - Paradigm Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 Rock, Alternative, Punk, Metal
 Metal (Lossless)
 
 ###  Подробнее
 
-01. Night Shadows
-02. Around The World
-03. Under The Southern Light
-04. Battle Dogs    Читать дальше...    Жанр: Heavy, Speed MetalПродолжительность: 00:41:03
+01. Drakon [00:02:08]
+02. Revel In Dissidence [00:08:55]
+03. Paradigm Call [00:07:42]
+04. Among The Ruins [00:05:16](   Читать дальше...   )Жанр: Stoner MetalПродолжительность: 00:48:43
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:61B565941B903DA769A1F6A5ECF64AF91E7932FB
+    magnet:?xt=urn:btih:BC848DE9DCE71854578134A419063CA38B66F7F7
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702285.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704164.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 282
+###  Публикация: 1 704 163
 
-Cryptology School | Cryptology 10  2023  WEB-DL [AD] [RU]
+Navicat Charts Viewer for Mac 1.2.16 [Multi Ru]
+Программы для macOS
+Офис, Интернет для macOS
+
+###  Подробнее
+
+Navicat Charts Viewer — это простой в использовании инструмент для просмотра файлов рабочей области диаграмм. Благодаря дружественному графическому интерфейсу пользователя  GUI  программа Navicat Charts Viewer позволяет перемещаться по рабочим пространствам, созданным с помощью функции Navicat Charts или Navicat Charts Creator. Вы можете получить доступ к локальным     Читать дальше...    Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87464873848097FF6F1995B90031C2A606E359DA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704163.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 161
+
+Navicat Charts Creator for Mac 1.2.16 [Multi Ru]
+Архив торрентов
+Архив 4Apple
+
+###  Подробнее
+
+Navicat Charts Creator преобразует ваши данные в эффективные визуализации для выявления тенденций, закономерностей и выбросов. Упростите анализ данных и поделитесь своим рабочим пространством с коллегами, чтобы лучше поддерживать ваши бизнес-решения и стратегии.Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E20E8727340AA94C92B691587F3111E14A57F546
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704161.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 160
+
+The Steve Klatt Project - Dreams & Reality  2024  [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01. Into The Void  04:57 
+02. Exile  03:49 
+03. That Feeling  04:40 
+04. Cosmic Perspective  04:27     Читать дальше...    Жанр: Progressive Metal, Heavy ProgПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C2CB793A6220251BBDC2CC183D67DFFCD419C844
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704160.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 159
+
+Borknagar - Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Viking, Folk, Black Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+###  Подробнее
+
+01 - Summits (00:07:58)
+02 - Nordic Anthem (00:05:14)
+03 - Afar (00:06:54)
+04 - Moon (00:05:51)(   Читать дальше...   )Жанр: Progressive Viking, Folk, Black MetalПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0F38CBDC1C7D7CE990562A5BBFECF9CB01763C7A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704159.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 157
+
+Hospital of the Undead  2024  [Ru Multi]  1.0  Repack FitGirl
+Win Игры
+Action (FPS)
+
+###  Подробнее
+
+Hospital of the Undead погружает вас в леденящую душу борьбу за выживание от первого лица. Вы очнулись в дезориентированном состоянии, оказавшись запертым в стенах больницы, кишащей нежитью. Ваша цель ясна: сбежать. Но добиться свободы оказывается не так-то просто. Больница, окутанная мраком, превращается в лабиринт с запертыми дверями и таящимися угрозами. Чтобы     Читать дальше...    Тип издания: RepackРазработчик: HassaanAsifЖанр: Action, FPSЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:95D6E87582108B8B5745E0FBDA0599C44D6B2878
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704157.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 156
+
+Timo Lassy and Jukka Eskola - Nordic Stew  2024  [FLAC 24 44.1|Lossless|WEB-DL|tracks] <Jazz>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. The Duke of Bayou  3:50 
+02. King Cake  4:28 
+03. Long Walk  4:32 
+04. Sweet Holler  2:08     Читать дальше...    Жанр: JazzПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AA79747BC86F474E38FD72C8090BCC2F81B9EA89
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704156.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 155
+
+Журнал | Электротехнический рынок №1  115   Январь-февраль 2024  [PDF]
+Журналы
+Журналы по электротехнике и радиоэлектронике
+
+###  Подробнее
+
+«Электротехнический рынок» — специализированный рекламно-информационный журнал, посвященный исключительно вопросам, касающимся электротехнического рынка в целом и отдельных его отраслей в частности. Миссия журнала оказывать информационную и экспертную поддержку тем, кто занимается производством, продажей и поставками электротехнического оборудования, предоставляет     Читать дальше...    Жанр: ЭлектротехникаИздательство: ООО  Элек.ру Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8DBBA792BBAEDB9D6324F9DCCCC02B00A1B129A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704155.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 154
+
+Smokin Dame - Revelations From A Gun  2024  [FLAC 24 48|Lossless|WEB-DL|tracks] <Hard Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Dope  n Roll  4:21 
+02. Day Of The Living Dead  4:07 
+03. Electric Fire  2:48 
+04. Brain Dead  5:24     Читать дальше...    Жанр: Hard RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE39BFEC5906347A05429D79ED854A81E21AA71D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704154.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 153
+
+Branford Marsalis - Trio Jeepy  1989  CBS [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Jazz, Blues, Soul
+Jazz  Lossless 
+
+###  Подробнее
+
+01. Housed from Edward [9:29]
+02. The Nearness of You [10:34]
+03. Three Little Words [5:16]
+04. Makin  Whoopee [0:47]    Читать дальше...    Жанр: Post-BopПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DAAD686945DCB1588351502E4A6A1F1C4A12B80F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704153.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 152
+
+Sarah L King - Fire Horse  2024  [FLAC 24 48|Lossless|WEB-DL|tracks] <Jazz, Vocal Music  Sec
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Holding On To Love  3:38 
+02. Devil May Care  4:39 
+03. Born Yesterday  4:22 
+04. Mystery Ride  5:34     Читать дальше...    Жанр: Jazz, Vocal Music  Secular and Sacred Продолжительность: 00:53:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:91C24C583C51824C8B13AF3B0B11881808EA9E62
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704152.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 151
+
+Serial Box & SerialSeeker 03-2024 [En]
+Программы для macOS
+Утилиты для macOS
+
+###  Подробнее
+
+База серийных номеров проекта iSerial.
+В ней содержится информация по активации  серийные номера, информация о других методах активации  как для программ платформы PowerPC, так и Intel.
+База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: ©2002-2021 The Three MonkeysПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F3671C90E58F78A51C6D640188D7AA5130A788D1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704151.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 150
+
+OfficeSuite Pro + PDF v14.3.51248 Extra Mod by Balatan [Ru En]
+Программы, Игры и прочее
+ПО для Android
+
+###  Подробнее
+
+OfficeSuite Pro + PDF - это полнофункциональный офисный пакет для Android. Данное приложение позволит Вам создавать, редактировать и просматривать файлы в формате MS Word и Excel, а также просматривать документы PDF и презентации PowerPoint. При помощи OfficeSuite Professional Вы сможете просмотреть вложения к письмам в таком же виде, как и на ПК. Или даже создать     Читать дальше...    Тип издания: Pro   Extra ModРелиз состоялся: 01.03.2024Разработчик: MobiSystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CD7A91D57D3573F6441C23E6D43C55B68D8C28B2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704150.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 149
+
+Ellis Marsalis - An Open Letter To Thelonious  2008  ELM Records [FLAC|Lossless|tracks + .cue] <
+Jazz, Blues, Soul
+Jazz  Lossless 
+
+###  Подробнее
+
+01. Crepuscule with Nellie [4:22]
+02. Jackie-ing [7:19]
+03. Epistrophy [6:19]
+04. Monk s Mood [3:33]    Читать дальше...    Жанр: Hard Bop, Post-BopПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:83867E246E9FFA6977B28283306868B26D0658C0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704149.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 148
+
+Max Magro and the Wolfgang - Commit a Crime  2024  [FLAC 24 48|Lossless|WEB-DL|tracks] <Blues
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Smokestack Lightning  3:05 
+02. Commit a Crime  3:30 
+03. Wang Dang Doodle  4:28 
+04. Rolling Stone  3:38     Читать дальше...    Жанр: Blues RockПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5495F94F7397A6C316DDE589F3715DBC3419D1D7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704148.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 147
+
+ПрактикиPRO, Антон Бочкарев | Нейроинженер  2024  WEB-DL [AD] [RU
 Обучающие видеоматериалы
 Бизнес и Менеджмент  видеокурсы 
 
 ###  Подробнее
 
-Мы объявляем о запуске нового потока обучения. Этот курс станет самым мощным для всех, кто хочет начать свой путь в трейдинге или улучшить свои навыки. Мы добавили много новой информации и обновили программу, чтобы ученики получили максимальную выгоду от обучения. В новом потоке вы узнаете все, что нужно для успешной работы на финансовых рынках: начиная от основ     Читать дальше...    Производство: Cryptology SchoolЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 97:51:37Реклама: Наложения на видео и вставки
+Модуль 1. Начало работы с AI
+
+1. Введение в нейросети
+2. Практическое применение нейросетей    Читать дальше...    Производство: ПрактикиPROЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 51:56:40Реклама: Наложения на видео и вставки
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:D1DFEA4F59BA9C5488EF561F696DD57854ACA08A
+    magnet:?xt=urn:btih:9A68B46D6D8DEC3D18509A307F3C90ADB66F23E6
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702282.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704147.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 281
+###  Публикация: 1 704 146
 
-ZBrush 2024.0.2 [Multi]
-Архив торрентов
-Архив Программ
+Stephanie Haynes With The Cedar Walton Trio - Here s That Rainy Day  1988  Trend [FLAC|Lossles
+Jazz, Blues, Soul
+Jazz  Lossless 
 
 ###  Подробнее
 
-ZBrush — программа для 3D моделирования, созданная компанией Pixologic. Отличительной особенностью данного ПО является имитация процесса «лепки» трёхмерной скульптуры, усиленного движком трёхмерного рендеринга в реальном времени, что существенно упрощает процедуру создания требуемого трёхмерного объекта. Каждая точка  называемая пиксель  содержит информацию не только     Читать дальше...    Язык интерфейса: Английский, Немецкий и пр.
+01. It Could Happen to You [3:06]
+02. Darn That Dream [4:15]
+03. Here s That Rainy Day [5:56]
+04. Deep in a Dream [4:30]    Читать дальше...    Жанр: Vocal JazzПродолжительность: 01:04:24
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:4DF52940AF6690679C1BDEC7BAD2EB15EFDEF504
+    magnet:?xt=urn:btih:2DDA24FCD02D589B5FED740C7102B7632618B64A
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702281.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704146.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 280
+###  Публикация: 1 704 145
 
-Traveler - Prequel To Madness  2024  [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
+Max Cruise - Nights at Sunset Beach  2024  [FLAC 24 48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
 
 ###  Подробнее
 
-1. Mayday
-2. Take The Wheel
-3. Dark Skull
-4. The Law    Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:38:27
+01. Nights at Sunset Beach  4:55 
+02. Risky Business  4:45 
+03. Midnight Glow  4:35 
+04. La Contessa  2:35     Читать дальше...    Жанр: Smooth JazzПродолжительность: 00:43:00
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:85FE3E92A7526D7112A3C58B4C86E3ACC83FF2CB
+    magnet:?xt=urn:btih:CD6F44FF5C466A3898B8226920F42D41D20B739A
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702280.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704145.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 279
+###  Публикация: 1 704 144
 
-Илон Маск обвинил нейросеть Google в  безумном расистском  программировании
-Поговорим
-Новости P2P, Копирайт, Блокировки
+Malted Milk - 1975  2024  [FLAC 24 48|Lossless|WEB-DL|tracks] <Blues>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
 
 ###  Подробнее
 
-Илон Маск заявил о  безумном расистском  программировании в компании Google из-за ситуации с нейросетью Gemini. Рад, что Google переиграл с ИИ-генерацией изображений, поскольку это сделало их безумное расистское, антицивилизационное программирование очевидным для всех , - написал он в пятницу в X  ранее Twitter .Позднее Маск также сообщил, что     Читать дальше...    
+01. 1975  3:11 
+02. A little bit of soul  3:28 
+03. Love for yourself  4:35 
+04. Better now  3:49     Читать дальше...    Жанр: BluesПродолжительность: 00:31:55
 
 ## Скачать торент
 ```bash
-    
+    magnet:?xt=urn:btih:8E13DA2350351E6480D9743376A922A2D224DB08
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704144.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 143
+
+Clare Fischer & Salsa Picante - Crazy Bird  1985  Discovery Records [FLAC|Lossless|tracks + .cue
+Jazz, Blues, Soul
+Jazz  Lossless 
+
+###  Подробнее
+
+01. Bernie s Tune [4:22]
+02. Where Are the Children?  Ay, Los Pequenos  [5:01]
+03. Serenidade [3:59]
+04. La Mucura [4:32]    Читать дальше...    Жанр: Latin Jazz, World FusionПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9557CC4469AB07750D45D0022EAB206A373835DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704143.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 142
+
+Журнал | Linux Magazine №4  281   апрель 2024  [PDF]
+Журналы
+Компьютерные журналы
+
+###  Подробнее
+
+Linux Magazine - журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение журнала будет     Читать дальше...    Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Linux New Media USA, LLCФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:68141C77648BE95F2445F6F79A6E5FE9BDE400FB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704142.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 141
+
+Wynton Marsalis - My Funny Valentine: Live At Bubba s  1980  1998, Pulse [FLAC|Lossless|tracks
+Jazz, Blues, Soul
+Jazz  Lossless 
+
+###  Подробнее
+
+01. Angel Eyes [9:15]
+02. Bitter Dose [10:45]
+03. Jodi [6:24]
+04. My Funny Valentine [9:11]    Читать дальше...    Жанр: Hard BopПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:86D1EC9AC3F7723E93E7DA1F98896DE22DBE20C0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704141.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 140
+
+Hunter Francis - Daggermouth  2024  [FLAC 24 44.1|Lossless|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Daggermouth  4:15 
+02. Never Forget  2:37 
+03. Mud Water  4:21 
+04. Let You Down  3:06     Читать дальше...    Жанр: RockПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4583F129F0E2270F4BD479BB40041594C62E8A5D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704140.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 139
+
+Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime: Timeless Instrumen
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Birth Of The Dixieland Music  3:34 
+02. Happy Serenity  3:12 
+03. Break with Jazz  3:29 
+04. Timeless Vintage Coffee  3:35     Читать дальше...    Жанр: Jazz, SwingПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:80FB11EFCA4798DCB97043CD4DBF2572C8D921C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704139.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 137
+
+Calming Jazz Relax Academy - Instrumental Meditation: Calm Mindfulness Session with Piano, Violin an
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Soft Peace  4:10 
+02. Inner Happiness  3:52 
+03. True Emotions  4:10 
+04. Heavenly Piano  3:43     Читать дальше...    Жанр: JazzПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:570001576E29DE793FB5DC5625C02540BFD9CF54
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704137.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 136
+
+Экстрасенсы. Реванш  02.03.2024  WEBRip [H.264 1080p]  сезон 1, выпуск 8 
+Документалистика и Телепередачи
+Непознанное и сверхъестественное
+
+###  Подробнее
+
+Новое шоу с участием пока экстрасенсов, которые когда-то вылетели из легендарной «Битвы». Настал их черёд реванша: пришло время доказать, что поражение было случайностью. Для того, чтобы заново доказать свою состоятельность, им необходимо будет разгадать истории 10 незнакомцев, которых они увидят в студии.Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:13:15
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5A2BEAB57E8C77D35C0EFDC6DD7E3A0D04513EBE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704136.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 134
+
+Ben Webster & Buck Clayton - Ben And Buck  1967  1995, Storyville Records [FLAC|Lossless|tracks
+Jazz, Blues, Soul
+Jazz  Lossless 
+
+###  Подробнее
+
+01. C-Jam Blues [6:19]
+02. All Of Me [5:08]
+03. My Romance [4:24]
+04. Our Love Is Here To Stay [5:32]    Читать дальше...    Жанр: Swing, Mainstream JazzПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B75B7E291511F22F5190018C871BA244BF8ABEDD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704134.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 131
+
+Piotr Figiel - Piotr  1971  [MP3|320 Kbps] <Hammond, Jazz>
+Jazz, Blues, Soul
+Jazz (Lossless)
+
+###  Подробнее
+
+01. Skrawek przestrzeni [05:26]
+02. Nieobecnosc [05:07]
+03. Troche wiosny, troche lata [03:36]
+04. Dyplomowany galernik [04:44]    Читать дальше...    Жанр: Hammond, JazzПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD2DF73C3B27265BB54F6F348BF07144547E4B17
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704131.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 128
+
+Армия мёртвых в Пусане   Bangbeom: jaechaui   The Cursed: Dead Man s Prey  2021  BDRip [H.
+Зарубежное кино
+Азиатское кино (HD, FHD, UHD)
+
+###  Подробнее
+
+Происходит серия загадочных убийств, как-то связанная с восставшими из мёртвых, которые могут ходить и говорить. Ожившими трупами явно кто-то манипулирует.Производство: Корея Южная   CJ Entertainment, Climax Studio, KeyEast, Studio DragonЖанр: боевик, фэнтезиРежиссер: Ким Ён-ванАктеры: Ом Джи-вон, Чон Джи-со, Чон Мун-сон, Ким Ин-гвон, Ко Гю-пхиль, О Юн-а, Ли Соль, Квон Хэ-хё, Пак Чон-хван, Ким Ми-суПеревод: Дублированный  Moygolos Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:49:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9FEC2413FBBE61777293403EBF2691A458ABBCEA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704128.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 126
+
+Odd Chap - Collaborations  2024  [FLAC 24 44.1|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Crazy out There  3:15 
+02.  Hey, Brother  What Have You Done?  2:59 
+03. Highway Romance  3:33 
+04. Take the Night  2:58     Читать дальше...    Жанр: Electro Swing, JazzПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DCE4FD84DC78B31A09B36485CD2989333661B7B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704126.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 125
+
+Нежный восток   The Sweet East  2023  WEBRip [H.265 1080p-LQ] [10-bit] [MVO]
+Горячие новинки
+Зарубежные Новинки  HD, FHD, UHD, 3D 
+
+###  Подробнее
+
+История о крайне необычном путешествии по городам и лесам восточного побережья США, которое совершает Лилиан — старшеклассница из Южной Каролины. Она впервые видит мир под более широким углом во время школьной поездки в Вашингтон.Производство: США   Base 12 Productions, Marathon FilmsЖанр: драмаРежиссер: Шон Прайс УильямсАктеры: Талия Райдер, Эрл Кейв, Саймон Рекс, Айо Эдебири, Джереми О. Харрис, Джейкоб Элорди, Риш Шах, Гибби Хэйнс, Джек Ирв, Мазин АкарПеревод: Многоголосый любительский  Синема УС Язык озвучки: Русский, АнглийскийСубтитры: русские, английские  full, SDH Продолжительность: 01:44:16
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3721E2D72EADBBC6E8007DCEA9C7E0ED06F79B30
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704125.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 124
+
+Журнал | Смена №3  март 2024  [PDF]
+Журналы
+Другие журналы
+
+###  Подробнее
+
+Журнал «СМЕНА» издается с января 1924 года. На протяжении своей более чем 80-летней истории всегда публиковал журналистские материалы аналитического, полемического и разъясняющего характера, а также востребованные широкой публикой литературные произведения. В литературном разделе представлены классические зарубежные и отечественные детективы, малоизвестная проза     Читать дальше...    Жанр: Публицистика, проза, поэзияИздательство: ООО Издательский дом журнала  Смена Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:08851B002C57081F6DBEFE73CB1D7907F92E8188
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704124.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 122
+
+Classified: France  44  2024  [Multi]  1.0 dlc  Scene Rune
+Win Игры
+Strategy Tactical (RTS/TBS)
+
+###  Подробнее
+
+Classified: France ‘44 - это пошаговая стратегическая игра, действие которой разворачивается в отчаянные месяцы, предшествующие вторжению союзников во Францию в июне 1944 года. Возьмите на себя командование отрядом специального назначения, состоящим из коммандос союзников и бойцов французского сопротивления. Набирайте элитных бойцов и формируйте боевую группу, а     Читать дальше...    Тип издания: SceneРазработчик: Absolutely GamesЖанр: Strategy, Tactics, World War II, 3D, Turn-basedЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:04A64082CAE1863076D0D0991F08A47416E4DD79
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704122.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 121
+
+Наталья Дым | Дело N-ского Потрошителя  2023  [MP3, Григорий Андрианов]
+Художественные аудиокниги и публицистика
+Детектив, Боевик  аудиокниги 
+
+###  Подробнее
+
+N-ск живёт размеренной, неторопливой жизнью. Позади страшные годы разрухи, Гражданской войны, Страна Советов шагает вперёд в светлое будущее. Жители N-ска работают на льнокомбинате, влюбляются, женятся, читают газеты, ходят в кино, как и все граждане Советской Республики. Но череда кровавых преступлений внезапно нарушает привычный ход жизни.Кто-то убивает молодых     Читать дальше...    Жанр: ДетективИздательство: ЛитРес: чтецПродолжительность: 13:58:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:50FC9F101275B81C5490181137B61BF5D58E97B4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704121.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 120
+
+КВН-2024. Высшая лига. 1 8 финала, игра 1  2024.03.02  WEBRip [H.264 1080p]
+Юмор (ТВ)
+КВН
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов  учебных заведений, вузов, предприятий и т. д.  соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания:  Первый канал Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:51:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F35DCDBCCF6375FA9B794E7C0C480A07E058675D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704120.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 119
+
+Формула 1. Сезон 2024. Этап 1. Гран-при Бахрейна. Гонка  02.03.2024  WEBRip [H.264 720p-LQ] [5
+Спорт и активный отдых
+Формула 1
+
+###  Подробнее
+
+2 марта 2024, суббота. 18:00 МСК. Этап 1, Сахир. Гран-при Бахрейна. Гонка  57 кругов Телекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский  Алексей Попов, Наталья Фабричнова Субтитры: ОтсутствуютПродолжительность: 02:01:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:21A1C82C5681E6D04A65C339FA2C08D210449C4F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704119.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 117
+
+Intra  2024  [Ru Multi]  1.0  Repack FitGirl
+Win Игры
+Strategy (Manage/Busin)
+
+###  Подробнее
+
+Intra - Tower Defense представляет своим игрокам обширный набор элементов стратегии. Вы можете выбрать более 20 улучшаемых умений и создавать впечатляющие комбо. Специфическое поведение врагов: Некоторые враги выбирают самый безопасный путь. Другие атакуют определенные башни в первую очередь. Некоторых врагов можно легко провоцировать. Некоторые враги делают умные     Читать дальше...    Тип издания: RepackРазработчик: LOD GamesЖанр: Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4601D77A4C9484C61FF5173FE0E0B64CFFFA1E6F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704117.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 116
+
+The Brew Barons  2024  [En]  1.0  Repack FitGirl
+Win Игры
+Simulation (Other)
+
+###  Подробнее
+
+The Brew Barons приглашает в мир, охваченный беспорядками, где безжалостная пиратская организация захватила пивоваренную промышленность и монополизировала земли. Как мастер-пивовар, вы должны выступить против коррумпированной организации и свергнуть ее, исследуя, добывая, производя, продавая и доставляя свои сорта пива. Но учтите, что путь к победе будет нелегким.     Читать дальше...    Тип издания: RepackРазработчик: Lifetap StudiosЖанр: Экшены, Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D346663C6F804A071E4602A3920F25E87498D344
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704116.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 114
+
+Потусторонний мир / L'Autre Monde / The Other World (2013) WEBRip [H.264/720p] [FR / RU, EN Sub]
+Документалистика и Телепередачи
+Непознанное и сверхъестественное
+
+###  Подробнее
+
+Документальный фильм режиссёра Ричарда Стэнли (известного своими культовыми фильмами "Железяки", "Песчаный дьявол" и "Цвет из иных миров") про аномальную зону на юге Франции в окрестностях замка Монсегюр. По словам Стэнли, он встречал там женщину из 13 века, Эсклармонду д'Айон.Производство: Франция / Metaluna ProductionsЖанр: документальный, ужасыРежиссер: Ричард СтэнлиУчастники: Ричард Стэнли, Скарлет АмарисПеревод: СубтитрыЯзык озвучки: ФранцузскийСубтитры: Русские, английские (отдельными файлами)Продолжительность: 01:29:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C2D17042074B90EA1CFD5FDD5BE4D883E3AB637C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704114.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 113
+
+Дюна: Часть вторая   Dune: Part Two  2024  CamRip [H.264 1080p] [MVO]
+Горячие новинки
+Экранки
+
+###  Подробнее
+
+Герцог Пол Атрейдес присоединяется к фременам, чтобы стать Муад Дибом, одновременно пытаясь остановить наступление войны.Производство: США, Канада   Legendary Pictures, Warner Bros.Жанр: фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Зендея, Ребекка Фергюсон, Хавьер Бардем, Джош Бролин, Остин Батлер, Флоренс Пью, Дэйв Батиста, Кристофер Уокен, Леа СейдуПеревод: Многоголосый профессиональный  Jaskier Язык озвучки: русскийСубтитры: английские  hardsub на инопланетную речь Продолжительность: 02:37:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:16CC42891CD43BA506C496A02880B0B7A8B81027
 ```
 
 <div id="header" align="center">
@@ -527,1332 +1226,648 @@ Metal (Lossless)
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 277
+###  Публикация: 1 704 112
 
-VA - Ukrainian Songs  2024  [MP3|320 Kbps] <Pop, Folk Rock>
-Неофициальные сборники
-Прочее  сборники 
-
-###  Подробнее
-
-01. Квітка Цісик - Я піду в далекі гори  6:18 
-02. Іван Ганзера - Bella ciao.  2:03 
-03. Степан Гіга - Друзі мої  4:55 
-04. Гурт Made In Ukraine - Смуглянка  4:21     Читать дальше...    Жанр: Pop, Folk RockПродолжительность: 02:02:19
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:29E837A22835E5691D1DBD9BEAC8D686604ABF75
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702277.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 276
-
-Whiteabbey - Words That Form The Key  2024  [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-1. Reality
-2. Dragonfire
-3. Hold Fast
-4. Just Hold Me  Maria Mena cover     Читать дальше...    Жанр: Symphonic MetalПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6F3C4F498F205EF730F0777B4A334F46BF764245
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702276.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 273
-
-Soft Jazz Mood, Erotica - Intimate Nights: Erotic Valentine’s Day, Jazz Love Songs, Sexy Atmosphere
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Sax for My Darling (4:34)
-02. Never Forget Our Love (3:40)
-03. Straight to His Arms (3:39)
-04. Brave Game (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1C0BD581CD1FB5E0D8410B4FF7E641CF409E0388
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702273.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 271
-
-Sexual Music Collection - Midnight Jazz Confessions: Sultry Jazz for a Romantic and Intimate Mood, L
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Always and Always (3:33)
-02. We'll Meet Again (3:19)
-03. Prelude to a Kiss (3:27)
-04. Straight Ahead (3:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F1D7AF2C5A5C53FA5DF130838C6ECF77FE2FB081
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702271.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 270
-
-Super Sound v2.7.9 Mod by Mixroot [Ru/Multi]
-Программы, Игры и прочее
-ПО для Android
-
-###  Подробнее
-
-Super Sound - очень мощный редактор для редактирования аудио и музыки на Android. Он поддерживает редактирование аудио, вырезание, объединение, микширование, изменение голоса, преобразование формата и т. д.. Бесплатный профессиональный аудио редактор поможет вам легко создавать рингтоны, легко начать работу, приходите и создавайте свою музыку!Тип издания: ProРелиз состоялся: 23.02.2024Разработчик: HappyBeesПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A47AE7C47F21F27B11DD9911D8696239E737CDA4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702270.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 268
-
-WPS Office + PDF v18.7.3 Mod by Balatan [Ru Multi]
-Программы, Игры и прочее
-ПО для Android
-
-###  Подробнее
-
-WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а     Читать дальше...    Тип издания: PremiumРелиз состоялся: 23.02.2024Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский   Мульти
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:642C1D52C49638E11A38F8145B3B54A817596E56
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702268.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 267
-
-Sexual Music Collection - Sex for an Aperitif: Erotic Jazz Background Music (2024) [FLAC 24/44.1|Los
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Date at Winery (4:33)
-02. Drink Wine Day 2023 (3:12)
-03. Dizzy Romantics (3:11)
-04. Saxophone Melody (3:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D91AB7A2115BD4F38F8B6A72B212EDA0278DF42E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702267.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 266
-
-Газета | Моя Семья №7  1206   февраль 2024  [PDF]
-Журналы
-Другие журналы
-
-###  Подробнее
-
-«Моя Семья» задумана как газета о человеческих отношениях. Редакция делает упор на историях из жизни, поэтому многие наши публикации читаются как романы. Главной основой публикаций являются письма читателей, что делает «Мою Семью» уникальной — все наши истории подлинные.Жанр: Семья, дом, бытИздательство: ООО  Издательство  Моя Семья Формат: PDFКачество: Изначально электронное  ebook 
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:169477F104FEA90F0DF457DD43776253BF63D13E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702266.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 265
-
-VA - Best  Instrumental Jazz and Bossa Nova  2024  [MP3|320 Kbps] <Smooth Jazz, Easy Listening,
-Неофициальные сборники
-Jazz, Blues, Soul  сборники 
-
-###  Подробнее
-
-001. Bossa Jazz Instrumental - A Little Paper Umbrella [03:03]
-002. Cafe Jazz Deluxe - Jazz Lounge Bar Bossa Edition [03:55]
-003. Bossa Jazz Instrumental - Bossa in a Relaxing Room [03:27]
-004. Cafe Jazz Deluxe - Favourite Jazz Cafe [03:45]    Читать дальше...    Жанр: Smooth Jazz, Easy Listening, InstrumentalПродолжительность: 09:23:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:27FCB8C84649913F3C2CBC545A9D7186008F3EBB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702265.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 264
-
-Wondershare PDFelement Pro OCR 10.2.8 [Multi Ru]
-Архив торрентов
-Архив 4Apple
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц  .html, .htm , изображений  png, .jpeg, jpg, bmp, .tiff, .bmp  и текстовых файлов  .rtf, .rtfd, .txt . Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat     Читать дальше...    Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0BBA00B29820A56EF532E713E077B829C6495014
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702264.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 263
-
-Google Earth Pro 7.3.6.9796 RePack  & Portable  by KpoJIuK [Multi Ru]
-Утилиты, Офис, Интернет
-ПО для Интернета и сетей
-
-###  Подробнее
-
-Мир, в котором мы живем, теперь у вас под рукой! Корпорация Google выпустила новую версию программного пакета под названием Google Earth. Приложение предназначено для работы с одноименным сервисом, который позволяет просматривать спутниковые снимки планеты Земля в 3D-режиме, используя для этого технологию OpenGL. Присутствуют функции для поиска по адресам, по объектам.     Читать дальше...    Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BEADEBA4A5CB948F0CE0280F42F0B15D4C5D01B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702263.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 262
-
-Video Converter X2 for Mac 1.3.0 [Multi]
-Архив торрентов
-Архив 4Apple
-
-###  Подробнее
-
-Video Converter X2 — это полнофункциональное программное обеспечение для преобразования форматов, которое поддерживает конвертацию практически всех форматов мультимедийных файлов, включая видео MP4, AVI, 3GP, WMV, MKV, VOB, MOV, FLV; аудио MP3, AC3, FLAC, AAC, M4A, AIFF, WAV и т. д.
-Video Converter X2 имеет встроенные шаблоны форматов, оптимизированные для различных     Читать дальше...    Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2024 Omi Software Studio IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, упрощенный Китайский и т.д.
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5CBF71BA9F17DD18BE0CBA8F5231782EA878B1F7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702262.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 261
-
-Стартрек: Бесконечность   Star Trek: Beyond  2016  BDRip [H.264 1080p-LQ] [handmade AI]
+Вы не оставите меня  2006  DVDRip [H.264 1080p] [Handmade upscale AI]
 Остальное ПО для специалистов
 hand made * video
 
 ###  Подробнее
 
-Бесстрашная команда крейсера Звездного Флота «Энтерпрайз» исследует неизведанные глубины космоса. Во время этого полного опасностей путешествия герои сталкиваются с таинственной силой, ставящей под угрозу не только их миссию и стабильность Федерации, но и весь миропорядок.Производство: США, Китай, ОАЭ, Канада   Alibaba Pictures Group, Bad Robot, Huahua Film & Media CultureЖанр: фантастика, боевик, приключенияРежиссер: Джастин ЛинАктеры: Крис Пайн, Закари Куинто, Саймон Пегг, Карл Урбан, Зои Салдана, Джон Чо, Антон Ельчин, Идрис Эльба, София Бутелла, Джо Таслим.Перевод: Дублированный  BD CEE Язык озвучки: РусскийСубтитры: Русские  forced, full Продолжительность: 02:02:22
+Действие фильма происходит в 1951 году в крупном провинциальном городе. Молодая жена возвращается с курорта, а вслед за ней приходит «курортная открытка» от человека, с которым она как-то прошлась по берегу, слушая морской прибой под звёздным ночным небом. Открытку получает муж... Он не устраивает сцены ревности и, переживая боль внутри себя, решает написать ему     Читать дальше...    Производство: Россия   Позитив-ФильмЖанр: Драма, мелодрамаРежиссер: Алла СуриковаАктеры: Александр Балуев, Елизавета Боярская, Сергей Никоненко, Михаил Боярский, Игорь Скляр, Елена Сафонова, Наталья Селезнёва, Андрей Федорцов, Юрий Кузнецов, Мария КузнецоваПродолжительность: 01:52:25
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:61994101A13B10300B065B6A3C86FCD1B9DFDAF6
+    magnet:?xt=urn:btih:BEA623E46AFCF539B03E5C81D503EC794C594994
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702261.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704112.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 260
+###  Публикация: 1 704 106
 
-TG Pro  Temperature Gauge Pro  2.90 [En]
-Архив торрентов
-Архив 4Apple
+В паутине страха   Cobweb  2023  BDRip [H.265 1080p] [10-bit]
+Зарубежное кино
+Зарубежные Фильмы (HD, FHD)
 
 ###  Подробнее
 
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов  10 Мб — оперативная память, 0,2% — ЦПУ , а поэтому лучше её иметь в активных процессах,     Читать дальше...    Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2023 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+У восьмилетнего Питера нет друзей, и к тому же один одноклассник постоянно его задирает. Однажды ночью мальчик начинает слышать звуки, а затем и голос из стены в своей комнате, но родители говорят, что это всего лишь его богатое воображение. Тем не менее голос за стеной не унимается и сначала рассказывает Питеру, как проучить школьного хулигана, а затем — что его     Читать дальше...    Производство: США   Lionsgate, Media Capital Technologies, Point Grey PicturesЖанр: ужасыРежиссер: Сэмюэл БодинАктеры: Вуди Норман, Лиззи Каплан, Энтони Старр, Клеопатра Коулмэн, Люк Бьюзи, Александра Драгова, Джей Ринкон, Антон Коттас, Стефани Томас, Живко МихайловПеревод: Дублированный  Мосфильм-Мастер , Профессиональный многоголосый  Jaskier, TVShows Язык озвучки: Русский, английскийСубтитры: Русские  Forced, Full , английские, французскиеПродолжительность: 01:28:05
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:13037D00A504B646A92F20C8F8F0CD688C18061B
+    magnet:?xt=urn:btih:B2527E70524D7E578D37E984FFFB0F45EC264BD4
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702260.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704106.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 258
+###  Публикация: 1 704 102
 
-Emurasoft EmEditor Professional 23.1.3 RePack  & Portable  by KpoJIuK [Multi Ru]
-Архив торрентов
-Архив Программ
+Arduino Remote 1.0.0 Mod by Johann Shilinski [En]  авторская раздача 
+След.
+ПО для Android
 
 ###  Подробнее
 
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
-Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный     Читать дальше...    Язык интерфейса: Русский, Английский, другие
+С помощью этого приложения можно управлять микроконтроллерами  ардуино и подобными  через вайфай или блютуз. То есть, больше не нужно будет припаивать кнопки, переключатели, потенциометры и LCD дисплеи, и занимать тем самым пины на контроллере. В приложении можно создать пульт для вашего проекта, добавить туда органы управления. Во время работы приложения, каждая     Читать дальше...    Тип издания: FreeРелиз состоялся: 02.03.2024Разработчик: Johann ShilinskiПоддерживаемая ОС: Android 8+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:BC9C404CC19AE7D7F95CD677E18B568E38064500
+    magnet:?xt=urn:btih:466B062E70DF3B264C02CBA5AF124E2785195631
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702258.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704102.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 257
+###  Публикация: 1 704 099
 
-Text Workflow 1.9 [En]
-Архив торрентов
-Архив 4Apple
-
-###  Подробнее
-
-Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
-Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего     Читать дальше...    Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2024 Giorgos TrigonakisПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E82EF235D1BB14F0449B017AD8EC03C5081444ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702257.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 251
-
-Terminator: Dark Fate - Defiance  2024  [Ru Multi]  1.00.930  Repack FitGirl
-Win Игры
-Горячие новинки Игр
-
-###  Подробнее
-
-Terminator: Dark Fate – Defiance позволяет окунуться в суровый мир боевых действий, что происходит на территории разрушенных городов. Игра выполнена в сеттинге постапокалипсиса, где между человечеством и сетью интеллектуальных машин Legion происходит конфликт. Люди вынуждены сопротивляться восставшим роботизированным киборгам, чтобы положить конец наступлению противника     Читать дальше...    Тип издания: RepackРазработчик: Slitherine Ltd.Жанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:64827F61A59698A29F2A13CCB28FDE97131CAFCA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702251.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 250
-
-Криминальное прошлое   Criminal Record  2024  WEBRip [H.265 1080p]  сезон 1, серии 1-8 из
-Зарубежные сериалы
+Эбигейл   Abigail  2024  WEBRip [H.264 1080p] [MVO] [AD]
 Горячие новинки
+Новинки с Рекламой
 
 ###  Подробнее
 
-Проект «Криминальное прошлое» из восьми серий описывается как триллер в поисках правды. Местом действия сериала стал современный Лондон, где двое детективов после анонимного телефонного звонка в участок берутся за расследование давнего убийства. История весьма интересна, ведь она затрагивает жизни двух полицейских из абсолютно разных слоев общества. С одной стороны,     Читать дальше...    Производство: Великобритания, США   STV Productions, Tod ProductionsЖанр: триллер, драма, криминалРежиссер: Джим ЛоучАктеры: Питер Капальди, Каш Джамбо, Айша Кала, Dionne Brown, Шон Дули, Tom Moutchi, Чарли Крид-Майлз, Стивен Кэмпбелл Мур, Джордан А. Нэш, Кэти ТайсонПеревод: Многоголосый профессиональный  RuDub Язык озвучки: Русский, английскийСубтитры: Русские, английские  full, SDH  и др.Продолжительность: ~00:50:00 серия
+Банда преступников похищает 12-летнюю балерину, дочь криминального авторитета. Спрятавшись в уединённом особняке, они ещё не догадываются, что влиятельный отец девочки — далеко не главная их проблема.Производство: США, Ирландия   Project X Entertainment, Radio Silence Productions, Wild Atlantic PicturesЖанр: Ужасы, триллерРежиссер: Мэттью Беттинелли, Тайлер ДжиллеттАктеры: Кэтрин Ньютон, Дэн Стивенс, Кевин Дюран, Джанкарло Эспозито, Мелисса Баррера, Ангус Клауд, Алиша Вейр, Уильям КэтлеттПеревод: Многоголосый любительский  AlphaProject Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:16:04Реклама: Присутствует баннер.
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:B669A92E71A85DC65CC4080C28BFDB50A4F08435
+    magnet:?xt=urn:btih:B0CAC8B375AB5A1DA8895CA83E283652770EA6BC
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702250.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704099.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 246
+###  Публикация: 1 704 098
 
-Вадим Тихомиров | Энциклопедия пчеловода  2023  [MP3, Антон Макаров]
-Обучающие аудиоматериалы
-Прочие аудиоматериалы
-
-###  Подробнее
-
-Практическое пчеловодство для начинающих пчеловодов и всех, кто любит мёд!
-Всё о пчёлах, получении мёда и его хранении.
-Пчеловодство представляется многим тяжким трудом, который обязательно приводит к паре десятков укусов. Поэтому перед новообращенным счастливым обладателем ульев непременно возникает множество вопросов. Где расположить пасеку на участке? Какую породу     Читать дальше...    Жанр: Хобби, увлеченияИздательство: Аудиокнига АСТПродолжительность: 06:37:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A7B0F8D8EC0CCDF22C0FB07F1E4F8C6362176DCE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702246.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 245
-
-Firefrost  2024  [En]  1.0  License GOG
-Win Игры
-Simulation (Other)
-
-###  Подробнее
-
-Firefrost - это пошаговая боевая игра о расчистке снега. Используйте свой огнемет, чтобы сжечь снег, врагов и добраться до супа. Улучшайте свой огнемет, чтобы открыть новые тактические возможности. Если вы умрете, просто встаньте снова, прогресс не будет потерян. Добейтесь ранга SSoup, чтобы разблокировать больше улучшений.Тип издания: LicenseРазработчик: Isabelle Fougner AxrupЖанр: Симулятор, Пошаговая, ТактическаяЯзык субтитров: Studio HemvistЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AD56F204319E3BD7EA116A4FBF18A1E323D30366
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702245.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 244
-
-Юлия Евдокимова | Нежная магия Тосканы  2023  [MP3, Альбина Быстрова]
+Патрик Зюскинд | Парфюмер. История одного убийцы  2006  [MP3, Алексей Борзунов]
 Художественные аудиокниги и публицистика
-Другие аудиокниги
+Исторические аудиокниги
 
 ###  Подробнее
 
-Влюбиться в средневековые борго, вдоволь наслушаться историй  правдивых и не очень  про рыцарей и ведьм, узнать, чем же на самом деле отличаются кростини от брускетты, ощутить связь времен и согреться супом из фарро с щедрой горкой пармезана  особенно хорош в дождливый день . Это лишь небольшой список того, что стоит сделать, приехав в Тоскану. С этой аудиокнигой     Читать дальше...    Жанр: Путешествия, история, кулинарияИздательство: ХлебСольПродолжительность: 09:44:51
+Серия Цикл: Современная литература.
+Всемирную известность принес Зюскинду его первый роман «Парфюмер. История одного убийцы», опубликованный в 1985 году. Роман «Парфюмер» стал одним из самых популярных немецкоязычных романов XX столетия. Он переведен на десятки языков и в течение многих лет занимает прочное место в первой десятке бестселлеров на западном, да и на     Читать дальше...    Жанр: Зарубежная литература, драма, романИздательство: Издательский дом «Союз»Продолжительность: 10:21:26
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:F1C652598D6E62082F14886C6AC2F8440C0A9068
+    magnet:?xt=urn:btih:1AEF0EA0E3236A2C9F15A60F94AB368BDADD86DD
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702244.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704098.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 243
+###  Публикация: 1 704 096
 
-Пчеловод   The Beekeeper  2024  WEB-DL [H.264 1080p] [MVO]
-След.
-Зарубежные Новинки (HD, FHD, UHD, 3D)
+Загадай желание  2016  WEB-DL [H.264 720p]
+Отечественное кино
+Отечественные Фильмы (HD, FHD, UHD)
 
 ###  Подробнее
 
-Адам Клэй живет в тихом пригороде, занимается разведением пчёл и не распространяется о своей прошлой жизни. Он дружит с пожилой соседкой миссис Паркер, у которой арендует сарай. Однажды миссис Паркер становится жертвой кибермошенников, которые похищают деньги со всех её счетов. Не в силах вынести такой удар, женщина сводит счёты с жизнью. Осознав, что закон в данной     Читать дальше...    Производство: Великобритания, США   Miramax, Cedar Park EntertainmentЖанр: боевик, криминалРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Эмми Рейвер-Лэмпман, Бобби Надери, Джош Хатчерсон, Джереми Айронс, Дэвид Уиттс, Михаэль Эпп, Тейлор Джеймс, Филишия Рашад, Джемма РедгрейвПеревод: Многоголосый профессиональный  TVShows, Jaskier , двуголосый профессиональный  ViruseProject Язык озвучки: Русский, АнглийскийСубтитры: русские, английские  full, SDH Продолжительность: 01:45:15
+История о том, как в предновогодние дни в офисе обычной фирмы, шуточные письма в почтовый ящик Деду Морозу оборачиваются реальной любовью между молодым симпатичным директором Максимом и красивой девушкой-бухгалтером Аней с чередой веселых новогодних романтических приключений, где падающий снег и романтическая музыка помогут обрести свою вторую половинку.Производство: Россия, ВолгаКиноЛокейшнЖанр: Комедия, мелодрама, новогоднийРежиссер: Евгений КравченкоАктеры: Илья Лукашенко, Елена Муравьёва, Мария Феофанова, Роман Сидоренко, Алла Романова, Людмила Гаврилова, Маргарита Красношлык, Екатерина Алексеева, Андрей Михайлов, Ольга ОзероваСубтитры: НетПродолжительность: 01:23:14Реклама: Нет
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A786BBADB5924A9CCE403938B60DE16D8B1D5BE0
+    magnet:?xt=urn:btih:C4904A0BD6897FB69629B95A9A4D6515E7431AF2
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702243.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704096.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 242
+###  Публикация: 1 704 094
 
-Голая...если мертвая   Nude... si muore   Naked You Die  1968  BDRip [H.264 720p] [VO]
-Классика кино и Старые фильмы до 90-х
-Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+Chicane - Far From The Maddening Crowds  2024 Symphonic Rehearsals  [FLAC|Lossless|WEB-DL|tracks
+Electronic
+Ambient, Experimental, Modern Classical (Lossless)
 
 ###  Подробнее
 
-Таинственный убийца в черных перчатках душит женщину в ванной комнате. После чего кладет ее голое тело в чемодан и садится на поезд, отправляющийся на юг Франции. Чемодан оказывается в автобусе, принадлежащем частной школе для девочек. И вскоре в школе начинают происходить ужасные вещи. Одна студентка бесследно исчезает, другую обнаруживают убитой в душевой комнате.     Читать дальше...    Производство: Италия, Франция   Super International Pictures, BGAAlexandra FilmЖанр: триллер, детективРежиссер: Антонио МаргеритиАктеры: Марк Дэймон, Элеонора Браун, Сэлли Смит, Патриция Вальтурри, Людмила Львова, Лучано Пигоцци, Франко Де Роза, Вивиан Степлтон, Эстер Масинг, Альдо Де КареллисПеревод: Одноголосый любительский  Александр Морозов Язык озвучки: русский, итальянскийСубтитры: английские, русскиеПродолжительность: 01:37:33
+01. Early
+02. Already There
+03. Offshore
+04. Lost You Somewhere    Читать дальше...    Жанр: Ambient, Modern Classical, ElectronicПродолжительность: 00:59:18
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:97D881B57039D40E9645505BE1FC73DADDC8FC80
+    magnet:?xt=urn:btih:9D489435208B8C9091674D6F36A442AA8818BFFE
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702242.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704094.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 239
+###  Публикация: 1 704 089
 
-Аватар: Легенда об Аанге   Avatar: The Last Airbender  2024  WEB-DL [H.265 2160p] [4K, SDR,
-Зарубежные сериалы
-Горячие новинки
+Black Nail Cabaret - Chrysanthemum  2024  [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, Darkwave
+Electronic
+Industrial, EBM, Dark Electro  Lossless 
 
 ###  Подробнее
 
-В мире существуют народы четырех стихий: огня, воды, земли и воздуха. Представитель народа огня решил поработить остальные народы. Спасти мир и прекратить войну подвластно только аватару, повелевающему всеми четырьмя стихиями. Ответственность внезапно ложится на плечи двенадцатилетнего Аанга, которому предстоит отправиться в опасное путешествие.Производство: США   Avatar Studios, Netflix, Nickelodeon ProductionsЖанр: фэнтези, боевик, драма, комедия, приключенияРежиссер: Майкл Гои, Розанна Лян, Джаббар РайсаниАктеры: Гордон Кормье, Киавентио, Иэн Аусли, Даллас Лю, Пол Ли, Дэниэл Дэ Ким, Мэттью Ян Кинг, Кен Люн, Руй Искандар, Элизабет ЮПеревод: Многоголосый профессиональный  HDrezka Studio , многоголосый любительский  LE-Production Язык озвучки: русский, английскийСубтитры: Русские  Forced, Full , английские  Full, SDH , украинскиеПродолжительность: ~01:00:00 серия
+01. My Home is Empty [00:04:27]
+02. Autogenic [00:05:20]
+03. Totem and Taboo [00:04:58]
+04. Never Enough [00:03:46]    Читать дальше...    Жанр: EBM   Synthpop   Darkwave   DarkPopПродолжительность: 00:46:05
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:D70F25FC7B5DE6BB2CD20B7264D348BEC72EA603
+    magnet:?xt=urn:btih:7E63D3ACBC4E3D1E76E8AC5324C6056EAE0D6403
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702239.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704089.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 238
+###  Публикация: 1 704 088
 
-Sons of the Forest  2023  [Ru Multi]  1.0  Repack FitGirl
-Win Игры
-Горячие новинки Игр
+Пьер Алексис Понсон дю Террайль | Любовные похождения Трефового Валета  2013  [MP3, Леонид Дерка
+Художественные аудиокниги и публицистика
+Исторические аудиокниги
 
 ###  Подробнее
 
-Sons of The Forest - многопользовательский хоррор от первого лица с элементами выживания. Игра выступает сиквелом нашумевшего хита The Forest. Как и в предыдущей части, вам необходимо исследовать таинственный лес, который населяют кровожадные монстры. Выживайте, прячась от врагов и внимательно изучайте окрестные территории. Вооружитесь мощным оружием, чтобы противостоять     Читать дальше...    Тип издания: RepackРазработчик: Endnight Games LtdЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+Серия Цикл: Молодость Генриха IV.
+Сочинения французского беллетриста Пьера Алексиса Понсона дю Террайля  1829–1871  с шумным успехом обошли многие страны мира, соперничали в популярности и тиражах с книгами классика занимательного жанра Александра Дюма.
+Роман «Любовные похождения Трефового Валета» посвящен событиям, предшествовавшим знаменитой Варфоломеевской ночи.     Читать дальше...    Жанр: Зарубежная литература, исторический роман, приключенияИздательство: Нигде не купишьПродолжительность: 11:09:48
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:FD1AB88DE4386A6CFED1B940D8DE1FE9A41BB4C1
+    magnet:?xt=urn:btih:740071639E21A9D5E1D600B62F44711C42B3966C
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702238.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704088.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 237
+###  Публикация: 1 704 085
 
-Созвездие   Constellation  2024  WEB-DL [H.264 720p]  сезон 1, серии 1-3 из 8  LostFilm,
-След.
-Горячие новинки
+Пётр Сытин | Истории московских улиц. Выпуск 1–3  2008  [MP3, Вадим Максимов и др.]
+Художественные аудиокниги и публицистика
+Исторические аудиокниги
 
 ###  Подробнее
 
-Действие разворачивается в двух временных линиях. В одной астронавт Джо Эрикссон терпит бедствие на Международной космической станции. В результате аварии система жизнеобеспечения и одна из спасательных капсул оказываются повреждены, и Джо нужно в одиночку, отправив свою команду на Землю, починить капсулу и вернуться самой. В другом временном периоде оправляющаяся     Читать дальше...    Производство: США, Великобритания, Франция   Turbine Studios, Haut Et Court TvЖанр: фантастика, триллерРежиссер: Мишель Макларен, Джозеф Седар, Оливер ХиршбигельАктеры: Нуми Рапас, Ребекка Скроггс, Клэр-Хоуп Эшити, Джонатан Бэнкс, Михель Диркс, Джеймс Д’Арси, Davina Coleman, Rosie Coleman, Уильям Кэтлетт, Барбара ЗуковаПеревод: Многоголосый профессиональный  LostFilm, NewComers Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские  Forced, Full, SDH , французские, испанские, немецкие, итальянскиеПродолжительность: ~00:55:00 серия
+Серия Цикл: Кругозор.
+Пётр Васильевич Сытин  1885–1968  – известный историк, краевед, знаток Москвы. Доктор исторических наук, директор Московского коммунального музея  Музея истории и реконструкции Москвы , педагог.
+Эта книга давно стала библиографической редкостью, несмотря на несколько переизданий. Ее уникальность не только в том, что здесь рассказывается, как     Читать дальше...    Жанр: Историческая проза, очерк, краеведениеИздательство: СиДиКом, ЭксмоПродолжительность: 10:48:29+09:38:54+10:06:25
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:45AF8DF5E3A1932D9860E31331B4B26692D85483
+    magnet:?xt=urn:btih:905879F19659AFBBB912365798E34F0DC2C0D9B1
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702237.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704085.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 236
+###  Публикация: 1 704 084
 
-Lazaret  2024  [En]  1.0  Repack FitGirl
-Win Игры
-Горячие новинки Игр
-
-###  Подробнее
-
-Lazaret - это напряженный психологический хоррор от первого лица, в котором геймеры примут на себя роль члена спасательной команды, вызванной для расследования сигнала бедствия, который поступил с корабля MTS Endurance, исчезнувшего четыре года назад во время путешествия через Атлантику. Теперь главному герою предстоит самолично выяснить, что за ужасы случились на     Читать дальше...    Тип издания: RepackРазработчик: Aegon GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9CD9F2D71AC9043B89B04E524D3685C058727FA2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702236.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 234
-
-Карающая длань   Red Right Hand  2024  WEB-DL [H.265 2160p] [4K, SDR, 8-bit]
-Горячие новинки
-Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-###  Подробнее
-
-Кэш живет скромной и мирной жизнью, помогает мужу покойной сестры воспитывать племянницу Саванну и управляться с фермой в небольшом городишке в Аппалачах. Но когда Кошка, глава местной банды и садистка, начинает угрожать его семье, Кэш понимает, что готов на все ради их защиты. И чем дольше длится противостояние, затягивая Кэша в водоворот насилия, тем сильнее стирается     Читать дальше...    Производство: США   Asbury Park Productions, Studio 507, Sweet Tomato FilmsЖанр: боевик, триллерРежиссер: Эшом Нелмс, Иэн НелмсАктеры: Орландо Блум, Энди Макдауэлл, Гаррет Диллахант, Брайан Джерати, Джеймс Лэфферти, Скотт Хейз, Джереми Рэчфорд, Александра Парк, Николас Логан, МоПеревод: Дублированный  Мосфильм-Мастер  OKKO  Язык озвучки: РусскийСубтитры: Русские  forced, full Продолжительность: 01:47:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EB85042797FA310FB825B8146837BE009C479EF9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702234.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 233
-
-Аватар: Легенда об Аанге   Avatar: The Last Airbender  2024  WEB-DL [H.264 1080p]  сезон 1
-Зарубежные сериалы
-Горячие новинки
-
-###  Подробнее
-
-Аанг может управлять четырьмя стихиями и пытается вместе с друзьями остановить вековую войну.Производство: США   Avatar Studios, Netflix, Nickelodeon ProductionsЖанр: фэнтези, боевик, драма, комедия, приключенияРежиссер: Майкл Гои, Розанна Лян, Джаббар РайсаниАктеры: Гордон Кормье, Киавентио Иэн, Аусли Даллас, Лю Пол Ли, Дэниэл Дэ Ким, Мэттью Ян Кинг, Кен Люн, Руй Искандар, Элизабет ЮПеревод: Многоголосый профессиональный  Jaskier Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские  Full, SDH Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F6324FF42A9368CC0EF3F09D10706CC65BC7E52A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702233.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 232
-
-Выжившая   Dangerous Waters  2023  WEB-DLRip
-Горячие новинки
-Зарубежные Новинки  SD, DVD 
-
-###  Подробнее
-
-Кем на самом деле является Дерек — настоящая загадка для Альмы и ее дочери Роуз. Втроем они отправляются на приятную прогулку под парусами, но на них нападают неизвестные. В открытом море вдали от цивилизации рассчитывать остается только на собственные силы. Теперь перед юной Роуз встает выбор: спасаться от голодных акул, вооруженных убийц и разбушевавшейся стихии     Читать дальше...    Производство: США   Capstone Group, Rio Luna Films, Signature FilmsЖанр: ТриллерРежиссер: Джон БаррАктеры: Одейя Раш, Сэффрон Берроуз, Эрик Дэйн, Рэй Лиотта, Сала Бэйкер, Талия Бессон, Омид Задер, Алексия Гарсия  II , Рой Элганян, Трентон РостедтПеревод: Дублированный  Мосфильм-Мастер Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FA1300DA0559B5402143F0E1BD90F9CE6CAB68B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702232.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 231
-
-Выжившая   Dangerous Waters  2023  WEB-DL [H.264 1080p]
-Горячие новинки
-Зарубежные Новинки  HD, FHD, UHD, 3D 
-
-###  Подробнее
-
-Кем на самом деле является Дерек — настоящая загадка для Альмы и ее дочери Роуз. Втроем они отправляются на приятную прогулку под парусами, но на них нападают неизвестные. В открытом море вдали от цивилизации рассчитывать остается только на собственные силы. Теперь перед юной Роуз встает выбор: спасаться от голодных акул, вооруженных убийц и разбушевавшейся стихии     Читать дальше...    Производство: США   Capstone Group, Rio Luna Films, Signature FilmsЖанр: ТриллерРежиссер: Джон БаррАктеры: Одейя Раш, Сэффрон Берроуз, Эрик Дэйн, Рэй Лиотта, Сала Бэйкер, Талия Бессон, Омид Задер, Алексия Гарсия  II , Рой Элганян, Трентон РостедтПеревод: Дублированный  Мосфильм-Мастер Язык озвучки: Русский, английскийСубтитры: Английские  Full, SDH Продолжительность: 01:40:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:30516F3DBBDBB3CD0F11C5BA0DDB723FF0940E3F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702231.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 229
-
-Созвездие   Constellation  2024  WEB-DL [H.265 2160p] [4K, HDR+, 10-bit]  сезон 1, серии 1
-Зарубежные сериалы
-Горячие новинки
-
-###  Подробнее
-
-Когда на борту Международной космической станции происходит авария со смертельным исходом, женщина-астронавт в одиночку возвращается на Землю, но узнаёт, что всё самое важное в ее жизни, в том числе ее юная дочь, изменилось.Производство: США, Великобритания, Франция   Turbine Studios, Haut Et Court TvЖанр: фантастика, триллерРежиссер: Мишель Макларен, Джозеф Седар, Оливер ХиршбигельАктеры: Нуми Рапас, Ребекка Скроггс, Клэр-Хоуп Эшити, Джонатан Бэнкс, Михель Диркс, Джеймс Д’Арси, Davina Coleman, Rosie Coleman, Уильям Кэтлетт, Барбара ЗуковаПеревод: Многоголосый профессиональный  NewComers Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E1E88882D21A61FD8B9CFE67C2A67F7192B4C865
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702229.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 228
-
-Карающая длань   Red Right Hand  2024  WEB-DLRip [H.264]
+Дочь болотного царя   The Marsh King s Daughter  2023  BDRip
 Горячие новинки
 Зарубежные Новинки (SD, DVD)
 
 ###  Подробнее
 
-Кэш живет скромной и мирной жизнью, помогает мужу покойной сестры воспитывать племянницу Саванну и управляться с фермой в небольшом городишке в Аппалачах. Но когда Кошка, глава местной банды и садистка, начинает угрожать его семье, Кэш понимает, что готов на все ради их защиты. И чем дольше длится противостояние, затягивая Кэша в водоворот насилия, тем сильнее стирается     Читать дальше...    Производство: США   Asbury Park Productions, Studio 507, Sweet Tomato FilmsЖанр: боевик, триллерРежиссер: Эшом Нелмс, Иэн НелмсАктеры: Орландо Блум, Энди Макдауэлл, Гаррет Диллахант, Брайан Джерати, Джеймс Лэфферти, Скотт Хейз, Джереми Рэчфорд, Александра Парк, Николас Логан, МоПеревод: Дублированный  Мосфильм-Мастер Язык озвучки: русский, английскийСубтитры: английские  SDH Продолжительность: 01:51:26
+10-летняя Хелена жила с родителями в лесном домике. Девочка в папе души не чаяла, а он учил её понимать природу, читать следы и охотиться, вот только мама была постоянно чем-то недовольна. Однажды, когда отец ненадолго отлучился, и к их жилищу выехал заблудившийся турист на квадроцикле, мама внезапно схватила дочку и использовала эту возможность, чтобы сбежать. Так     Читать дальше...    Производство: США   Anonymous Content, Black Bear PicturesЖанр: Драма, триллерРежиссер: Нил БёргерАктеры: Дейзи Ридли, Бен Мендельсон, Бруклин Принс, Гил Бирмингем, Карен Писториус, Гаррет Хедлунд, Джои Карсон, Памела МакДональд, Джошуа Пис, Дэн АбрамовичиПеревод: Дублированный  Велес Язык озвучки: РусскийСубтитры: Русские, английские  отдельно Продолжительность: 01:48:47
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:E43FDD6C38D1813300CDFFB4CFE402F38756F5C4
+    magnet:?xt=urn:btih:E74BDCDD825D65BE3281B9E1E387BBBCFC0A632A
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702228.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704084.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 227
+###  Публикация: 1 704 083
 
-Ornella Vanoni - Collection (1961-1973) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Sto male (4:03)
-02. Mi Fa Morire Cantando (4:44)
-03. Minuto Per Minuto (4:17)
-04. Ragazzo Mio (3:25)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:42:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9AC22A597C73B7FA84F409CF978DF7AF55394FD4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702227.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 225
-
-Последний отпуск   Last Holiday  1950  BDRip [H.264 720p] [AVO]
-Классика кино и Старые фильмы до 90-х
-Зарубежная Классика (HD, FHD, UHD, 3D)
-
-###  Подробнее
-
-Когда одинокий, недооцененный продавец сельскохозяйственного оборудования обнаруживает, что жить ему осталось всего несколько недель, он снимает свои сбережения для последнего отпуска на  шикарном  курорте.Производство: Великобритания   Watergate FilmsЖанр: драма, мелодрамаРежиссер: Генри КассАктеры: Алек Гиннесс, Беатрис Кэмпбелл, Кэй Уолш, Грегуар Аслан, Джин Колин, Мюриэль Джордж, Брайан Уорт, Эсма Кэннон, Бернард Ли, Сидни ДжеймсПеревод: Авторский  Сергей Визгунов Язык озвучки: русский, английскийСубтитры: английские  full, SDH Продолжительность: 01:28:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A58F0C17B3F8719FBF873341C48D2B52128605B9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702225.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 223
-
-Cats Can Fly - Cats Can Fly (1986) Remaster, CCF Records, 2023 [FLAC|Lossless|WEB-DL|tracks] <AOR, P
-Rock, Alternative, Punk, Metal
-Rock (Lossless)
-
-###  Подробнее
-
-01. Flippin' to the 'A' Side (03:42)
-02. Lies Are Gonna Get Ya (03:52)
-03. Cold Hands, Warm Heart (04:55)
-04. Crazy Fever (03:05)(   Читать дальше...   )Жанр: AOR, Pop Rock, Synth-popПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8804E6BEEB16308658E65588F8884EBF2F13EEF7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702223.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 221
-
-Карающая длань   Red Right Hand  2024  WEB-DL [H.265 1080p] [10-bit]
+Дочь болотного царя   The Marsh King s Daughter  2023  BDRip [H.264 1080p]
 Горячие новинки
 Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 ###  Подробнее
 
-Кэш живет скромной и мирной жизнью, помогает мужу покойной сестры воспитывать племянницу Саванну и управляться с фермой в небольшом городишке в Аппалачах. Но когда Кошка, глава местной банды и садистка, начинает угрожать его семье, Кэш понимает, что готов на все ради их защиты. И чем дольше длится противостояние, затягивая Кэша в водоворот насилия, тем сильнее стирается     Читать дальше...    Производство: США   Asbury Park Productions, Studio 507, Sweet Tomato FilmsЖанр: Боевик, триллерРежиссер: Эшом Нелмс, Иэн НелмсАктеры: Орландо Блум, Энди Макдауэлл, Гаррет Диллахант, Брайан Джерати, Джеймс Лэфферти, Скотт Хейз, Джереми Рэчфорд, Александра Парк, Николас Логан, МоПеревод: Дублированный  OKKO Язык озвучки: Русский, АнглийскийСубтитры: Английские  Full, SDH Продолжительность: 01:51:26
+10-летняя Хелена жила с родителями в лесном домике. Девочка в папе души не чаяла, а он учил её понимать природу, читать следы и охотиться, вот только мама была постоянно чем-то недовольна. Однажды, когда отец ненадолго отлучился, и к их жилищу выехал заблудившийся турист на квадроцикле, мама внезапно схватила дочку и использовала эту возможность, чтобы сбежать. Так     Читать дальше...    Производство: США   Anonymous Content, Black Bear PicturesЖанр: Драма, триллерРежиссер: Нил БёргерАктеры: Дейзи Ридли, Бен Мендельсон, Бруклин Принс, Гил Бирмингем, Карен Писториус, Гаррет Хедлунд, Джои Карсон, Памела МакДональд, Джошуа Пис, Дэн АбрамовичиПеревод: Дублированный  Велес , многоголосый профессиональный  TVShows, NewStudio Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:48:47
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A2666FDE36D628AB6160686CC3529467AEF57CDC
+    magnet:?xt=urn:btih:31F31B891E8BBF8977585B38ACF84885031980F4
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702221.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704083.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 220
+###  Публикация: 1 704 082
 
-Волнорез   Breakwater  2023  WEB-DLRip [MVO]
-Горячие новинки
-Зарубежные Новинки  SD, DVD 
+Пираты Карибского моря: На странных берегах   Pirates of the Caribbean: On Stranger Tides  2011<
+Остальное ПО для специалистов
+hand made * video
 
 ###  Подробнее
 
-Дови — молодой человек, только что вышедший из тюрьмы по условно-досрочному освобождению. За решеткой у него был один старший наставник, Рэй Чилдресс, перед которым Дови в долгу. Юноша решает помочь Рэю и по его просьбе отыскать дочь, с которой тот потерял связь. Рискуя своей новообретенной свободой, Дови отправляется в соседний штат, чтобы отыскать девушку. Но обнаружив     Читать дальше...    Производство: США   Loose Cannon Pictures  II Жанр: Триллер, драма, криминал, детективРежиссер: Джеймс РоуАктеры: Дермот Малруни, Даррен Манн, Алисса Госс, Дон Хендерсон Бэйкер, Мена Сувари, Дж.Д. Эвермор, Селия Роуз Гудинг, Майк Стэнли, Ezra DuVall, Соня СонПеревод: Многоголосый профессиональный  NewStudio | 18+ Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:10
+В новой истории о поисках истины, предательстве, вечной молодости и смертельной опасности капитану Джеку Воробью предстоит столкнуться с женщиной из своего прошлого Анжеликой. До самого конца не будет понятно, связывает ли их настоящая любовь, или же Анжелика искусно притворяется, чтобы вместе с Джеком добраться до таинственного источника вечной молодости.
+Она силой     Читать дальше...    Производство: США, Великобритания   Jerry Bruckheimer Films, Walt Disney PicturesЖанр: фэнтези, боевик, приключения, комедияРежиссер: Роб МаршаллАктеры: Джонни Депп, Пенелопа Крус, Джеффри Раш, Иэн МакШейн, Кевин МакНэлли, Стивен Грэм, Сэм Клафлин, Астрид Берже-Фрисби, Кит Ричардс, Ричард ГриффитсПеревод: Дублированный  Невафильм Язык озвучки: РусскийСубтитры: Русские  forced, full Продолжительность: 02:16:23
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:FC8CF9AB5BE8A3B7EBF0FCD1C46AFCA22E4F3381
+    magnet:?xt=urn:btih:D1B444CB5FBCCC51A3939E8DE0AB8D14BEB47E5C
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702220.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704082.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 219
+###  Публикация: 1 704 081
 
-Волнорез   Breakwater  2023  WEB-DL [H.264 1080p] [MVO]
+Дочь болотного царя   The Marsh King s Daughter  2023  BDRemux [H.264 1080p]
+Горячие новинки
+Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+###  Подробнее
+
+10-летняя Хелена жила с родителями в лесном домике. Девочка в папе души не чаяла, а он учил её понимать природу, читать следы и охотиться, вот только мама была постоянно чем-то недовольна. Однажды, когда отец ненадолго отлучился, и к их жилищу выехал заблудившийся турист на квадроцикле, мама внезапно схватила дочку и использовала эту возможность, чтобы сбежать. Так     Читать дальше...    Производство: США   Anonymous Content, Black Bear PicturesЖанр: Драма, триллерРежиссер: Нил БёргерАктеры: Дейзи Ридли, Бен Мендельсон, Бруклин Принс, Гил Бирмингем, Карен Писториус, Гаррет Хедлунд, Джои Карсон, Памела МакДональд, Джошуа Пис, Дэн АбрамовичиПеревод: Дублированный  Велес , многоголосый профессиональный  TVShows, NewStudio Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:48:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ED2FACDCCE6978217B037C0232B8455C98E3F5CF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704081.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 079
+
+Обнаженная Маха   Volaverunt  1999  DVDRip [H.264 1080p] [Uncut Version] [Handmade Upscale A
+Остальное ПО для специалистов
+hand made * video
+
+###  Подробнее
+
+По мотивам романа Антонио Ларреты  Вознесение . Июль 1802 года. Блистательная эпоха в истории Испании. Богатая, красивая любовница самых влиятельных людей своего времени донья Мария дель Пилар, герцогиня Альба, устраивает ужин, чтобы отпраздновать завершение строительства своего нового дворца. Среди толпы гостей выделяются два человека, оба бывшие любовники     Читать дальше...    Производство: Испания, Франция, Canal+Жанр: триллер, драмаРежиссер: Хуан Хосе Бигас ЛунаАктеры: Айтана Санчес-Хихон, Пенелопа Крус, Хорди Молья, Хорхе Перугоррия, Стефания Сандрелли, Эмпар Феррер, Соэ Берриатуа, Жан-Мари Хуан, Оливье Ашар, Ферми РейчакПеревод: Одноголосый любительскийЯзык озвучки: русский, испанскийСубтитры: испанские, английские, французскиеПродолжительность: 01:53:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4244EA45BCF9B7C11E41DDE8700F7261FD4EBAC8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704079.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 078
+
+Solitude Aeturnus - Hour of Despair  2024  Deluxe Edition [FLAC 24 44.1|Lossless|WEB-DL|tracks
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Scent of Death  HoD Deluxe Edition  [00:09:00]
+02. Haunting The Obscure  HoD Deluxe Edition  [00:04:56]
+03. Mental Pictures  HoD Deluxe Edition  [00:04:31]
+04. Destiny Falls To Ruin  HoD Deluxe Edition  [00:05:21]    Читать дальше...    Жанр: Epic Doom MetalПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D564A906947089940FFE1C5479A42B744835BB34
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704078.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 076
+
+Свадьба под прикрытием   Undercover Bridesmaid  2012  BDRip [H.264 720p]
+Зарубежное кино
+Зарубежные Фильмы (HD, FHD)
+
+###  Подробнее
+
+История в фильме начинается с того, что у техасского магната мистера Томпсона появляются основания для беспокойства о безопасности его дочери Дейзи, у которой скоро должна состояться свадьба. Капризная, избалованная Дейзи наотрез оказывается видеть рядом с собой в канун свадьбы качков-охранников - она полагает, что это испортит предсвадебную атмосферу. Поэтому ее     Читать дальше...    Производство: США, Larry Levinson ProductionsЖанр: мелодрамаРежиссер: Мэттью ДаймондАктеры: Брук Бёрнс, Грегори Харрисон, Николь Пэгги, Джастин Бальдони, Марта Мэдисон, Надеж Огюст, Шэшони Холл, Джей Кеннет Джонсон, Кайла Мэй Малони, Дэвид ДженкинсПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:26:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CADE37B5CBFD849C1D50E3CD66B97C575007BBD1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704076.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 075
+
+Вадим Фарг | Призванный Герой  Книга 3   2023  [MP3, Максим Полтавский]
+Художественные аудиокниги и публицистика
+Фантастика, Фэнтези (аудиокниги)
+
+###  Подробнее
+
+Позади осталось немало приключений. Некоторые из них будут посещать меня в виде ночных кошмаров. Но другие… другие я буду вспоминать, закатив от удовольствия глаза.
+Но чтобы отдохнуть и понежиться в тёплой постели, придётся много поработать. К примеру, отыскать Фаланги Великого мага. Или как его там, уже не помню. И главное – сделать это первым, так как за Фалангами     Читать дальше...    Жанр: Героическое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 07:49:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FEF5936282FD085C159CAB47FB50760B5D96153A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704075.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 073
+
+Алла Пугачёва - P.S.  2024  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Монолог  4:13 
+02. Анестезия  3:46 
+03. Поживи в моей шкуре  3:30 
+04. Всё хорошо - ничего не случилось  3:45     Читать дальше...    Жанр: PopПродолжительность: 01:31:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3AA8FDD4AF8862AAE08D2A0C053933C77D9E4469
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704073.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 072
+
+Космонавт   Spaceman  2024  WEB-DLRip [H.264 1080p] [MVO] [10-Bit]
 Горячие новинки
 Зарубежные Новинки  HD, FHD, UHD, 3D 
 
 ###  Подробнее
 
-Дови — молодой человек, только что вышедший из тюрьмы по условно-досрочному освобождению. За решеткой у него был один старший наставник, Рэй Чилдресс, перед которым Дови в долгу. Юноша решает помочь Рэю и по его просьбе отыскать дочь, с которой тот потерял связь. Рискуя своей новообретенной свободой, Дови отправляется в соседний штат, чтобы отыскать девушку. Но обнаружив     Читать дальше...    Производство: США   Loose Cannon Pictures  II Жанр: Триллер, драма, криминал, детективРежиссер: Джеймс РоуАктеры: Дермот Малруни, Даррен Манн, Алисса Госс, Дон Хендерсон Бэйкер, Мена Сувари, Дж.Д. Эвермор, Селия Роуз Гудинг, Майк Стэнли, Ezra DuVall, Соня СонПеревод: Многоголосый профессиональный  NewStudio | 18+ Язык озвучки: Русский, английскийСубтитры: Английские  Full, SDH Продолжительность: 01:37:10
+По роману Ярослав Калфаржа «Космонавт из Богемии». Астрофизик Якуб Прохазка родился в небольшой чешской деревеньке. Когда ведущие космические агентства мира отказались исследовать загадочное облако пыли возле Венеры, Якуб стал первым астронавтом в истории своей страны и отправился в восьмимесячное путешествие навстречу неизвестности, в течение которого он будет вынужден     Читать дальше...    Производство: США, Чехия   Tango Entertainment, Stillking Films, Free AssociationЖанр: Фантастика, драма, приключенияРежиссер: Йохан РенкАктеры: Адам Сэндлер, Кэри Маллиган, Пол Дано, Кунал Нэйэр, Изабелла Росселлини, Лена Олин, Petr Papánek, Мариан Роден, Зузана Стивинова, Шинейд ФелпсПеревод: Профессиональный многоголосый  Jaskier , двуголосый любительский  Zetflix Язык озвучки: Русский, английскийСубтитры: Русские, английские  Forced, Full Продолжительность: 01:48:54
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:6077B144F9C3696C68FCCFE98264D4027DC704F1
+    magnet:?xt=urn:btih:6B541962E2522848DF4421CC3D9FCAA0713B9656
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702219.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704072.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 217
+###  Публикация: 1 704 071
 
-Missing Persons - Hollywood Lie  2023  [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop>
+Жаворонок  1964  DVDRip [H.264 1080p] [Handmade AI]
+Остальное ПО для специалистов
+hand made * video
+
+###  Подробнее
+
+События развиваются в тылу фашистской Германии. Минуя засады, группе советских танкистов удается бежать из плена, уходя на танке от погони и нанося последние удары по противнику.Производство: СССР, ЛенфильмЖанр: драма, военныйРежиссер: Никита Курихин, Леонид МенакерАктеры: Вячеслав Гуренков, Геннадий Юхтин, Валерий Погорельцев, Валентинс Скулме, Бруно Оя, Эрвин Абель, Жанис Катлапс, Хейно Мандри, Гунар Плаценс, Олев Тинн, Янис Юров, Жанна Шабалина, Любовь Малиновская, Юлия Диоши, М. Тулэ, Александр АфанасьевПеревод: Не требуетсяЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FEB583802F30F635A08877BCF3574A815998D953
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704071.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 070
+
+Lee Mvtthews - Exit  2024  [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 Electronic
-Synthpop, New Wave (Lossless)
+Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 ###  Подробнее
 
-01. Hollywood Lie  03:23 
-02. King 4 a Day  03:32 
-03. Movie Star  02:49 
-04. Castles in the Sand  03:21     Читать дальше...    Жанр: New Wave, Synth-popПродолжительность: 00:37:22
+01. Ripple  4:30 
+02. Can t Get Enough  4:30 
+03. Circles  3:48 
+04. Lightspeed  4:36     Читать дальше...    Жанр: Drum & BassПродолжительность: 00:46:38
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:4998E0072856CD926E757382803DB087ACC93613
+    magnet:?xt=urn:btih:46234D2C7B5ED48F6D674D35B6FF19B88EF969A3
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702217.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704070.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 216
+###  Публикация: 1 704 069
 
-С.П. Колосов, Ю.А. Сидоров | Нелинейные двухполюсники и четырехполюсники  1981  [PDF]
-Научная и техническая литература
-Учебники
-
-###  Подробнее
-
-В книге дано систематизированное изложение вопросов теории нелинейных цепей, применяемых в современных системах автоматики, энергетики и т. д.; рассмотрены нелинейные двухполюсники и четырехполюсники и их исходные характеристики; приведены методы анализа электрических цепей постоянного и переменного тока, магнитных и диэлектрических цепей, а также основы синтеза;     Читать дальше...    Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D3571E1CB1EBBA78DB35D2A39F24471285CACC98
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702216.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 210
-
-Tablacus Explorer 24.2.18 Portable [Multi Ru]
-Утилиты, Офис, Интернет
-Файловые менеджеры и архиваторы
-
-###  Подробнее
-
-Tablacus Explorer - удобный в работе и простой в использовании файловый менеджер, позволяющий работать с двумя, либо четырьмя панелями, с возможностью создавать нужное количество вкладок на каждой. Tablacus Explorer дублирует все стандартные функции Проводника для работы с папками и файлами, дополняя их удобным представлением. Благодаря утилите процессы копирования,     Читать дальше...    Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A11C8F5B9D0FDAF77D94F7BEA6D0D9722C58E13F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702210.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 206
-
-Cynic - The Portal Tapes  2012  Compilation [FLAC|24 96|image + .cue|Vinyl-Rip]  <Thrash Met
+Аркадий Хоралов - Странный Мир  1988  [FLAC 24 192|Lossless|tracks] <Pop>
 HD Audio и Многоканальная Музыка
 Vinyl-Rip и Hand-Made
 
 ###  Подробнее
 
-01. Endless Endeavors
-02. Karma s Plight
-03. Circle
-04. Costumed In Grace    Читать дальше...    Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:45:06
+Сторона 1
+01.Лишний билет
+2.Странный Мир
+3.Эдельвейс    Читать дальше...    Жанр: PopПродолжительность: 00:40:56
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:EE30D40886420988FA9700B27B3A81CB1F1237A2
+    magnet:?xt=urn:btih:C2C4F37F605D7F87275569B1B3A0E190BDD6F72D
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702206.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704069.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 205
+###  Публикация: 1 704 068
 
-D Luna - Monster  2024  [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Monster
-02. Zombie
-03. Rabbit Hole
-04. Believe    Читать дальше...    Жанр: Melodic MetalПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E309CAAE3F65968A2F47C499BE063FA394E9FD67
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702205.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 203
-
-Солтберн   Saltburn  2023  WEB-DL [H.265 2160p] [4K, HDR10+, Dolby Vision, 10-bit] [MVO]
-Горячие новинки
-Зарубежные Новинки  HD, FHD, UHD, 3D 
-
-###  Подробнее
-
-2006 год. Невзрачный очкарик Оливер поступает в Оксфорд, где, не имея ни обаяния, ни денег, вынужден общаться только с таким же ботаном, как и он сам. Однажды Оливер случайно помогает, затем и заводит дружбу с однокурсником Феликсом — популярным красавцем из аристократической семьи. Растроганный рассказами о трудном детстве нового друга Феликс приглашает его на летние     Читать дальше...    Производство: Великобритания, США   LuckyChap Entertainment, Media Rights Capital, Metro-Goldwyn-Mayer  MGM Жанр: ДрамаРежиссер: Эмиральд ФеннелАктеры: Барри Кеоган, Джейкоб Элорди, Арчи Мадекве, Розамунд Пайк, Элисон Оливер, Ричард Э. Грант, Кэри Маллиган, Сэди Совералл, Richie Cotterell, Милли КентПеревод: Многоголосый профессиональный  NewStudio - 18+ Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские  full, SDH Продолжительность: 02:11:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2EFFE714F8F03F378E73759164CF12D0C65EE2E2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702203.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 196
-
-Display Driver Uninstaller 18.0.7.3 + Portable [Multi Ru]
-Утилиты, Офис, Интернет
-Обслуживание ОС
-
-###  Подробнее
-
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD   NVIDIA   Intel и драйверы звуковой карты Realtek   Sound Blaster из системы, не оставляя кучу ненужных файлов  включая ключи реестра, папки и файлы . DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются,     Читать дальше...    Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:90DD826283318DF82B9A2D0E49256FB5E390330A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702196.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 187
-
-DJ Artur - Compilation  2024  [MP3|320 Kbps] <Instrumental, Piano, Accordion, Electronic>
+The Lachy Doley Group - Compiliation 2013-2019  2024  [MP3|320 Kbps] <Hammond, Blues, Blues Rock
 Неофициальные сборники
-Instrumental/New Age/Meditative/Relax (сборники)
+Jazz, Blues, Soul  сборники 
 
 ###  Подробнее
 
-01.  Beautiful Dance
- 02.  Earth
- 03.  Urban Rhythm
- 04.  Star in My Heart    Читать дальше...    Жанр: Instrumental, Piano, Accordion, ElectronicПродолжительность: 02:45:01
+01. A Woman [04:02]
+02. Betcha I ll Getcha [02:42]
+03. Conviction  Live at Blues on Broadbeach 2016  [07:23]
+04. Love Blinded Fool [03:44]    Читать дальше...    Жанр: Hammond, Blues, Blues RockПродолжительность: 05:23:39
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A0127D13A5FA8F47DEA3FD75FC0C5FD8DF56F735
+    magnet:?xt=urn:btih:C12650F8530C6B7857F684371F0AE0B66540F960
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702187.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704068.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 182
+###  Публикация: 1 704 067
 
-Созвездие   Constellation  2024  WEB-DLRip  сезон 1, серии 1-3 из 8  ViruseProject [AD] <5
+Аркадий Хоралов - Где я и ты  1990  [FLAC 24 192|Lossless|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1.
+01-Где я и ты  А.Хоралов - В.Сауткин 
+02-А снег рисует  А.Хоралов, А.Кондратьев - В.Попов 
+03-Убежать бы  А.Хоралов, А.Кондратьев - С.Лазо     Читать дальше...    Жанр: PopПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BBF5602CD802393F9BC8BCD3CEF36F5DCE507ABC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704067.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 044
+
+Филип Дик | Мастера вызывали?  2024  [MP3, Reads Mamedov]
+Художественные аудиокниги и публицистика
+Фантастика, Фэнтези (аудиокниги)
+
+###  Подробнее
+
+Мастер приехал по вызову, чтобы устранить поломки в замещателе, и поэтому стучится в дверь директора по фундаментальным исследованиям. Для директора основная проблема заключается не только в том, что он не вызывал никакого мастера, но и в том, что сам термин  замещатель  ему не знаком.Жанр: ФантастикаПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2AD09656C9CAA2C5B21B2843A13798B8CAB37AC7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704044.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 704 040
+
+Tixati 3.22 + Portable [Ru En]
 Архив торрентов
-Архив Сериалов и Архив Старого многосерийного кино до 90-х
+Архив Программ
 
 ###  Подробнее
 
-Когда на борту Международной космической станции происходит авария со смертельным исходом, женщина-астронавт в одиночку возвращается на Землю, но узнаёт, что всё самое важное в ее жизни, в том числе ее юная дочь, изменилось.Производство: США, Великобритания, Франция   Turbine Studios, Haut Et Court TvЖанр: триллерРежиссер: Мишель Макларен, Джозеф Седар, Оливер ХиршбигельАктеры: Нуми Рапас, Ребекка Скроггс, Клэр-Хоуп Эшити, Джонатан Бэнкс, Михель Диркс, Джеймс Д’Арси, Davina Coleman, Rosie Coleman, Уильям Кэтлетт, Барбара Зукова и др.Перевод: Двухголосый профессиональный  ViruseProject Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+Tixati — это полноценный и бесплатный клиент сети BitTorrent, простой и легкий в использовании. Предоставляет пользователю расширенные возможности по управлению раздачами, как в отношении локальных файлов, так и сетевых соединений. Программа не требовательна к системным ресурсам, потребляет меньше оперативной памяти по сравнению с последними версиями µTorrent. Приятным     Читать дальше...    Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:749C55967E61D24793A9ED92183E53EE033428C9
+    magnet:?xt=urn:btih:0943BEB7DA0FBD58BB8311BEFD5D772395B5FF3F
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702182.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704040.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
 
 
-###  Публикация: 1 702 181
+###  Публикация: 1 704 038
 
-Созвездие   Constellation  2024  WEB-DLRip [H.264 1080p]  сезон 1, серии 1-3 из 8  Virus
-Архив торрентов
-Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-###  Подробнее
-
-Когда на борту Международной космической станции происходит авария со смертельным исходом, женщина-астронавт в одиночку возвращается на Землю, но узнаёт, что всё самое важное в ее жизни, в том числе ее юная дочь, изменилось.Производство: США, Великобритания, Франция   Turbine Studios, Haut Et Court TvЖанр: триллерРежиссер: Мишель Макларен, Джозеф Седар, Оливер ХиршбигельАктеры: Нуми Рапас, Ребекка Скроггс, Клэр-Хоуп Эшити, Джонатан Бэнкс, Михель Диркс, Джеймс Д’Арси, Davina Coleman, Rosie Coleman, Уильям Кэтлетт, Барбара Зукова и др.Перевод: Двухголосый профессиональный  ViruseProject Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EDA9F5E2F78DB7F54AE9C0A0823BB47AC517FA17
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702181.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 180
-
-Карающая длань   Red Right Hand  2024  WEB-DL [H.264 1080p]
-Горячие новинки
-Зарубежные Новинки  HD, FHD, UHD, 3D 
+f.lux v4.134 [En]
+Софт и оболочки для специалистов, Прочее
+Разное  прочее ПО 
 
 ###  Подробнее
 
-Кэш живет скромной и мирной жизнью, помогает мужу покойной сестры воспитывать племянницу Саванну и управляться с фермой в небольшом городишке в Аппалачах. Но когда Кошка, глава местной банды и садистка, начинает угрожать его семье, Кэш понимает, что готов на все ради их защиты. И чем дольше длится противостояние, затягивая Кэша в водоворот насилия, тем сильнее стирается     Читать дальше...    Производство: США   Asbury Park Productions, Studio 507, Sweet Tomato FilmsЖанр: боевик, триллерРежиссер: Эшом Нелмс, Иэн НелмсАктеры: Орландо Блум, Энди Макдауэлл, Гаррет Диллахант, Брайан Джерати, Джеймс Лэфферти, Скотт Хейз, Джереми Рэчфорд, Александра Парк, Николас Логан, МоПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Английские  SDH Продолжительность: 01:51:26
+f.lux — полезное приложение для тех, кто проводит много времени перед экраном компьютера или ноутбука. Встроенные функции помогут беречь зрение в любое время суток, автоматически настраивая оптимальные параметры цветопередачи.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:43C08D0CBFA567235D8AAE50D79D167850C1353F
+    magnet:?xt=urn:btih:AC7005C1D870AFCA1F217C4D38CA9877168BD2F1
 ```
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702180.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 178
-
-Iron Curtain - Savage Dawn  2024  [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Metal>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. The Aftermath  Intro 
-02. Devil s Eyes
-03. Gypsy Rocker
-04. Thy Wolf    Читать дальше...    Жанр: Speed, Heavy MetalПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1C416A5313BE2202C1FFB7280F5E064D9CEBE064
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702178.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 177
-
-Allie X - 2 Albums  2020-2024  [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Canadian avant-pop>
-Electronic
-Synthpop, New Wave (Lossless)
-
-###  Подробнее
-
-01. Weird World [00:03:58]
-02. Girl With No Face [00:04:23]
-03. Off With Her Tits [00:03:16]
-04. John and Jonathan [00:04:22]    Читать дальше...    Жанр: Synthpop, Canadian avant-popПродолжительность: 2CD, 01:45:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DEC94E02F4BEE328F9A8A7B8079441EF08D9A024
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702177.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 176
-
-Н.М. Гюнтер, Р.О. Кузьмин | Сборник задач по высшей математике [3 книги]  1951 - 1958  [DJVU]
-Научная и техническая литература
-Учебники
-
-###  Подробнее
-
-В основе предлагаемого задачника лежит сборник задач по высшей математике, составленный в 1912 г. сотрудниками кафедры математики Института инженеров путей сообщения, во главе которой стоял Н. М. Гюнтер. В некоторых дальнейших изданиях того же задачника принимали участие работники физико-математического факультета Ленинградского университета. В последующих изданиях,     Читать дальше...    Жанр: МатематикаИздательство: ФизматлитФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1E0DE8E0850955189481CA8758633FCD9DA81D2B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702176.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 174
-
-PicPick Free+Pro 7.2.8 + Portable [Multi Ru]
-Мультимедиа и Графика
-Графические редакторы
-
-###  Подробнее
-
-PicPick - приложение, объединяющее в себе возможности простого графического редактора и утилиты для захвата изображений с экрана компьютера. PicPick обладает простым и удобным интерфейсом. Среди особых возможностей стоит выделить возможность захвата целого рабочего экрана  в том числе, и на мультимониторных системах , захват только активного окна, отдельной области,     Читать дальше...    Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:076DBAA5C738522C72E6267A2311DF31898788C8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702174.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 173
-
-Garmin: TOPO Active Russia v.5.00 [Ru]
-Программы, Игры и прочее
-Карты для навигационного ПО
-
-###  Подробнее
-
-Карта Garmin Topo Active Russia v.5.0 является полностью бесплатной, доступной для загрузки в совместимые навигаторы и часы Garmin. Основа данных - OpenStreetMap  OSM , в добавление на карте присутствует слой быстрого расчёта маршрутов  работает с совместимыми навигаторами GPSMAP 66, серия часов Fenix 5 Plus, fenix 6, fenix 7, epix  Gen 2 , MARQ . Карта разделена     Читать дальше...    Тип издания: бесплатноРелиз состоялся: январь 2022Разработчик: OSM   GarminПоддерживаемая ОС: GarminЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EFC447BDBA02B38D1C9910DF9237301452DD33CB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702173.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 171
-
-Industrial Destruction - Indifference  2024  [FLAC 24 44.1|Lossless|WEB-DL|tracks] <Electro In
-Electronic
-Industrial, EBM, Dark Electro (Lossless)
-
-###  Подробнее
-
-01. Hole [00:03:47]
-02. Dead End  Album Version  [00:05:53]
-03. Indifference [00:04:23]
-04. Sad But True [00:04:38]    Читать дальше...    Жанр: Electro IndustrialПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A9B14F9A3C7CFD3ED443783B2F657A9E97A050E6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702171.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 170
-
-Г.П. Апушкинский | Электрические и радиотехнические цепи  1972  [DJVU]
-Научная и техническая литература
-Учебники
-
-###  Подробнее
-
-Книга знакомит с методами анализа электрических и радиотехнических цепей, которые используются научными работниками нерадиотехнического профиля в своей практической деятельности.
-В книге рассматриваются элементы цепей и прохождение тока через них, методы анализа линейных цепей, электронные и полупроводниковые приборы в радиосхемах, нелинейные цепи и некоторые измерительные     Читать дальше...    Жанр: ЭлектротехникаИздательство: Издательство Ленинградского университетаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:61FA115825DEBAE021E4FF677C75374F52F8F13E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702170.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 702 169
-
-Академический Ансамбль песни и пляски Российской Армии имени А.В. Александрова - День защитника отеч
-Шансон, Авторская и Военная песня
-Авторская и Военная песня
-
-###  Подробнее
-
-1. Служить России
-2. Морские лётчики
-3. В путь
-4. Любите Россию    Читать дальше...    Жанр: Военная песняПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5DC1F88B778E89708C0DFB052C8381DB3070C1A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1702169.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1704038.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

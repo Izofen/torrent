@@ -1,4 +1,257 @@
 ﻿
+###  Публикация: 1 231 324
+
+VA - NOW That s What I Call Summer Party 2018  3CD   2018  [MP3|320 Kbps] <Pop, Dance>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 01
+
+01. Camila Cabello feat. Young Thug - Havana
+02. DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I m The One    Читать дальше...    Жанр: Pop, DanceПродолжительность: 01:05:49
+
+01. French Montana feat. Swae Lee - Unforgettable
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:ECA9FCB23C009769D277DF2EB15F22E5D411744B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231324.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 231 321
+
+VA - Еще одна вечеринка! Выпуск 2  1996  [FLAC|Lossless|image + .cue]<Pop, Dance>
+Pop (сборники)
+Отечественная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Радиотранс - Я Хочу Стать Космонавтом
+02. Роман Рябцев - Дед-Мороз
+03. Био - Новое Искусство
+04. Вояж - Ты Для Него  Уже Не Значишь Ничего     Читать дальше...    Жанр: Pop, DanceПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C083C459417CEEA1BCC16E8A20B9F6B93222CE93
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231321.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 231 320
+
+Алёна Апина - Пропащая душа  1995  [FLAC|Lossless|image + .cue]<Pop>
+Pop (сборники)
+Отечественная поп-музыка  Lossless 
+
+###  Подробнее
+
+01. Пропащая душа
+02. Семечек стакан
+03. Дочь городничего
+04. День вчерашний    Читать дальше...    Жанр: PopПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AF384AC8CF9F8FBDC70A4D304D6A0678665E1177
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231320.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 231 297
+
+VA - Booom Summer 2018  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+CD 01
+
+01. Enrique Iglesias x Pitbull - MOVE TO MIAMI
+02. Namika - Je ne parle pas français  Beatgees Remix     Читать дальше...    Жанр: PopПродолжительность: 02:32:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7C7526FE2FE4DFC32E36CADE5E2782B6B3CECFD9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231297.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 231 219
+
+VA - DMC DJ Promo 232  2018  [MP3|320 Kbps] <Electronic, Hip Hop, Latin, Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Seconds Of Summer - Youngblood
+02. Aloe Blacc - Brooklyn In The Summer  Steve Smart Epic Short Edit 
+03. Armin Van Buuren Fe. James Newman - Therapy  Club Mix 
+04. Backstreet Boys - Dont Go Breaking My Heart    Читать дальше...    Жанр: Electronic, Hip Hop, Latin, PopПродолжительность: 02:39:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8DFAB9E2E7B390F8AB551EDA1FE5A83AF132C58B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231219.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 231 085
+
+VA - O3 Greatest Hits Vol.81  2018  [MP3|320 Kbps] <Pop, Dancefloor, Dance Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Justin Timberlake – Say Something  feat. Chris Stapleton 
+02. Rudimental – These Days  feat. Jess Glynne, Macklemore & Dan Caplen 
+03. George Ezra – Paradise
+04. Shawn Mendes – In My Blood    Читать дальше...    Жанр: Pop, Dancefloor, Dance PopПродолжительность: 01:20:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1E87C073F91E0908C039E41AC1E2BCCD746A9D05
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1231085.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 230 865
+
+Christina Aguilera - Liberation  2018  [MP3|320 Kbps] <Pop>
+Pop (сборники)
+Зарубежная поп-музыка (Lossless)
+
+###  Подробнее
+
+01. Liberation
+02. Searching For Maria
+03. Maria
+04. Sick Of Sittin     Читать дальше...    Жанр: PopПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41BEE3336D46328BB96C4BEC7E59EBE3E88B8E1D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230865.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 230 688
+
+VA - Top Of The Pops  1976  2018  Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock
+Pop (сборники)
+Зарубежная поп-музыка  Lossless 
+
+###  Подробнее
+
+Сегодняшним релизом продолжаю небольшую  пока  серию путешествий по победителям топов прошлого века  ссылки на предыдущие релизы смотрите внизу .
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители     Читать дальше...    CD1:
+01. ABBA - Dancing Queen    3:50 
+02. Billy Ocean - Love Really Hurts Without You    3:00 
+03. Tavares - Don t Take Away The Music    3:40     Читать дальше...    Жанр: 1970s, pop, rockПродолжительность: 03:07:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CFFF959756E49A42AB79F49E508DC9609E23C5CE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230688.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 230 667
+
+Gepy & Gepy - Body To Body  1979  LP [MP3|320 Kbps] <Electronic, Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01.  Body To Body  7:44 
+02.  Machine Man  5:48 
+03.  Oh Darling, Stay With Me  4:52 
+04.  African Love Song  6:47     Читать дальше...    Жанр: Electronic, DiscoПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DE4A15F0014808A4B0D0A55E29FC97E342622543
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230667.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 230 642
+
+Italove - Extended And Remixed  2018  [MP3|~245 Kbps  V0 ] <Synthpop, Italo-Disco>
+Pop (сборники)
+Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+###  Подробнее
+
+01. Stockholm Is Calling  Extended Mix   04:43 
+02. Follow Me To Mexico  Extended Mix   04:42 
+03. Rhythm Of Love  Extended Mix   07:10 
+04. Too Late To Cry  Matt Pop Club   07:19     Читать дальше...    Жанр: Synthpop, Italo-DiscoПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4E7A26F6C460E1585A447A084EE95DFE6DC96DC1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1230642.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 230 538
 
 Mystic - 4 Singles  1977  7  [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -1743,258 +1996,6 @@ Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226201.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 188
-
-VA - Eurodance Master  Rare & Unreleased tracks from Axel Breitung   2008  [FLAC|Lossless|WE
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. Real Hype - Train Of Love  3:53 
-02. Megamorph - Fade To Grey  3:22 
-03. UC Colors - U Got The Rhythm  3:59 
-04. Indiansphere - Spirit Of The Hawk  3:07     Читать дальше...    Жанр: Eurodance, Euro-House, TechnopopПродолжительность: 02:24:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:26B39BC89DD2C7EDE3754663EE119DA0B4BB0238
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226188.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 158
-
-American Eagles - Kokka  1977  LP [MP3|320 Kbps] <Electronic, Latin, Funk-Soul, Disco>
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-###  Подробнее
-
-01. Amore, Amore  7:37 
-02. Solo Dire  2:33 
-03. Mira, Mira  2:32 
-04. Barcelona, Porompompero  7:43     Читать дальше...    Жанр: Electronic, Latin, Funk-Soul, DiscoПродолжительность: 00:29:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9E1E4B0A3731E0E0E2CB5163E50F95BBAA2AD9E9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226158.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 146
-
-Ірина Білик  Ирина Билык  - 11 Альбомов  1990-2014  [FLAC|Lossless|image + .cue] <Pop>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Того, кого
-02. Рассвет
-03. Моя любовь
-04. Не любовники    Читать дальше...    Жанр: PopПродолжительность: 10:45:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5F1DED0498335CAB9F27FE218B911356E1A1EDFD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226146.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 126
-
-VA - Гирлянды любви  2006  [APE|Lossless|tracks + .cue] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-01 - М. Цветкова - Кто-то выдумал любовь
-02 - Студия 54 - Сердечко
-03 - С. Ротару - Жизнь моя, моя любовь
-04 - Revolvers - Неправильная любовь  remix     Читать дальше...    Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6694BA5D85518AA04435C44B7068123696105854
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226126.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 072
-
-Teach-In - 6 Albums  1974-1980  [MP3|320 Kbps] <Electronic, Europop, Pop Rock, Disco>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Teach-In  англ. Диспут  - нидерландская поп-группа, победившая на конкурсе песни Евровидение в 1975 году. Группа возникла в 1969 году в Энсхеде. В первоначальный состав группы входили вокалистка Хильда Феликс  нидерл. Hilda Felix  и музыканты: Джон Снюверинк  гитара и вокал , Франс Схадделе  бас-гитара , Кос Верстег  клавиши, вокал  и Рюди Нейхёйс  ударные . Известность     Читать дальше...    Список альбомов:
-1974 - Roll Along
-1975 - Festival
-1976 - Get On Board    Читать дальше...    Жанр: Electronic, Europop, Pop Rock, DiscoПродолжительность: 04:19:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3DC5E4002C216CD458F3F0C81A820D30A80EDEBA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226072.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 065
-
-VA - Eurodance Master  Rare & Unreleased tracks from Axel Breitung   2008  [MP3|320 Kbps] <E
-Pop (сборники)
-Eurodance, Euro-House, Technopop (Lossless)
-
-###  Подробнее
-
-01. Real Hype - Train Of Love  3:53 
-02. Megamorph - Fade To Grey  3:22 
-03. UC Colors - U Got The Rhythm  3:59 
-04. Indiansphere - Spirit Of The Hawk  3:07     Читать дальше...    Жанр: Eurodance, Euro-House, TechnopopПродолжительность: 02:24:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D190F8A2DFD3B475833C1BDDF0DBFB1214A09A7D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226065.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 033
-
-VA - Russian Mix Italo Disco  2011  Limited Edition, Mixed, Reissue, 2013, SP Records [FLAC|Loss
-Pop (сборники)
-Disco, Italo-Disco, Euro-Disco, Hi-NRG  Lossless 
-
-###  Подробнее
-
-01. Marc Fruttero - Disco Silvia  Extended Version   06:16 
-02. Riccardo Campa - Another Day  Vocal Version   07:16 
-03. Roby Claudia - I Love You  But Do You Love Me?   08:11 
-04. George Aaron - Heaven  L-Ectro Vox Mix   05:36     Читать дальше...    Жанр: Italo-Disco, Synth-pop, Hi-NRGПродолжительность: 01:12:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F4888D37979BA0C16A7655887F30CCC300B753CC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226033.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 225 925
-
-Лолита - Раневская  2018  [MP3|320 Kbps] <Pop>
-Pop (сборники)
-Отечественная поп-музыка (Lossless)
-
-###  Подробнее
-
-1. На Титанике
-2. Ты моё море
-3. Раневская
-4. Правде в глаза    Читать дальше...    Жанр: PopПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:294A499B91749A495BE0E23C54815E0A81A5A30D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225925.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 225 778
-
-VA - Ultimate 90s Playlist  2018  5CD [MP3|320 Kbps] <Pop, Rock, Dance>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-01. Ultra Nate - Free
-02. Moloko - Sing It Back
-03. Ace Of Base - All That She Wants
-04. Suzanne Vega feat. DNA - Tom s Diner  DNA mix     Читать дальше...    Жанр: Pop, Rock, DanceПродолжительность: 06:25:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CCEBDA49AC808D55617FA362F348E6A0DD4387AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225778.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 225 688
-
-VA - Top Of The Pops  1975  2018  3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
-Pop (сборники)
-Зарубежная поп-музыка (Lossless)
-
-###  Подробнее
-
-Сегодняшним релизом начинаю небольшую  пока  серию путешествий по победителям топов прошлого века.
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского сингла.
-Эти программы     Читать дальше...    CD1:
-01. ABBA - S.O.S.   3:21 
-02. David Essex - Hold Me Close   3:53 
-03. Bay City Rollers - Bye Bye Baby   2:52     Читать дальше...    Жанр: 1970s, pop, rockПродолжительность: 02:51:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:155AC6B9DB9EF05DCF36D79DBF5704290C62B946
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225688.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
