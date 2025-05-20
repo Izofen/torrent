@@ -1,4 +1,276 @@
 ﻿
+###  Публикация: 1 185 440
+
+Rockets -Pi 3,14  1981  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Electro, Synth-pop, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Radiate 4:44
+02. Imagine E.S.P. 5:04
+03. Ziga Ziga 999 4:04
+04. Hypnotic Reality 3:54    Читать дальше...    Жанр: Electro, Synth-pop, DiscoПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:72FA5930D05C0F7141A0157059789542E01A67DD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185440.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 185 421
+
+Gazebo - Telephone Mama  1984  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-po
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+
+A1 Telephone Mama
+ A2 First!    Читать дальше...    Жанр: Italo-Disco, Synth-popПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69DB1CC47D89527F6FC9E55DA8369313AB908B6D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185421.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 185 401
+
+Den Harrow - Overpower  1985  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Italo-Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+
+1. Bad Boy 4:18
+ 2. Overpower 4:18    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E0F8F90DECF1492457B62EC2EE220B38D3593419
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185401.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 185 385
+
+Marina & the Diamonds - The Family Jewels  2010  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Are You Satisfied? 3:21
+A2 Shampain 3:12
+A3 I Am Not A Robot 3:35
+A4 Girls 3:29    Читать дальше...    Жанр: Pop Rock, Indie RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:16CE4C77D2E1CB5B3211C8D91D85230E892E4C8F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185385.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 184 950
+
+Russ Ballard - Russ Ballard  1984   [DSD 2.0|2822,4 1|image|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+SACD-R
+
+###  Подробнее
+
+01. I Can t Hear You No More  5:48 
+02. In The Night  4:09 
+03. Two Silhouettes  4:17 
+04. Voices  5:30     Читать дальше...    Жанр: RockПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1C0982AABB50050F3DD8F42D5F65D4800DA33CDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184950.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 184 866
+
+Marina & the Diamonds - Electra Heart  2012  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop Roc
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Bubblegum Bitch 2:33
+A2 Primadonna 3:41
+A3 Lies 3:46
+A4 Homewrecker 3:23    Читать дальше...    Жанр: Pop Rock, Indie RockПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:163EB7CCF6EE7D9C18E84CAC369FAE782C910245
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184866.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 184 731
+
+Daturana - Mindfly  2016  Limited Edition, 2017, Nasoni Records [FLAC 2.0|192 24|image + .cue|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. House Of Dreams  5:09 
+A2. Jefferson  5:01 
+A3. Drunken Girl  3:38 
+A4. Abyss  4:12     Читать дальше...    Производство: Nasoni Records - nasoni184Жанр: Psychedelic RockПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9903D45A5208E33F5B8C22305E89BC991DAC716F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184731.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 184 553
+
+Billy Idol - Billy Idol  1982  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Pop RockПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2373B79495A8DFDB0787C1B738E0AAE38721545B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184553.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 184 337
+
+Level 42 - Level 42  1981  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] < Jazz-Funk>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Turn It On
+A2  43 
+A3 Why Are You Leaving
+A4 Almost There    Читать дальше...    Жанр: Funk, SoulПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:31930C52B670D035485413F20D66E48D894AEDA4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184337.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 184 149
+
+Pet Shop Boys - Super  2016  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Electronic, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Happiness  4:05 
+02. The Pop Kids  3:56 
+03. Twenty-something  4:23 
+04. Groovy  3:30     Читать дальше...    Жанр: Synth-pop, BalladПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:86194D95EB0462787CFD9987A8CBF0DD61A46D98
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184149.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 184 079
+
+Radiorama - Four Years After  1989  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Electronic, Ital
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Daddy Daddy 3:15
+A2 Bad Boy You 4:06
+A3 Baciami  Kiss Me  4:14
+A4 Flight Of Fantasy  Remix  89  5:15    Читать дальше...    Жанр: Italo-Disco, Eurobeat, Hi NRGПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7CCBF0B60EE38D1729C38ED26BDB004BA0CCC081
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184079.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 183 813
 
 Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
@@ -1710,281 +1982,6 @@ A4 Long And Lonesome Road    Читать дальше...    Жанр: Pop Rock,
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1152990.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 152 888
-
-Huron - Inside Information  2017  [FLAC 2.0|44.1 24|tracks|WEB-DL] <IDM, Experimental, Glitch,
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. HumanTZ05550X  01:52 
-02. Time To Wait  05:42 
-03. Waterside  01:48 
-04. Forest Lover  07:07     Читать дальше...    Жанр: IDM, Experimental, Glitch, Abstract, AmbientПродолжительность: 01:01:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E50C8E99AA1194D40291915F2094D1AF7FC5E818
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1152888.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 152 547
-
-VA - Марк Минков - Парад Планет  1983  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop Rock, Classi
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-А1 Алла Пугачева - Если звёзды молчат
-А2 Алла Пугачева - На дороге ожидания
-А3 Яак Йоала - Из памяти уходят имена
-А4 Алла Пугачева - Не отрекаются любя    Читать дальше...    Жанр: Pop Rock, Classic RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AEF68BEEF591E17BF984C46C9DC63AE19769CAB5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1152547.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 152 515
-
-Karat - Schwanenkönig  Schwanenkonig   1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop Ro
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Tanz Mit Der Sphinx
-A2 Mitternacht-Blues
-A3 Magisches Licht
-A4 Der Boxer    Читать дальше...    Жанр: Pop RockПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6C498842D7398C7EAA03C7A1CCE58F37006DACF8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1152515.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 152 314
-
-Ricchi E Poveri - Богатые и Бедные  1985  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Мама Мария · Mamma Maria
-A2 Бедные · Poveri
-A3 Чудесный Вечер · Magnifica Serata
-A4 Недоразумение · Malinteso    Читать дальше...    Жанр: PopПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75CB0D755309422EF95806E839EEE2273AAECDB7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1152314.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 152 267
-
-P.R. Computer - P.R. Computer  1983  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Electronic, Synth-
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Jól Hangolt Computer  Well Tempered Computer 
-A2 Északi Fény  Arctic Light 
-A3 Az Inga  The Pendulum 
-A4 Hajtóvadászat  Chase     Читать дальше...    Жанр: Electronic, Synth-pop, Modern ClassicalПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80BC4B0B34970F0A4D3008032A6FE1F4BCA0A196
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1152267.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 151 830
-
-Shy - Excess All Areas  1987  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Hard Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Emergency
-A2 Can t Fight The Nights
-A3 Young Heart
-A4 Just Love Me    Читать дальше...    Жанр: Hard RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1151830.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 151 821
-
-Ronnie Montrose - Territory  1986  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Jazz-Rock, Ambient,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Catscan
-A2 I m Gonna Be Strong
-A3 Love You To
-A4 Odd Man Out    Читать дальше...    Жанр: Jazz-Rock, Ambient, ExperimentalПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C2ECB1A4E68A9AA920216258EDA61DFC5983EBF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1151821.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 151 816
-
-Axe - Offering  1982  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Hard Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Rock  N  Roll Party In The Streets
-A2 Video Inspiration
-A3 Steal Another Fantasy
-A4 Jennifer    Читать дальше...    Жанр: Hard RockПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1151816.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 150 975
-
-George Harrison - Somewhere In England  1981  [FLAC 2.0|192 24|image+.cue|Vinyl-Ri] <Pop Rock,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Blood From A Clone
-A2 Unconsciousness Rules
-A3 Life Itself
-A4 All Those Years Ago    Читать дальше...    Жанр: Pop Rock, Classic RockПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1150975.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 150 965
-
-The Beatles - The Beatles Hits  1991  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Beat, Rock & Roll
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Michelle
-A2 In My Life
-A3 What Goes On
-A4 Run For Your Life    Читать дальше...    Жанр: Beat, Rock & RollПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:60F7117FBF0628A8A67A947F0FB16B1DE452A755
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1150965.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 150 936
-
-Ольга Пирагс - Спасибо, Музыка, Тебе  1984  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Jazz, Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Два Стрижа
-02. По Коням
-03. Дождевые Кольца
-04. Не Забыть Нам    Читать дальше...    Жанр: Jazz, PopПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6C72EBB761AEF6F73201CE9988F99C5CCB97E8FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1150936.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

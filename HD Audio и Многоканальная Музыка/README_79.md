@@ -1,4 +1,276 @@
 ﻿
+###  Публикация: 1 021 076
+
+Bobbysocks   Боббисокс  1986  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop Rock, Synth-pop, Sc
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1	Свинг • Let It Swing
+A2	Рок-Н-Ролл • Midnight Rocks
+A3	Радио • Radio
+A4	Хочу Танцевать С Тобой • Don t Bring Lulu    Читать дальше...    Жанр: Pop Rock, Synth-pop, SchlagerПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:173C2045E881510204BD5DC50DB237D0C76BB8B5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1021076.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 018 245
+
+Mando Diao - Aelita  2014  [LPCM 2.0 96 24|DTS 5.1 96 24|Audio-DVD5|BD-Audio] <Electronic, R
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Black Saturday 03:22
+02. Rooftop 04:57
+03. Money Doesn t Make You A Man 05:06
+04. Sweet Wet Dreams 04:41    Читать дальше...    Жанр: Electronic, Rock, PopПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AE1C38E4E59F242F14A156FC0D194763CD734471
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1018245.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 017 177
+
+Раймондс Паулс - Мой Путь  1980  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Instrumental, Ragtime,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1	Увеселитель · The Entertainer
+A2	Как Велика Твоя Любовь · How Deep Is Your Love
+A3	Здравствуй! · Salut!
+A4	Мой Путь · My Way    Читать дальше...    Жанр: Instrumental, Ragtime, Disco, Easy ListeningПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:283E20E2AD4C0C598BE7D96DAC5AF35F018B2241
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1017177.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 017 131
+
+Herrey s  Херриз  - Diggi Loo, Diggi Ley  Дигги Лу, Дигги Лей   1985  [FLAC 2.0|96 2
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1	Дигги Лу, Дигги Лей • Diggi Loo, Diggi Ley
+A2	Освободись • Kom Loss
+A3	Мне Ничто Не Помешает • Ingenting Som Hindrar Mej
+A4	Если Это Любовь • If It s Love    Читать дальше...    Жанр: EuropopПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1017131.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 016 861
+
+Deodato  Деодато  - Best Of Deodato  Лучшие произведения Деодато   1985  [FLAC 2.0|96 
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Так Говорил Заратустра  Also Sprach Zarathustra 
+A2 Прелюдия к Послеполуденному Отдыху Фавна  Prelude To Afternoon Of A Faun 
+A3 Ночи в Белом Атласе  Nights In White Satin 
+B1 Голубая Распсодия  Rhapsody In Blue     Читать дальше...    Жанр: Jazz, FusionПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1016861.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 015 595
+
+Мирей Матье  Mireille Mathieu  – Французская коллекция  1986  [FLAC 2.0|192 24|tracks|Viny
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона 1
+1. Браво, ты выиграл  Bravo Tu As Gagne   4:40
+2. Влюбленная женщина  Une Femme Amoureuse - Woman In Love   4:10
+3. У голубой реки  A Blue Bayou   3:58    Читать дальше...    Жанр: PopПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4B170818E4BB94D80B712BDFC4BE6C5DB9DDD178
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1015595.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 015 340
+
+Imagination - Imagination  1985  [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Synth-Pop, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1	Shoo Be Da Dabba Doobee
+A2	Wrong In Love
+A3	Looking At Midnight
+A4	The Need To Be Free    Читать дальше...    Жанр: Synth-Pop, DiscoПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E5FC48365F8397BBF2513419B15EC380E6218D5D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1015340.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 014 869
+
+Bring Me The Horizon - Sempiternal  2013  Deluxe Edition [FLAC|Lossless|WEB-DL|tracks|24 44.1]
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Can You Feel My Heart
+02. The House of Wolves
+03. Empire  Let Them Sing 
+04. Sleepwalking    Читать дальше...    Жанр: Metalcore   Post-HardcoreПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:361F2250A7EB1A284B74CF38D0FB41DC8740EB1F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1014869.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 012 561
+
+ROBORG - Discography 6 Releases  2016-2019  [FLAC 2.0|44.1 24|tracks|WEB-DL] <Darkwave, Indust
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Hated  06:03 Тип издания: WEBЖанр: Synthwave Electro DarkwaveПродолжительность: 00:06:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:60918F1FAA086C80E4474BDCBB2109C2060419FF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012561.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 012 354
+
+Peter Lipa - Moanin   1984  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Jazz>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Here Comes The Nights
+02. Got To Get You Into My Life
+03. Rain
+04. Tell All The World About You    Читать дальше...    Жанр: JazzПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1012354.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 011 018
+
+Inside The Music: Classic Rock  2001  [DTS 5.1 CD-DA|44.1 16|image+cue|DVD-Audio] <rock>
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+1. Bad To The Bone - George Thorogood & The Destroyers
+2. Rebel Yell - Billy Idol
+3. Green Eyed Lady - Sugarloaf
+4. When The Night Comes - Joe Cocker    Читать дальше...    Жанр: new waveПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8FEF7D230B8CAD933A76473113D32317132CB7FF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1011018.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 010 747
 
 Inside The Music: New Wave  2001  [DTS 5.1 CD-DA|44.1 16|image+cue|DVD-Audio] <new wave>
@@ -1713,277 +1985,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_973683.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 973 432
-
-Наутилус Помпилиус - 3 альбома  1988-1991  [FLAC 2.0 24 192] image + .cue  Vinyl-Rip  <Roc
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:55:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DC60A5BA2BB088F7C4F3A85FAD05C0E0ADF6D6F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_973432.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 973 397
-
-Dana International - The Album  1998  [FLAC 2.0|16 44,1 |image+.cue  Vinyl-Rip ] <Euro Hou
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Diva
-02. Cinque Milla  Remix 
-03. Maganuna  Remix 
-04. Qu est Que C est?  Remix     Читать дальше...    Жанр: Euro HouseПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EF85AAC73B9E8EDFB901EAB0191411010D3F11DE
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_973397.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 972 986
-
-Ансамбль  Вокальный квартет  Аккорд  1964  [FLAC 2.0 24 96|tracks  Vinyl-Rip ] <Pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. В дороге
-02. МустафаЖанр: PopПродолжительность: 00:04:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CB6D34B1A3435F6784CDD64BB3529566B1AE85D3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_972986.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 972 928
-
-Сказки народов мира. Французская сказка - Храбрый заяц  1979  [FLAC 2.0|24 96|tracks  Vinyl-
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Действующие лица и исполнители:
-Сказочник, Волк - С. Михайловский
-Лиса - Н. Селиверстова
-Обезьяна - Г. Распутина    Читать дальше...    Храбрый заяц  Французская сказка Жанр: СказкаПродолжительность: 00:14:30
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C69526CAE3F636EC37140C4026FD5D8B1EBDA7D7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_972928.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 972 583
-
-Yovanna Иованна - 3xEP: Песни Д. Плессаса и К. Капнисиса  1962, 1964  [FLAC 2.0 24 96|tracks
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Песни К. Капнисиса
-01. Говорят, Говорят
-02. Капитан Фафальос
-03. Дождь    Читать дальше...    Жанр: Jazz, PopПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E4AC16232D0088A43E407C9B5CFDF33F03C30B62
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_972583.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 972 443
-
-VA - Место встречи - Выпуск 4  1988  [FLAC 2.0 24 192] image+.cue  Vinyl-Rip  <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01 - Заставка -Место встречи-
-02 - Для тех, кто любит рок - AC DC
-03 - Меня не провести - Status Quo
-04 - Удовлетворение - Rolling Stones    Читать дальше...    Жанр: RockПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:455619579D282BF72742EB0247C87405ACDD2B3A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_972443.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 972 345
-
-Мумий Тролль - Икра  1997 2012  [FLAC 2.0 24 96] image + .cue  Vinyl-Rip  <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01 - Доля риска
-02 - Шамаманы
-03 - Сиамские сердца
-04 - Не звезда    Читать дальше...    Жанр: RockПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F0CC07C4374A94223E87EBE50F15DBE08B142442
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_972345.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 972 228
-
-Amadeus Veberzinke Амадеус Веберзинке - J. S. Bach И. С. Бах: Mass For Organ Органная месса <5
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Органная Месса  Фрагменты 
-А1	Praeludium, B. 552
-А2	Kyrie   Kyrie, Gott Vater In Ewigkeit , B. 669,  Christe, Aller Welt Trost , B. 670,  Kyrie, Gott Heilige Geist , B. 671 
-В1	Gloria   Allein Gott In Der Höh  Sei Ehr   , B. 676     Читать дальше...    Жанр: Classical, OrganПродолжительность: 01: 23:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E524E0F0CA3702DC2C129FFD097E0E153AC9E7A5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_972228.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 970 826
-
-VA - Кубинская эстрадная оркестровая музыка 60-х годов  1961  [FLAC 2.0 24 96|tracks  Vinyl-
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Маленький ансамбль - Оркестр Э. Лекуона
-02. Мама Инес - Оркестр Э. ГренетаЖанр: Pop, RetroПродолжительность: 00:04:41
-
-Страна-производитель: USSR
-Издатель  лейбл : Пластмасс    Читать дальше...    
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970826.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 970 125
-
-Диалог - Диалог 3  1988  [FLAC 2.0 24 96|image+.cue  Vinyl-Rip ] <Indie Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Красный Рок
-02. Дворец Заката
-03. Не Уходи, Мой Ангел
-04. Давай, Давай    Читать дальше...    Жанр: Indie RockПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:143EF6DFD0650D7F44AFEB1A9AC3C699EB288C33
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_970125.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 969 121
-
-Группа Диалог - Просто  1985  [FLAC 2.0 24 96|image+.cue  Vinyl-Rip ] <Indie Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Поймем Потом • We ll Understand One Day	3:35
-02. Свет в Окне • Light In The Window	3:20
-03. Маргарита • Margarita	1:40
-04. Любил Тебя • I Loved You	3:05    Читать дальше...    Жанр: Indie RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9D6E780DD19E0C0090CA31C0C0B25A0E4F67B65A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_969121.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

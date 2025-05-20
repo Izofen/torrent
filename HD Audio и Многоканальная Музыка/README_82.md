@@ -1,4 +1,301 @@
 ﻿
+###  Публикация: 853 402
+
+VA - Антология советского киношлягера - Любимые песни из кинофильмов: Обыкновенное чудо и др.  199
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Песни и музыкальная тема из т ф  Двенадцать стульев 
+
+01. Белеет мой парус - Андрей Миронов
+02. Танго любви - Андрей Миронов    Читать дальше...    Жанр: SoundtrackПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FED43C6456353DABE26831DCE11BD04540C1EEB2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_853402.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 853 366
+
+VA - Антология киношлягера - Мюзиклы  1996  [FLAC 2.0  image+.cue |16 44,1  MC-Rip ]<S
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Первая сторона
+
+Стихи Ю. Ряшенцева
+ Аргонавты  муз. А. Басилая, исп. ВИА  Иверия 
+01. Арго  лейтмотив 
+02. Дуэт Язона и Медеи
+03. Ария Медеи
+04. Ария Аэта
+
+ Путешествие мсье Перришона  муз. Д. Тухманова    Читать дальше...    Жанр: SoundtrackПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:09A7D5F870969461174D0887F503BB9AC4CFBA6F
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_853366.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 852 939
+
+VA - Enfold 01  2014  Ultimae Records [FLAC 2.0|44.1 24|tracks|WEB-DL]<Psybient, Downtempo, Am
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Scann-Tec - Rewind  06:56 
+02. Fingers In The Noise - Sensitive Mind  06:38 
+03. I Awake - Winter Shell  05:31 
+04. Martin Nonstatic - Oak Branches  06:04     Читать дальше...    Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:487A13C6AA18BC99CE92550CD2A0C32359B684E7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_852939.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 852 481
+
+Billie Piper - Walk Of Life  2000  [FLAC 2.0|16 44,1  MC-Rip ]<Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01	Day & Night	3:15
+02	Something Deep Inside	3:21
+03	Walk Of Life	3:49
+04	Safe With Me	3:32    Читать дальше...    Жанр: PopПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:98F4979DD7AC0E8640EF81EFA2426AD453D6384E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_852481.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 851 976
+
+VA - Песни из кинофильма От заката до рассвета | From Dusk Till Dawn  1997  [FLAC 2.0|16 44,1
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. George Clooney — Everybody Be Cool
+02. The Blasters — Dark Night
+03. ZZ Top — Mexican Blackbird
+04. Jon Wayne — Texas Funeral
+05. The Mavericks — Foolish Heart
+06. Juliette Lewis & Quentin Tarantino — Would You Do Me A Favor?
+07. Jimmie Vaughan — Dengue Woman Blues
+08. The Leftovers — Torquay
+09. ZZ Top — She s Just Killing Me
+10. Cheech Marin — Chet s SpeechЖанр: SoundtrackПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C0CBE246A6CEA6813EE310B7525A7317CD521088
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_851976.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 851 285
+
+Dissolved - Temporal Breathing  2014  [FLAC|Lossless|WEB-DL|24 41.1]<IDM, Ambient, Experimenta
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Archispectral  5:36 
+02. Vast Wires  4:50 
+03. Seeing if you remember being  5:26 
+04. Autumn Cylinders  3:39 
+05. Alexandra Roivas  6:51 
+06. Pressing Dream Matters  2:58 
+07. A Dusk of Orpiment  4:06 
+08. Machrihanish Drift  6:25 
+09. Circumzenithal Hex  5:07 
+10. Silna and Melmkelp  3:13     Читать дальше...    Жанр: IDM, Ambient, Experimental, GlitchПродолжительность: 01:14:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C17713FAA7FA2714BBDDF73267E599F8C937DB10
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_851285.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 850 987
+
+VA - Metal Power vol.1  1997  [FLAC 2.0|16 44,1  MC-Rip ]<Hard Rock. Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Untitled - Paul Di Anno  ex-Iron Maiden 
+02. Let Him Rock - Dennis Stratton  ex-Saxon 
+03. Electric Eyes - Helloween
+04. Pictures Of Matchstick Man - Ozzy Osbourn    Читать дальше...    Жанр: Hard Rock. Heavy MetalПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7C6419F5230F205BFE0A396D997286710B97C074
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_850987.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 850 096
+
+Владимир Высоцкий - Лукоморья больше нет. Песни 1967 - 1968 годов  1995  [FLAC 2.0 16 44,1|ima
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Песня про правого инсайда
+02.   У нас вчера с позавчера...  
+03. Аисты
+04. Лукоморья больше нет    Читать дальше...    Жанр: ChansonПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:39C95834D4B1AFBFE0B9F2971CFA55BEAE8C506A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_850096.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 974
+
+VA - Легенды Музыки Кантри  2000  [FLAC 2.0|MC-Rip]<Rock, Folk, World, & Country>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Нечто особенное с Туманной Горы  Л. Флэтт и Э. Скраггс 
+02. Эй, Джо  К. Смит 
+03. Цветы на стене  Группа   Стеллер Бразерс   
+04. Блюз каменистой дороги  Б. Монро и группа   Блюграсс Бойз   
+05. Возьмите меня обратно в Тулсу  Б. Уиллс и группа   Тексас Плейбойз   
+06. Грязное Рио Гранде  Группа   Хиллбилли   
+07. Завсегдатай забегаловки  Дж. Хортон 
+08. Вещи, которые нужно помнить  В. Нельсон Жанр: Rock, Folk, World, & CountryПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DC93D2B2D5B31957BEF83DC222E7B3AD997754AA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 648
+
+The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing  1972  [FLAC 2.0
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Have Nagila
+02. Kalinka
+03. Wenn Ich Komm  Wooden Heart 
+04. Oh! Happy Day    Читать дальше...    Жанр: Jazz, Latin, Pop, ClassicalПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6CFB31D2F76A796152E51685451FA51826BA5BE2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_848648.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 848 422
+
+Rod Stewart - It Had To Be You...  2003  [DTS 5.1 44.1  16 | .wav+.cue  DVD-Audio ] <Pop<3
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+1. You Go To My Head 4:19
+2. They Can t Take That Away From Me 3:25
+3. The Way You Look Tonight 3:49
+4. It Had To Be You 3:24    Читать дальше...    Жанр: Pop Rock VocalПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65056777BD045FB60FE3FDCB1F55BA33F85DD0FA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_848422.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 847 481
 
 Майк - LV  1982    1991, Эрио  [FLAC 2.0 24 96|image  Vinyl-Rip ]<Rock>
@@ -1868,302 +2165,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_781909.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 778 284
-
-Varios - Колокольные звоны Псково-Печорского монастыря  1981  [[FLAC 2.0 24 96|traks Vinil-R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. Сторона 1  19:10
-2. Сторона 2  21:22Жанр: Church bells Russian FalcПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63222FEAC29B7C19564568D5B9A987D0FCB65856
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_778284.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 776 615
-
-Electric Light Orchestra - Discovery  1979   [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Progress
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Shine A Little Love  4:40 
-A2. Confusion  3:41 
-A3. Need Her Love  5:09 
-A4. The Diary Of Horace Wimp  4:22     Читать дальше...    Производство: Jet Records - FZ 35769Жанр: Progressive RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0409C9979B742FE6F320BD4223B7C9C18EDFAF7F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_776615.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 774 569
-
-[UP] ABBA - Greatest Hits and Story  Special Edition   2005  [DTS]
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-CD1:
-01. Waterloo [02:47]
-02. Ring Ring [03:05]
-03. Mamma Mia [03:30]
-04. SOS [03:19]
-05. Bang-a-Boomerang [03:03]
-06. I Do, I Do, I Do, I Do [03:16]
-07. Fernando [04:17]
-08. Dancing Queen [03:52]
-09. Money, Money, Money [03:08]    Читать дальше...    Жанр: POPПродолжительность: 02:15:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:77DED05FD352FD0321314C1DD660C1BADB3287ED
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 774 533
-
-Electric Light Orchestra - Eldorado  1974  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Progressive
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Eldorado Overture  2:12 
-A2. Can t Get It Out Of My Head  4:23 
-A3. Boy Blue  5:20 
-A4. Laredo Tornado  5:30     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0B52D0181E9C43236D1C00AFD00CD9B51AD090D5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_774533.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 773 795
-
-Electric Light Orchestra - On The Third Day  1973  [FLAC 2.0 24 192|image  Vinyl-Rip ]<Pro
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. Ocean Breakup   King of the Universe  4:06 
-A2. Bluebird Is Dead  4:43 
-A3. Oh No Not Susan  3:07 
-A4. New World Rising   Ocean Breakup  Reprise   4:04     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_773795.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 772 304
-
-Queen - News Of The World  1977  [FLAC 2.0 24 192|traks Vinil-Rip ]<Hard Rock, Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Сторона 1
-1. We Will Rock You  2:03
-2. We Are The Champions  3:00
-3. Sheer Heart Attack 3:27
-4. All Dead, All Dead  3:10
-5. Spread Your Wings  4:35
-6. Fight From The Inside  3:05
-Сторона 2
-1. Get Down, Make Love  3:53
-2. Sleeping On The Sidewalk  3:08    Читать дальше...    Жанр: Hard Rock, Pop RockПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_772304.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 771 711
-
-The Severely Departed - Two  2013  [FLAC|Lossless|WEB-DL]<Instrumental, Post-Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-1. Beneath the Years 08:24
-2. Moving On 06:27
-3. Into the Open 08:30
-4. A Parting Glance 06:04
-5. Relapse 09:10Жанр: Instrumental, Post-RockПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70759047E365F1534BCFA2A165E99D9759ABB86B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 769 937
-
-The Doors - The Complete Doors Studio Albums  1967-1972  2012 Hi-Res Box-Set  Elektra Records<
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-Albums:
-1967 - The Doors
-1967 - Strange Days
-1968 - Waiting for the Sun    Читать дальше...    Жанр: RockПродолжительность: 05:12:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0B13B820221C88870E9592950C62D0471E95E164
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_769937.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 767 988
-
-Various - Peter`s Pop-Show  1987  W.Germany 2xLP [FLAC 2.0 24 96|Image  Vinyl-Rip ]<Ital
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Для тех, кто смотрел это шоу во второй половине 80-х, представлять его не нужно. И так понятно, что с тех пор лучшего музыкального шоу не было, MTV отдыхает. Для тех, кто появился позже - на Peters Pop Show, тогда была единственная возможность увидеть и услышать то, что было актуальным в поп-музыке в Европе. Да что там, просто это было единственное окошко в мир современной поп-музыки, оно открывалось только раз в году, в Новогоднюю ночь. Организатор и ведущий шоу Петер Ильманн, все это происходило в Дюссельдорфе благодаря телеканалу ZDF.A1. WAX - Bridge To Your Heart :: 03:50
-A2. DEPECHE MODE - Never Let Me Down Again :: 04:19
-A3. DESIRELESS - Voyage Voyage :: 04:04
-A4. MANDY - Positive Reaction  Our Mandyҳ Mix  :: 03:26
-A5. DEN HARROW - Day By Day :: 03:36
-A6. BONFIRE - Sweet Obsession :: 03:02
-A7. PARRISH & TOPPANO - Closer And Closer  Remix  :: 03:26
-A8. THE OTHER ONES - Holiday :: 03:35Жанр: Italo-Disco, Synth-pop, Pop, RockФормат: Vinyl, 2xLP, CompilationПродолжительность: 01:55:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F5111138C2DCBC1AC70E10906FFDCD2E44F17F2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 767 616
-
-Stephanie - Live Your Life  1986  France [FLAC 2.0 24 192|Image  Vinyl-Rip ]<Italo-Disco,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Stephanie Marie Elisabeth Grimaldi  Стефани Мэри Элизабет Гримальди, она же просто Стефани , пожалуй самая известная в мире принцесса. Она пыталась заниматься разными  неподобающими принцессе  делами - работала на подиуме, снималась для эротических журналов, выступала на эстраде. В 1986 году Stephanie выпустила свой первый сингл “Irrisistible” который имел большой успех в Европе, особенно в Германии, Дании, Швейцарии. Во Франции сингл занимал первое место национального хит-парада в течении 10 недель. Вторым синглом был “Ouragan” прошедший по Европе с не меньшим успехом. “Irrisistible” получила свое второе рождение после выхода её кавер версии в исполнении Финской группы “All Stars” в 2000 году.A1. Live Your Life :: 04:30
-A2. I m Waiting For You :: 03:59
-A3. Dance With Me :: 04:25
-A4. Le Sega Mauricien :: 04:34
-B1. Young Ones Everywhere :: 04:02
-B2. One Love To Give :: 05:51
-B3. How Can It Be :: 05:11
-B4. Irrisistible :: 04:46
-B5. Besoin :: 02:44Жанр: Italo-Disco, Synth-popФормат: Vinyl, LP, AlbumПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:75FC5E768329302F3BE5D8A5B0419278E67B4F59
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 767 273
-
-Tangerine Dream - Tyger  1987  Canada [APE 2.0 24 192|Image  Vinyl-Rip ]<Electronic>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Tangerine Dream, немецкая электронная группа, образована в 1967 в Западном Берлине. Исходный состав: Эдгар Фрезе  Edgar Froese, род. 6 июня 1944, Тильзит   гитара , Волкер Хомбах  Volker Hombach , Курт Херкенберг  Kurt Herkenberg , Чарли Принс  Charlie Prince , Ланс Хапсхаш  Lanse Hapshash   ударные , которого позже сменил Свен-Эйк Йоханссон.
-Группа родилась как воплощение идей одного-единственного человека - Эдгара Фрезе, который был увлечен экспериментами со звуком при помощи только начинавших существовать электронных инструментов, в частности - клавишных.A1. Tyger :: 05:47
-A2. London :: 14:22
-B1. Alchemy Of The Heart :: 12:21
-B2. Smile :: 06:12Жанр: ElectronicФормат: Vinyl, LP, AlbumПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7A3F5DE6700B73EA8B4719F277F41431BCA8E78A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

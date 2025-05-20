@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 591 658
+
+Candlemass - Green Valley  Live in Lockdown, July 3rd 2020   2021   [FLAC 2.0|44 24|tracks
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Well of Souls  5:54 
+02. Dark Reflections  4:43 
+03. Mirror Mirror  5:22 
+04. Ancient Dreams  0:59     Читать дальше...    Жанр: Epic Doom MetalПродолжительность: 01:09:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:74B09318FC6A6F051E456CFD5FCF2526EC8E93B1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591658.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 591 175
+
+Rage Against The Machine - Studio Albums  4 releases   1992 - 2000  hand made [restored, dec
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Rage Against the Machine  RATM  — американская рок-группа из Лос-Анджелеса, штат Калифорния. Образованная в 1991 году, группа состоит из вокалиста Зака де ла Роча, басиста и бэк-вокалиста Тима Коммерфорда, гитариста Тома Морелло и барабанщика Брэда Уилка.1992 - Rage Against The Machine
+1996 - Evil Empire
+1999 - The Battle Of Los Angeles
+2000 - RenegadesЖанр: Alternative Rock, Funk MetalПродолжительность: 03:29:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591175.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 590 988
+
+Lamb of God  & Burn The Priest  - Studio Albums  10 releases   1999 - 2022  hand made [r
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Lamb of God — американская грув-метал-группа, образовавшаяся в 1994 году в Ричмонде, штат Вирджиния, изначально известная как Burn the Priest, но изменившая название после выпуска дебютного альбома в 1999 году. Коллектив считается лидером новой волны американского хэви-метала.1999 - Burn The Priest
+2000 - New American Gospel
+2003 - As The Palaces Burn
+2004 - Ashes of the WakeЖанр: Groove MetalПродолжительность: 09:38:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:31912B9FCB3A848EA89CD94E725513972FF96501
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590988.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 590 517
+
+Suzi Quatro - Uncovered  2022  [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Bad Moon Rising  2:19 
+ 02. Midnight Hour  2:26 
+ 03. I Feel The Earth Move  2:54 
+ 04. Walking The Dog  2:35     Читать дальше...    Жанр: Rock, BluesПродолжительность: 00:17:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590517.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 590 282
+
+Алексей Рыбников - «Юнона» И «Авось»  1982  [FLAC 2.0|192 24|side-tracks|Vinyl-Rip] <Opera, Ar
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Сторона 1 • «Юнона» И «Авось» • Опера
+02. Сторона 2 • «Юнона» И «Авось» • Опера  Продолжение 1 
+03. Сторона 3 • «Юнона» И «Авось» • Опера  Продолжение 2 
+04. Сторона 4 • «Юнона» И «Авось» • Опера  Окончание     Читать дальше...    Жанр: Opera, Art Rock, ExperimentalПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41E63F282DB24B5F59DB0ADDF88ADFCF16F8C0DB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590282.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 590 260
+
+Suzi Quatro - Suzi Quatro  1973  [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Rock & Roll>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. 48 Crash  3:57 
+ 02. Glycerine Queen  3:52 
+ 03. Shine My Machine  3:54 
+ 04. Official Suburbian Superman  3:10     Читать дальше...    Жанр: Glam, Hard Rock, Rock & RollПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7463B9EC8E8C6AC4915BB7AA46B8BE1E2BBCDE2B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590260.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 590 239
+
+Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Thunder — английская рок-группа из Лондона. Основана в 1989 году бывшими участниками Terraplane Дэнни Боузом (вокал), Люком Морли (гитара, бэк-вокал) и Гэри Джеймсом (ударные), а также вторым гитаристом и клавишником Беном Мэтьюзом и басистом Марком Лакхерстом.1990 - Laughing On Judgement Day
+1992 - Laughing On Judgement Day
+1994 - Behind Closed Doors
+1996 - The Thrill Of It All(   Читать дальше...   )Жанр: Hard RockПродолжительность: 19:09:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590239.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 589 868
+
+Bruce Springsteen - Only the Strong Survive  2022  [FLAC 2.0|24 96|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Only the Strong Survive  3:00 
+02. Soul Days  3:58 
+03. Nightshift  4:57 
+04. Do I Love You  Indeed I Do   2:27     Читать дальше...    Жанр: RockПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:87E06E8641E52E9CDF20E9BAE7CE5917392E13AB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589868.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 589 844
+
+Рыбников Алексей - Звезда и смерть Хоакина Мурьеты  1978  1981 [FLAC 2.0|192 24|side-tracks|Vi
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Сторона 1 4   • Звезда И Смерть Хоакина Мурьеты
+02. Сторона 2 4   • Звезда И Смерть Хоакина Мурьеты  Продолжение 
+03. Сторона 3 4   • Звезда И Смерть Хоакина Мурьеты  Продолжение 
+04. Сторона 4 4   • Звезда И Смерть Хоакина Мурьеты  Окончание     Читать дальше...    Жанр: Country Rock, Musical, Symphonic RockПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5CF14060D125CA94EFADCD263421BBBF3DCDFB9C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589844.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 589 674
+
+Epica - The Alchemy Project  2022  EP [FLAC 2.0|48 24|WEB-DL|tracks] <Symphonic Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. The Great Tribulation  feat. Fleshgod Apocalypse   5:04 
+02. Wake The World  feat. Phil Lanzon & Tommy Karevik   6:11 
+03. The Final Lullaby  feat. Shining   5:12 
+04. Sirens - Of Blood And Water  feat. Charlotte Wessels & Myrkur   4:17     Читать дальше...    Жанр: Symphonic MetalПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7B5472A8AFAF9840F2862F7134E8C275442CC993
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589674.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 589 387
+
+Andrea Bocelli - My Christmas  2022  Fireside Edition [FLAC|96 24|Lossless|WEB-DL|tracks] <Pop
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Silent Night  Fireside Version 
+02. White Christmas
+03. Angels We Have Heard On High
+04. Santa Claus Is Coming To Town    Читать дальше...    Жанр: Pop, Classical CrossoverПродолжительность: 01:39:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2EFEBCB504CDD78BBB26946712B41C5BC23B7932
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589387.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 589 371
 
 Donna Summer - Donna Summer  1982  40th Anniversary Edition 2022, Driven By The Music [FLAC 2.0|
@@ -1730,281 +2005,6 @@ The time for the SACD release all Pink Floyd fans have coveted — Animals in 5.
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1578638.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 578 636
-
-Three Days Grace - Studio Albums  7 releases   2003 - 2022  hand made [restored, declipped]
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Three Days Grace — канадская рок-группа, исполняющая альтернативный метал и постгранж. Была сформирована под названием Groundswell в Норвуде, Онтарио, Канада в 1992 году. В 1997 году коллектив в составе гитариста и вокалиста Адама Гонтье, барабанщика Нила Сандерсона и басиста Брэда Уолста сменил название на нынешнее.2003 - Three Days Grace
-2006 - One-X
-2009 - Life Starts Now
-2012 - Transit Of VenusЖанр: Post-grunge, Nu MetalПродолжительность: 05:38:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:826D0A8382781CBEEE9714083EEEADF9C4CA77C7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1578636.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 578 274
-
-Paradise Lost - Studio Albums  17 releases   1990-2023  hand made [restored, declipped] [FLA
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Paradise Lost  — метал-группа из Великобритании, основанная в 1988 году. Наряду с Anathema и My Dying Bride считаются основателями стиля дэт-дум и готик-метал. Paradise Lost также повлияли на музыкальное становление таких групп, как Katatonia, Anathema и The Gathering. В 2014 году фронтмен коллектива Ник Холмс стал вокалистом шведской дэт-метал супергруппы Bloodbath.1990 - Lost Paradise
-1991 - Gothic
-1993 - Icon
-1993 - Shades Of God    Читать дальше...    Жанр: Doom Death Metal, Gothic MetalПродолжительность: 17:13:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9F3870C3E233FEAFCA4734FB88D5DDF7AFAB0FC1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1578274.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 577 444
-
-Emigrate  Rammstein, Richard Kruspe  - Studio Albums  4 releases   2007 - 2021  hand mad
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Emigrate — сайд-проект, основанный Рихардом Круспе, сооснователем группы Rammstein и её гитаристом. Проект появился в 2005 году во время творческого перерыва Rammstein после выпуска пятого альбома Rosenrot.2007 - Emigrate
-2014 - Silent So Long
-2018 - Million Degrees
-2021 - The Persistence Of MemoryЖанр: Industrial MetalПродолжительность: 02:55:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7D8805CFB71D7A56BF46607287FCFBCAE293341
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1577444.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 577 393
-
-Trivium  & Ibaraki  - Studio Albums  12 releases   2003 - 2022  hand made [restored, dec
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Trivium — американская метал-группа из Орландо, Флорида, образованная в 1999 году.2003 - Ember To Inferno
-2006 - Ascendancy
-2006 - The Crusade
-2008 - ShogunЖанр: Metalcore, Thrash Heavy MetalПродолжительность: 13:56:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:45BA9BE9569503CF2C80C59485F8D686AA073BF0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1577393.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 577 374
-
-Lacrimosa - Studio Albums  10 releases   1997 - 2021  hand made [restored, declipped] [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Lacrimosa — группа из Швейцарии, лидеры которой — основатель, композитор и вокалист Тило Вольфф и клавишница и вокалистка Анне Нурми. Музыка Lacrimosa довольно разнообразна и выходит за рамки одного жанра, группа работала в разных стилях, но чаще всего в жанре готик-метал.1997 - Stille
-1999 - Elodia
-2001 - Fassade
-2003 - EchosЖанр: Gothic Symphonic MetalПродолжительность: 10:36:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:66F8DF0D3D53CE72269879416C1A7A2360416B26
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1577374.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 576 907
-
-Аквариум - Дом Всех Святых  2022  [FLAC|48 24|Lossless|tracks] <Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-1. портал  вход 
-2. Ворожба
-3. Вино Из Песка
-4. Не Выходи За Дверь    Читать дальше...    Жанр: RockПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0E76818CDCFA5B3723B71F3A82E8BA1CEF54BC66
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576907.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 576 822
-
-Creedence Clearwater Revival - At The Royal Albert Hall  2022  At The Royal Albert Hall, London,
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Born On The Bayou  At The Royal Albert Hall   London, UK   April 14, 1970   05:12 
-02. Green River  At The Royal Albert Hall   London, UK   April 14, 1970   02:57 
-03. Tombstone Shadow  At The Royal Albert Hall   London, UK   April 14, 1970   03:38 
-04. Travelin  Band  At The Royal Albert Hall   London, UK   April 14, 1970   02:10     Читать дальше...    Жанр: Southern Rock, Classic RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5592D59798542D8488C7BC5E2053D76CC2388690
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576822.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 576 728
-
-Old Man s Bones - Firebird  2022  [FLAC 2.0|44 24|tracks|WEB-DL] <Rock, Blues>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Firebird  06:09 
-02. Call The Doctor  03:27 
-03. Man In The Crowd  04:40 
-04. Bad Dog  03:46     Читать дальше...    Жанр: Rock, BluesПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C9CBD718F5F5882287DFA4F79F993DD5B2E7334A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576728.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 576 418
-
-Joe Hunter Джо Хантер - Поет Джо Хантер  1974  [FLAC 1.0|96 24|tracks|Vinyl-Rip] <Blues, Rhy
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Мы Все Любим Музыку
-02. Разбитое Сердце
-03. Старая Река
-04. С Тех Пор, Как Встретил Тебя    Читать дальше...    Жанр: Blues, Rhythm & BluesПродолжительность: 00:09:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C4CC52CC861C73F32509F20ABB73900DBBBF8C18
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576418.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 576 373
-
-In This Moment - Studio Albums  8 Releases   2007-2023  hand made [restored, declipped] [FLA
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-In This Moment — американская группа, образованная в Лос-Анджелесе вокалисткой Марией Бринк и гитаристом Крисом Хоувортом в 2005 году. Также к группе присоединился барабанщик Джефф Фабб. В начале творческого пути трио выступало под именем Dying Star. Недовольная своим музыкальным стилем, группа полностью изменила звучание, и сменила название на In This Moment и также     Читать дальше...    2007 - Beautiful Tragedy
-2008 - The Dream
-2010 - A Star-Crossed Wasteland
-2012 - BloodЖанр: Gothic Industrial Metal, MetalcoreПродолжительность: 07:53:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:70E9C98D858F5000466361A1FFC82009093AEC33
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1576373.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 575 781
-
-Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, declipped] [FLAC|16/44.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-О́ззи О́сборн (англ. Ozzy Osbourne; настоящее имя — Джон Майкл О́сборн, англ. John Michael Osbourne; род. 3 декабря 1948, Марстон Грин, Бирмингем) — британский рок-певец, музыкант, один из основателей и участник группы Black Sabbath, оказавшей значительное влияние на появление таких музыкальных стилей, как хард-рок и хеви-метал. Успешность его карьеры (   Читать дальше...   )1980 - Blizzard Of Ozz
-1981 - Diary Of A Madman
-1983 - Bark At The Moon
-1986 - The Ultimate Sin(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 12:53:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:986A0195BCF1A80EB3DD6DB9A62EE29C578A912C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1575781.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

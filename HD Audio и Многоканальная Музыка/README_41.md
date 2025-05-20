@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 680 819
+
+Them - Studio Albums  4 releases   2016-2022  hand made [restored, declipped] [FLAC |16 44
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Them - немецко-американская хэви-метал группа, образованная в 2008 году.2016 - Sweet Hollow
+2018 - Manor Of The Se7en Gables
+2020 - Return to Hemmersmoor
+2022 - Fear CityЖанр: Heavy Power MetalПродолжительность: 03:38:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89698A042F4627CECBFA421347999C50733FF300
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680819.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 680 812
+
+Cobra Spell - 666  2023  [FLAC 24 48|Lossless|WEB-DL|tracks] <Heavy Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. 666  1:07 
+02. S.E.X.  4:38 
+03. Satan is a Woman  5:20 
+04. Hotline 666  0:45     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE5B1CCC413837F7A339C317726299E26AC8D615
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680812.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 680 800
+
+Fate - V  2006  Remastered, 2023, Frontiers Records [FLAC 24 44.1|Lossless|WEB-DL|tracks] <Mel
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Butterfly  5:04 
+02. Heaven s Crying Too  5:02 
+03. Everything About You  4:44 
+04. Ecstasy  4:19     Читать дальше...    Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C55F8909D602596C788773A451FE34D2E195491
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680800.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 680 787
+
+Paradise Lost - Icon 30  2023  [FLAC 24 96|Lossless|WEB-DL|tracks] <Gothic metal, Doom metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Embers Fire  4:51 
+02. Remembrance  3:28 
+03. Forging Sympathy  4:41 
+04. Joys of the Emptiness  3:29     Читать дальше...    Жанр: Gothic metal, Doom metalПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:24C9BCB372F9FAFCA12CE4B428A1AE0D7B88261B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680787.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 680 786
+
+Opeth - Deliverance & Damnation Remixed  2015  Compilation [FLAC|24 192|image + .cue|Vinyl-Rip
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Deliverance
+A. Wreath  11:13 
+B. Deliverance  13:39 
+C1. A Fair Judgement  10:23     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:45:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0FF47024966D3DD594781D5F0B0D3FB616721E37
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680786.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 680 714
+
+Dr. John - In The Right Place  1973  [FLAC 24 192|Lossless|WEB-DL|tracks] <New Orleans Blues,
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Right Place Wrong Time [00:02:54]
+02. Same Old Same Old [00:02:43]
+03. Just the Same [00:02:53]
+04. Qualified [00:04:51]    Читать дальше...    Жанр: New Orleans Blues, Bayou Funk, Soul, FunkПродолжительность: 00:33:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:273AF63CBE0B01AAC5D492CB050903767CB4D158
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680714.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 680 643
+
+Lucia Altieri - Lucia Altieri  1974  [FLAC 2.0|24 192|image + .cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Ra-Ta-Ta
+A2 Suona Orchestra  Cinta Orchestra 
+A3 Lui E Cosi  Asa E El 
+A4 Con Amore  Cu Dragoste     Читать дальше...    Жанр: PopПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:65CB716CFC68BD32768AF0093627BBDF48143897
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680643.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 680 509
+
+Poison Dollys - Invasion  1985  [FLAC|24 192|image + .cue|Vinyl-Rip] <Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Love Is For Suckers
+A2 On My Way
+A3 Only You
+A4 Where You Are    Читать дальше...    Жанр: Hard RockПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D21262AB5F1F6425EE985BA8DEFF9D540381C3BC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680509.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 680 475
+
+Квант ∞ - Зов долга  2023  [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Modern Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Волчий Мир
+02. Орда
+03. Быть Воином - Жить Вечно
+04. Медаль За Отвагу    Читать дальше...    Жанр: Heavy-Metal, Modern-MetalПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:88F4B28AB2D669518FB859BE6F58D69BE535ED95
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680475.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 680 302
+
+Sorcerer - Studio Albums  5 releases   1995-2023  hand made [restored, declipped] [FLAC |16<
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Sorcerer — шведская эпическая дум-группа из Стокгольма, основанная в 1988 году, распавшаяся в 1992 году и реформированная в 2010 году.1995  2015  - Sorcerer
+2015 - In the Shadow of the Inverted Cross
+2017 - The Crowning of the Fire King
+2020 - Lamenting of the InnocentЖанр: Epic Doom MetalПродолжительность: 05:19:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BDC3ED87E069E8D7549EFC266D31E2662FEEC012
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680302.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 680 220
+
+Widespread Panic - Boone 1999  2023  [FLAC 24 48|Lossless|WEB-DL|tracks] <Southern Rock, Blues
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01 - Disco [00:04:58]
+02 - Red Hot Mama [00:05:11]
+03 - Rock [00:04:17]
+04 - Impossible _ Rock [00:08:22]    Читать дальше...    Жанр: Southern Rock, Blues-rock, Progressive-RockПродолжительность: 02:23:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63567D4FE2ECCCBB9BB35EC23026B458DF424979
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1680220.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 680 192
 
 White Heat UK - White Heat Perfect Storm  2023  [FLAC 24 48|Lossless|WEB-DL|tracks] <Power Met
@@ -1712,281 +1987,6 @@ WEB-DL-Audio
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677687.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 673
-
-Frank Zappa - Over-Nite Sensation  1973  50th Anniversary, 2023 [FLAC 24 96|Lossless|WEB-DL|tr
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Over-Nite Sensation
-Disc 2: Bonus Session Masters   Bonus Vault Sensations
-Disc 3: Live In Hollywood, California, Hollywood Palladium – March 23, 1973    Читать дальше...    Жанр: Jazz-Rock, Prog-RockПродолжительность: 4CD: 04:52:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:37DA0362A3B5681C83FAD4A3F3D36987086EC3AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677673.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 649
-
-Sean Shibe - Profesión  2023  [FLAC 24 192|Lossless|WEB-DL|tracks] <Classical>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01 - La catedral: I. Preludio  Saudade  [2:00]
-02 - La catedral: II. Andante religioso [2:03]
-03 - La catedral: III. Allegro solemne [3:20]
-04 - Julia Florida [4:33]    Читать дальше...    Жанр: ClassicalПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:760A55226E3327F17C12A90ADB016A0E2639B710
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677649.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 570
-
-Giant Lungs - Giant Lungs  2023  [FLAC 24 88.2|Lossless|WEB-DL|tracks] <Stoner Rock, Desert Ro
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-1. Flying Lures  04:17 
-2. Girls with Fins  06:08 
-3. Aromatico  03:54 
-4. Shallow  05:32     Читать дальше...    Жанр: Stoner Rock, Desert RockПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D083E2BBEBB33D760B9888D4F7D05E60038B75AF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677570.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 542
-
-Muse - Absolution XX Anniversary  2003  Remaster, 2023, Warner Records [FLAC 24 44.1, 96|Lossl
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Intro  0:22 
-02. Apocalypse Please  4:12 
-03. Time is Running Out  3:57 
-04. Sing for Absolution  4:56     Читать дальше...    Жанр: Alternative rock, progressive rockПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C752E8BF354E556D5EE0D805D25E0412BB4A08D0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677542.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 427
-
-Hatchet - Studio Albums  4 releases   2008-2018  hand made [restored, declipped] [FLAC |16<3
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Hatchet - американская трэш-метал группа из Сан-Франциско, Калифорния. Образована в 2006 году.2008 - Awaiting Evil
-2013 - Dawn Of The End
-2015 - Fear Beyond Lunacy
-2018 - Dying to ExistЖанр: Thrash MetalПродолжительность: 02:56:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3B486D0FCB1744BAAFCFAED47A35099A51C746B2
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677427.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 381
-
-Daft Punk - Random Access Memories  2023  Drumless Edition [FLAC 24 88.2|Lossless|WEB-DL|track
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Give Life Back to Music  Drumless Edition  [4:35]
-02. The Game of Love  Drumless Edition  [5:23]
-03. Giorgio by Moroder  Drumless Edition  [9:06]
-04. Within  Drumless Edition  [3:49]    Читать дальше...    Жанр: Electronic, Synth-pop, FunkПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F32FCBD787DF9C4FF8E9791AE40D0B4A49984FD6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677381.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 324
-
-Vaya Con Dios - Shades of Joy  2023  [FLAC 24 48|Lossless|WEB-DL|tracks] <Pop-Jazz>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Kissing Slow
-02. Shades of Joy
-03. Leaving Home
-04. La Vie    Читать дальше...    Жанр: Pop-JazzПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:493C1FD545622B4DAE488D240D815E826BB450E8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677324.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 237
-
-Apocalyptica - Live In Helsinki St. John s Church  2023  [FLAC 24 48|Lossless|WEB-DL|tracks]
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Intro To The Mind  1:55 
-02. Deathzone  2:47 
-03. Sacra  3:44 
-04. Kaamos  4:20     Читать дальше...    Жанр: Symphonic Metal, Neoclassical MetalПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:96ADF0786A33D6E2D6FE3CD1351C368438587D9B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677237.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 184
-
-Ария - Студийные альбомы  10 релизов   1995-2020  hand made [restored, declipped] [FLAC |16<
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-«Ария» — советская и российская хеви-метал-группа. Одна из самых успешных российских рок-групп, при этом — это одна из немногих российских метал-групп, достигших серьёзного коммерческого и творческого успехов и популярности за пределами поклонников хэви-метала. Лауреат премии Fuzz 2007 года как лучшая live-группа. Её бывшими участниками были образованы многие другие     Читать дальше...    1995 - Ночь Короче Дня
-1998 - Генератор Зла
-2001 - Химера
-2003 - Крещение ОгнёмЖанр: Heavy MetalПродолжительность: 10:13:07
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A07BF373F8AA23730936920D702296EEAA7A4585
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677184.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 163
-
-DGM - Life  2023  [FLAC 24 44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Unravel The Sorrow  6:53 
-02. To The Core  5:56 
-03. The Calling  6:51 
-04. Second Chance  5:36     Читать дальше...    Жанр: Progressive MetalПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:562F19517C0415579EE462BFC053507DA4044E94
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677163.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 677 142
-
-Opeth - Orchid  1995  Reissue, 2016, Candlelight Records [FLAC|24 192|image + .cue|Vinyl-Rip]
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. In Mist She Was Standing  14:10 
-A2. Under the Weeping Moon  09:51 
-B1. Silhouette  03:10 
-B2. Forest of October  13:03     Читать дальше...    Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A45B9C244FF72A4FA6B123411546ABA46B313364
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1677142.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

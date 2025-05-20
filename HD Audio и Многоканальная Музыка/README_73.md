@@ -1,4 +1,276 @@
 ﻿
+###  Публикация: 1 229 700
+
+Isabelle Boulay - En verite  2017  [FLAC|Lossless|WEB-DL|tracks|24Bit] <French Pop, Chanson>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Mon amour  la supplique   3:25 
+ 02. Tout sera pardonne  2:38 
+ 03. Won t Catch Me Cryin   4:11 
+ 04. La route avec lui  4:08     Читать дальше...    Жанр: French Pop, ChansonПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DA1E944378924A4F72A6A0F27337749EB3D5739B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229700.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 229 482
+
+The Beatles Битлз - Российский Советский Лицензионный Винил {Мелодия AnTrop BRS}  1986-199
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Beat, Rock & Roll, Pop Rock, SoundtrackПродолжительность: 09:42:53
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BC7ED6C8ADC89311332E1B354BB15D915C533CF9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229482.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 228 941
+
+Marcus Miller - Laid Black  2018  [FLAC|24 48|Lossless|WEB-DL|tracks] <Jazz, Fusion>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Trip Trap
+02. Que Sera Sera
+03. 7-T s
+04. Sublimity  Bunny s Dream     Читать дальше...    Жанр: Jazz, FusionПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3B7EC206AE526CF76DDE7F75D47D78B7A1FDCF76
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1228941.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 228 835
+
+Henry Mancini - The Return of the Pink Panther & Symphonic Soul  2017  1975 [DTS 4.0 CD-Audio|44
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+The Return of the Pink Panther
+
+01. The Pink Panther Theme  Mancini  Soloist: Tony Coe  Tenor Sax     [0:03:06.06]
+02. The Greatest Gift  Mancini; David  Instrumental Version    [0:02:20.69]    Читать дальше...    Жанр: Easy ListeningПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E920CC869DD5F3028EDFA61E469B633DC14488B7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1228835.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 228 179
+
+Queen - A Kind Of Magic  1986  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. One Vision  5:11 
+02. A Kind Of Magic  4:24 
+03. One Year Of Love  4:29 
+04. Pain Is So Close To Pleasure  4:23     Читать дальше...    Производство: EMI Records - EU 3509Жанр: RockПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1228179.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 226 259
+
+Paul Mauriat - Holidays & Penelope  2017  1972-73 [DTS 4.0 CD-DA|44.1 16|image+.cue|SACD] <Eas
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+Penelope
+
+01. 	Penélope  L eternel Retour 
+02. 	Melancholy Man    Читать дальше...    Жанр: Easy ListeningПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DFE26EC7D392DF3DFF3831D917387D952402A09E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226259.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 225 511
+
+Skee Mask - Compro  2018  Ilian Tape [FLAC 2.0|48 24|tracks|WEB-DL] <Techno, Ambient, IDM, Bre
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Cerroverb  05:33 
+ 02. Session Add  06:20 
+ 03. Rev8617  03:44 
+ 04. 50 Euro To Break Boost  05:07     Читать дальше...    Жанр: Techno, Ambient, IDM, BreakbeatПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0FFB679D0A49492783E98E4E7D5DDA10DAB6A54D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225511.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 224 952
+
+The Alan Parsons Project - Eye In The Sky  35th Anniversary Boxset   2017  1982 [DTS 5.1 CD-
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+01. Sirius  01:57 
+02. Eye In The Sky  04:36 
+03. Children Of The Moon  04:51 
+04. Gemini  02:10     Читать дальше...    Жанр: art rock, pop rockПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:48D26191AA23BEC4292973404FFDD5E0DC8C7B7A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1224952.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 223 644
+
+Mike Oldfield - Five Miles Out  Deluxe Edition   2013  1982 [DTS 5.1 CD-DA|44.1 16|image+.
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+01. Taurus II - 24:43
+02. Family Man - 04:00
+03. Orabidoo - 10:48
+04. Mount Teidi - 04:06    Читать дальше...    Жанр: new age, pop rockПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:31C5FD40A718AC872978FCEC0BD72086D26CA529
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223644.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 222 789
+
+Владимир Высоцкий - VA №4  Сборник песен   1985  Мелодия [FLAC 2.0|96 24|image+.cue|Tape-R
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+СТОРОНА-1:
+[1:56] 01. Мне каждый вечер зажигают свечи...
+[3:09] 02. О нашей встрече, что там говорить...
+[2:01] 03. Перед выездом в загранку.. Инструктаж     Читать дальше...    Жанр: ChansonПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0C64BA2BB3405C3FD350CCD8902454093EBFB8A9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1222789.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 222 589
+
+Владимир Высоцкий - №4  сборник песен   1985  Мелодия [DSD2.0|5,64MHz 1bit|image+.cue|Tape
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+СТОРОНА-1:
+[1:56] 01. Владимир Высоцкий - Мне каждый вечер зажигают свечи...
+[3:09] 02. Владимир Высоцкий - О нашей встрече, что там говорить...
+[2:01] 03. Владимир Высоцкий - Перед выездом в загранку.. Инструктаж     Читать дальше...    Жанр: ChansonПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:25360C576CFB438B7EE1AA56F4BBD5C5FEC2F66C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1222589.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 222 203
 
 Prairie - After the Flash Flood  Bonus Track   2018  Denovali Records [FLAC|Lossless|WEB-24B
@@ -1716,278 +1988,6 @@ A4 Just Friends    Читать дальше...    Жанр: Rhythm & Blues, Sou
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185452.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 185 440
-
-Rockets -Pi 3,14  1981  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Electro, Synth-pop, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Radiate 4:44
-02. Imagine E.S.P. 5:04
-03. Ziga Ziga 999 4:04
-04. Hypnotic Reality 3:54    Читать дальше...    Жанр: Electro, Synth-pop, DiscoПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:72FA5930D05C0F7141A0157059789542E01A67DD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185440.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 185 421
-
-Gazebo - Telephone Mama  1984  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-po
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-
-A1 Telephone Mama
- A2 First!    Читать дальше...    Жанр: Italo-Disco, Synth-popПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:69DB1CC47D89527F6FC9E55DA8369313AB908B6D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185421.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 185 401
-
-Den Harrow - Overpower  1985  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Italo-Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-
-1. Bad Boy 4:18
- 2. Overpower 4:18    Читать дальше...    Жанр: Italo-DiscoПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E0F8F90DECF1492457B62EC2EE220B38D3593419
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185401.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 185 385
-
-Marina & the Diamonds - The Family Jewels  2010  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Are You Satisfied? 3:21
-A2 Shampain 3:12
-A3 I Am Not A Robot 3:35
-A4 Girls 3:29    Читать дальше...    Жанр: Pop Rock, Indie RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:16CE4C77D2E1CB5B3211C8D91D85230E892E4C8F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1185385.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 184 950
-
-Russ Ballard - Russ Ballard  1984   [DSD 2.0|2822,4 1|image|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-SACD-R
-
-###  Подробнее
-
-01. I Can t Hear You No More  5:48 
-02. In The Night  4:09 
-03. Two Silhouettes  4:17 
-04. Voices  5:30     Читать дальше...    Жанр: RockПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1C0982AABB50050F3DD8F42D5F65D4800DA33CDA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184950.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 184 866
-
-Marina & the Diamonds - Electra Heart  2012  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop Roc
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Bubblegum Bitch 2:33
-A2 Primadonna 3:41
-A3 Lies 3:46
-A4 Homewrecker 3:23    Читать дальше...    Жанр: Pop Rock, Indie RockПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:163EB7CCF6EE7D9C18E84CAC369FAE782C910245
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184866.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 184 731
-
-Daturana - Mindfly  2016  Limited Edition, 2017, Nasoni Records [FLAC 2.0|192 24|image + .cue|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1. House Of Dreams  5:09 
-A2. Jefferson  5:01 
-A3. Drunken Girl  3:38 
-A4. Abyss  4:12     Читать дальше...    Производство: Nasoni Records - nasoni184Жанр: Psychedelic RockПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9903D45A5208E33F5B8C22305E89BC991DAC716F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184731.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 184 553
-
-Billy Idol - Billy Idol  1982  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Pop RockПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2373B79495A8DFDB0787C1B738E0AAE38721545B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184553.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 184 337
-
-Level 42 - Level 42  1981  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] < Jazz-Funk>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Turn It On
-A2  43 
-A3 Why Are You Leaving
-A4 Almost There    Читать дальше...    Жанр: Funk, SoulПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:31930C52B670D035485413F20D66E48D894AEDA4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184337.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 184 149
-
-Pet Shop Boys - Super  2016  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Electronic, Disco>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Happiness  4:05 
-02. The Pop Kids  3:56 
-03. Twenty-something  4:23 
-04. Groovy  3:30     Читать дальше...    Жанр: Synth-pop, BalladПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:86194D95EB0462787CFD9987A8CBF0DD61A46D98
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184149.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 184 079
-
-Radiorama - Four Years After  1989  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Electronic, Ital
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Daddy Daddy 3:15
-A2 Bad Boy You 4:06
-A3 Baciami  Kiss Me  4:14
-A4 Flight Of Fantasy  Remix  89  5:15    Читать дальше...    Жанр: Italo-Disco, Eurobeat, Hi NRGПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7CCBF0B60EE38D1729C38ED26BDB004BA0CCC081
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1184079.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

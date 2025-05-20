@@ -1,4 +1,277 @@
 ﻿
+###  Публикация: 1 528 269
+
+The Police - Ghost In The Machine  1981  Reissue 1982 [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Spirits In The Material World
+A2 Every Little Thing She Does Is Magic
+A3 Invisible Sun
+A4 Hungry For You  J Aurais Toujours Faim De Toi     Читать дальше...    Жанр: Pop RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528269.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 528 254
+
+The Police - Zenyatta Mondatta  1980  [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <New Wave, Pop Ro
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Don t Stand So Close To Me
+A2 Driven To Tears
+A3 When The World Is Running Down, You Make The Best Of What s Still Around
+A4 Canary In A Coalmine    Читать дальше...    Жанр: New Wave, Pop RockПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C9DB0F5B870D7837767EBF598662E29FA2A7E7B5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528254.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 528 217
+
+Leo Sayer - Northern Songs  2022  [FLAC 2.0|48 24|tracks|WEB-DL] <Pop-Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01 - Eleanor Rigby  00:03:15 
+02 - Strawberry Fields Forever  00:03:53 
+03 - Revolution  00:03:42 
+04 - Get Back  00:03:38     Читать дальше...    Жанр: Pop-RockПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F049CC3521E553476E1BCF7DD02E9ECF12C3D9E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 528 134
+
+Mindfeed - Studio albums  1997-1998  hand made [restored, declipped] [FLAC 2.0|Lossless|44 16|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Mindfeed — британская альтернативная метал-группа, основанная в 1996 году при участии Джея Миччича и Глинна Моргана, двух бывших участников прогрессив-метал-группы Threshold.1997 - Perfect Life
+1998 - Ten Miles HighЖанр: Groove Metal, Progressive MetalПродолжительность: 01:30:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:41A231979F755B099A6C2B336267244181176891
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1528134.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 527 908
+
+Testament - Studio Albums (13 releases) (1987-2020) hand made [restored, declipped] [FLAC 2.0|44/16|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Testament — американская трэш-метал группа из города Беркли (Калифорния).1987 - The Legacy
+1988 - The New Order
+1989 - Practice What You Preach
+1990 - Souls Of BlackЖанр: Thrash MetalПродолжительность: 10:49:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5B2D69CA7D737C854A0126EFDFC0A23829BE448E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527908.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 527 582
+
+Mike Morton Non Stop Party Show Vol. 1  1973  30 Great Sounds [FLAC 2.0|192 24|image+.cue|Viny
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Candy Man
+A2 Come On Over To My Place
+A3 All I Ever Need Is You
+A4 You Can Do Magic    Читать дальше...    Жанр: Pop, Sound-alikeПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A69961196FD21E552FF986E80E9303672D6A3F03
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527582.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 527 545
+
+VA - The Absolute Sound  2015  Japanese Edition [DSD64 2.0|1bit 2822,4kHz|SACD-R] <Classical,
+HD Audio и Многоканальная Музыка
+SACD-R
+
+###  Подробнее
+
+01. A Red Dragonfly  01:55  - Gary Karr
+02. Silver Dagger  04:21  - Shannon Lambert-Ryan
+03. Here Comes The Sun  03:12  - Nicki Parrott
+04. I Just Wasn t Made For These Times  04:43  - Joe Stilgoe & Liane Carroll    Читать дальше...    Жанр: Classical, FolkПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:496B270DF427F35C4076D7A78DB3CCDA17BFAAC1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527545.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 527 478
+
+Bob James Trio - Feel Like Making Live!  2022  [FLAC 2.0|96 24|tracks|WEB-DL] <Jazz>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01 - Angela  06:57 
+02 - Rocket Man  04:50 
+03 - Maputo  04:42 
+04 - Topside  05:48     Читать дальше...    Жанр: JazzПродолжительность: 01:22:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:62CABC79A1FC28977B7C6FB9B98DF34D87D5A10B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527478.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 527 273
+
+Armin van Buuren - Imagine  2008  2LP Reissue 2021 [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] ] <
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Armin van Buuren - Imagine
+ A2. Armin van Buuren - Going wrong  with Dj Shah feat. Chris Jones 
+ B1. Armin van Buuren - Unforgivable  feat. Jaren 
+ B2. Armin van Buuren - Face to face    Читать дальше...    Жанр: Trance, Progressive TranceПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B9931F04827987327DCDE77C50042EC63C316FBC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527273.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 527 262
+
+Stone - Studio Albums  1988 - 1991  hand made [restored, declipped] [FLAC 2.0|Lossless|44 16|t
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Stone - финская трэш-метал-группа, образованная в Кераве в 1985 году.1988 - Stone
+1989 - No Anaesthesia!
+1990 - Colours
+1991 - Emotional PlaygroundЖанр: Speed Thrash MetalПродолжительность: 03:20:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FE6EECB4FD1BFAAE3121B78F44340EB12F02333B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527262.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 527 207
+
+Steve Vai - Inviolate  2022  [FLAC 2.0|96 24|tracks|WEB-DL] <Instrumental Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Teeth of the Hydra  5:13 
+02. Zeus in Chains  4:39 
+03. Little Pretty  6:26 
+04. Candlepower  3:31     Читать дальше...    Жанр: Instrumental RockПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:85A521668CEE9F84254B6D4F5A41A7B28B2527B8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1527207.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 527 127
 
 Kiss - Destroyer  45th Anniversary Super Deluxe   1976  remix 2021 [DTS-ES Discrete 6.1 CD-A
@@ -1730,282 +2003,6 @@ ABBA ушла тихо, без официальных объявлений о р
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1509298.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 509 028
-
-The Alan Parsons Project - Eye In The Sky  1982  Remastered 2021, Mobile Fidelity [DSD 2.0 1bit<
-HD Audio и Многоканальная Музыка
-SACD-R
-
-###  Подробнее
-
-01 - Sirius  1:56 
-02 - Eye In The Sky  4:36 
-03 - Children Of The Moon  4:51 
-04 - Gemini  2:10     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25416AEB363B4EF9A15529C3FDA4E3A85B09123C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1509028.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 508 338
-
-Gorky Park - The Best  2021  Remastering 2021 [FLAC 2.0|96 24|tracks|WEB-DL] <Hard Rock, Heavy
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Hello My Friend  Remastering 2021   03:45 
-02. Moscow Calling  Remastering 2021   04:57 
-03. Stare  Remastering 2021   04:44 
-04. Bang  Remastering 2021   04:45     Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5874F7C0AA4125525372B43CA58D3F3F56B60B1A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1508338.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 507 131
-
-R.E.M. - New Adventures In Hi-Fi  1996  remastered 2021, Craft Recordings [FLAC 2.0|96 24|trac
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. How The West Was Won And Where It Got Us  Remastered   04:30 
-02. The Wake-Up Bomb  Remastered   05:08 
-03. New Test Leper  Remastered   05:25 
-04. Undertow  Remastered   05:09     Читать дальше...    Жанр: Alternative rockПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:20C885E4AAF9E0C7DE45881D220CAF1A65DE1B66
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1507131.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 506 706
-
-Whitesnake - Restless Heart  1997  4CD, 25th Anniversary, Super Deluxe Edition, Remastered 2021
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-Disc 1 - Restless Heart  2021 Remix :
-01. Restless Heart  4:53 
-02. You re So Fine  5:11 
-03. Can t Go On  4:28     Читать дальше...    Жанр: Hard RockПродолжительность: 04:51:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:91115F95D131DE3C54CD44906043837E3212911F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506706.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 506 615
-
-Pink Floyd - Ummagumma  1969  2xCD, Remastered 2011, reissue 2021 [FLAC 2.0|192 24|tracks|WEB-
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-Disc - 1:
-1. Astronomy Domine  8:30 
-2. Careful With That Axe, Eugene  8:50 
-3. Set The Controls For The Heart Of The Sun  9:26     Читать дальше...    Жанр: Progressive RockПродолжительность: 01:26:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3C076CC3974AD92C751A9A21BB0A0D842BE73D8B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506615.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 506 326
-
-U2 - Легенды Зарубежного Рока  2000  Unofficial Release [FLAC 2.0|48 24|image +.cue|MC-Rip] <P
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Discotheque
-A2 Hold Me, Thrill Me, Kiss Me, Kill Me
-A3 Stay  Far Away, So Close 
-A4 One    Читать дальше...    Жанр: Pop RockПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:369927D69F9F18DA4081556D83D864D7B84E64F1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506326.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 506 091
-
-Dead Or Alive - Fan the Flame  Pt. 1   1990  Invincible Edition, 2021,  Demon Music Group Lt
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01 Your Sweetness  Is Your Weakness  5:49
-02 Unhappy Birthday 6:46
-03 Gone 2 Long 5:45
-04 Total Stranger 7:04    Читать дальше...    Жанр: Electronic, Synth-popПродолжительность: 01:48:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B6C71BD8AF03E8CB0B3AA2008FDCFDE18D730302
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506091.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 506 081
-
-The Darkness - Motorheart  2021  [FLAC 2.0|96.0 24|tracks|WEB-DL] <Hard Rock, Glam Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Welcome Tae Glasgae  2:49 
-02. It s Love, Jim  3:23 
-03. Motorheart  4:59 
-04. The Power and the Glory of Love  3:59     Читать дальше...    Жанр: Hard Rock, Glam RockПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:40BCBC006AC65B386FE4563917AAC44AD840D916
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1506081.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 505 962
-
-Be Lakor  Be Lakor  - Coherence  2021  [FLAC 2.0|48.0 24|WEB-DL|tracks] <Melodic-Progres
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Locus  10:49 
-02. The Dispersion  1:53 
-03. Foothold  7:20 
-04. Valence  9:10     Читать дальше...    Жанр: Melodic-Progressive-Death-Metal
-Страна: Melbourne, AustraliaПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F9DC84A3203B4E4FD793A4A683949DF57D7299E3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1505962.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 505 953
-
-Black Veil Brides - The Phantom Tomorrow  2021  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Melodic Meta
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. The Phantom Tomorrow  Introduction   1:33 
-02. Scarlet Cross  3:37 
-03. Born Again  3:40 
-04. Blackbird  3:21     Читать дальше...    Жанр: Melodic Metalcore, Glam Metal, Hard RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:917DA98F07913C4A5B09522F7CDF57A3095CB024
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1505953.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 505 869
-
-Be Cause - Light and Darkness  2021  [FLAC 2.0|48 24|tracks|WEB-DL] <Progressive Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Stay  04:47 
-02. Light and Darkness  07:33 
-03. Black and White  04:08 
-04. Lullaby  03:57     Читать дальше...    Жанр: Progressive RockПродолжительность: 01:26:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C49775EF071E6320122FDCFD170ABDB55870C4AA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1505869.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

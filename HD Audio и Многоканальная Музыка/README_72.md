@@ -1,4 +1,278 @@
 ﻿
+###  Публикация: 1 271 279
+
+Supertramp - Crime Of The Century  1974  [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. School  5:33 
+02. Bloody Well Right  4:30 
+03. Hide In Your Shell  6:44 
+04. Asylum  6:41     Читать дальше...    Жанр: RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:022EDEE7353C7925A1A8419476F3C06B854D721C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271279.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 140
+
+VA - Country Gold  1985  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Country Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side 1:
+01. Dan Seals - My Baby s Got Good Timing
+02. Anne Murray - Just Fall In Love Again
+03. Michael Martin Murphey - What sForever For    Читать дальше...    Жанр: Country RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2F9F73D39A02BFB74BDA20D934567DC5933EFDC9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271140.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 135
+
+The Marshall Tucker Band - Still Holdin  On  1988  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Count
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Dancin  Shoes
+A2 Keeping The Love Alive
+A3 Once You Get The Feel Of It
+A4 Still Holdin  On    Читать дальше...    Жанр: Country RockПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271135.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 133
+
+Chuck Berry - St. Louis To Liverpool  1984  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Rock & Roll>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Little Marie
+A2 Our Little Rendezvous
+A3 No Particular Place To Go
+A4 You Two    Читать дальше...    Жанр: Rock & RollПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271133.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 128
+
+Mariah Carey - Dance Remixes  99  1999  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop, House>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. I Still Believe  The Kings Mix 
+02. Honey  Classic Mix 
+03. When You Believe  Featuring – Whitney Houston     Читать дальше...    Жанр: Pop, HouseПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271128.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 271 121
+
+Peter Sellers - The Peter Sellers Collection 1955-1990  Series EMI Comedy Classics. Classic songs,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Cassette One
+Side One:
+01. Any Old Iron
+02. A Hard Days Night    Читать дальше...    Жанр: Non-Music, ComedyПродолжительность: 02:06:21
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CCFE9ED069FCB1E1E0D57B31D31D3D5680759410
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271121.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 269 706
+
+Кино - Атаман  2018  [FLAC 2.0|48 24|image+.cue|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+[4:15] 01. КИНО - Атаман  версия 2012 г. 
+[3:04] 02. КИНО - Атаман  версия 1990 г. 
+[4:17] 03. КИНО - Атаман  демо-версия 2012 г.  BONUS CDЖанр: RockПродолжительность: 00:11:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6AD6BAC84384FED12CF8400D3A33D813975AFC40
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1269706.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 268 854
+
+VA -   Не люблю прощания   - Песни на музыку Игоря Якушенко  1983  [FLAC 2.0|96 24|ima
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Т. Анциферова - Портрет
+A2 ВИА   Пламя   - Вчера, еще вчера
+A3 А. Герман - Сумерки
+A4 Ж. Рождественская - Запомни    Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8D4D8798B61275A39832BD010DF7D9D0A66C59E4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1268854.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 268 583
+
+Макс Фадеев - Ножницы  1997  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Electronic, Trip Hop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Tracklist
+A1 Акула
+A2 Сестричка
+A3 Тихо Несет Вода    Читать дальше...    Жанр: Electronic, Trip HopПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C79CD65CB638DEB9C2533F3F92EA9270B7BA4A2E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1268583.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 268 574
+
+Jamiroquai - A Funk Odyssey  2001  [FLAC 2.0|48 24|image+.cue|MC-Rip] <House, Acid Jazz, Disco
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Feels So Good
+A2 Little L
+A3 You Give Me Something
+A4 Corner Of The Earth    Читать дальше...    Жанр: House, Acid Jazz, DiscoПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4C017953E84009F13E93D17A092D979D4F157CE4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1268574.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 267 991
+
+Кино - Атаман  2018  [DSD2.0|11,28MHz 1bit|image+.cue|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+[4:15] 01. КИНО - Атаман  версия 2012 г. 
+[3:04] 02. КИНО - Атаман  версия 1990 г. 
+[4:17] 03. КИНО - Атаман  демо-версия 2012 г.  BONUS CD
+    Читать дальше...    Жанр: RockПродолжительность: 00:11:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9B43F8206F0D3AE6FB02265F86A20A2DE1F487E6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1267991.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 265 026
 
 The Beatles - The Beatles  The White Album   1968  2018 [DTS 5.1 CD-Audio|44.1 16|image+.c
@@ -1718,278 +1992,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229853.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 229 700
-
-Isabelle Boulay - En verite  2017  [FLAC|Lossless|WEB-DL|tracks|24Bit] <French Pop, Chanson>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Mon amour  la supplique   3:25 
- 02. Tout sera pardonne  2:38 
- 03. Won t Catch Me Cryin   4:11 
- 04. La route avec lui  4:08     Читать дальше...    Жанр: French Pop, ChansonПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DA1E944378924A4F72A6A0F27337749EB3D5739B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229700.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 229 482
-
-The Beatles Битлз - Российский Советский Лицензионный Винил {Мелодия AnTrop BRS}  1986-199
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Beat, Rock & Roll, Pop Rock, SoundtrackПродолжительность: 09:42:53
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BC7ED6C8ADC89311332E1B354BB15D915C533CF9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1229482.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 228 941
-
-Marcus Miller - Laid Black  2018  [FLAC|24 48|Lossless|WEB-DL|tracks] <Jazz, Fusion>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Trip Trap
-02. Que Sera Sera
-03. 7-T s
-04. Sublimity  Bunny s Dream     Читать дальше...    Жанр: Jazz, FusionПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3B7EC206AE526CF76DDE7F75D47D78B7A1FDCF76
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1228941.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 228 835
-
-Henry Mancini - The Return of the Pink Panther & Symphonic Soul  2017  1975 [DTS 4.0 CD-Audio|44
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-The Return of the Pink Panther
-
-01. The Pink Panther Theme  Mancini  Soloist: Tony Coe  Tenor Sax     [0:03:06.06]
-02. The Greatest Gift  Mancini; David  Instrumental Version    [0:02:20.69]    Читать дальше...    Жанр: Easy ListeningПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:E920CC869DD5F3028EDFA61E469B633DC14488B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1228835.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 228 179
-
-Queen - A Kind Of Magic  1986  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. One Vision  5:11 
-02. A Kind Of Magic  4:24 
-03. One Year Of Love  4:29 
-04. Pain Is So Close To Pleasure  4:23     Читать дальше...    Производство: EMI Records - EU 3509Жанр: RockПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1228179.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 226 259
-
-Paul Mauriat - Holidays & Penelope  2017  1972-73 [DTS 4.0 CD-DA|44.1 16|image+.cue|SACD] <Eas
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-Penelope
-
-01. 	Penélope  L eternel Retour 
-02. 	Melancholy Man    Читать дальше...    Жанр: Easy ListeningПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DFE26EC7D392DF3DFF3831D917387D952402A09E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1226259.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 225 511
-
-Skee Mask - Compro  2018  Ilian Tape [FLAC 2.0|48 24|tracks|WEB-DL] <Techno, Ambient, IDM, Bre
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Cerroverb  05:33 
- 02. Session Add  06:20 
- 03. Rev8617  03:44 
- 04. 50 Euro To Break Boost  05:07     Читать дальше...    Жанр: Techno, Ambient, IDM, BreakbeatПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0FFB679D0A49492783E98E4E7D5DDA10DAB6A54D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1225511.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 224 952
-
-The Alan Parsons Project - Eye In The Sky  35th Anniversary Boxset   2017  1982 [DTS 5.1 CD-
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-01. Sirius  01:57 
-02. Eye In The Sky  04:36 
-03. Children Of The Moon  04:51 
-04. Gemini  02:10     Читать дальше...    Жанр: art rock, pop rockПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:48D26191AA23BEC4292973404FFDD5E0DC8C7B7A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1224952.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 223 644
-
-Mike Oldfield - Five Miles Out  Deluxe Edition   2013  1982 [DTS 5.1 CD-DA|44.1 16|image+.
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-01. Taurus II - 24:43
-02. Family Man - 04:00
-03. Orabidoo - 10:48
-04. Mount Teidi - 04:06    Читать дальше...    Жанр: new age, pop rockПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:31C5FD40A718AC872978FCEC0BD72086D26CA529
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1223644.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 222 789
-
-Владимир Высоцкий - VA №4  Сборник песен   1985  Мелодия [FLAC 2.0|96 24|image+.cue|Tape-R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-СТОРОНА-1:
-[1:56] 01. Мне каждый вечер зажигают свечи...
-[3:09] 02. О нашей встрече, что там говорить...
-[2:01] 03. Перед выездом в загранку.. Инструктаж     Читать дальше...    Жанр: ChansonПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0C64BA2BB3405C3FD350CCD8902454093EBFB8A9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1222789.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 222 589
-
-Владимир Высоцкий - №4  сборник песен   1985  Мелодия [DSD2.0|5,64MHz 1bit|image+.cue|Tape
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-СТОРОНА-1:
-[1:56] 01. Владимир Высоцкий - Мне каждый вечер зажигают свечи...
-[3:09] 02. Владимир Высоцкий - О нашей встрече, что там говорить...
-[2:01] 03. Владимир Высоцкий - Перед выездом в загранку.. Инструктаж     Читать дальше...    Жанр: ChansonПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:25360C576CFB438B7EE1AA56F4BBD5C5FEC2F66C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1222589.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

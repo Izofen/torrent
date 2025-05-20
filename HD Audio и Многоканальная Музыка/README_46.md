@@ -1,4 +1,276 @@
 ﻿
+###  Публикация: 1 660 750
+
+Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection  1973  [FLAC 2.0|24 96|ima
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Vienna Blood
+A2 Radetzky March
+A3 Tales From The Vienna Woods
+B1 The Blue Danube    Читать дальше...    Жанр: Classical, OrchestraПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1660750.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 660 657
+
+Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Settle Down
+A2 After The Laughter (Came Tears)
+A3 Butterfly
+A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1660657.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 660 218
+
+The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from  The Gondoliers  and <
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Classical, Brass & Military, Opera, Brass BandПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:44C7531B9D98C6243DE8F8D2E90C177BF1E0E092
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1660218.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 659 835
+
+Iced Earth - Studio Albums  13 releases   1990-2017  hand made [restored, declipped] [FLAC |
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Iced Earth — американская хэви-метал-группа. Основана ритм-гитаристом и композитором Джоном Шаффером в 1985 году.1990  2020  - Iced Earth  30th Anniversary Edition 
+1991 - Night Of The Stormrider
+1995 - Burnt Offerings
+1996 - The Dark SagaЖанр: Power Thrash MetalПродолжительность: 13:05:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FDF5AF261C79BE7D70EA262F7476AE7126B4EC3E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1659835.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 659 530
+
+Super Furry Animals - Phantom Power  2003   2023 Remaster  BMG Rights Management  UK  Li
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+1 Hello Sunshine  2023 Remaster  03:34
+2 Liberty Belle  2023 Remaster  02:57
+3 Golden Retriever  2023 Remaster  02:27
+4 Sex, War & Robots  2023 Remaster  03:49    Читать дальше...    Жанр: Alternativ und IndieПродолжительность: 03:02:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:49074308C1ECEA2FD3F4790859E66D2C3837F4BA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1659530.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 659 500
+
+Fixation - More Subtle Than Death  2023  [FLAC 24 48|WEB-DL|tracks] <Metalcore, Stadium Rock a
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Impending Fallout [00:01:33]
+02. More Alive [00:03:44]
+03. Stay Awake [00:04:24]
+04. Flat Earth [00:04:47]    Читать дальше...    Жанр: Metalcore, Stadium Rock and MetalПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:251BC59DAA43756111174EDF28FE8AC785338322
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1659500.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 659 476
+
+Allison Russell - The Returner  2023  [FLAC 24 48|WEB-DL|tracks] <Indie Pop>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01 - Springtime  00:04:11 
+02 - The Returner  00:03:50 
+03 - All Without Within  00:03:12 
+04 - Demons  00:04:29     Читать дальше...    Жанр: Indie PopПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:90F4CE31E2A8D735DA04F6B6EAD5405E6C5B2F53
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1659476.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 659 463
+
+James Blake - Playing Robots Into Heaven  2023  [FLAC 24 96|WEB-DL|tracks] <Electronic, Pop, L
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Asking To Break  2:53 
+03. Tell Me  5:00 
+04. Fall Back  4:01 
+05. He s Been Wonderful  3:21     Читать дальше...    Жанр: Electronic, Pop, Leftfield, Soul, ExperementalПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6F7AAD44A90FB74D507FF8B913E221D2321D3453
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1659463.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 659 460
+
+Laufey - Bewitched  2023  [FLAC 24 48|Lossless|WEB-DL|tracks] <Jazz>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01 - Dreamer  00:03:30 
+02 - Second Best  00:03:24 
+03 - Haunted  00:03:20 
+04 - Must Be Love  00:03:04     Читать дальше...    Жанр: JazzПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:93152E337F2DFD3D6A4510F82E41964C665EBB9A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1659460.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 659 458
+
+Jerry Lee Lewis - Killer In Stereo: Good Rockin  Tonight  1969   Remastered 2023  Sun Labe
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Good Golly Miss Molly  Remastered 2023  [00:02:18]
+02. High Powered Woman  Alternate   Remastered 2023  [00:02:01]
+03. Be Bop A Lula  Remastered 2023  [00:02:26]
+04. C.C. Rider  Remastered 2023  [00:02:23]    Читать дальше...    Жанр: Classic Rock, Rock N RollПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F52E08BCC090B639AB488A8D543FF7D8D568FEFB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1659458.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 659 088
+
+Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (25 releases) (1984-2020) hand made [restore
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Bon Jovi — американская рок-группа из Нью-Джерси, образованная в 1983 году.1984 - Bon Jovi
+1985 - 7800° Fahrenheit
+1986 - Slippery When Wet
+1988 - New JerseyЖанр: Glam Metal, Hard RockПродолжительность: 28:06:35
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BA2101C84D0DB35E09A7BB0366E3848D2DA0BDA3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1659088.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 658 993
 
 OSI - Дискография (4 releases) (2003-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.c
@@ -1707,281 +1979,6 @@ B1 No Escape From Now    Читать дальше...    Жанр: Heavy MetalП
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653165.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 653 071
-
-ELO  Electric Light Orchestra  - Time  1981  [FLAC 2.0|24 192|image + .cue|Vinyl-Rip] <Syn
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Prologue
-A2 Twilight
-A3 Yours Truly, 2095
-A4 Ticket To The Moon    Читать дальше...    Жанр: Synth-pop, Symphonic Rock, Pop RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F787043A0FC2CB2B0C08B19421C4317098EA5DB4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1653071.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 921
-
-Kreator - Endorama  1999  AFM Records, Reissue 2022 [FLAC|24 192|image + .cue|Vinyl-Rip] <Thra
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Golden Age
-A2 Endorama
-A3 Shadowland
-B1 The Chosen Few    Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06469C1096A26FC42BB87F979892593406538DE0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652921.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 671
-
-FiNCH - Rummelbums  2022  [FLAC|24 44.1|tracks|WEB-DL] <Hip-Hop, Eurodance, Pop Rap>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Rekommandeur  3:10 
-02. Gabber Girl  3:12 
-03. Tindern auf der Autobahn  2:48 
-04. Direkt Bock  3:07     Читать дальше...    Жанр: Hip-Hop, Eurodance, Pop RapПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FC6004BB004C55A48AA49E0EE446E46D208A69CA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652671.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 456
-
-VA - Естрадна Палитра Variety Palette  1973  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop R
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-А1 Маут И Мак Нийл - Скажи Мне Что-Нибудь • Кажи Ми Нещо
-А2 Лефт Сайд - Добро Пожаловать Домой • Добре Дошла У Дома
-А3 Кристоф - Рука За Руку • Ръка За Ръка
-А4 Ню Сийкърс - Никогда Не Кончится Песня Любви • Никога Няма Да Свърши Песента На Любовта    Читать дальше...    Жанр: Pop Rock, Synth-pop, DiscoПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652456.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 375
-
-Megaherz - In Teufels Namen (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neue Deutsche Härte, Indus
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. In Teufels Namen [00:03:49]
-02. Rabenherz [00:03:53]
-03. Engelsgesicht [00:04:13]
-04. Freigeist [00:04:11](   Читать дальше...   )Жанр: Neue Deutsche Härte, Industrial MetalПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3DC34C6E567C6C684D154B1D98DC7F6A46188F1D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652375.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 169
-
-VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Familie Silly - Bette Davis Eyes
-A2 Monika Hauff Und Klaus-Dieter Henkler - Birds Of Paradise
-A3 Roland Neudert - Some Broken Hearts Never Mend
-A4 Eva-Maria Pieckert - Maledetta Primavera(   Читать дальше...   )Жанр: Pop, Acoustic, Soft RockПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4ADD5164C486517397B0807D42F6A1F0B686C002
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652169.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 071
-
-Moon Boots - Ride Away (Remixed) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deep House, Speeeedyu
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Ride Away (Loods Remix) [00:03:54]
-02. Come Back Around (Romain Garcia Remix) [00:04:23]
-03. Hot Minute (Kareem Ali Remix) [00:03:47]
-04. Take Me To Your Body (Demuir's Playboi Edit) [00:03:51](   Читать дальше...   )Жанр: Deep House, Speeeedyunderground, TechHouseПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0717CC1E21692349709ABA110D770224952B1739
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652071.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 652 007
-
-Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Country Rock, Sof
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Back In The U.S.A.
-A2 When I Grow Too OId To Dream
-A3 Just One Look
-A4 Alison(   Читать дальше...   )Жанр: Country Rock, Soft RockПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1F7861D3A51DE2A409E76E5BC53E0E3E83478CF6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1652007.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 651 927
-
-Coffin Hag - Prairie Tyrant (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psych Stoner Doom>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01 Family Man [00:10:43]
-02 Three Times Great [00:09:10]
-03 Become Nothing [00:03:22]
-04 Forgotten Gods [00:02:12](   Читать дальше...   )Жанр: Psych Stoner DoomПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2BBCDB8F39FE4FE53E7AA3D9CF15D85E9F1A70C5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651927.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 651 801
-
-Rock House - Rockin  With Rock House  1974  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Rock &
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Shake, Rattle & Roll
-A2 See You Later Alligator
-A3 Be Bop A Lula
-A4 Good Rockin  Tonight    Читать дальше...    Жанр: Rock & RollПродолжительность: 00:28:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:06D96FA5D25F62C8B3C9AEC976E2B649BE935301
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651801.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 651 765
-
-Tobias Sammet (Edguy; Avantasia) - Studio Albums (20 releases) (1997-2022) hand made [restored, decl
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Тобиас Заммет (нем. Tobias Sammet, 21 ноября 1977) — немецкий музыкант, лидер и вокалист немецких пауэр-метал-групп Edguy и Avantasia.1997 - Kingdom Of Madness
-1998 - Vain Glory Opera
-1999 - Theater Of Salvation
-2000 - The Savage PoetryЖанр: Power MetalПродолжительность: 24:49:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81BB565310F7F24F93E301F06A3C38C1B4DE8380
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1651765.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

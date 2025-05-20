@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 298 217
+
+Frontier Guards - You  2019  Aliens Production [FLAC 2.0|48 24|tracks|WEB-DL] <IDM, Downtempo,
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Princess Fox  03:51 
+ 02. Shelter  04:35 
+ 03. Essence  05:29 
+ 04. Synapse  04:22     Читать дальше...    Жанр: IDM, Downtempo, IndustrialПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C7A3CCF7E128F60CCC23B5BE73BC8A77E58F9B2A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1298217.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 297 907
+
+Uriah Heep - The Best  1995  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Hard Rock, Classic Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. Lady In Black
+02. Gypsy
+03. Keep On Ridin    Читать дальше...    Жанр: Hard Rock, Classic RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A9325AE07CA5C19D1B86002FA28141A50CBC0B0B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1297907.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 297 746
+
+Rainbow - Ballads  1995  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. Cath The Rainbow
+02. Maybe Next Time
+03. Tearin  Out My Heart    Читать дальше...    Жанр: Hard RockПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63C363EDBC6FB7F794D9E001C20555E7E031C2BF
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1297746.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 297 726
+
+Guns N Roses - The Ballads  1992  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Hard Rock, Heavy Met
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. Don t Cry
+02. Patience
+03. November Rain    Читать дальше...    Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A2EE2D772F394935C13F2D352C86BC1C0D8BB95
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1297726.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 297 720
+
+Michael Jackson - Blood On The Dance Floor. HIStory In The Mix  1997  [FLAC 2.0|48 24|image+.c
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. Blood On The Dance Floor
+02. Morphine
+03. Superfly Sister    Читать дальше...    Жанр: Electronic, Hip Hop, PopПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:055C536E63D35F4664ADD40727E1030D19E3D026
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1297720.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 297 237
+
+Владимир Кузьмин - Звёздная Коллекция  2000  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Soft Rock,
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Сторона А:
+01. Пороги
+02. Я не забуду тебя  Сибирские морозы 
+03. Когда меня ты позовёшь    Читать дальше...    Жанр: Soft Rock, Pop RockПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8C9FC68084896F933C1152CA4D25072D23287B29
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1297237.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 297 117
+
+Solar Fields - Origin # 02  2015  Ultimae Records [FLAC 2.0|44.1 24|tracks|WEB-DL] <Psybient,
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Landform  Origin 2005   09:17 
+ 02. Mystic Science  Origin 2007   08:43 
+ 03. Active Sky  Origin 2003   06:56 
+ 04. Echo  Origin 2009   07:09     Читать дальше...    Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:CC3E86B5E33C51E2BD2E22E7E7D0F89EE7FCB2C6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1297117.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 297 112
+
+Mahiane - Oxycanta III  2015  Ultimae Records [FLAC 2.0|44.1 24|tracks|WEB-DL] <Psybient, Down
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Miktek - Drone Flower  08:12 
+ 02. Mer-A - Aeolis Mons  08:30 
+ 03. Lars Leonhard - Slow Motion  06:23 
+ 04. Muridae - Turning Down  05:53     Читать дальше...    Жанр: Psybient, Downtempo, IDM, AmbientПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B9FA7F14387C136AFC52514F60C80E7A8469D18
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1297112.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 297 109
+
+Mizoo - Greenosophy Chapter II  2017  Ultimae Records [FLAC 2.0|44.1 24|tracks|WEB-DL] <Psybie
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. OM aka Ovnimoon - Algun Dia  07:40 
+ 02. Claudio Prc - Domo  06:27 
+ 03. Scann-Tec - Parsec  Live Edit   08:10 
+ 04. Cell - Security  09:36     Читать дальше...    Жанр: Psybient, Ambient, IDM, DowntempoПродолжительность: 01:20:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D2665BF39DB595F9B41B61805B7B5BF82A60BF78
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1297109.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 297 106
+
+Fishimself - Ambrosia  2015  Ultimae Records [FLAC 2.0|44.1 24|tracks|WEB-DL] <Psybient, Downt
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Max Million & Gusk - Sub Strata  06:39 
+ 02. Miktek - Light Tails  05:44 
+ 03. One Arc Degree - Distant Industries  06:27 
+ 04. Aes Dana - Principles Of Gravity  07:38     Читать дальше...    Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:17:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:89D7D264F9F83DAB1DFC427D875D0F55CDFFFDFC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1297106.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 297 102
+
+Nova - Passages  2014  Ultimae Records [FLAC 2.0|44.1 24|tracks|WEB-DL] <Psybient, Downtempo,
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. James Murray - Passing Through Walls  05:48 
+ 02. Fingers In The Noise - Delicate  06:39 
+ 03. Cygna - Within  06:20 
+ 04. Brando Lupi - Opal  07:52     Читать дальше...    Жанр: Psybient, Downtempo, IDM, AmbientПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C92CB8C577F445E2D27C4B6666943251CB281D22
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1297102.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 297 096
 
 Scann-Tec - Morpheus | live Nuit Hypnotique #4  2015  Ultimae Records [FLAC 2.0|44.1 24|tracks
@@ -1718,280 +1993,6 @@ A4 Neidot Herkat Hennot    Читать дальше...    Жанр: Folk, World
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271655.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 279
-
-Supertramp - Crime Of The Century  1974  [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. School  5:33 
-02. Bloody Well Right  4:30 
-03. Hide In Your Shell  6:44 
-04. Asylum  6:41     Читать дальше...    Жанр: RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:022EDEE7353C7925A1A8419476F3C06B854D721C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271279.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 140
-
-VA - Country Gold  1985  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Country Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side 1:
-01. Dan Seals - My Baby s Got Good Timing
-02. Anne Murray - Just Fall In Love Again
-03. Michael Martin Murphey - What sForever For    Читать дальше...    Жанр: Country RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2F9F73D39A02BFB74BDA20D934567DC5933EFDC9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271140.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 135
-
-The Marshall Tucker Band - Still Holdin  On  1988  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Count
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Dancin  Shoes
-A2 Keeping The Love Alive
-A3 Once You Get The Feel Of It
-A4 Still Holdin  On    Читать дальше...    Жанр: Country RockПродолжительность: 00:32:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271135.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 133
-
-Chuck Berry - St. Louis To Liverpool  1984  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Rock & Roll>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Little Marie
-A2 Our Little Rendezvous
-A3 No Particular Place To Go
-A4 You Two    Читать дальше...    Жанр: Rock & RollПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271133.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 128
-
-Mariah Carey - Dance Remixes  99  1999  [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop, House>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. I Still Believe  The Kings Mix 
-02. Honey  Classic Mix 
-03. When You Believe  Featuring – Whitney Houston     Читать дальше...    Жанр: Pop, HouseПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271128.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 271 121
-
-Peter Sellers - The Peter Sellers Collection 1955-1990  Series EMI Comedy Classics. Classic songs,
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Cassette One
-Side One:
-01. Any Old Iron
-02. A Hard Days Night    Читать дальше...    Жанр: Non-Music, ComedyПродолжительность: 02:06:21
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CCFE9ED069FCB1E1E0D57B31D31D3D5680759410
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1271121.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 269 706
-
-Кино - Атаман  2018  [FLAC 2.0|48 24|image+.cue|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-[4:15] 01. КИНО - Атаман  версия 2012 г. 
-[3:04] 02. КИНО - Атаман  версия 1990 г. 
-[4:17] 03. КИНО - Атаман  демо-версия 2012 г.  BONUS CDЖанр: RockПродолжительность: 00:11:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6AD6BAC84384FED12CF8400D3A33D813975AFC40
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1269706.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 268 854
-
-VA -   Не люблю прощания   - Песни на музыку Игоря Якушенко  1983  [FLAC 2.0|96 24|ima
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Т. Анциферова - Портрет
-A2 ВИА   Пламя   - Вчера, еще вчера
-A3 А. Герман - Сумерки
-A4 Ж. Рождественская - Запомни    Читать дальше...    Жанр: Pop, Pop RockПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8D4D8798B61275A39832BD010DF7D9D0A66C59E4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1268854.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 268 583
-
-Макс Фадеев - Ножницы  1997  [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Electronic, Trip Hop>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Tracklist
-A1 Акула
-A2 Сестричка
-A3 Тихо Несет Вода    Читать дальше...    Жанр: Electronic, Trip HopПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C79CD65CB638DEB9C2533F3F92EA9270B7BA4A2E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1268583.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 268 574
-
-Jamiroquai - A Funk Odyssey  2001  [FLAC 2.0|48 24|image+.cue|MC-Rip] <House, Acid Jazz, Disco
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Feels So Good
-A2 Little L
-A3 You Give Me Something
-A4 Corner Of The Earth    Читать дальше...    Жанр: House, Acid Jazz, DiscoПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C017953E84009F13E93D17A092D979D4F157CE4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1268574.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 267 991
-
-Кино - Атаман  2018  [DSD2.0|11,28MHz 1bit|image+.cue|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-[4:15] 01. КИНО - Атаман  версия 2012 г. 
-[3:04] 02. КИНО - Атаман  версия 1990 г. 
-[4:17] 03. КИНО - Атаман  демо-версия 2012 г.  BONUS CD
-    Читать дальше...    Жанр: RockПродолжительность: 00:11:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9B43F8206F0D3AE6FB02265F86A20A2DE1F487E6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1267991.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

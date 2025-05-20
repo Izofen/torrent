@@ -1,4 +1,270 @@
 ﻿
+###  Публикация: 269 645
+
+Pink Floyd - The Dark Side of the Moon  1973   Vinyl Rip 24 192  [FLAC|Lossless] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+1. Speak To Me  Поговори со мной  01:00
+2. Breathe  Дыши  02:50
+3. On The Run  Бегство  03:53
+4. Time  Время  06:45    Читать дальше...    Жанр: RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_269645.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 257 891
+
+Richard Friedman - Directions: Center [DTS 5.1 CD-Audio from Audio-DVD]  2000  <New Age>
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+1  Journey To The CenterЖанр: New Age, RelaxПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_257891.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 253 090
+
+Андрей Макаревич и Оркестр Креольского Танго - Старая Машина  2006  [DTS 5.1|1411 kb s|Апмикс]
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+01. Маленький город
+02. Эпоха большой нелюбви
+03. Он был старше ее
+04. Мы расходимся по домам    Читать дальше...    Жанр: RockПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5503D66E7ED0D997E73755C03638A82CBEF06703
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_253090.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 252 811
+
+Robert Miles - Organik  2001  [DTSCD][UP]<Trance, Instrumental>
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+01. Tsbol
+02. Separation
+03. Paths
+04. Wrong
+05. It s All Coming Back
+06. Pour Te Parler
+07. Trance Shapes
+08. Connections
+09. Release Me
+10. Improvisations Part 1    Читать дальше...    Жанр: Trance, InstrumentalПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_252811.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 247 894
+
+Alan Parsons Project - The Turn of a Friendly Card [DTS CD from DVD-Audio   1980  <Art Rock>
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+1  May Be A Price To PayЖанр: Art RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_247894.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 232 130
+
+Bill Mize - Coastin   1998   DTSCD OF  <new age, bakersfield sound>
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+Жанр: Guitar New AgeПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_232130.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 229 812
+
+Fleetwood Mac - Say You Will  2003  [MLP 2.0, 5.1 96 24 |DVD-Audio]<rock>
+HD Audio и Многоканальная Музыка
+DVD-Audio
+
+###  Подробнее
+
+01. What s The World Coming To [03:48]
+02. Murrow Turning Over In His Grave [04:12]
+03. Illume  9-11  [04:51]
+04. Thrown Down [04:02]    Читать дальше...    Жанр: RockПродолжительность: 01:16:12
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_229812.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 205 976
+
+Europe - The Final Countdown  Upmix   1986  [DTS]<ROCK>
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+01. The Final Countdown  5:13 
+02. Rock The Night.  4:06 
+03. Carrie  4:33 
+04. Danger On The Track  3:48     Читать дальше...    Жанр: RockПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:BBE10AAF1A8C964EA09FE536820BFC5823C6269C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_205976.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 204 208
+
+Coldplay - 4 альбома  Vinil-rip 24 Bit 96 kHz   2000-2008  [FLAC|Lossless]<Alternative Roc
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 203 549
+
+Manowar - 11 альбомов  1982-2012   FLAC 2.0|96,192 24|FLAC|VinylRip] <Heavy Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Heavy MetalПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_203549.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 194 789
+
+Scorpions - Sting In The Tail  2010  [Vinyl Rip 24Bit 192kHz]<Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Side A:
+01. Raised On Rock  3:59 
+02. Sting In The Tail  3:13 
+03. Slave Me  2:45     Читать дальше...    Жанр: RockПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_194789.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 180 706
 
 Miles Davis - 12 LP альбомов  1957 - 1969  [24 bit 96 kHz|VinylRip]<Jazz, Hard Bop, Cool Jazz,

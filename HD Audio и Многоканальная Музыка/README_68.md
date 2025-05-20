@@ -1,4 +1,279 @@
 ﻿
+###  Публикация: 1 396 333
+
+Toto - Fahrenheit  1987  [FLAC|FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Till The End
+A2 We Can Make It Tonight
+A3 Without Your Love
+A4 Can t Stand It Any Longer    Читать дальше...    Жанр: Pop RockПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1B7CD35271646095C8214DB499F06230FD7BE04D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1396333.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 396 201
+
+Deep Purple - Nothing At All  2020  Single [FLAC|24 44,1|Lossless|WEB-DL|tracks] <Hard Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Nothing At All
+02. Man Alive
+03. Throw My BonesЖанр: Hard RockПродолжительность: 00:13:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:99E80BBE5EE454778B93325DE2A9313D9209E7F0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1396201.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 396 183
+
+Toto - Stranger In Town  Dance Mix   1984  12 , 45 RPM, Single [FLAC 2.0|192 24|tracks|V
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A Stranger In Town  Dance Mix 
+
+
+    Читать дальше...    Жанр: Pop RockПродолжительность: 00:11:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B50D1736179C1208ADABB4B60D83FBA6B8EEB0D5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1396183.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 396 096
+
+Ozzy Osbourne - Diary Of A Madman  1981  AnTrop Unofficial Release, 1993 [FLAC 2.0|192 24|imag
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Over The Mountain  Выше гор 
+A2 Flying High Again  Уносящийся ввысь 
+A3 You Can t Kill Rock And Roll  Ты не можешь убить рок-н-ролл 
+A4 Believer  Верящий     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1093B42A25CC5F36E0B57C13CFDA653138B1FFB4
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1396096.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 395 360
+
+Fish - Something In The Air  1992  45 RPM, Single [FLAC|Lossless|tracks] <Prog Rock, Pop Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A Something In The Air  Teddy Bear Mix 
+ John Keene 
+B1 Something In The Air  Album Mix 
+ John Keene     Читать дальше...    Жанр: Prog Rock, Pop RockПродолжительность: 00:16:51
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:7F438428D44C3DCE881E4A56F966E3AA90ABFDB7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395360.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 395 194
+
+The Hooters - Day By Day  1986  Recorded  21 Apr 1985 [FLAC 2.0|192 24|image +.cue|Vinyl-Rip]
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A Day By Day
+ E. Bazilian, R. Chertoff, R. Hyman 
+B1 And We Danced
+ E. Bazilian, R. Hyman     Читать дальше...    Жанр: Pop Rock, New WaveПродолжительность: 00:11:59
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:69166609356DC2B416242DFC7D62E918A8EA6F7A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395194.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 395 117
+
+101 Strings - 20 Romantic melodies fo the Morning, Noon and Night  1983  3xLP [FLAC 2.0|96 24|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+101 Strings Orchestra был брендом для очень успешной организации легкой симфонической музыки, с дискографией, превышающей 150 альбомов и творческой продолжительностью около 30 лет, начиная с 1957 года. У 101 Strings был фирменный звук, сосредоточенный на мелодии с непринужденной атмосферой чаще всего с участием струнных инструментов.
+Их пластинки были индивидуализированы     Читать дальше...    A1 Some Enchanted Evening
+A2 The Way You Look Tonight
+A3 Moonlight Becomes You
+A4 Wonderland By Night    Читать дальше...    Жанр: Easy Listening
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DD80894B2BB448095641D613DCE16BB38C64563D
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395117.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 394 645
+
+Fonograf - FG-4  1976  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Pop Roc>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Prelude
+A2 Co-Ordinates
+A3 Bright Sky
+A4 FG-4    Читать дальше...    Жанр: Pop RocПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1394645.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 394 588
+
+Gary Moore - White Knuckles  1985  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 Nuclear Attack
+A2 White Knuckles Rockin  & Rollin
+A3 Run To Your Mama  Live 
+A4 You    Читать дальше...    Жанр: RockПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1529B5A8CAACC68161392192D59F1F0D85678103
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1394588.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 394 384
+
+Boney M. - Hooray! Hooray! It s A Holi-Holiday  1979  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A Hooray! Hooray! It s A Holi-Holiday
+ Frank Farian, Fred Jay 
+B Ribbons Of Blue
+ Forsey Жанр: DiscoПродолжительность: 00:08:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:17032F2F3921B09E6FE8487BD89DEF10377ABBDA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1394384.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 393 652
+
+Simone  Kopmajer - My Wonderland  2020  [FLAC|24 48|Lossless|WEB-DL|tracks] <Vocal Jazz, Bossa
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. My Wonderland
+02. Voce E Eu  You and I 
+03. Something New
+04. A Man and a Woman    Читать дальше...    Жанр: Vocal Jazz, Bossa NovaПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F32DA02E6BA0120DE45C922F101EAE7561D31EE8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1393652.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 392 283
 
 Blank & Jones - RELAX - Edition 12  2020  [FLAC 2.0|44.1 24|tracks|WEB-DL] <Electronic, Chillo
@@ -1713,281 +1988,6 @@ WEB-DL-Audio
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1361976.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 361 871
-
-Vincent Ingala - Echoes Of The Heart  2020  [FLAC|24 44.1|Lossless|WEB-DL|tracks] <Smooth Jazz
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Caught Me By Surprise
-02. Maybe You Think
-03. Echoes of the Heart  feat. Chris Geith 
-04. What s Option B?    Читать дальше...    Жанр: Smooth JazzПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8161E077755870B16250833B7C434A5CD15C199A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1361871.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 361 080
-
-Trent Reznor & Atticus Ross - Watchmen   Хранители  Music from the HBO Series   2019   [FL
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. DOOMSDAY PREPPER  04:47 
-02. CLOCKMAKER  03:49 
-03. A MAN WALKS INTO AN INTRINSIC FIELD  01:34 
-04. SPLICE OF LIFE  00:36     Читать дальше...    Жанр: Score, Soundtrack •Продолжительность: 02:02:39 •
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B3978B5A49DED4D87EA634AAD81ECF06D1A1D6AB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1361080.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 360 313
-
-Chris Benstead - The Gentlemen   Джентльмены  Original Motion Picture Soundtrack   2019  [
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-|02:38| 01. Play a Game With Me
-|02:10| 02. A Proper Handsome C**t
-|02:14| 03. Gala Dinner
-|03:19| 04. Big Dave    Читать дальше...    Жанр: Soundtrack, ScoreПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0F5460A08FFB5FF9FE20715FB83F32ADE9893AB7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1360313.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 360 045
-
-Daniel Pemberton - Birds of Prey   Хищные птицы: Потрясающая история Харли Квинн  Original Motio
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-|01:54| 01. Flying High  Birds of Prey 
-|01:32| 02. The Fantabulous Emancipation Explosion
-|03:06| 03. Harley Quinn  Danger Danger 
-|02:16| 04. Birds of Prey    Читать дальше...    Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:81EAB3CEFF9D4A7D6553295F154AA6AFA8263C72
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1360045.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 359 791
-
-Kat Edmonson - Dreamers Do  2020  [FLAC|24 44.1|Lossless|WEB-DL|tracks] <Vocal Jazz, Vintage P
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. A Dream is a Wish Your Heart Makes
-02. Go to Sleep
-03. In a World of My Own  With Duchess 
-04. Night Walk - Interlude    Читать дальше...    Жанр: Vocal Jazz, Vintage PopПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C06A2058CD67E54A16255ED69DCC2EA54B7FA1D5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1359791.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 359 332
-
-Rob Mullins - 2 of Hearts  2020  [FLAC 2.0|44.1 24|tracks|WEB-DL] <Mainstream Jazz>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01 - City Nights [4:30]
- 02 - Slinky [4:42]
- 03 - Soulful  Remix  [3:19]
- 04 - 2 of Hearts [2:56]    Читать дальше...    Жанр: Mainstream JazzПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A40BA88E7B1F70BE414D8B75D4CAACD2F9B053FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1359332.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 358 717
-
-VA - Death Stranding  Songs from the Video Game   2020  [FLAC 2.0|48 24|tracks|WEB-DL] <So
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-|06:13| 01. Low Roar - Don t Be So Serious
-|02:50| 02. Low Roar - Bones
-|04:48| 03. Low Roar - Easy Way Out
-|02:03| 04. Low Roar - Poznan    Читать дальше...    Жанр: Soundtrack, ScoreПродолжительность: 01:45:16
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:224D1D552E878545B66483111EF879C3CE0FC07A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358717.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 358 714
-
-Alexandre Desplat - Little Women   Маленькие женщины  Original Motion Picture Soundtrack   2
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Little Women  03:12 
-02. Plumfield  03:39 
-03. The Beach  02:49 
-04. Christmas Morning  02:53     Читать дальше...    Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A081D932C1E31054EF3A1C520BB5689D72864DFA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358714.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 358 300
-
-Green Day - Father Of All Motherfuckers  2020  [FLAC|24 44.1|Lossless|WEB-DL|tracks] <Alternat
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Father Of All...
-02. Fire, Ready, Aim
-03. Oh Yeah!
-04. Meet Me On The Roof    Читать дальше...    Жанр: Alternative, Punk RockПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D4453CFD099EA1EA10AFC508724C52F87FCF0051
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358300.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 358 232
-
-Bear McCreary - See   Видеть: Season 1  2020  Apple TV, Original Series Soundtrack [FLAC 2.0|4
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-|03:08| 01. The Alkenny People
-|07:54| 02. Witch Finders
-|02:04| 03. Father Voss
-|03:24| 04. Rock Wall Battle    Читать дальше...    Жанр: Soundtrack, ScoreПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:531ABBCC0758372114243A3065F92B459F33DFFD
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358232.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 358 227
-
-VA - Birds of Prey   Хищные птицы  Потрясающая история Харли Квинн : The Album  2020  [FLA
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-|02:14| 01. Doja Cat - Boss Bitch
-|02:11| 02. Whipped Cream - So Thick  feat. Baby Goth 
-|03:19| 03. Megan Thee Stallion & Normani - Diamonds  with Normani 
-|02:48| 04. Saweetie & GALXARA - Sway With Me    Читать дальше...    Жанр: SoundtrackПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:311378A72E690E63E71DF6D75707451E779CD6A4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1358227.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

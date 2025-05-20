@@ -1,4 +1,281 @@
 ﻿
+###  Публикация: 1 413 729
+
+Corey Taylor - CMFT  2020  [FLAC|24 48|Lossless|WEB-DL|tracks] <Alt. Rock, Hard Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. HWY 666  4:09 
+02. Black Eyes Blue  3:22 
+03. Samantha s Gone  3:12 
+04. Meine Lux  3:13     Читать дальше...    Жанр: Alt. Rock, Hard RockПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43286F978BBA957EA5B3FCF626D6E781FB47A71E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413729.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 413 357
+
+Greg Puciato - Do You Need Me to Remind You?  Maxi-Single   2020  Federal Prisoner Record [F
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Do You Need Me to Remind You? [00:06:31]
+02. Do You Need Me to Remind You? Let Your Heart Rate Slow  [00:04:52]
+03. Do You Need Me to Remind You? single edit  [00:04:03]
+04. Do You Need Me to Remind You? instrumental  [00:06:21]    Читать дальше...    Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 00:26:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:43CAB0A0DA874B6C69F7C0617D695EEC3DEC87A8
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413357.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 413 350
+
+Fit for a King - The Path  2020  [FLAC 2.0|44 24|WEB-DL|tracks] <Christian Metalcore>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. The Face of Hate  3:41 
+02. Breaking the Mirror  3:34 
+03. Annihilation  3:11 
+04. The Path  4:07     Читать дальше...    Жанр: Christian MetalcoreПродолжительность: 00:35:33
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FD8334CDD233DA77153B46E8A5151152A83FB78C
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413350.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 413 341
+
+Sepultura - Quadra  2020  Nuclear Blast Rec. [FLAC 2.0|48 24|tracks|WEB-DL] <Thrash Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Isolation  4:56 
+02. Means to an End  4:39 
+03. Last Time  4:27 
+04. Capital Enslavement  3:40     Читать дальше...    Жанр: Thrash MetalПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3FF8D7C0A6656E88628CFFE9F01A8673F25DF82A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413341.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 413 331
+
+Amaranthe - Manifest  2020  Nuclear Blast Records [FLAC|WEB-DL|tracks] <Modern Melodic Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Fearless [00:03:31]
+02. Make It Better [00:03:50]
+03. Scream My Name [00:03:03]
+04. Viral [00:03:01]    Читать дальше...    Жанр: Modern Melodic MetalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:447D74FE9A3B11295ABC7978542FCDE0250D2B43
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413331.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 413 232
+
+Otavio de Assis Brasil - The Great Classical Music Played On Accordion  2020  Several Records [F
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+Otavio de Assis Brasil  из Сан-Габриэль, Бразилия, г.р. - 1984  - бразильско-испанский аккордеонист. Первый южноамериканец, получивший высшую университетскую степень по классическому аккордеону в консерватории Арагона под руководством Анхеля Луиса Кастаньо, своего главного учителя, от которого до сегодняшнего дня он получает советы.
+С 2009 года он также изучал музыкальную     Читать дальше...    Antonio Vivaldi: Las Cuatro Estaciones. Concerto In F Minor, RV 297, Op. 25,  Invierno :
+01. I. Allegro Non Molto  03:34 
+02. II. Largo  02:14 
+03. III. Allegro  02:58 Жанр: ClassicalПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:59F425893A074C5E63A856DB4A52622999997C95
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413232.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 413 168
+
+Anaal Nathrakh - 4 Albums  2014-2020  EXPLICIT, Metal Blade Records Inc. [FLAC 2.0|44 16 24|
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Endarkenment [00:03:55]
+02. Thus, Always, To Tyrants [00:02:32]
+03. The Age of Starlight Ends [00:04:33]
+04. Libidinous  a Pig with Cocks in Its Eyes  [00:04:20]    Читать дальше...    Жанр: Blackened Grindcore, Industrial MetalПродолжительность: 4 CD, 02:48:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:313CD0B60606C4814DBE5EC6736283AEA8FCFA25
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413168.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 413 100
+
+Bon Jovi - 2020  2020  [FLAC|24 96|Lossless|WEB-DL|MQA|tracks] <Rock, Hard Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Limitless  03:42 
+02. Do What You Can  04:20 
+03. American Reckoning  04:42 
+04. Beautiful Drug  03:48     Читать дальше...    Жанр: Rock, Hard RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:928185F697338CD2A3132C54BED6D3C5F1EF593E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413100.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 413 079
+
+Roger Waters - Us + Them  2020  Live, 2CD [FLAC|24 48|Lossless|WEB-DL|tracks] <Progressive Roc
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+Disk 1: 
+01. Intro  Live in Amsterdam, June, 2018 
+02. Speak to Me  Live in Amsterdam, June, 2018 
+03. Breathe  Live in Amsterdam, June, 2018     Читать дальше...    Жанр: Progressive Rock |Продолжительность: 01:54:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:8BFABDB7EF0D04C464CFF3DA74C6AA63BB8C5FDC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1413079.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 412 977
+
+Peter Donohoe - Mozart: Piano Sonatas. Volume 2  2019  SOMM Recordings [FLAC 2.0|88.2 24|track
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+Вторая часть обзора Моцарта в исполнении Peter Donohoe была записана в марте 2019 года. Он и команда Somm’s recording возвращаются в Бирмингемскую консерваторию к роялю Bechstein, который идеально звучит без той дерзости, которую мог бы внести Steinway.
+Сонаты представляют собой трилогию, сочиненную во время злополучного путешествия Моцарта в 1777-78 гг. через Мангейм     Читать дальше...    Piano Sonata No. 7 in C Major, K. 309:
+01. I. Allegro con spirito  06:11 
+02. II. Andante un poco adagio  05:51 
+03. III. Rondo. Allegretto grazioso  06:08 Жанр: ClassicalПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2ED1E5A8F10BCE326AFD0171DD530F56D11D3594
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1412977.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 412 901
+
+T.Rex - Electric Warrior  1971  2020 [DSD 128|tracks|Vinyl-Rip] <Glam Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Mambo Sun  3:39 
+ 02. Cosmic Dancer  4:31 
+ 03. Jeepster  4:11 
+ 04. Monolith  3:50     Читать дальше...    Жанр: Glam RockПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0DBDC4F8C6D58B0F07C260EC5A5D07E2AC791A05
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1412901.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 412 712
 
 Mao Fujita - Chopin: Impromptus and Scherzos  2020  Naxos [FLAC 2.0|96 24|tracks|WEB-DL] <Clas
@@ -1718,281 +1995,6 @@ A4 God Bless The Child    Читать дальше...    Жанр: Jazz, Blues�
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1396481.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 396 333
-
-Toto - Fahrenheit  1987  [FLAC|FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Till The End
-A2 We Can Make It Tonight
-A3 Without Your Love
-A4 Can t Stand It Any Longer    Читать дальше...    Жанр: Pop RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1B7CD35271646095C8214DB499F06230FD7BE04D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1396333.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 396 201
-
-Deep Purple - Nothing At All  2020  Single [FLAC|24 44,1|Lossless|WEB-DL|tracks] <Hard Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Nothing At All
-02. Man Alive
-03. Throw My BonesЖанр: Hard RockПродолжительность: 00:13:57
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:99E80BBE5EE454778B93325DE2A9313D9209E7F0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1396201.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 396 183
-
-Toto - Stranger In Town  Dance Mix   1984  12 , 45 RPM, Single [FLAC 2.0|192 24|tracks|V
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A Stranger In Town  Dance Mix 
-
-
-    Читать дальше...    Жанр: Pop RockПродолжительность: 00:11:24
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B50D1736179C1208ADABB4B60D83FBA6B8EEB0D5
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1396183.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 396 096
-
-Ozzy Osbourne - Diary Of A Madman  1981  AnTrop Unofficial Release, 1993 [FLAC 2.0|192 24|imag
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Over The Mountain  Выше гор 
-A2 Flying High Again  Уносящийся ввысь 
-A3 You Can t Kill Rock And Roll  Ты не можешь убить рок-н-ролл 
-A4 Believer  Верящий     Читать дальше...    Жанр: Heavy MetalПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1093B42A25CC5F36E0B57C13CFDA653138B1FFB4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1396096.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 395 360
-
-Fish - Something In The Air  1992  45 RPM, Single [FLAC|Lossless|tracks] <Prog Rock, Pop Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A Something In The Air  Teddy Bear Mix 
- John Keene 
-B1 Something In The Air  Album Mix 
- John Keene     Читать дальше...    Жанр: Prog Rock, Pop RockПродолжительность: 00:16:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7F438428D44C3DCE881E4A56F966E3AA90ABFDB7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395360.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 395 194
-
-The Hooters - Day By Day  1986  Recorded  21 Apr 1985 [FLAC 2.0|192 24|image +.cue|Vinyl-Rip]
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A Day By Day
- E. Bazilian, R. Chertoff, R. Hyman 
-B1 And We Danced
- E. Bazilian, R. Hyman     Читать дальше...    Жанр: Pop Rock, New WaveПродолжительность: 00:11:59
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:69166609356DC2B416242DFC7D62E918A8EA6F7A
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395194.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 395 117
-
-101 Strings - 20 Romantic melodies fo the Morning, Noon and Night  1983  3xLP [FLAC 2.0|96 24|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-101 Strings Orchestra был брендом для очень успешной организации легкой симфонической музыки, с дискографией, превышающей 150 альбомов и творческой продолжительностью около 30 лет, начиная с 1957 года. У 101 Strings был фирменный звук, сосредоточенный на мелодии с непринужденной атмосферой чаще всего с участием струнных инструментов.
-Их пластинки были индивидуализированы     Читать дальше...    A1 Some Enchanted Evening
-A2 The Way You Look Tonight
-A3 Moonlight Becomes You
-A4 Wonderland By Night    Читать дальше...    Жанр: Easy Listening
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DD80894B2BB448095641D613DCE16BB38C64563D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1395117.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 394 645
-
-Fonograf - FG-4  1976  [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Pop Roc>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Prelude
-A2 Co-Ordinates
-A3 Bright Sky
-A4 FG-4    Читать дальше...    Жанр: Pop RocПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1394645.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 394 588
-
-Gary Moore - White Knuckles  1985  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A1 Nuclear Attack
-A2 White Knuckles Rockin  & Rollin
-A3 Run To Your Mama  Live 
-A4 You    Читать дальше...    Жанр: RockПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1529B5A8CAACC68161392192D59F1F0D85678103
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1394588.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 394 384
-
-Boney M. - Hooray! Hooray! It s A Holi-Holiday  1979  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A Hooray! Hooray! It s A Holi-Holiday
- Frank Farian, Fred Jay 
-B Ribbons Of Blue
- Forsey Жанр: DiscoПродолжительность: 00:08:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:17032F2F3921B09E6FE8487BD89DEF10377ABBDA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1394384.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 393 652
-
-Simone  Kopmajer - My Wonderland  2020  [FLAC|24 48|Lossless|WEB-DL|tracks] <Vocal Jazz, Bossa
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. My Wonderland
-02. Voce E Eu  You and I 
-03. Something New
-04. A Man and a Woman    Читать дальше...    Жанр: Vocal Jazz, Bossa NovaПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F32DA02E6BA0120DE45C922F101EAE7561D31EE8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1393652.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

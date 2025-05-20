@@ -1,4 +1,275 @@
 ﻿
+###  Публикация: 1 604 662
+
+Vanessa-Mae - The Violin Player  1995  2004 [DTS 5.1 CD-DA|44.1 16|image+.cue|SACD] <Techno 
+HD Audio и Многоканальная Музыка
+DTS-Audio
+
+###  Подробнее
+
+Давно уже ставший классикой дебютный альбом 1995 года совсем тогда молоденькой китайско-тайской скрипачки. В 2004 году на ЭМИ был сделан многоканальный ремикс и выпущен SACD. Довольно слабенький, на мой взгляд мое ухо микс, но сама музыка и экспрессия исполнительницы все искупают...За образ SACD благодаримЖанр: Techno Pop, ElectronicПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B917221CB8D3F53DB9C9F702F9CC7F39289A37D5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1604662.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 604 432
+
+Sunchild - Exotic Creatures and a Stolen Dream  2023  Antony Kalugin [FLAC 2.0|48 24|tracks|WE
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Life Lines  Expanded Version 
+02. Northern Skies  Expanded Version 
+03. Timeless Motion
+04. Northern LightsЖанр: Progressive RockПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:FC347CF08A073A6B38E6C3924C92857C13654F92
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1604432.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 604 059
+
+Мираж - МИРАЖ-III  оригинал   1991  [FLAC 2.0|48 24|tracks|MB-Rip] <Pop, Dance, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+[4:52] Я жду тебя
+[4:40] Ты словно тень
+[5:52] Солнечный ЗайчикЖанр: Pop, Disco, DanceПродолжительность: 00:15:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE8D3AECEA25FDDF7DD68C3CE06561BE1374F282
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1604059.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 604 028
+
+VA - Танцуем Без Перерыва  1973  [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+А1 Оркестр Джеймса Ласта – Скокиан
+А2 Оркестр Джеймса Ласта – Звезды В Твоих Глазах
+А3 Оркестр Джеймса Ласта – Жизнь Прекрасна
+А4 Оркестр Поля Мориа – Изадора    Читать дальше...    Жанр: PopПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1604028.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 603 932
+
+TNYFBB - Rocking Horse  2023  [FLAC 2.0|48 24|tracks|WEB-DL] <Blues Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. It s My Time And If...  07:30 
+02. Break It Apart  04:54 
+03. Boundary Street  00:44 
+04. Fight the Good Fight  04:48     Читать дальше...    Жанр: Blues RockПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F1214CB81DF302BA8771915AA8EF32CF55F4771A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1603932.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 603 776
+
+Dark Tranquillity - Studio Albums  13 releases   1995 - 2020  hand made [restored, declipped
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Dark Tranquillity — шведская метал-группа, созданная в 1989 году в Гётеборге, под названием Septic Broiler. После записи демо Enfeebled Earth музыканты изменили название на Dark Tranquillity. Наряду с In Flames и At the Gates считаются одними из пионеров жанра мелодичного дэт-метала.1995 - Skydancer + Of Chaos And Eternal Night
+1995 - The Gallery
+1997 - The Mind s I
+1999 - ProjectorЖанр: Melodic Death MetalПродолжительность: 13:23:20
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:0A7929AC5C0DA5CDB11CAAB349DEC9859F8970E6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1603776.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 603 756
+
+Шахерезада - Свадьба в Малиновке  1992  [WavPack 2.0|192 32|tracks|MB-Rip] <Pop, Dance, Disco>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+[4:03] 01. Берег Левый, берег Правый
+[3:47] 02. Командир Полка
+[5:18] 03. Цыганочка-Яночка
+[3:47] 04. Это не сон    Читать дальше...    Жанр: Pop, Dance, DiscoПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C02762DD7A2E305447501C9C4AA8D425D81B0BD0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1603756.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 603 557
+
+The Cars - The Cars  1978  Remastered, 2015, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit 2822,4
+HD Audio и Многоканальная Музыка
+SACD-R
+
+###  Подробнее
+
+01. Good Times Roll 03:46
+02. My Best Friend’s Girl 03:44
+03. Just What I Needed 03:44
+04. I’m In Touch With Your World 03:32    Читать дальше...    Жанр: New Wave, Pop Rock, Synth-popПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:AC5D862F2C07004B63653D2418040F5EF13C0ACD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1603557.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 603 507
+
+Shania Twain - Not Just A Girl  The Highlights   2022  [FLAC|96 24|Lossless|WEB-DL|tracks]
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Not Just A Girl
+02. You re Still The One
+03. Man! I Feel Like A Woman!
+04. What Made You Say That  Single Version     Читать дальше...    Жанр: PopПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A83AB2737A4EDDC9B79E81A08FB8BDDFD669FDE0
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1603507.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 603 407
+
+Cradle of Filth - Studio Albums  24 releases   1994-2021  hand made [restored, declipped] [F
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Cradle of Filth — английская метал-группа, основанная в 1991 году вокалистом Дэниелом Ллойдом Дэви, выступающим под псевдонимом Дэни Филт. Стиль группы менялся от альбома к альбому, но в среднем представляет собой смесь симфонического блэк-метала и готик-метала. Лирика и образы Cradle of Filth находятся под сильным влиянием готической литературы, поэзии, фильмов     Читать дальше...    1994 - The Principle Of Evil Made Flesh
+1996 - Dusk And Her Embrace
+1998 - Cruelty And The Beast
+2000 - MidianЖанр: Black Gothic MetalПродолжительность: 31:09:49
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C5A088AEE03CBB531409F5C9A509C4E3FBEDF6CA
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1603407.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 603 371
+
+Jim MacLeod and his band - 60 Minutes de danses écossaises  1974  [FLAC 2.0|192 24|image +.cue
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Face 1:
+01.Duke And Duchess Of Edinburgh
+02.McDonald Of Sleat
+03.Circassian Circle    Читать дальше...    Жанр: Celtic, FolkПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6B51C36E44B5715D78F1B08940C57CDFB31E257B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1603371.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 603 099
 
 Гран-КуражЪ - Дискография  10 релизов   2006 - 2021  hand made [restored, declipped] [FLAC 2
@@ -1729,281 +2000,6 @@ Disc 1 Bob Ludwig 2011 Remaster:
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591676.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 658
-
-Candlemass - Green Valley  Live in Lockdown, July 3rd 2020   2021   [FLAC 2.0|44 24|tracks
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Well of Souls  5:54 
-02. Dark Reflections  4:43 
-03. Mirror Mirror  5:22 
-04. Ancient Dreams  0:59     Читать дальше...    Жанр: Epic Doom MetalПродолжительность: 01:09:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:74B09318FC6A6F051E456CFD5FCF2526EC8E93B1
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591658.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 591 175
-
-Rage Against The Machine - Studio Albums  4 releases   1992 - 2000  hand made [restored, dec
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Rage Against the Machine  RATM  — американская рок-группа из Лос-Анджелеса, штат Калифорния. Образованная в 1991 году, группа состоит из вокалиста Зака де ла Роча, басиста и бэк-вокалиста Тима Коммерфорда, гитариста Тома Морелло и барабанщика Брэда Уилка.1992 - Rage Against The Machine
-1996 - Evil Empire
-1999 - The Battle Of Los Angeles
-2000 - RenegadesЖанр: Alternative Rock, Funk MetalПродолжительность: 03:29:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1591175.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 988
-
-Lamb of God  & Burn The Priest  - Studio Albums  10 releases   1999 - 2022  hand made [r
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Lamb of God — американская грув-метал-группа, образовавшаяся в 1994 году в Ричмонде, штат Вирджиния, изначально известная как Burn the Priest, но изменившая название после выпуска дебютного альбома в 1999 году. Коллектив считается лидером новой волны американского хэви-метала.1999 - Burn The Priest
-2000 - New American Gospel
-2003 - As The Palaces Burn
-2004 - Ashes of the WakeЖанр: Groove MetalПродолжительность: 09:38:11
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:31912B9FCB3A848EA89CD94E725513972FF96501
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590988.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 517
-
-Suzi Quatro - Uncovered  2022  [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Bad Moon Rising  2:19 
- 02. Midnight Hour  2:26 
- 03. I Feel The Earth Move  2:54 
- 04. Walking The Dog  2:35     Читать дальше...    Жанр: Rock, BluesПродолжительность: 00:17:45
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590517.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 282
-
-Алексей Рыбников - «Юнона» И «Авось»  1982  [FLAC 2.0|192 24|side-tracks|Vinyl-Rip] <Opera, Ar
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Сторона 1 • «Юнона» И «Авось» • Опера
-02. Сторона 2 • «Юнона» И «Авось» • Опера  Продолжение 1 
-03. Сторона 3 • «Юнона» И «Авось» • Опера  Продолжение 2 
-04. Сторона 4 • «Юнона» И «Авось» • Опера  Окончание     Читать дальше...    Жанр: Opera, Art Rock, ExperimentalПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:41E63F282DB24B5F59DB0ADDF88ADFCF16F8C0DB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590282.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 260
-
-Suzi Quatro - Suzi Quatro  1973  [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Rock & Roll>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. 48 Crash  3:57 
- 02. Glycerine Queen  3:52 
- 03. Shine My Machine  3:54 
- 04. Official Suburbian Superman  3:10     Читать дальше...    Жанр: Glam, Hard Rock, Rock & RollПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7463B9EC8E8C6AC4915BB7AA46B8BE1E2BBCDE2B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590260.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 590 239
-
-Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Thunder — английская рок-группа из Лондона. Основана в 1989 году бывшими участниками Terraplane Дэнни Боузом (вокал), Люком Морли (гитара, бэк-вокал) и Гэри Джеймсом (ударные), а также вторым гитаристом и клавишником Беном Мэтьюзом и басистом Марком Лакхерстом.1990 - Laughing On Judgement Day
-1992 - Laughing On Judgement Day
-1994 - Behind Closed Doors
-1996 - The Thrill Of It All(   Читать дальше...   )Жанр: Hard RockПродолжительность: 19:09:36
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1590239.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 868
-
-Bruce Springsteen - Only the Strong Survive  2022  [FLAC 2.0|24 96|WEB-DL|tracks] <Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Only the Strong Survive  3:00 
-02. Soul Days  3:58 
-03. Nightshift  4:57 
-04. Do I Love You  Indeed I Do   2:27     Читать дальше...    Жанр: RockПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:87E06E8641E52E9CDF20E9BAE7CE5917392E13AB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589868.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 844
-
-Рыбников Алексей - Звезда и смерть Хоакина Мурьеты  1978  1981 [FLAC 2.0|192 24|side-tracks|Vi
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-01. Сторона 1 4   • Звезда И Смерть Хоакина Мурьеты
-02. Сторона 2 4   • Звезда И Смерть Хоакина Мурьеты  Продолжение 
-03. Сторона 3 4   • Звезда И Смерть Хоакина Мурьеты  Продолжение 
-04. Сторона 4 4   • Звезда И Смерть Хоакина Мурьеты  Окончание     Читать дальше...    Жанр: Country Rock, Musical, Symphonic RockПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5CF14060D125CA94EFADCD263421BBBF3DCDFB9C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589844.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 674
-
-Epica - The Alchemy Project  2022  EP [FLAC 2.0|48 24|WEB-DL|tracks] <Symphonic Metal>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. The Great Tribulation  feat. Fleshgod Apocalypse   5:04 
-02. Wake The World  feat. Phil Lanzon & Tommy Karevik   6:11 
-03. The Final Lullaby  feat. Shining   5:12 
-04. Sirens - Of Blood And Water  feat. Charlotte Wessels & Myrkur   4:17     Читать дальше...    Жанр: Symphonic MetalПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7B5472A8AFAF9840F2862F7134E8C275442CC993
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589674.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 589 387
-
-Andrea Bocelli - My Christmas  2022  Fireside Edition [FLAC|96 24|Lossless|WEB-DL|tracks] <Pop
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Silent Night  Fireside Version 
-02. White Christmas
-03. Angels We Have Heard On High
-04. Santa Claus Is Coming To Town    Читать дальше...    Жанр: Pop, Classical CrossoverПродолжительность: 01:39:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2EFEBCB504CDD78BBB26946712B41C5BC23B7932
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1589387.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

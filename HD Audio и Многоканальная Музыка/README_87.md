@@ -1,4 +1,302 @@
 ﻿
+###  Публикация: 600 618
+
+Янка Дягилева - Не Положено  1992  [FLAC 2.0 24 96|image + .cue  Vinyl-Rip ]<Acoustic, Pun
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+01. Мы по колено [01:49]
+02. Только дождь вселенский [00:53]
+03. Под руки в степь [02:09]
+04. Фальшивый крест [01:16]
+05. Деклассированные элементы [03:19]
+06. Особый резон [02:30]
+07. Неволя рукам  регги  [01:53]
+08. На чёрный день [02:24]
+09. Берегись [02:19]
+10. Я повторяю 10 раз и снова [00:51]    Читать дальше...    Жанр: Acoustic, PunkПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:59F11D3809F12B11A717AA8B625753B45D77E5AB
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_600618.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 600 572
+
+Ария - 3 магнитоальбома  1986-1987  [FLAC 2.0 24 48|tracks  MBRip ]<Hard Rock, Heavy Metal
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_600572.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 600 384
+
+The Cranberries - 5 альбомов  1993-1999, 2012  [FLAC 2.0 24 192 |image + .cue, tracks  Vinyl
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: Alternative RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_600384.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 599 817
+
+Ария - 3 альбома  1987-1991  [WavPack 2.0 24 192|image + .cue  Vinyl-Rip ]<Hard Rock, Heav
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1. Прощай, Норфолк! 5:20
+A2. Зомби 4:32
+A3. Антихрист 5:08
+A4. Не Хочешь, Не Верь Мне 4:00
+B1. Кровь За Кровь 7:43
+B2. Бесы 3:22
+B3. Всё, Что Было 5:15
+B4. Следуй За Мной! 4:40Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_599817.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 597 511
+
+Fleetwood Mac – Rumours  1976   2011 Remaster  [DST 2.0, 5.1 1bit 2822,4kHz |SACD-R]<Pop R
+HD Audio и Многоканальная Музыка
+SACD-R
+
+###  Подробнее
+
+01. Second Hand News  2:46 
+02. Dreams  4:18 
+03. Never Going Back Again  2:04 
+04. Don t Stop  3:13 
+05. Go Your Own Way  3:43 
+06. Silver Springs  4:33 
+07. The Chain  4:28 
+08. You Make Loving Fun  3:34 
+09. I Don t Want To Know  3:14 
+10. Oh Daddy  3:56     Читать дальше...    Жанр: Pop RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D33CEC6B18D9E7CB77D10DE0ABD2D8637627322B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_597511.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 595 495
+
+Bryan Ferry - Boys And Girls  1985   2005 Remaster  [DST 2.0, 5.1 1bit 2822,4kHz |SACD-R]<
+HD Audio и Многоканальная Музыка
+SACD-R
+
+###  Подробнее
+
+01. Sensation  5:10 
+02. Slave To Love  4:26 
+03. Don t Stop The Dance  4:19 
+04. A Waste Land  1:03 
+05. Windswept  4:31 
+06. The Chosen One  4:51 
+07. Valentine  3:48 
+08. Stone Woman  4:56 
+09. Boys And Girls  5:25 
+Что такое SACD-R, и как его слушатьЖанр: Glam RockПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:83F604A041BE5DA3B77078E7EFC28727EE033AD1
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_595495.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 595 072
+
+Deep Purple - Live On The BBC  1972   2004, Audio Fidelity  [DST 2.0 1bit 2822,4kHz |SACD-
+HD Audio и Многоканальная Музыка
+SACD-R
+
+###  Подробнее
+
+01. Introduction  0:13 
+02. Highway Star  8:19 
+03. Strange Kind Of Woman  9:17 
+04. Maybe I m A Leo  6:18 
+05. Never Before  4:35 
+06. Lazy  10:21 
+07. Space Truckin   21:45 
+08. Smoke On The Water  7:08 
+09. Lucille  7:25 Жанр: Hard RockПродолжительность: 01:29:54
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2E19C914E10C4B01270F124347F965EEADD705A2
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_595072.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 592 967
+
+Edguy - 5 альбомов  2001-2011   10LP  [FLAC 2.0 192 24 |tracks  VinylRip ] <Heavy Meta
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Жанр: power metal, heavy metalПродолжительность: 6:18:12
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_592967.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 589 035
+
+Gorky Park - Moscow Calling  1992  Denmark [FLAC 2.0 24 192|image  Vinyl-Rip ]<Hard Rock>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Moscow Calling вышел 29 марта 1993 года. Во многих странах, в том числе и в России он вышел под названием Gorky Park 2. Альбом не попал в американские чарты, но завоевал немалую популярность, продавшись в мире тиражом в полмиллиона копий. Бешеную популярность диск получил в Дании, получив там платиновый статус. В Европе этот диск представляла фирма BMG, в Скандинавии     Читать дальше...    Жанр: Hard RockФормат: Vinyl, LP, AlbumПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:2A0B810E2A98DE97ECBCD7FABF591DE51CEC72CD
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 585 731
+
+Rainbow - Rising  1976   2011 SHM-SACD  [DSD 2.0 1bit 2822,4kHz |SACD-R]<Heavy metal, hard
+HD Audio и Многоканальная Музыка
+SACD-R
+
+###  Подробнее
+
+1. Tarot Woman 06:05
+2. Run With The Wolf 03:44
+3. Starstruck 04:09
+4. Do You Close Your Eyes 03:02
+5. Stargazer 08:32
+6. A Light In The Black 08:15Жанр: Heavy metal, hard rockПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:67E23621319C321BBADCED918EA2765504A31F71
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_585731.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 583 293
+
+Claire Martin - Too Darn Hot!  2002  [DST 2.0, 5.1 1bit 2822,4kHz |SACD-R]<Vocal, Jazz>
+HD Audio и Многоканальная Музыка
+SACD-R
+
+###  Подробнее
+
+01. Something s Coming
+02. Love at Last
+03. The Gentleman Is a Dope
+04. These Foolish Things
+05. It s Raining in My Heart
+06. Too Darn Hot!
+07. Black Coffee
+08. Noir
+09. Love is a Necessary Evil
+10. When I Fall in Love    Читать дальше...    Жанр: Vocal, JazzПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:3A3074BDB59008AD4C4DFB6298FC65EE30BCF1E3
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_583293.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 582 107
 
 Uriah Heep - Magic Night  Live at Astoria Theatre, London  [DST 2.0, 5.1 1bit 2822,4kHz |SACD-
@@ -1911,272 +2209,6 @@ Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_275827.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 269 645
-
-Pink Floyd - The Dark Side of the Moon  1973   Vinyl Rip 24 192  [FLAC|Lossless] <Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-1. Speak To Me  Поговори со мной  01:00
-2. Breathe  Дыши  02:50
-3. On The Run  Бегство  03:53
-4. Time  Время  06:45    Читать дальше...    Жанр: RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_269645.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 257 891
-
-Richard Friedman - Directions: Center [DTS 5.1 CD-Audio from Audio-DVD]  2000  <New Age>
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-1  Journey To The CenterЖанр: New Age, RelaxПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_257891.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 253 090
-
-Андрей Макаревич и Оркестр Креольского Танго - Старая Машина  2006  [DTS 5.1|1411 kb s|Апмикс]
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-01. Маленький город
-02. Эпоха большой нелюбви
-03. Он был старше ее
-04. Мы расходимся по домам    Читать дальше...    Жанр: RockПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5503D66E7ED0D997E73755C03638A82CBEF06703
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_253090.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 252 811
-
-Robert Miles - Organik  2001  [DTSCD][UP]<Trance, Instrumental>
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-01. Tsbol
-02. Separation
-03. Paths
-04. Wrong
-05. It s All Coming Back
-06. Pour Te Parler
-07. Trance Shapes
-08. Connections
-09. Release Me
-10. Improvisations Part 1    Читать дальше...    Жанр: Trance, InstrumentalПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_252811.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 247 894
-
-Alan Parsons Project - The Turn of a Friendly Card [DTS CD from DVD-Audio   1980  <Art Rock>
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-1  May Be A Price To PayЖанр: Art RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_247894.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 232 130
-
-Bill Mize - Coastin   1998   DTSCD OF  <new age, bakersfield sound>
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-Жанр: Guitar New AgeПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_232130.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 229 812
-
-Fleetwood Mac - Say You Will  2003  [MLP 2.0, 5.1 96 24 |DVD-Audio]<rock>
-HD Audio и Многоканальная Музыка
-DVD-Audio
-
-###  Подробнее
-
-01. What s The World Coming To [03:48]
-02. Murrow Turning Over In His Grave [04:12]
-03. Illume  9-11  [04:51]
-04. Thrown Down [04:02]    Читать дальше...    Жанр: RockПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_229812.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 205 976
-
-Europe - The Final Countdown  Upmix   1986  [DTS]<ROCK>
-HD Audio и Многоканальная Музыка
-DTS-Audio
-
-###  Подробнее
-
-01. The Final Countdown  5:13 
-02. Rock The Night.  4:06 
-03. Carrie  4:33 
-04. Danger On The Track  3:48     Читать дальше...    Жанр: RockПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BBE10AAF1A8C964EA09FE536820BFC5823C6269C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_205976.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 204 208
-
-Coldplay - 4 альбома  Vinil-rip 24 Bit 96 kHz   2000-2008  [FLAC|Lossless]<Alternative Roc
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 203 549
-
-Manowar - 11 альбомов  1982-2012   FLAC 2.0|96,192 24|FLAC|VinylRip] <Heavy Metal>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Жанр: Heavy MetalПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_203549.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 194 789
-
-Scorpions - Sting In The Tail  2010  [Vinyl Rip 24Bit 192kHz]<Rock>
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Side A:
-01. Raised On Rock  3:59 
-02. Sting In The Tail  3:13 
-03. Slave Me  2:45     Читать дальше...    Жанр: RockПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_194789.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

@@ -1,4 +1,630 @@
 ﻿
+###  Публикация: 580 666
+
+Suzi Quatro - In The Spotlight [2CD Deluxe Edition]  2012  [FLAC|Lossless]<Classic Rock, Pop Roc
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+В In The Spotlight  2CD, Deluxe Edition  вошли:
+— на одном CD непосредственно альбом 2011 года In The Spotlight
+— на втором CD — 8 ранее неизданных треков и 2 два бонус видео клипа.
+Несмотря на то, что большинству слушателей известен только английский период творчества Сюзи Куатро, ее карьера началась в Америке. Сюзи Кэй Куатро родилась 3 июня 1950 года в Детройте в семье джазового музыканта Арта Кватро, американца итальянского происхождения, и венгерки Хелен Санислай. В восьмилетнем возрасте она уже принимала участие в выступлениях джазового коллектива Art Quatro Trio. В детстве девочка обучалась игре на пианино, но в 14 лет увлеклась рок-н-роллом и вместе со своими сестрами организовала банду «The Pleasure Seekers». Группа просуществовала около пяти лет, успела выпустить несколько синглов и даже побывала с концертами во Вьетнаме.Продолжительность: 00:29:2101. Empty Rooms  03:36 
+02. Make Love To Me  04:07 
+03. Why Do Rainbows Die  03:54 
+04. Truck Stop  03:32 
+05. If Ever There Was A Reson  04:20 
+06. Touch The Child In Me  03:17 
+07. Tree Time Loser  03:10 
+08. One Dance Too Long  03:26 
+Bonus Enhanced Video Tracks:
+ 09. Singing With Angels    Читать дальше...    Жанр: Classic Rock, Pop RockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_580666.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 580 619
+
+Suzi Quatro - In The Spotlight  Deluxe Edition   2CD   2012  [MP3|320 кб с]<Pop-Rock &
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+01. Empty Rooms  03:36 
+02. Make Love To Me  04:07 
+03. Why Do Rainbows Die  03:54 
+04. Truck Stop  03:32 
+05. If Ever There Was A Reson  04:20 
+06. Touch The Child In Me  03:17 
+07. Tree Time Loser  03:10 
+08. One Dance Too Long  03:26 Жанр: Pop-Rock & Soft Rock, Classic Rock, Glam RockПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E4CDB4CB7291A3DB2B6D6AE07F9FF32FC03E616E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_580619.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 580 290
+
+Форсаж - Area II  2012  [FLAC|lossless] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок  Lossless 
+
+###  Подробнее
+
+01. Area II  02:35 
+02. Верю и не верю  04:18 
+03. Дорога в дивный сад  04:59 
+04. Край свободы  05:29 
+05. Тайна  05:28 
+06. Быстро-быстро  03:24 
+07. Сердце  04:46 
+08. Твоя жизнь  05:39 
+09. Великая душа  05:35 
+10. Отражение  03:54     Читать дальше...    Жанр: Heavy MetalПродолжительность: 01:07:54
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_580290.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 580 257
+
+Ария - В жёлтом круге арены  live  2CD  2012  [MP3|320 kbps] <Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01. Колизей  6:28 
+02. Кровь за Кровь  8:05 
+03. Аттила  6:21 
+04. Последний Закат  5:04 
+05. Осколок Льда  5:38 
+06. Штиль  5:45 
+07. Небо Тебя Найдет  6:12 
+08. Герой Асфальта  5:11 
+09. Улица Роз  7:44 
+10. Дай Жару!  5:28 Жанр: Heavy MetalПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:C630A4AD8A94F96A815FA74102D7CD59891088C7
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 580 106
+
+Death - Spiritual Healing  1990  Deluxe Edition, Remastered 2012 [FLAC|Lossless]<Death Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+CD1
+
+01. Living Monstrosity
+02. Altering The Future
+03. Defensive Personalities
+04. Within The Mind
+05. Spiritual Healing
+06. Low Life
+07. Genetic Reconstruction
+08. Killing SpreeЖанр: Death MetalПродолжительность: 03:07:13
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_580106.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 580 042
+
+The Alan Parsons Project - The Collection  2010  [FLAC|Lossless]<Progressive Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Sirius
+02. Eye In the Sky
+03. Mammagamma
+04. I Wouldn t Want to Be Like You
+05. Some Other Time
+06. In the Lap of the Gods
+07. Lucifer
+08. Nothing Left to Lose
+09. Silence and I
+10. Old and Wise    Читать дальше...    Жанр: Progressive RockПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_580042.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 579 727
+
+The Rolling Stones - GRRR!  2012  Super Deluxe Edition, 5CD+7” Vinyl [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Diddley Daddy  2:39 
+02. Road Runner  3:05 
+03. Bright Lights Big City  2:27 
+04. Baby What.s Wrong  3:27 
+05. I Want To Be Loved  2:03 Жанр: RockПродолжительность: 00:13:40
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_579727.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 579 523
+
+Dying Fetus - Descend Into Depravity  Japanese Edition   2009  [FLAC|Lossless]<Technical Bru
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Your Treachery Will Die With You 03:34
+02. Shepherd s Commandment 04:28
+03. Hopeless Insurrection 04:32
+04. Conceived Into Enslavement 04:24
+05. Atrocious By Nature 03:52
+06. Descend Into Depravity 05:02
+07. At What Expense 04:37
+08. Ethos Of Coercion 03:16
+09. Grotesque Impalement  Live  05:03
+10. Twisted Truth  Pestilence Cover  04:06Жанр: Technical Brutal Death MetalПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_579523.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 579 517
+
+The Stranglers - Greatest Hits On CD&DVD  2012  [MP3|320 кб с]<Punk>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01.  Get A  Grip  On Yourself 
+02. Peaches
+03. Go Buddy Go
+04. Something Better Change
+05. No More Heroes
+06. 5 Minutes
+07. Nice N  Sleazy
+08. Walk On By
+09. Duchess
+10. Nuclear Device    Читать дальше...    Жанр: PunkПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:5BD7B30ED77C2BDB10FF0B2AA6E7A19ED2C24425
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_579517.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 579 429
+
+Motionless In White - 6 альбомов + 3 EP  2007-2020  [MP3|320 кб с]<Post-Hardcore, Electronic,
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Another Life: Motion Picture Collection  feat. Kerli 
+02. Eternally Yours: Motion Picture Collection  feat. Crystal Joilena 
+03. Another Life: Motion Picture Collection  Instrumental 
+04. Eternally Yours: Motion Picture Collection  Instrumental Жанр: Post-Hardcore, Electronic, Metalcore, Industrial MetalПродолжительность: 06:30:02
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:DC3D134C769AB72433445B2E2D8A6916878B6B27
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_579429.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 579 379
+
+Krokus -  12 Альбомов  1977 - 2003  Non-remastered, 1st Press [WavPack|Lossless]<Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+Список альбомов:
+1977- To You All
+1980- Metal Rendez-vous
+1981- Hardware
+1983- Headhunter
+1984- The Blitz
+1986- Alive And Screamin 
+1986- Change Of Address
+1988- Heart Attack
+1989- Stayed Awake All Night    Читать дальше...    Жанр: Hard RockПродолжительность: 9:07:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:9A7833DC84580CA045F6E217EA5A398FA688A33B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_579379.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 579 358
+
+Snakadaktal - Snakadaktal [EP]  2011  [MP3|320 кб с]<indie, alternative>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+###  Подробнее
+
+01. Wake Up
+02. Chimera
+03. Air
+04. Carnival  Lobster Monster 
+05. Skin
+06. BoyЖанр: indie, alternativeПродолжительность: 00:26:08
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E52393B9599881737ADB0935A4B11C68D7E996FE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_579358.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 579 291
+
+Cactus - The New Cactus Band  1970-1973  5 CD Box Set  Victor,2009  [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. It s Getting Better  3:50 
+02. I Can t Wait  3:27 
+03. Hook Line And Sinker  3:56 
+04. It s Just A Feelin   4:11 
+05. Lady  Spend My Life With You   4:29 
+06. Ragtime Suzy  2:47 
+07. Blue Gipsy Woman  3:21 
+08. Senseless Rebel  3:28 
+09. Man Is A Boy  3:30 
+10. Hold On To My Love  4:14     Читать дальше...    Жанр: Blues, Classic, Hard RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 579 290
+
+Deftones - Koi No Yokan  2012  [FLAC|Lossless]<Progressive   Nu Metal   Alt. Metal>
+Rock, Alternative, Punk, Metal
+Metal  Lossless 
+
+###  Подробнее
+
+01. Swerve City  2:45 
+02. Romantic Dreams  4:38 
+03. Leathers  4:09 
+04. Poltergeist  3:31 
+05. Entombed  4:59 
+06. Graphic Nature  4:32 
+07. Tempest  6:06 
+08. Gauze  4:41 
+09. Rosemary  6:53 
+10. Goon Squad  5:40     Читать дальше...    Жанр: Progressive   Nu Metal   Alt. MetalПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_579290.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 579 255
+
+Krokus - Original Album Classics  1980-1982  Remastered 3CD Box Set  2012, Sony Music  [FLAC
+Rock, Alternative, Punk, Metal
+Hard Rock  Lossless 
+
+###  Подробнее
+
+Альбомы:
+1980 - Metal Rendez-Vous
+1981 - Hardware
+1982 - One Vice At A Time01. Heatstrokes  04:01 
+02. Bedside Radio  03:22 
+03. Come On  04:30 
+04. Streamer  06:45 
+05. Shy Kid  02:34 
+06. Tokyo Nights  05:55 
+07. Lady Double Dealer  03:14 
+08. Fire  06:07 
+09. No Way  04:03 
+10. Back-Seat Rock  N  Roll  03:15 Жанр: Hard RockПродолжительность: 01:57:55
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_579255.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 579 222
+
+Ian Anderson - 6 Альбомов  1983 - 2005  [FLAC|Lossless]<Progressive Rock, Folk>
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Pavane  4:37 
+02. Aqualung  10:24 
+03. God Rest Ye Merry Gentlemen  4:59 
+04. My God  8:52 
+05. Budapest  14:04Life Is A Long Song 
+06. Locomotive Breath  6:43 Жанр: Progressive Rock, FolkПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 578 987
+
+Группа - Весенняя  макси-сингл   2012  [MP3|320 кб с]<pop-rock, pop-punk>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+1. Весенняя
+2. Катя не возьмет
+3. Музыка нас связала  Мираж cover 
+4. Трудовые будни
+5. Поворот
+6. Весенняя  sax version Жанр: pop-rock, pop-punkПродолжительность: 00:15:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:224B9211D25172599740947F6BEC937B73266E21
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_578987.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 578 984
+
+Karla - Karla  1990  [MP3|320 кб с]<Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+###  Подробнее
+
+01.  Outsider  3:46 
+02.  Love Won t Wait  4:16 
+03.  In The Night  2:58 
+04.  Hungry For Your Love  3:44 
+05.  I m All Over You  3:55 
+06.  Hold On  3:50 
+07.  Daddy  4:07 
+08.  Lot To Learn  3:51 
+09.  Season s Change  3:20 
+10.  Fashion  3:00     Читать дальше...    Жанр: Hard RockПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:EE28F739D616985121A28BDA6C8D025B5B9E1C1B
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_578984.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 578 875
+
+Brett Ellis - 3 Альбома  2007-2012  [FLAC|Lossless]<Classic Rock, Blues Rock, Guitar Virtuoso,Ha
+Rock, Alternative, Punk, Metal
+Rock  Lossless 
+
+###  Подробнее
+
+01. Only One  3:32 
+02. Fly On  3:38 
+03. Monkey Brains  7:25 
+04. Cuz You Ain t  3:57 
+05. Make It Rain  5:51 
+06. Farmers Daughter  5:29 
+07. Blast Knuckles  4:07 
+08. Bad Luck  4:01 
+09. Stone Cold Killer  3:43 
+10. The Conductor  6:43     Читать дальше...    Жанр: Classic Rock, Blues Rock, Guitar Virtuoso,Hard RockПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+    
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 578 826
+
+Electric Light Orchestra - Mr. Blue Sky: The Very Best Of Electric Light Orchestra  2012  Japan
+Rock, Alternative, Punk, Metal
+Rock (Lossless)
+
+###  Подробнее
+
+01. Mr. Blue Sky  2012 Re-Recorded Version   3:44 
+02. Evil Woman  2012 Re-Recorded Version   4:30 
+03. Strange Magic  2012 Re-Recorded Version   3:53 
+04. Don t Bring Me Down  2012 Re-Recorded Version   4:01 
+05. Turn To Stone  2012 Re-Recorded Version   3:46 
+06. Showdown  2012 Re-Recorded Version   4:16 
+07. Telephone Line  2012 Re-Recorded Version   4:30 
+08. Livin  Thing  2012 Re-Recorded Version   3:42 
+09. Do Ya  2012 Re-Recorded Version   3:56 
+10. Can t Get It Out Of My Head  40th Anniversary   4:35     Читать дальше...    Жанр: Progressive RockПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+    нет
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_578826.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 578 730
+
+Иван Панфилов - 2 альбома (2002-2007) [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+###  Подробнее
+
+01 Колыбельная
+02 На ринге
+03 НИКОГДА
+04 Что-то Случилось(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:622C3B1722919DA808C62EAEB1D495C74A5926F9
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_578730.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 578 316
 
 Альтависта - Ю Кен Би Фри  2012  [FLAC|Lossless] <Rock>
@@ -1665,581 +2291,6 @@ Metal (Lossless)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_568703.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 568 691
-
-Anberlin - Vital  2012  [MP3|320 кб с]<Alternative Rock>
-Rock, Alternative, Punk, Metal
-Alternative, Punk (Lossless)
-
-###  Подробнее
-
-1.Self Starter  3:17 
-2.Little Tyrants  3:21 
-3.Other Side  4:05 
-4.Someone Anyone  3:28 
-5.Intentions  3:08 
-6.Innocent  4:17 
-7.Desires  3:05 
-8.Type Three  3:56 
-9.Orpheum  3:50 
-10. Modern Age  4:12     Читать дальше...    Жанр: Alternative RockПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8E0CBD2CDA346F3AAA1AB535E9FE8021B5CF0A7D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 568 096
-
-Brendon Small - Brendon Small’s Galaktikon  2012  [web] [FLAC|Lossless]<Space Metal   Heavy Me
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-Жанр: Space Metal   Heavy Metal   AlternativeПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_568096.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 567 779
-
-All That Remains - A War You Cannot Win  2012  [MP3|320 кб с]<Metalcore>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. Down Through the Ages  3:31 
-02. You Can t Fill My Shadow  3:33 
-03. Stand Up   4:00 
-04. A Call to All Non-Believers  2:44 
-05. Asking Too Much  3:28     Читать дальше...    Жанр: MetalcoreПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B5C0114EB8E6F1AA4AE5C9986950E2DDDAEB6E73
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 567 662
-
-КняZz  Князь  - 7 альбомов  2005-2017  [FLAC|Lossless|image + .cue] <Punk Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок  Lossless 
-
-###  Подробнее
-
-«КняZz» - российская панк-рок-группа из Санкт-Петербурга  Купчино , созданная весной 2011 года Андреем Князевым, являвшимся на момент её создания участником панк-группы «Король и Шут». Отказавшись от работы в театре над зонг-оперой ужасов «TODD» совместно с Михаилом Горшенёвым, Андрей Князев решил создать собственную группу. В плане лирического наполнения песен стиль     Читать дальше...    2005 - Любовь негодяя
-2011 - Письмо из Трансильвании
-2012 - Тайна кривых зеркал
-2013 - Роковой карнавалЖанр: Punk RockПродолжительность: 06:00:41
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D51033461916BF7B009398A3A5A7B468F002E361
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_567662.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 567 166
-
-Aerosmith - Music From Another Dimension!  2012  [MP3|320 кб с]<Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01. Luv XXX  5:17 
-02. Oh Yeah  3:41 
-03. Beautiful  3:05 
-04. Tell Me  3:45 
-05. Out Go The Lights  6:55 
-06. Legendary Child  4:13 
-07. What Could Have Been Love  3:44 
-08. Street Jesus  6:43 
-09. Can t Stop Lovin  You  Duet With Carrie Underwood   4:04 
-10. Lover Alot  3:35     Читать дальше...    Жанр: Hard RockПродолжительность: 01:08:05
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1032E2E0C8009DB84B5B874F79D393511B12E072
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_567166.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 566 801
-
-Ольга Арефьева и Ковчег - Хвоин  2012  [MP3|320 kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-###  Подробнее
-
-01. Забор  04:27 
-02. Время  03:25 
-03. Пал Вавилон  03:38 
-04. Экология моей головы  04:08     Читать дальше...    Жанр: RockПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EAC595D364342E986EB05DFB8B460290C76D3FC3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_566801.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 566 756
-
-Helloween - Burning Sun  2012  Single [MP3|320 кб с]<Power Metal, Speed Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-1. Burning Sun  05:35 
-2. Wanna Be God  02:03 
-3. Another Shot of Life  05:15 
-4. Where the Sinners Go  live   03:56 Жанр: Power Metal, Speed Metal |Продолжительность: 00:16:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7F2B1704E0417CD083DEE37F8A507CEFEE9F6D60
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 566 283
-
-Cradle Of Filth - The Manticore & Other Horrors  2012  Limited Edition [MP3|320 кб с]<Symphoni
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. The Unveiling of O
-02. The Abhorrent
-03. For Your Vulgar Delectation
-04. Illicitus
-05. Manticore
-06. Frost on Her Pillow
-07. Huge Onyx Wings Behind Despair
-08. Pallid Reflection
-09. Siding With the Titans
-10. Succumb To This    Читать дальше...    Жанр: Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:4C295BE72E2D4E88EDB8927CCE05E5336EF75586
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 566 251
-
-Karma To Burn - Slight Reprise  2012  [MP3|320 кб с]<Stoner Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-1 Ten
- 2 Fourteen
- 3 Three
- 4 Seven
- 5 Eight
- 6 Two Times
- 7 Thirteen
- 8 One
- 9 SixЖанр: Stoner RockПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9BB038CBB51816DA3B72BFA56AC37584D774AC82
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_566251.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 566 171
-
-Lamb Of God - Resolution  2012  [FLAC|Lossless]<Groove Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. Straight from the Sun  2:10 
-02. Desolation  3:55 
-03. Ghost Walking  4:27 
-04. Guilty  3:25 
-05. The Undertow  4:47 
-06. The Number Six  5:23 
-07. Barbarosa  1:37 
-08. Invictus  4:15 
-09. Cheated  2:34 
-10. Insurrection  4:50     Читать дальше...    Жанр: Groove MetalПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_566171.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 566 019
-
-Stone Sour - House of Gold & Bones Part 1  Japanese Edition   2012  [FLAC|Lossless]<Alternat
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-01. Gone Sovereign  4:03 
-02. Absolute Zero  3:50 
-03. A Rumor Of Skin  4:11 
-04. The Travelers, Pt.1  2:27 
-05. Tired  4:12 
-06. RU486  4:22 
-07. My Name Is Allen  4:18 
-08. Taciturn  5:26 
-09. Influence Of A Drowsy God  4:29 
-10. The Travelers, Pt.2  3:02     Читать дальше...    Жанр: Alternative   Nu-MetalПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_566019.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 565 272
-
-П.Т.В.П.  Последние Танки В Париже, ПТВП, Лёха Алексей Никонов  - Ультиматум  2012  [FLAC|
-Rock, Alternative, Punk, Metal
-Русский Рок  Lossless 
-
-###  Подробнее
-
-Сторона А:
-___________________________
-01.Жанр: Punk Rock, Rock, Punk Hardcore, NoiseПродолжительность: 00:32:59
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_565272.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 565 193
-
-Deep Purple - Machine Head  1972  4 Remastered CD Box Set  2012, EMI Records  [WavPack|Lossl
-Rock, Alternative, Punk, Metal
-Hard Rock  Lossless 
-
-###  Подробнее
-
-01. Introduction [00:16]
-02. Highway Star [07:41]
-03. Strange Kind Of Woman [09:32]
-04. Maybe I m A Leo [05:35]
-05. Smoke On The Water [07:31]
-06. Never Before [05:18]
-07. Lazy [09:22]
-08. Space Truckin  [22:11]
-09. Lucille [07:30]Жанр: Rock, Hard RockПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_565193.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 564 589
-
-Fleetwood Mac - 16 Studio albums + 6 Solo-albums + 1 Compilations + 1 Box Set  1968 - 2012 [WavP
-Rock, Alternative, Punk, Metal
-Rock  Lossless 
-
-###  Подробнее
-
-01. I Believe My Time Ain t Long [02:52]
-02. Need Your Love So Bad [03:54]
-03. Rattlesnake Shake [03:30]
-04. Oh Well Part 1 [03:30]    Читать дальше...    Жанр: Rock, Classic Rock, Blues Rock, Pop Rock, Soft Rock, BluesПродолжительность: 04:53:29
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:0190B22D73C81D867542A4B29BA160AE70AECD40
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_564589.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 564 411
-
-The Beach Boys - Fifty Big Ones: Greatest Hits  2012  [FLAC|Lossless]<Pop Rock>
-Rock, Alternative, Punk, Metal
-Rock (Lossless)
-
-###  Подробнее
-
-01. California Girls [2002 Stereo Mix]
-02. Do It AgainЖанр: Pop RockПродолжительность: 01:15:49
-
-01. Kokomo
-02. You’re So Good to Me [2007 Stereo Mix]
-03. Wild Honey [2012 Stereo Mix]
-04. Darlin’ [2012 Stereo Mix]
-05. In My Room
-06. All This Is That
-07. This Whole World
-08. Add Some Music to Your Day    Читать дальше...    
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_564411.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 563 958
-
-Moody Blues - Collected [3 CD]  2007  [MP3|320 кб с]<Progressive Rock | Psychedelic Rock | Rhy
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-Жанр: Progressive Rock | Rhythm & BluesПродолжительность: 03:48:34
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3A5ADBDB15DE86FE0368ABCE5897D3B5B5ACC913
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_563958.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 563 868
-
-Parkway Drive - Atlas  2012  [MP3|320 кб с]<Metalcore>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-Жанр: MetalcoreПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:34FE73BC30F72451858D706B788900138CFB1026
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 563 583
-
-Ozzy Osbourne - 10 Studio albums + 4 Live-albums + 3 Compilations + 1 Limited Edition Box Set  198
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-###  Подробнее
-
-Список альбомов:
-1980- Blizzard Of Ozz  00:39:31 
-1981- Diary Of A Madman  00:43:23 
-1982- Speak Of The Devil  01:04:21     Читать дальше...    Жанр: Rock, Hard Rock, Metal, Heavy MetalПродолжительность: 20:40:55
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_563583.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 563 449
-
-Deep Purple - Aged Ballads  2004  [MP3|320 кб с]<Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-###  Подробнее
-
-01.  Walk On  7:04 
-02.  Dont Make Me Happy  4:53 
-03.  You Keep On Moving  5:17 
-04.  Haunted  4:22 
-05.  Soldier Of Fortune  3:12 
-06.  Holy Man  4:26 
-07.  Mitgi Dupree  5:03 
-08.  Lalena  5:05 
-09.  When A Blind Man Cries  3:28 
-10.  Sometimes I Feel Like  7:28     Читать дальше...    Жанр: Hard RockПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:414217D349AA23507CC99816C9D71F15B92F36FF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_563449.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 563 337
-
-VA - 100 Hits. Driving Rock 5 СD  2012  [MP3|320 кб с]<Rock>
-Rock, Alternative, Punk, Metal
-Rock, Alternative, Punk, Metal
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:17:21
-
-1. Don McLean - American Pie  Part 1 
-2. Al Stewart - Year Of The Cat    Читать дальше...    
-
-## Скачать торент
-```bash
-    нет
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_563337.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 563 275
-
-VA - Bat Head Soup - A Tribute To Ozzy  2000  [WavPack|Lossless]<Heavy Metal, Hard Rock>
-Rock, Alternative, Punk, Metal
-Metal  Lossless 
-
-###  Подробнее
-
-01. Mr. Crowley [04:55]
-Vocal: Ripper Owens  Judas Priest  Guitar: Yngwie Malmsteen
-Bass: Tim Bogert  Vanilla Fudge  Drums: Tommy Aldridge  Whitesnake 
-Keyboards: Derek Sherinian  Dream Theater 
-
-02. Over The Mountain [04:37]
-Vocal: Mark Slaughter  Slaughter  Guitar: Brad Gillis  Night Ranger Ozzy 
-Bass: Gary Moon  Night Ranger  Drums: Eric Singer  Kiss Badlands 
-Keyboards: Paul Taylor  Alice Cooper 
-    Читать дальше...    Жанр: Heavy Metal, Hard RockПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-    
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_563275.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------

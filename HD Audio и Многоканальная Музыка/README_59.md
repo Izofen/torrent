@@ -1,4 +1,276 @@
 ﻿
+###  Публикация: 1 548 822
+
+Secret Sphere - Liveblood - The Studio Session  Live   2022  [FLAC 2.0|48 24|WEB-DL|tracks
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01. Lifeblood  5:39 
+02. The Scars That You Can t See  5:05 
+03. Alive  5:02 
+04. The End of an Ego  3:50     Читать дальше...    Жанр: Melodic Power, Progressive MetalПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:4A633ED89571B670339670761D7C854EC7A35C08
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548822.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 801
+
+The Ray Conniff Singers - It s The Talk Of The Town  1959  1971 [FLAC 2.0|192 24|image+.cue|
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+A1 It s The Talk Of The Town
+A2 You re An Old Smoothie
+A3 Buttons And Bows
+A4 Let s Put Out The Lights  And Go To Sleep     Читать дальше...    Жанр: Jazz, PopПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:D554410E59E11D75E351C627B965CC74770AC44A
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548801.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 753
+
+Amaranthe - Дискография  6 albums   2011 - 2020  hand made [restored, declipped] [FLAC 2.0|4
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Amaranthe — шведско-датская метал-группа, основанная в 2008 году Джейком Е. Лундбергом  Dreamland, Dream Evil  и Олафом Мёрком  Dragonland, Nightrage . Проект начал складываться, когда к группе присоединились вокалисты Элиз Рид и Энди Сульвестрём, а также ударник Мортен Лёве. После выхода первого демо-альбома состав коллектива пополнил басист Юхан Андреассен2011 - Amaranthe
+2013 - The Nexus
+2014 - Massive Addictive
+2016 - MaximalismЖанр: Melodic Modern Metal, Power MetalПродолжительность: 05:18:14
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:1BFAD9DFA5F3B8410F3C1E4FCC3746757FFB0B0E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548753.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 750
+
+Deep Purple - Studio Albums  12 releases   1984 - 2021  hand made [restored, declipped] [FLA
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Deep Purple — британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия, и считающаяся одной из самых заметных и влиятельных в хард-роке 1970-х годов. Музыкальные критики считают Deep Purple одними из основателей хард-рока и высоко оценивают их вклад в его развитие.1984 - Perfect Strangers
+1987 - The House of Blue Light
+1990 - Slaves and Masters
+1993 - The Battle Rages On    Читать дальше...    Жанр: Hard RockПродолжительность: 11:39:42
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:55C0DB1AF2567AAF268F6BFAE2403189551F7578
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548750.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 744
+
+Gojira - Дискография  10 albums   1997 - 2021  hand made [restored, declipped] [FLAC 2.0|44<
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Gojira — французская метал-группа, основанная в 1996 году в Байонне. Вплоть до 2001 года была известна под названием Godzilla. В состав группы входят: вокалист и гитарист Джо Дюплантье, его брат-ударник Марио Дюплантье, гитарист Кристиан Андрю и бас-гитарист Жан-Мишель Лабади.2001 - Terra Incognita
+2003 - The Link
+2005 - From Mars to Sirius
+2008 - The Way of All FleshЖанр: Progressive Groove Death MetalПродолжительность: 10:38:07
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:B7846B12EC391B0D4288511141D4F30AEBC6805E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548744.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 728
+
+Divine Heresy - Studio Albums  2007 - 2009  hand made [restored, declipped] [FLAC 2.0|44 16|tr
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Divine Heresy  «Божественная Ересь»  — американская дэт-метал группа, образованная в 2006 году в Лос-Анджелесе гитаристом Дино Касаресом.2007 - Bleed the Fifth
+2009 - Bringer of PlaguesЖанр: Technical Death Groove Metal, MetalcoreПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:58DD94B6ABAC19A038D3F7FDC05ECDCB0DCDE1BC
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548728.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 654
+
+VA - Jesus Christ Superstar: Highlights From the All-Female Studio Cast Recording  2022  [FLAC 2
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+1. Shoshana Bean – Heaven on Their Minds  04:40 
+2. Morgan James – What s The Buzz?   Strange Things Mystifying  04:25 
+3. Cynthia Erivo – Everything s Alright  04:16 
+4. Debbie Gravitte – This Jesus Must Die  03:39     Читать дальше...    Жанр: Musical, Broadway, Film Soundtracks, Rock Opera, Female VocalПродолжительность: 01:19:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:F2AFA8D9B018A87BDB0F17F215BD45583BCCB9B6
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548654.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 628
+
+Triosphere - Studio Albums  3 releases   2006-2014  hand made [restored, declipped] [FLAC |1
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Triosphere — норвежская Power Progressive Metal группа из Тронхейма, созданная в 2004 году вокалисткой и басисткой Идой Хаукланд и гитаристом Мариусом Сильвером Бергесеном.2006 - Onwards
+2010 - The Road Less Travelled
+2014 - The Heart of the MatterЖанр: Power Progressive MetalПродолжительность: 02:54:50
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:E6D71D32F46155D77744B0DB554E85F5A157A2AE
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548628.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 606
+
+Anthems Of Gomorrah - Aelvica  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Death Detal, Melodic Bl
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+###  Подробнее
+
+01 Aelvica Amaranthine [00:05:33]
+02 Hammer of Aosoth [00:05:54]
+03 I Command Thee, Kneel! [00:05:04]
+04 The Lay of Maxim [00:06:08]    Читать дальше...    Жанр: Death Detal, Melodic Black MetalПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:A722B14D450DC1135325736CDD9267558A9B1D5E
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548606.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 519
+
+Poets of the Fall - Дискография  12 releases   2005 - 2022  hand made [restored, declipped]
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Poets of the Fall  с англ. — «Поэты Осени»  — финская рок-группа, записывающаяся на собственном лейбле «Insomniac». Образовалась в Хельсинки 25 апреля 2003 года из дуэта старых друзей: вокалиста Марко Сааресто и гитариста Олли Тукиайнена, а также клавишника и продюсера Маркуса  Капитана  Каарлонена. Концертный состав «Poets of the Fall» включает     Читать дальше...    2005 - Signs of Life
+2006 - Carnival of Rust
+2008 - Revolution Roulette
+2010 - Twilight Theater    Читать дальше...    Жанр: Alternative Soft Indie RockПродолжительность: 10:57:41
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548519.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
+###  Публикация: 1 548 510
+
+Amorphis - Дискография  21 releases   1991 - 2022  hand made [restored, declipped] [FLAC 2.0
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+###  Подробнее
+
+Amorphis — финская англоязычная метал-группа. Группа была основана в 1990 году Яном Рехбергером и Эсой Холопайненом. Группа неоднократно меняла звучание, и её музыка не укладывается в рамки одного жанра. Её первый альбом выдержан в стиле дэт-метал. Начиная со второго альбома группа соединила финскую народную музыку с дэт-дум-метал. На более поздних записях появилось     Читать дальше...    1992 - The Karelian Isthmus
+1994 - Tales from the Thousand
+1996 - Elegy
+1999 - Tuonela    Читать дальше...    Жанр: Progressive Melodic Death MetalПродолжительность: 21:05:09
+
+## Скачать торент
+```bash
+    magnet:?xt=urn:btih:63D639D9F03669687BBC7F88F2FE405058071AB5
+```
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1548510.jpg" />
+</div>
+
+---------------------------------------------------------------------------------------------------------------
+
+
 ###  Публикация: 1 548 491
 
 Iron Maiden - Дискография  19 albums   1979 - 2021   hand made [restored, declipped] [FLAC 2
@@ -1718,281 +1990,6 @@ WEB-DL-Audio
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544576.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 291
-
-Monuments - In Stasis  2022  [FLAC 2.0|48 24|WEB-DL|tracks] <Djent, Math Metal, Progressive Me
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. No One Will Teach You  feat. Neema Askari   4:59 
-02. Lavoss  feat. Mick Gordon   4:10 
-03. Cardinal Red  feat. Mick Gordon   4:42 
-04. Opiate  4:18     Читать дальше...    Жанр: Progressive Metal, Metalcore, ElectronicПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:46DB3391AE6EC071CC5C4BD001A45D0285F922F3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544291.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 280
-
-Лариса Долина - Песня Нептуна  из к-ф «Танцплощадка»   1986  Серия: По Вашим Письмам [FLAC 2
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-A Песня Нептуна
- Е. Дога - М. Танич 
-B На Последнем Сеансе Кино
- Е. Дога - М. Танич     Читать дальше...    Жанр: SoundtrackПродолжительность: 00:07:49
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:500BF53E0757A5064D6012EAF2F0FF6152D4A9EA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544280.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 239
-
-Joe Satriani - Дискография  26 releases   1984 - 2022  hand made [restored, declipped] [FLAC
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-###  Подробнее
-
-Джозеф «Джо» Сатриани  англ. Joseph  Joe  Satriani; род. 15 июля 1956 года, Вестбери, Нью-Йорк, США  — американский гитарист-виртуоз. Учитель таких гитаристов, как Стив Вай, Кирк Хэммет, Алекс Сколник, Дэвид Брайсон, Чарли Хантер, Ларри ЛаЛондэ и многих других.1986 - Not of This Earth
-1987 - Surfing with the Alien
-1989 - Flying in a Blue Dream
-1992 - The ExtremistЖанр: Instrumental Rock, Hard RockПродолжительность: 29:23:48
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9398D67AC129A855AA4B648B1BA340AF247D609B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544239.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 227
-
-Kurt Vile -  watch my moves   2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Alternative, Indie Roc
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Goin on a Plane Today  2:30 
-02. Flyin  like a fast train   4:47 
-03. Palace of OKV in Reverse  2:54 
-04. Like Exploding Stones  7:18     Читать дальше...    Жанр: Alternative, Indie RockПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:BDECB7EA640EE26298675AC7C4C93D82C1E67EFA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544227.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 213
-
-Rush - Moving Pictures  1981  2CD, 40th Anniversary Super Deluxe, 2022, Mercury Records [FLAC 2.
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. 2112 - Overture  4:26 
-02. 2112 - The Temples of Syrinx  2:17 
-03. Freewill  5:51 
-04. Limelight  4:47     Читать дальше...    Жанр: Progressive rockПродолжительность: 2CD, 02:39:18
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:04FA9D75020CA091DA748E46AE6A847E20EBCFFF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544213.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 205
-
-Semblant - Vermilion Escape  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Gothic Metal>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Enrage  4:49 
-02. Destiny in Curse  4:03 
-03. Purified  4:33 
-04. The Human Eclipse  4:09     Читать дальше...    Жанр: Gothic MetalПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A20D9113E474A3F6E3D44539C9AF484CF54CD2B7
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544205.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 204
-
-Poison Rose - Little Bang Theory  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Melodic Metal>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Inner Wolf  3:21 
-02. Your Eyes Again  3:50 
-03. Devil  Knock on My Door   3:52 
-04. Hearts Beat Loud  3:52     Читать дальше...    Жанр: Melodic MetalПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC0FA9FE3BE6BE890E2CF4147167ED9C97460216
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544204.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 194
-
-Edgar Winter - Brother Johnny  2022  [FLAC 2.0|96 24|WEB-DL|tracks] <Blues Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Mean Town Blues  5:05 
-02. Still Alive and Well  3:43 
-03. Lone Star Blues  3:57 
-04. I’m Yours and I’m Hers  4:49     Читать дальше...    Жанр: Blues RockПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B40960B4FCD3D3B15458FEBF9EBD6528EAC61410
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544194.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 189
-
-Ronnie Romero - Raised on Radio  2022  Cover album [FLAC 2.0|44.1 24|WEB-DL|tracks] <Melodic H
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Sin s A Good Man s Brother  Grand Funk Railroad   4:30 
-02. Backstreet Love Affair  Survivor   3:59 
-03. No Smoke Without A Fire  Bad Company   4:22 
-04. I Was Born To Love You  Queen   3:43     Читать дальше...    Жанр: Melodic Hard RockПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5A1A6B799568DFF01855606141042A04CFDEB084
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544189.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 188
-
-Nazareth - Surviving The Law  2022  [FLAC 2.0|44.1 24|WEB-DL|tracks] <Hard Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Strange Days [00:03:22]
-02. You Gotta Pass It Around [00:03:21]
-03. Runaway [00:03:33]
-04. Better Leave It Out [00:03:33]    Читать дальше...    Жанр: Hard RockПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2D802157A63EE09C7D02C0A21A4750D9C7453F50
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544188.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 544 156
-
-Kreator - Endorama  1999  2CD, 2021, Ultimate Edition, Remastered, AFM Records [FLAC 2.0|44.1 
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-###  Подробнее
-
-01. Golden Age  4:51 
-02. Endorama  3:21 
-03. Shadowland  4:28 
-04. Chosen Few  4:30     Читать дальше...    Жанр: Thrash MetalПродолжительность: 2CD, 01:43:40
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D21FA69738E432434C2F89C0D37D3E0C1A3F10A4
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1544156.jpg" />
 </div>
 
 ---------------------------------------------------------------------------------------------------------------
