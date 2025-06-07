@@ -1,31 +1,38 @@
-﻿
-###  Публикация: 1 796 317
+
+###  Публикация: 1799209   (752828)
+
+Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Scene Rune [Deluxe Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1799209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во мраке далекого будущего есть только война. Warhammer 40,000: Battlesector – это бесконечные взрывы и хруст костей, отвага и смерть. Это динамичная и зрелищная пошаговая стратегия, которая перенесёт Вас на поля сражений 41-го тысячелетия. Собирайте войска, развивайте армию, отправляйте в бой могучих героев и бейтесь за победу, применяя тактические приёмы, мощные (   Читать дальше...   )Тип издания: SceneРазработчик: Black Lab GamesЖанр: Стратегия, Пошаговая, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C1114E80E5E9C54490F8CD4246C7E8CE49E2AC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1796317   (751408)
 
 Stellaris (2016) [Ru/Multi] (4.0.6/dlc) Repack Pioneer [Steam Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
 
-###  Подробнее
-
-Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Simulation, StrategyЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5F10209C3BD019F10613E2CA924C22C1FA781E29
-```
-
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1796317.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1796317.jpg" />
 </div>
 
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 795 962
-
-Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Repack seleZen
-Win Игры
-Strategy (RTS/TBS/Grand)
 
 ###  Подробнее
 
@@ -33,43 +40,71 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:CD978844F9160E6F2973B41CC1C5296411A9A006
+magnet:?xt=urn:btih:5F10209C3BD019F10613E2CA924C22C1FA781E29
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1795962.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 795 863
+###  Публикация: 1795863   (751211)
 
 Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Repack FitGirl [Ultimate Bundle]
 Win Игры
 Strategy (RTS/TBS/Grand)
 
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1795863.jpg" />
+</div>
+
+
 ###  Подробнее
 
 Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Simulation, StrategyЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:5E3D73BCFA324269A2B382BFF9373B278FF6266E
+magnet:?xt=urn:btih:5E3D73BCFA324269A2B382BFF9373B278FF6266E
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1795863.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
+###  Публикация: 1795962   (751176)
 
-###  Публикация: 1 795 460
+Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Repack seleZen
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1795962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Simulation, StrategyЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD978844F9160E6F2973B41CC1C5296411A9A006
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1795460   (750950)
 
 ZEPHON (2024) [Ru/Multi] (1.1.4/dlc) Repack Other s [Supporter Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_007/save_picture_1795460.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -77,21 +112,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:AA10E6E92BF7CCE6F7EFDFD6041A81CB34C52C18
+magnet:?xt=urn:btih:AA10E6E92BF7CCE6F7EFDFD6041A81CB34C52C18
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 795 345
+###  Публикация: 1795345   (750768)
 
 Mechabellum (2023) [Ru/Multi] (1.4.3.0.1630/dlc) Repack Let'sРlay [Premium Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1795345.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -99,21 +136,23 @@ Mechabellum - это увлекательная тактическая воен�
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:058C59A31BF8FC1A8A6202B64CAB5AB4C191733B
+magnet:?xt=urn:btih:058C59A31BF8FC1A8A6202B64CAB5AB4C191733B
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1795345.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 795 337
+###  Публикация: 1795337   (750767)
 
 Age of Wonders: Planetfall (2019) [Ru/Multi] (1.404.43827/dlc) Repack Let'sРlay [Premium Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_007/save_picture_1795337.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -121,21 +160,23 @@ Age of Wonders: Planetfall – это новая стратегическая и
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:402D649388D3A50315A275A14E757D588313600D
+magnet:?xt=urn:btih:402D649388D3A50315A275A14E757D588313600D
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 792 484
+###  Публикация: 1792484   (749319)
 
 Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack FitGirl [Ultimate Bundle]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1792484.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -143,21 +184,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:B510157F5992F84E1A362DDAFC4C67C2C11AC934
+magnet:?xt=urn:btih:B510157F5992F84E1A362DDAFC4C67C2C11AC934
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1792484.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 791 312
+###  Публикация: 1791312   (748768)
 
 Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack seleZen [Anniversary Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1791312.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -165,21 +208,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:713508954C3F3187B6787A00F8D5C2D7CAD8515E
+magnet:?xt=urn:btih:713508954C3F3187B6787A00F8D5C2D7CAD8515E
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1791312.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 790 519
+###  Публикация: 1790519   (748325)
 
 Imagine Earth (2021) [Ru/Multi] (1.19/dlc) Repack FitGirl [Green Planet Bundle]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1790519.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -187,21 +232,23 @@ Imagine Earth это стратегический симулятор разви�
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:7F3281D0D3B55CA20AAB881A298840E0581B092B
+magnet:?xt=urn:btih:7F3281D0D3B55CA20AAB881A298840E0581B092B
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1790519.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 789 125
+###  Публикация: 1789125   (747870)
 
 Headquarters: World War II (2024) [Ru/Multi] (1.02.02/dlc) Repack Let'sРlay [Complete]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1789125.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -209,21 +256,23 @@ Headquarters: World War II - это динамическая пошаговая 
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:6DA3941B31687FB1E7D36704CC8BB7F4EA66566D
+magnet:?xt=urn:btih:6DA3941B31687FB1E7D36704CC8BB7F4EA66566D
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1789125.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 788 339
+###  Публикация: 1788339   (747565)
 
 Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.04.160.1/dlc) Repack Wanterlude [Deluxe Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1788339.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -231,21 +280,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:FB61390A0701E5A6E2BEA5FF6EF2877263145604
+magnet:?xt=urn:btih:FB61390A0701E5A6E2BEA5FF6EF2877263145604
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1788339.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 785 311
+###  Публикация: 1785311   (746760)
 
 Command & Conquer (2020) [Ru/Multi] (1.153.11.25007) Repack Let'sРlay [Remastered Collection]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1785311.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -253,21 +304,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:BE2D8A2D098E0B10756975B8A9E940DAB6D08A2A
+magnet:?xt=urn:btih:BE2D8A2D098E0B10756975B8A9E940DAB6D08A2A
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1785311.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 783 428
+###  Публикация: 1783428   (745759)
 
 Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Scene Rune
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1783428.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -275,21 +328,23 @@ Age of Mythology: Retold - игра от создателей культовой
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:4AC70D78CD7A606BC525B5F9130EE76C5DFDCA90
+magnet:?xt=urn:btih:4AC70D78CD7A606BC525B5F9130EE76C5DFDCA90
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1783428.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 781 501
+###  Публикация: 1781501   (745185)
 
 Master of Orion: Conquer the Stars (2016) [Ru/Multi] (55.1.1/dlc) Repack Pioneer
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1781501.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -297,21 +352,23 @@ Master of Orion предлагает игрокам исследовать бе�
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:13B03ABD285E911CF5BBED0F1A12EC5F150A806A
+magnet:?xt=urn:btih:13B03ABD285E911CF5BBED0F1A12EC5F150A806A
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1781501.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 779 776
+###  Публикация: 1779776   (744691)
 
 Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (0.2.0.5.202502121057/dlc) Repack FitGirl
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1779776.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -319,21 +376,23 @@ Bulwark - это создание своей крепости и расшире�
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:D4376A831374E072A1F435CA3BB85EB3B29D3571
+magnet:?xt=urn:btih:D4376A831374E072A1F435CA3BB85EB3B29D3571
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779776.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 779 377
+###  Публикация: 1779377   (744570)
 
 Renaissance Kingdom Wars (2024) [Ru/Multi] (1.0) Repack FitGirl [Deluxe Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1779377.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -341,21 +400,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:8E274D6C1418E881BFAF09DB9196A3D720351351
+magnet:?xt=urn:btih:8E274D6C1418E881BFAF09DB9196A3D720351351
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1779377.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 777 436
+###  Публикация: 1777436   (743712)
 
 Plague Inc: Evolved (2016) [Ru/Multi] (1.20.0.0/dlc) Repack Pioneer
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1777436.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -363,21 +424,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:C1A1AC33F37C5C1B9B856FDBEDC7103578DAA589
+magnet:?xt=urn:btih:C1A1AC33F37C5C1B9B856FDBEDC7103578DAA589
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1777436.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 777 284
+###  Публикация: 1777284   (743671)
 
 Dead Season (2024) [Ru/Multi] (build 15673615) Repack seleZen
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1777284.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -385,21 +448,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:0215304D5A95B13AD32B3DF2ED81875A0A2390F8
+magnet:?xt=urn:btih:0215304D5A95B13AD32B3DF2ED81875A0A2390F8
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1777284.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 776 351
+###  Публикация: 1776351   (743225)
 
 Battle Realms: Zen Edition (2019) [Ru/Multi] (1.59.1) Repack FitGirl
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1776351.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -407,21 +472,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:580EEE79C3EC7FEFA1FE10094D1F805B66A343BA
+magnet:?xt=urn:btih:580EEE79C3EC7FEFA1FE10094D1F805B66A343BA
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776351.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 776 000
+###  Публикация: 1776000   (743079)
 
 Battle Realms: Zen Edition (2001) [Ru/Multi] (1.59.1) Repack Let'sРlay
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1776000.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -429,21 +496,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A176BAECCB1C25499E02FC03377CD9C22D8731FD
+magnet:?xt=urn:btih:A176BAECCB1C25499E02FC03377CD9C22D8731FD
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1776000.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 775 478
+###  Публикация: 1775478   (742748)
 
 Dune: Imperium (2024) [Ru/Multi] (2.1.7.1100/dlc) Repack Let'sРlay
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1775478.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -451,43 +520,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:E6433AAB66C54923464D1001991A3B8CDA43ED93
+magnet:?xt=urn:btih:E6433AAB66C54923464D1001991A3B8CDA43ED93
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1775478.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 774 962
+###  Публикация: 1774962   (742428)
 
 Steel Division 2 (2019) [Ru/Multi] (143305/dlc) Repack FitGirl [Total Conflict Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
 
-###  Подробнее
-
-Стальная дивизия II предлагает не только тактический опыт в ВМВ. Этот основанный на Восточном фронте 1944 г. сиквел оценённой критиками игры RTS поставит вас во главе армии во время операции «Багратион» – советского наступления против нацистов на белорусской земле. Играйте как генерал в динамичных стратегических кампаниях масштаба 1:1, как полковник в эпичных тактических (   Читать дальше...   )Тип издания: RepackРазработчик: Eugen SystemsЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3089AB578F6F2A722C59F519B469E44B48423100
-```
-
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774962.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1774962.jpg" />
 </div>
 
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 774 785
-
-Steel Division 2 (2019) [Ru/Multi] (143305/dlc) Repack seleZen [Total Conflict Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
 
 ###  Подробнее
 
@@ -495,21 +544,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A67BF668074F13185DBA272BEC708B4FCDC919F9
+magnet:?xt=urn:btih:3089AB578F6F2A722C59F519B469E44B48423100
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774785.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 774 757
+###  Публикация: 1774757   (742316)
 
 Company of Heroes 2 (2014) [Ru/En] (4.0.0.23468/dlc) Repack dixen18 [Master Collection]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1774757.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -517,21 +568,47 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:120CC6B50EF55668E22A29A40CA25FEFC2B2D2F3
+magnet:?xt=urn:btih:120CC6B50EF55668E22A29A40CA25FEFC2B2D2F3
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774757.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
+###  Публикация: 1774785   (742268)
 
-###  Публикация: 1 774 621
+Steel Division 2 (2019) [Ru/Multi] (143305/dlc) Repack seleZen [Total Conflict Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1774785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стальная дивизия II предлагает не только тактический опыт в ВМВ. Этот основанный на Восточном фронте 1944 г. сиквел оценённой критиками игры RTS поставит вас во главе армии во время операции «Багратион» – советского наступления против нацистов на белорусской земле. Играйте как генерал в динамичных стратегических кампаниях масштаба 1:1, как полковник в эпичных тактических (   Читать дальше...   )Тип издания: RepackРазработчик: Eugen SystemsЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67BF668074F13185DBA272BEC708B4FCDC919F9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1774621   (742218)
 
 Steel Division 2 (2019) [Ru/Multi] (143305/dlc) Repack Let'sРlay [Total Conflict Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1774621.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -539,21 +616,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A06F141E473EC56C8AD752ECEDF8FF9A496B5CEF
+magnet:?xt=urn:btih:A06F141E473EC56C8AD752ECEDF8FF9A496B5CEF
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774621.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 774 098
+###  Публикация: 1774098   (741809)
 
 Ultimate General: American Revolution (2024) [Ru/Multi] (1.0.3/dlc) Repack FitGirl [Premium Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1774098.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -561,21 +640,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:4B9581F4880F2F4B28DE30A290B0E2F1079CD3A9
+magnet:?xt=urn:btih:4B9581F4880F2F4B28DE30A290B0E2F1079CD3A9
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1774098.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 773 155
+###  Публикация: 1773155   (741414)
 
 Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1773155.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -583,21 +664,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:D41AE8A4A135AB02DD9391D323B0316063E72208
+magnet:?xt=urn:btih:D41AE8A4A135AB02DD9391D323B0316063E72208
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1773155.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 771 784
+###  Публикация: 1771784   (740845)
 
 Touch Type Tale: Strategic Typing (2024) [Ru/Multi] (1.2.68) Repack FitGirl [Deluxe Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1771784.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -605,21 +688,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:DF7E9D6F040B7BF8A32519E17F6786079A0C48B7
+magnet:?xt=urn:btih:DF7E9D6F040B7BF8A32519E17F6786079A0C48B7
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1771784.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 771 776
+###  Публикация: 1771776   (740832)
 
 Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack FitGirl [Deluxe Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1771776.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -627,21 +712,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:F5A5BC715FC43129790F22AD1272308A4E28EF09
+magnet:?xt=urn:btih:F5A5BC715FC43129790F22AD1272308A4E28EF09
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1771776.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 771 467
+###  Публикация: 1771467   (740698)
 
 Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (Build 16865040/dlc) Repack Let'sРlay [Com
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1771467.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -649,21 +736,23 @@ Bulwark - это создание своей крепости и расшире�
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:4EE9A367C2C3922892E3353002290FF33A1BF404
+magnet:?xt=urn:btih:4EE9A367C2C3922892E3353002290FF33A1BF404
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1771467.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 770 456
+###  Публикация: 1770456   (739997)
 
 S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.7.1846) Repack Other s
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1770456.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -671,21 +760,23 @@ S.W.I.N.E. HD Remaster - новое издание классической S.W.
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:D6B8CC088932889D12FD3D9097D1429FC8CC5C9F
+magnet:?xt=urn:btih:D6B8CC088932889D12FD3D9097D1429FC8CC5C9F
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1770456.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 770 447
+###  Публикация: 1770447   (739993)
 
 Imperator: Rome (2019) [Ru/Multi] (2.0.5/dlc) Repack Let'sРlay [Centurion Bundle]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1770447.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -693,923 +784,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:5A0CF0CBD1D311D68A122B4EC75629540124E9C9
+magnet:?xt=urn:btih:5A0CF0CBD1D311D68A122B4EC75629540124E9C9
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1770447.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 766 545
-
-Call to Arms - Gates of Hell: Ostfront (2021) [Ru/En] (1.047.0/dlc) Repack Let'sРlay [WW2]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Call to Arms - Gates of Hell: Ostfront – стратегия в реальном времени, в которой игроку предстоит проявить свои тактические навыки и умение читать ситуацию для принятия наиболее верного решения за считанные секунды. Сеттингом проекта является кровопролитный конфликт 20-го века – Вторая Мировая война, все доступные виды техники воссозданы по реальным прототипам, что (   Читать дальше...   )Тип издания: RepackРазработчик: Barbedwire Studios, DigitalmindsoftЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:98E38F187E2A50D367F15D3B26732881DEE522AB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1766545.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 765 221
-
-Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack seleZen
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Во мраке далекого будущего есть только война. Warhammer 40,000: Battlesector – это бесконечные взрывы и хруст костей, отвага и смерть. Это динамичная и зрелищная пошаговая стратегия, которая перенесёт Вас на поля сражений 41-го тысячелетия. Собирайте войска, развивайте армию, отправляйте в бой могучих героев и бейтесь за победу, применяя тактические приёмы, мощные (   Читать дальше...   )Тип издания: RepackРазработчик: Black Lab GamesЖанр: Стратегия, Пошаговая, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:758BBBF6707BB170575C4F5C6166513286E4C760
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1765221.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 765 186
-
-StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
-Win Старые Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Стороны конфликта представлены тремя игровыми расами: терранами, протоссами и зергами. Одним из важнейших новшеств игры является различие между воюющими сторонами при соблюдении баланса сил. StarCraft — одна из первых стратегий в реальном времени, в которой каждая сторона отличается не только внешним видом, но и характеристиками своих представителей, а также общей (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Strategy (Real-time), IsometricЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A9AE378988E74107FDA2DD5C98FA70231845547E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1765186.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 763 623
-
-Horizon (2014) [Ru/En] (1.0.2.156/dlc) Repack Let'sРlay [Deluxe Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Horizon — это пошаговая космическая стратегическая игра об исследовании и завоевании галактики, в которой вы управляете судьбой человечества. Вы будете исследовать глубокий космос, находить новые рубежи и находить инопланетные артефакты, спрятанные на давно заброшенных планетах. Вы также узнаете больше о галактике, вступая в контакт с десятью другими видами, каждый (   Читать дальше...   )Тип издания: RepackРазработчик: L3O InteractiveЖанр: Приключенческие игры, Инди, Симуляторы, Стратегии, БесплатныеЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C40606F9CE88C577F970CCB2C25F44AD5AF683A0
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1763623.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 763 365
-
-63 Days (2024) [Ru/Multi] (11237) Repack Let'sРlay
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Я принадлежу к первому поколению, родившемуся в свободной Польше после 123 лет иностранной оккупации. Начало Второй мировой войны лишило меня семьи, дома и будущего. Мы злы, устали, но едины. Нам не терпится что-то сделать, вернуть себе хоть какой-то контроль над жизнью. Мои товарищи и я чувствуем, что у нас есть только один выбор: отомстить и вернуть независимость (   Читать дальше...   )Тип издания: RepackРазработчик: Destructive CreationsЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:ED2AB3B67DB79B37DA1DC0244D951FF386FE6B4E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1763365.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 762 963
-
-Songs of Silence (2024) [Ru/Multi] (1.0.2-d.7718) Repack Let'sРlay [Supporter Bundle]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Songs of Silence погружает игроков в фантастический мир под угрозой надвигающейся Тишины. Эта стратегическая игра сочетает в себе управление королевством, развитие героя и элементы автобоя, кульминацией которых становятся захватывающие сражения в реальном времени. Погрузитесь в насыщенное повествование, ведя свое королевство против наступающей тьмы.Тип издания: RepackРазработчик: Chimera EntertainmentЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F7DEF4DEF32BD22AE9A5416C315E5E6D6A9C515B
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1762963.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 762 937
-
-HUMANKIND (2021) [Ru/Multi] (1.0.27.4539/dlc) Repack Let'sРlay [Definitive Edition]
-Win Старые Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-HUMANKIND – историческая пошаговая стратегия, в которой у вас будет возможность переписать историю человечества. Сочетайте различные культуры, ценности и истории, чтобы создать уникальную цивилизацию. Участвуйте в реальных исторических событиях, применяйте тактические навыки для градостроительства и военных действий, раскрывайте природные богатства планеты, стройте (   Читать дальше...   )Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CE1A1F29C3480C8837BDC1F001ACBFD60506681D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1762937.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 762 681
-
-Terraforming Mars (2018) [Ru/Multi] (2.7.1/dlc) Repack Let'sРlay
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Terraforming Mars – официальная адаптация популярной за океаном настольной игры о колонизации Марса и превращения этой планеты в пригодной для обитания человечества. Видеоигра представлена в виде пошаговой стратегии, где предоставляется достаточное количество времени для обдумывания дальнейших действий с целью извлечения максимальной выгоды. Игровой процесс строится (   Читать дальше...   )Тип издания: RepackРазработчик: Artefacts StudioЖанр: СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C5A4A9861DA431896EA8F3C8875B4C85322AD84D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1762681.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 762 622
-
-Northgard (2018) [Ru/Multi] (3.6.8.40407/dlc) Repack Let'sРlay [The Viking Age Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Спустя годы неутомимых поисков отважные викинги обнаружили новую землю, полную тайн, опасностей и богатств, — Нордгард. Храбрейшие из северян подняли паруса и отправились покорять чужие берега в надежде прославить свой клан и войти в историю благодаря своим завоеваниям, торговле и ревностному служению богам.Тип издания: RepackРазработчик: Shiro GamesЖанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3BE88892C937117FB6EEC657B4D15B9B7F03B90F
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1762622.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 835
-
-Hearts of Iron IV (4) (2016) [Ru/Multi] (1.15.0/dlc) Scene Rune
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Hearts of Iron 4 (IV) – отличный военный симулятор, в котором вы, следя за огромной глобальной картой времен Второй Мировой войны будете следить за развитием событий и решать, что нужно сделать для того, чтоб выбранная вами страна пережила войну, а возможно даже и захватила весь мир… Самое прекрасное заключается в том, что в этом симуляторе на огромной глобальной (   Читать дальше...   )Тип издания: SceneРазработчик: Paradox Development StudiosЖанр: Strategy (Real-time), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:C2C6F763A34CE899773DFBC793D64B9A2D5F1C02
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760835.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 738
-
-Hearts of Iron IV (4) (2016) [Ru/Multi] (1.15.0.acbb/dlc) Repack FitGirl
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Hearts of Iron 4 (IV) – отличный военный симулятор, в котором вы, следя за огромной глобальной картой времен Второй Мировой войны будете следить за развитием событий и решать, что нужно сделать для того, чтоб выбранная вами страна пережила войну, а возможно даже и захватила весь мир… Самое прекрасное заключается в том, что в этом симуляторе на огромной глобальной (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudiosЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5CF176EC147766704363C5670645C12ADC7B6405
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760738.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 651
-
-Ara: History Untold (2024) [Ru/Multi] (1.1.0.318/dlc) Repack Let'sРlay [Premium Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Создайте страну и проведите свой народ сквозь века к вершинам прогресса. Расширяйте территории, развивайте культуру и доказывайте свое величие на полях сражений или в дипломатических спорах. Этот мир в ваших руках. Ara: History Untold - новая ступень в жанре исторической стратегии. Классические механики компьютерных стратегий сочетаются с такими инновациями, как (   Читать дальше...   )Тип издания: RepackРазработчик: Oxide GamesЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EFA7C592F17629E45232DB6BF25CEC62CB5738DC
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760651.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 333
-
-WARNO (2024) [Ru/Multi] (138477/dlc) Repack Let'sРlay
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Вы готовы принять командование на себя? Сделайте это в аутентичной, масштабной и тщательно выверенной стратегической игре в реальном времени в духе холодной войны – WARNO. Являясь духовным наследником знаменитой серии Wargame, игра WARNO представляет собой совершенный боевой симулятор нового поколения по Третьей мировой войне.Тип издания: RepackРазработчик: Eugen SystemsЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:1A0D17D9BE0EC4D634707C9D9E1E21DE3E3F8D56
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760333.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 272
-
-Dead Season (2024) [Ru/Multi] (1.0.0.7) License GOG
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Тяжёлый воздух, наполненный тошнотворным запахом смерти, ни на секунду не позволяет забыть о царящем вокруг кошмаре. Улицы лежат в руинах, лишь шарканье шагов и стоны заражённых эхом разносятся между домами. Четверо случайных встречных, сведённых вместе стремлением выжить, вынуждены довериться друг другу и действовать сообща, чтобы спастись от разъярённых орд зомби. (   Читать дальше...   )Тип издания: LicenseРазработчик: Snail BiteЖанр: Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:CBD0B13C38EDD0B161D1392E6F1D8DBBDBF35CF6
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760272.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 760 080
-
-Dead Season (2024) [Ru/Multi] (1.0.0.7) Repack Let'sРlay
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Тяжёлый воздух, наполненный тошнотворным запахом смерти, ни на секунду не позволяет забыть о царящем вокруг кошмаре. Улицы лежат в руинах, лишь шарканье шагов и стоны заражённых эхом разносятся между домами. Четверо случайных встречных, сведённых вместе стремлением выжить, вынуждены довериться друг другу и действовать сообща, чтобы спастись от разъярённых орд зомби. (   Читать дальше...   )Тип издания: RepackРазработчик: Snail BiteЖанр: Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9058D970AA59FB6DB30700097ECAFCF4797C1299
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1760080.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 759 589
-
-Age of Mythology: Retold (2024) [Ru/Multi] (100.17.46557.0/dlc) Repack Let'sРlay [Premium Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Age of Mythology: Retold - игра от создателей культовой серии Age of Empires. На этот раз вам предстоит выйти за рамки привычной истории и погрузиться в мифическую эпоху, где бок о бок сосуществуют боги, чудовища и люди. Retold - это эволюция всеми любимой стратегии в реальном времени Age of Mythology, ставшая возможной благодаря современной графике и свежему подходу (   Читать дальше...   )Тип издания: RepackРазработчик: World's Edge, Forgotten Empires, Tantalus Media, CaptureAge, Virtuos GamesЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B7EC75576AA970F151AE795636BCBEA8E1406A7E
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759589.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 759 121
-
-Empire of the Ants (2024) [Ru/Multi] (1.02.19732) Repack FitGirl
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Новый взгляд на «Империю муравьев» с Digital Deluxe Edition. Вы перенесетесь в мир муравьев с эксклюзивным набором, который дарит игрокам три дня раннего доступа, великолепные обои, цифровой альбом и захватывающий саундтрек. Рыцари в хитиновых доспехах: сражайтесь за свою королеву, за наш союз… за нашу империю! Отправьтесь в захватывающее путешествие по крошечному (   Читать дальше...   )Тип издания: RepackРазработчик: Tower FiveЖанр: СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:F8C4D357CDB6EF82BC3F1AECA28AF089B4340AF3
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1759121.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 758 905
-
-Empire of the Ants (2024) [Ru/Multi] (1.02.19732/dlc) Repack seleZen
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Новый взгляд на «Империю муравьев» с Digital Deluxe Edition. Вы перенесетесь в мир муравьев с эксклюзивным набором, который дарит игрокам три дня раннего доступа, великолепные обои, цифровой альбом и захватывающий саундтрек. Рыцари в хитиновых доспехах: сражайтесь за свою королеву, за наш союз… за нашу империю! Отправьтесь в захватывающее путешествие по крошечному (   Читать дальше...   )Тип издания: RepackРазработчик: Tower FiveЖанр: СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:02598873B9350C3CF9AF277F73B91624AF3CA9F8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1758905.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 758 891
-
-Stellaris (2016) [Ru/Multi] (3.14.1/dlc) Repack Pioneer [Galaxy Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B4065CA4DBB3973D17E22949A70C4613D695126D
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1758891.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 758 746
-
-Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Repack FitGirl [WW2 Bundle]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Call to Arms - Gates of Hell: Ostfront – стратегия в реальном времени, в которой игроку предстоит проявить свои тактические навыки и умение читать ситуацию для принятия наиболее верного решения за считанные секунды. Сеттингом проекта является кровопролитный конфликт 20-го века – Вторая Мировая война, все доступные виды техники воссозданы по реальным прототипам, что (   Читать дальше...   )Тип издания: RepackРазработчик: Barbedwire Studios, DigitalmindsoftЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:67D848247B898B7922F52F3273AC031B592457AB
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1758746.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 758 410
-
-Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Scene Rune
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Call to Arms - Gates of Hell: Ostfront – стратегия в реальном времени, в которой игроку предстоит проявить свои тактические навыки и умение читать ситуацию для принятия наиболее верного решения за считанные секунды. Сеттингом проекта является кровопролитный конфликт 20-го века – Вторая Мировая война, все доступные виды техники воссозданы по реальным прототипам, что (   Читать дальше...   )Тип издания: SceneРазработчик: Barbedwire Studios, DigitalmindsoftЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:7E081A2A18154FC1153600790611D603B5081291
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1758410.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 758 022
-
-Unity of Command II (2019) [Ru/Multi] (Update 29/dlc) Repack FitGirl
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Новая игра, созданная на 3D-движке собственной разработки, остается верной знаменитому графическому стилю Unity of Command и повторяет ее четкий и динамичный геймплей. Unity of Command II - долгожданный сиквел культовой классики, с 2011 года превратившей немало новичков в закаленных полководцев. Перед вами игра, в которую просто играть, но крайне трудно выиграть!Тип издания: RepackРазработчик: 2x2 Games, CroteamЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Немецкий, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E1CA48DA8D4DF19E70F0DDF2B16B48142F3D421
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1758022.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 757 398
-
-WARNO (2024) [Ru/Multi] (138477/dlc) License GOG
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Вы готовы принять командование на себя? Сделайте это в аутентичной, масштабной и тщательно выверенной стратегической игре в реальном времени в духе холодной войны – WARNO. Являясь духовным наследником знаменитой серии Wargame, игра WARNO представляет собой совершенный боевой симулятор нового поколения по Третьей мировой войне.Тип издания: LicenseРазработчик: Eugen SystemsЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9C4333A3E928346931EF99903DBD1D36452620BF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1757398.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 755 890
-
-Hearts of Iron IV (4) (2016) [Ru/Multi] (1.14.10/dlc) Repack Pioneer
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Hearts of Iron 4 (IV) – отличный военный симулятор, в котором вы, следя за огромной глобальной картой времен Второй Мировой войны будете следить за развитием событий и решать, что нужно сделать для того, чтоб выбранная вами страна пережила войну, а возможно даже и захватила весь мир… Самое прекрасное заключается в том, что в этом симуляторе на огромной глобальной (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudiosЖанр: Strategy (Real-time), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AF68C3BC7B7332CEB31F9A414865E14A8D18D692
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1755890.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 755 350
-
-9-Bit Armies: A Bit Too Far (2024) [Ru/Multi] (856409, 859761) Repack FitGirl
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Ветераны стратегий в реальном времени Petroglyph представляют 9-Bit Armies: A Bit Too Far продолжение их триумфальной 8-битной серии игр. В 9-Bit Armies объединяйте свои военные силы на различных полях сражений и реализуйте свою стратегию на суше, на море и в воздухе. Размещайте своих воздушно-десантных солдат, разрушайте мосты и цельтесь из супероружия в новом виде (   Читать дальше...   )Тип издания: RepackРазработчик: PetroglyphЖанр: Экшены, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9451de411ddd995253020cc74d93fad1e6c3a2f3&tr=http%3A%2F%2Fbt02.nnm-club.cc%3A2710
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1755350.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 754 811
-
-Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Тяжёлый воздух, наполненный тошнотворным запахом смерти, ни на секунду не позволяет забыть о царящем вокруг кошмаре. Улицы лежат в руинах, лишь шарканье шагов и стоны заражённых эхом разносятся между домами. Четверо случайных встречных, сведённых вместе стремлением выжить, вынуждены довериться друг другу и действовать сообща, чтобы спастись от разъярённых орд зомби. (   Читать дальше...   )Тип издания: SceneРазработчик: Snail BiteЖанр: Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:8C330CD7E9DE26958D9B83AF6E9179E3DE9E5412
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1754811.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 752 280
-
-Crusader Kings III (3) (2020) [Ru/Multi] (1.14.2.2/dlc) Repack Pioneer [Royal Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Crusader Kings 3 - глобальная стратегия, значительно расширяющая границы возможностей предыдущей части. Короли-крестоносцы 3 охватывают временной промежуток с 1066 по 1453 года. В отличие от второй части, начать игру в любой момент времени не получится. Новая карта тянется от Испании до Бирмы и Монголии, а также от Скандинавии до Центральной Африки. Масштаб игры (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:D13A8D88652880E884A0C961B29805C55FD650EA
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1752280.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 751 975
-
-Age of Mythology: Retold (2024) [Ru/Multi] (100.17.43876.0/dlc) Repack Wanterlude [Premium Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Age of Mythology: Retold - игра от создателей культовой серии Age of Empires. На этот раз вам предстоит выйти за рамки привычной истории и погрузиться в мифическую эпоху, где бок о бок сосуществуют боги, чудовища и люди. Retold - это эволюция всеми любимой стратегии в реальном времени Age of Mythology, ставшая возможной благодаря современной графике и свежему подходу (   Читать дальше...   )Тип издания: RepackРазработчик: World's Edge, Forgotten Empires, Tantalus Media, CaptureAge, Virtuos GamesЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:9580B9FEFE175FF3F4E4215D70B47FE1CDEC5205
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751975.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 751 972
-
-Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Scene Rune
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Mechabellum - это эпический автобаттлер в научно-фантастическом сеттинге, в котором вам предстоит стать на место командира, возглавляющего армию мехов на недавно колонизированной планете Far-Away. Ваши противники будут дрожать от страха, пока вы настраиваете и повышаете уровень своих боевых единиц, стратегически расставляете их на поле боя и наблюдаете, как они безжалостно (   Читать дальше...   )Тип издания: SceneРазработчик: Game RiverЖанр: Экшены, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:B253D6EA96DC586CE852F3921A0C5A8534F28E2C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751972.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 751 967
-
-Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Repack FitGirl
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Mechabellum - это эпический автобаттлер в научно-фантастическом сеттинге, в котором вам предстоит стать на место командира, возглавляющего армию мехов на недавно колонизированной планете Far-Away. Ваши противники будут дрожать от страха, пока вы настраиваете и повышаете уровень своих боевых единиц, стратегически расставляете их на поле боя и наблюдаете, как они безжалостно (   Читать дальше...   )Тип издания: RepackРазработчик: Game RiverЖанр: Экшены, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:6C70028A616B5043A10EA186E5B719B45091D9C9
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751967.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 751 599
-
-Crusader Kings III (3) (2020) [Ru/Multi] (1.13.0.1/dlc) Repack Wanterlude [Royal Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Crusader Kings 3 - глобальная стратегия, значительно расширяющая границы возможностей предыдущей части. Короли-крестоносцы 3 охватывают временной промежуток с 1066 по 1453 года. В отличие от второй части, начать игру в любой момент времени не получится. Новая карта тянется от Испании до Бирмы и Монголии, а также от Скандинавии до Центральной Африки. Масштаб игры (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2599F6F42271FF0BEA1DA01D404021BE2BB21F63
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751599.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 751 598
-
-Crusader Kings III (3) (2020) [Ru/Multi] (1.13.0.1/dlc) Repack FitGirl [Royal Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Crusader Kings 3 - глобальная стратегия, значительно расширяющая границы возможностей предыдущей части. Короли-крестоносцы 3 охватывают временной промежуток с 1066 по 1453 года. В отличие от второй части, начать игру в любой момент времени не получится. Новая карта тянется от Испании до Бирмы и Монголии, а также от Скандинавии до Центральной Африки. Масштаб игры (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:95F54DABDC473C261F7ED9B1CCDD2F867D067515
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1751598.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 750 609
-
-StarCraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219/dlc) Repack dixen18
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-StarCraft 2: Legacy of the Void - это третья, и заключительная часть культовой стратегии в реальном времени, события которой разворачиваются параллельно с Heart of the Swarm и после его окончания. Главным героем этой части вновь станет Зератул, однако игрокам предстоит взять на себя роль не лидера Темных Тамплиеров Протоссов, а Артаниса, командира протоссов, который (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:A9A70439700E420ECB46B49939306DD2FEFF0817
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1750609.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 745 816
-
-Northgard (2018) [Ru/Multi] (3.5.15.39065/dlc) Repack Other s [The Viking Age Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Скандинавская стратегия Northgard с углублением в древнюю мифологию викингов, которые нашли Нордгард - город, полный богатств, мифов и древних легенд. Игра сочетает в себе миролюбивую графику и постепенное развитие вашего поселения. Однако викинги быстро охладили свой пыл, когда встретились с первой опасностью Northgard - зверским холодом, окутывающим все берега (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:62EC03B817E3824E6C900BEE1B374DE203034A46
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1745816.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 743 831
-
-Regiments (2022) [Ru/Multi] (1.4.0S.1609/dlc) Repack Other s
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Regiments – стратегия в реальном времени, где Холодная Война переросла в Третью мировую. События развернутся в Германии 1989 года, ставшей основным полем битвы между армиями НАТО и Варшавским Договором. Здесь игрок сможет стать главнокомандующим армии: управлять взводами, вызывать удары артиллерии или поддержку с воздуха. Под контролем будет как обычная пехота, так (   Читать дальше...   )Тип издания: RepackРазработчик: Bird's Eye GamesЖанр: Стратегия, Сражения, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:3E5810436AC3B7DE750196C13D00BD8EEC08DD5C
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1743831.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 741 751
-
-Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack dixen18 [Anniversary Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Третье продолжение оригинальной игры и первое, над которым трудится новая студия разработки, не участвовавшая в работе над трилогией. Анонс, состоявшийся ещё в 2017 году, стал отличным подарком для фанатов серии на юбилей появления франшизы – в 1997 году. В "Эпохе Империй 4" присутствуют режимы как для одиночного прохождения, так и мультиплеерного. В нём (   Читать дальше...   )Тип издания: RepackРазработчик: Relic Entertainment, Forgotten Empires, Climax Studios, World's EdgeЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:12FEF07B85126A874BE412C16D1C477DA4F996DF
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1741751.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 741 555
-
-Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack Decepticon [Anniversary Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Третье продолжение оригинальной игры и первое, над которым трудится новая студия разработки, не участвовавшая в работе над трилогией. Анонс, состоявшийся ещё в 2017 году, стал отличным подарком для фанатов серии на юбилей появления франшизы – в 1997 году. В "Эпохе Империй 4" присутствуют режимы как для одиночного прохождения, так и мультиплеерного. В нём (   Читать дальше...   )Тип издания: RepackРазработчик: Relic Entertainment, Forgotten Empires, Climax Studios, World's EdgeЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:DC2EC1F5A0AB746F1D05BA125B83D555A4095890
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1741555.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 741 546
-
-Age of Empires IV (4) (2021) [Ru/Multi] (11.0.782/dlc) Scene Rune [Anniversary Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Третье продолжение оригинальной игры и первое, над которым трудится новая студия разработки, не участвовавшая в работе над трилогией. Анонс, состоявшийся ещё в 2017 году, стал отличным подарком для фанатов серии на юбилей появления франшизы – в 1997 году. В "Эпохе Империй 4" присутствуют режимы как для одиночного прохождения, так и мультиплеерного. В нём (   Читать дальше...   )Тип издания: SceneРазработчик: Relic Entertainment, Forgotten Empires, Climax Studios, World's EdgeЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:5784E01B2720E11106CE86C205029C77165CA541
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1741546.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 740 706
-
-Great Houses of Calderia (2023) [En] (1.0.1.1337) Scene Tenoke
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Great Houses of Calderia с головой окунает вас в жестокий мир благородных семей, борющихся за контроль над богатой провинцией. Это не просто отдача приказов и завоевание земель - проект требует проницательного маневрирования семейной динамикой и использования индивидуальных преимуществ, чтобы переиграть соперников. Думайте об этом как о шахматном матче с высокими (   Читать дальше...   )Тип издания: SceneРазработчик: Resistance GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:FE4035DF7DF2E54938CE678D14CB066EEC89FCB8
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1740706.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 739 880
-
-War for the Overworld (2015) [Ru/Multi] (2.1.1/dlc) Repack FitGirl [Ultimate Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Надоело завоевывать подземелья? Пора построить свое собственное! Чувствуете, что начинает угасать интерес к монотонному расчленению злодеев и бесконечным заданиям и наградам - золоту и обуви чуть приличней, чем раньше? Начинаете сомневаться в своем героическом призвании? Тогда добро пожаловать в War for the Overworld!Тип издания: RepackРазработчик: Brightrock GamesЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:AB62C32FB312E046D979047440B3249525CF5435
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1739880.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 728 188
-
-Three Kingdoms: The Last Warlord / Три королевства: Последний военачальник (2021) [Ru/Multi] (1.0.0.
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Three Kingdoms: The Last Warlord - двумерная пошаговая стратегия, основанная на китайском историческом романе Троецарство. Три королевства: Последний военачальник рассказывает про разделение Китая между тремя государствами, среди которых Вэу, Шу и Ву. Каждая фракция имеет свои особенности, показывая различия между культурами. Стройте уникальные здания и применяйте (   Читать дальше...   )Тип издания: SceneРазработчик: LongYou Game StudioЖанр: Симуляторы, СтратегииЯзык озвучки: КитайскийЯзык субтитров: Русский, Английский, Китайский, Японский и другиеЯзык интерфейса: Русский, Английский, Китайский, Японский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:2B835D80CA5B43B014980C7248FC50A8DBA5DA78
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1728188.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 728 045
+###  Публикация: 1728045   (737785)
 
 Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Edition]
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1728045.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -1617,43 +808,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:2B9E2DED279E73B701AFD8CD4318137FD5AAC3A2
+magnet:?xt=urn:btih:2B9E2DED279E73B701AFD8CD4318137FD5AAC3A2
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1728045.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 728 031
-
-Northgard (2018) [Ru/Multi] (3.6.18.40721/dlc) Repack FitGirl [The Viking Age Edition]
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-Спустя годы неутомимых поисков отважные викинги обнаружили Нордгард – новую землю, полную тайн, опасностей и богатств. Храбрейшие из северян подняли паруса и отправились покорять чужие берега в надежде прославить свой клан и войти в историю благодаря своим завоеваниям, торговле и ревностному служению богам. Но для этого им придется отбиваться от диких зверей и мертвецов, (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: 3D, Simulation, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:EC07BA695C5789D6E15617420B84B247FF451347
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1728031.jpg" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 727 683
+###  Публикация: 1727683   (737567)
 
 Rise Of The White Sun (2023) [Multi] (1.0) Scene Tenoke
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1727683.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -1661,21 +832,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:F35CA0FD40C4B782BAA89CAB347AED6AD3486A5D
+magnet:?xt=urn:btih:F35CA0FD40C4B782BAA89CAB347AED6AD3486A5D
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1727683.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 727 579
+###  Публикация: 1727579   (737561)
 
 Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1727579.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -1683,43 +856,23 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:95AA113AA74406D134027857EFEB4D187DF48922
+magnet:?xt=urn:btih:95AA113AA74406D134027857EFEB4D187DF48922
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1727579.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
-
-###  Публикация: 1 726 912
-
-StarCraft II: Антология (2010-2015) [Ru/En] (3.0.5.39117/dlc) Repack FitGirl
-Win Игры
-Strategy (RTS/TBS/Grand)
-
-###  Подробнее
-
-StarCraft 2: Legacy of the Void - это третья, и заключительная часть культовой стратегии в реальном времени, события которой разворачиваются параллельно с Heart of the Swarm и после его окончания. Главным героем этой части вновь станет Зератул, однако игрокам предстоит взять на себя роль не лидера Темных Тамплиеров Протоссов, а Артаниса, командира протоссов, который (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Strategy (RTS)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-    magnet:?xt=urn:btih:63E2F0592176358D3F2A45F78C1CE6A881BEA739
-```
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/Нет картинки" />
-</div>
-
----------------------------------------------------------------------------------------------------------------
-
-
-###  Публикация: 1 726 524
+###  Публикация: 1726524   (737132)
 
 StarCraft: Remastered (2017) [Ru/Multi] (1.23.9.10756/dlc) Repack FitGirl
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1726524.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -1727,21 +880,2835 @@ StarCraft Remastered - это обновленная версия знамени
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:D620ACC39B0E00B1B6F7FA3BA3908587FA0C06F3
+magnet:?xt=urn:btih:D620ACC39B0E00B1B6F7FA3BA3908587FA0C06F3
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1726524.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
 
+###  Публикация: 1703944   (736182)
 
-###  Публикация: 1 725 600
+Gord (2023) [Ru/Multi] (1.5.0.42146/dlc) Repack Other s [Ultimate Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1703944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возглавьте племя Рассвета и отправьтесь вглубь запретных земель. Выполняйте задания, которые сформируют личности ваших подопечных, повлияют на их благополучие и решат судьбу сообщества. Помогите народу выжить в мрачном фэнтезийном мире, вдохновленным славянским фольклором.Тип издания: RepackРазработчик: Covenant.devЖанр: Стратегия, Приключение, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD9235A1D03B30FB36DA2A12E87105EBD8B69D6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1699136   (735287)
+
+General Strategic Simulations Inc. Anthology (1994-2000) [En] License
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1699136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Panzer General 3 - третья глава популярной серии стратегий от компании "Strategic Simulations". На этот раз, события переносят игроков на Восточный Фронт, где вскоре состоятся легендарные битвы за Берлин и Москву. Как и предыдущие игры серии, новоиспеченная "Panzer General 3: Scorched Earth" представлена на косметически улучшенном движке от знаменитой (   Читать дальше...   )Тип издания: LicenseРазработчик: Strategic Simulations Inc.Жанр: Turn-based stategy, WargameЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A851BA54465D8AFE2ACB730CA96359C991934E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1696927   (735044)
+
+Perimeter 2: New Earth / Периметр 2: Новая Земля (2008) [Ru] (1.01) License
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1696927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сиквела популярной стратегии в реальном времени отсылает к событиям, развернувшимся в оригинальном «Периметре». На этот раз игроку предстоит управлять судьбами людей, бежавших с обреченной Земли в гибельные миры Психосферы. В ходе игры выясняется, что же явилось причиной рокового замыкания великой Цепи Миров, открывается истинная природа противостояния Исхода (   Читать дальше...   )Тип издания: LicenseРазработчик: KDV GamesЖанр: СтратегииЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2E3DE584DB12188D05A339F3074A56A14A4FE3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1766545   (733538)
+
+Call to Arms - Gates of Hell: Ostfront (2021) [Ru/En] (1.047.0/dlc) Repack Let'sРlay [WW2]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1766545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call to Arms - Gates of Hell: Ostfront – стратегия в реальном времени, в которой игроку предстоит проявить свои тактические навыки и умение читать ситуацию для принятия наиболее верного решения за считанные секунды. Сеттингом проекта является кровопролитный конфликт 20-го века – Вторая Мировая война, все доступные виды техники воссозданы по реальным прототипам, что (   Читать дальше...   )Тип издания: RepackРазработчик: Barbedwire Studios, DigitalmindsoftЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E38F187E2A50D367F15D3B26732881DEE522AB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1728031   (733294)
+
+Northgard (2018) [Ru/Multi] (3.6.18.40721/dlc) Repack FitGirl [The Viking Age Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1728031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя годы неутомимых поисков отважные викинги обнаружили Нордгард – новую землю, полную тайн, опасностей и богатств. Храбрейшие из северян подняли паруса и отправились покорять чужие берега в надежде прославить свой клан и войти в историю благодаря своим завоеваниям, торговле и ревностному служению богам. Но для этого им придется отбиваться от диких зверей и мертвецов, (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: 3D, Simulation, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC07BA695C5789D6E15617420B84B247FF451347
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1765221   (732795)
+
+Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack seleZen
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во мраке далекого будущего есть только война. Warhammer 40,000: Battlesector – это бесконечные взрывы и хруст костей, отвага и смерть. Это динамичная и зрелищная пошаговая стратегия, которая перенесёт Вас на поля сражений 41-го тысячелетия. Собирайте войска, развивайте армию, отправляйте в бой могучих героев и бейтесь за победу, применяя тактические приёмы, мощные (   Читать дальше...   )Тип издания: RepackРазработчик: Black Lab GamesЖанр: Стратегия, Пошаговая, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758BBBF6707BB170575C4F5C6166513286E4C760
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1765186   (732794)
+
+StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стороны конфликта представлены тремя игровыми расами: терранами, протоссами и зергами. Одним из важнейших новшеств игры является различие между воюющими сторонами при соблюдении баланса сил. StarCraft — одна из первых стратегий в реальном времени, в которой каждая сторона отличается не только внешним видом, но и характеристиками своих представителей, а также общей (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Strategy (Real-time), IsometricЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AE378988E74107FDA2DD5C98FA70231845547E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1751967   (732495)
+
+Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Repack FitGirl
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1751967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mechabellum - это эпический автобаттлер в научно-фантастическом сеттинге, в котором вам предстоит стать на место командира, возглавляющего армию мехов на недавно колонизированной планете Far-Away. Ваши противники будут дрожать от страха, пока вы настраиваете и повышаете уровень своих боевых единиц, стратегически расставляете их на поле боя и наблюдаете, как они безжалостно (   Читать дальше...   )Тип издания: RepackРазработчик: Game RiverЖанр: Экшены, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C70028A616B5043A10EA186E5B719B45091D9C9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1751972   (732491)
+
+Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Scene Rune
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1751972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mechabellum - это эпический автобаттлер в научно-фантастическом сеттинге, в котором вам предстоит стать на место командира, возглавляющего армию мехов на недавно колонизированной планете Far-Away. Ваши противники будут дрожать от страха, пока вы настраиваете и повышаете уровень своих боевых единиц, стратегически расставляете их на поле боя и наблюдаете, как они безжалостно (   Читать дальше...   )Тип издания: SceneРазработчик: Game RiverЖанр: Экшены, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B253D6EA96DC586CE852F3921A0C5A8534F28E2C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1754811   (732247)
+
+Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1754811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тяжёлый воздух, наполненный тошнотворным запахом смерти, ни на секунду не позволяет забыть о царящем вокруг кошмаре. Улицы лежат в руинах, лишь шарканье шагов и стоны заражённых эхом разносятся между домами. Четверо случайных встречных, сведённых вместе стремлением выжить, вынуждены довериться друг другу и действовать сообща, чтобы спастись от разъярённых орд зомби. (   Читать дальше...   )Тип издания: SceneРазработчик: Snail BiteЖанр: Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C330CD7E9DE26958D9B83AF6E9179E3DE9E5412
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1758022   (731683)
+
+Unity of Command II (2019) [Ru/Multi] (Update 29/dlc) Repack FitGirl
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1758022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра, созданная на 3D-движке собственной разработки, остается верной знаменитому графическому стилю Unity of Command и повторяет ее четкий и динамичный геймплей. Unity of Command II - долгожданный сиквел культовой классики, с 2011 года превратившей немало новичков в закаленных полководцев. Перед вами игра, в которую просто играть, но крайне трудно выиграть!Тип издания: RepackРазработчик: 2x2 Games, CroteamЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Немецкий, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1CA48DA8D4DF19E70F0DDF2B16B48142F3D421
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1758410   (731500)
+
+Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Scene Rune
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1758410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call to Arms - Gates of Hell: Ostfront – стратегия в реальном времени, в которой игроку предстоит проявить свои тактические навыки и умение читать ситуацию для принятия наиболее верного решения за считанные секунды. Сеттингом проекта является кровопролитный конфликт 20-го века – Вторая Мировая война, все доступные виды техники воссозданы по реальным прототипам, что (   Читать дальше...   )Тип издания: SceneРазработчик: Barbedwire Studios, DigitalmindsoftЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E081A2A18154FC1153600790611D603B5081291
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1758746   (731300)
+
+Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Repack FitGirl [WW2 Bundle]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1758746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call to Arms - Gates of Hell: Ostfront – стратегия в реальном времени, в которой игроку предстоит проявить свои тактические навыки и умение читать ситуацию для принятия наиболее верного решения за считанные секунды. Сеттингом проекта является кровопролитный конфликт 20-го века – Вторая Мировая война, все доступные виды техники воссозданы по реальным прототипам, что (   Читать дальше...   )Тип издания: RepackРазработчик: Barbedwire Studios, DigitalmindsoftЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D848247B898B7922F52F3273AC031B592457AB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1758891   (731204)
+
+Stellaris (2016) [Ru/Multi] (3.14.1/dlc) Repack Pioneer [Galaxy Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1758891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4065CA4DBB3973D17E22949A70C4613D695126D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1758905   (731200)
+
+Empire of the Ants (2024) [Ru/Multi] (1.02.19732/dlc) Repack seleZen
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1758905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый взгляд на «Империю муравьев» с Digital Deluxe Edition. Вы перенесетесь в мир муравьев с эксклюзивным набором, который дарит игрокам три дня раннего доступа, великолепные обои, цифровой альбом и захватывающий саундтрек. Рыцари в хитиновых доспехах: сражайтесь за свою королеву, за наш союз… за нашу империю! Отправьтесь в захватывающее путешествие по крошечному (   Читать дальше...   )Тип издания: RepackРазработчик: Tower FiveЖанр: СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02598873B9350C3CF9AF277F73B91624AF3CA9F8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1759121   (731090)
+
+Empire of the Ants (2024) [Ru/Multi] (1.02.19732) Repack FitGirl
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1759121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый взгляд на «Империю муравьев» с Digital Deluxe Edition. Вы перенесетесь в мир муравьев с эксклюзивным набором, который дарит игрокам три дня раннего доступа, великолепные обои, цифровой альбом и захватывающий саундтрек. Рыцари в хитиновых доспехах: сражайтесь за свою королеву, за наш союз… за нашу империю! Отправьтесь в захватывающее путешествие по крошечному (   Читать дальше...   )Тип издания: RepackРазработчик: Tower FiveЖанр: СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C4D357CDB6EF82BC3F1AECA28AF089B4340AF3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1760080   (730432)
+
+Dead Season (2024) [Ru/Multi] (1.0.0.7) Repack Let'sРlay
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1760080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тяжёлый воздух, наполненный тошнотворным запахом смерти, ни на секунду не позволяет забыть о царящем вокруг кошмаре. Улицы лежат в руинах, лишь шарканье шагов и стоны заражённых эхом разносятся между домами. Четверо случайных встречных, сведённых вместе стремлением выжить, вынуждены довериться друг другу и действовать сообща, чтобы спастись от разъярённых орд зомби. (   Читать дальше...   )Тип издания: RepackРазработчик: Snail BiteЖанр: Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9058D970AA59FB6DB30700097ECAFCF4797C1299
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1760272   (730295)
+
+Dead Season (2024) [Ru/Multi] (1.0.0.7) License GOG
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1760272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тяжёлый воздух, наполненный тошнотворным запахом смерти, ни на секунду не позволяет забыть о царящем вокруг кошмаре. Улицы лежат в руинах, лишь шарканье шагов и стоны заражённых эхом разносятся между домами. Четверо случайных встречных, сведённых вместе стремлением выжить, вынуждены довериться друг другу и действовать сообща, чтобы спастись от разъярённых орд зомби. (   Читать дальше...   )Тип издания: LicenseРазработчик: Snail BiteЖанр: Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD0B13C38EDD0B161D1392E6F1D8DBBDBF35CF6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1752280   (729784)
+
+Crusader Kings III (3) (2020) [Ru/Multi] (1.14.2.2/dlc) Repack Pioneer [Royal Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1752280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crusader Kings 3 - глобальная стратегия, значительно расширяющая границы возможностей предыдущей части. Короли-крестоносцы 3 охватывают временной промежуток с 1066 по 1453 года. В отличие от второй части, начать игру в любой момент времени не получится. Новая карта тянется от Испании до Бирмы и Монголии, а также от Скандинавии до Центральной Африки. Масштаб игры (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13A8D88652880E884A0C961B29805C55FD650EA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1763623   (728678)
+
+Horizon (2014) [Ru/En] (1.0.2.156/dlc) Repack Let'sРlay [Deluxe Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1763623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Horizon — это пошаговая космическая стратегическая игра об исследовании и завоевании галактики, в которой вы управляете судьбой человечества. Вы будете исследовать глубокий космос, находить новые рубежи и находить инопланетные артефакты, спрятанные на давно заброшенных планетах. Вы также узнаете больше о галактике, вступая в контакт с десятью другими видами, каждый (   Читать дальше...   )Тип издания: RepackРазработчик: L3O InteractiveЖанр: Приключенческие игры, Инди, Симуляторы, Стратегии, БесплатныеЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40606F9CE88C577F970CCB2C25F44AD5AF683A0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1763365   (728362)
+
+63 Days (2024) [Ru/Multi] (11237) Repack Let'sРlay
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1763365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я принадлежу к первому поколению, родившемуся в свободной Польше после 123 лет иностранной оккупации. Начало Второй мировой войны лишило меня семьи, дома и будущего. Мы злы, устали, но едины. Нам не терпится что-то сделать, вернуть себе хоть какой-то контроль над жизнью. Мои товарищи и я чувствуем, что у нас есть только один выбор: отомстить и вернуть независимость (   Читать дальше...   )Тип издания: RepackРазработчик: Destructive CreationsЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2AB3B67DB79B37DA1DC0244D951FF386FE6B4E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1762937   (728143)
+
+HUMANKIND (2021) [Ru/Multi] (1.0.27.4539/dlc) Repack Let'sРlay [Definitive Edition]
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1762937.jpg" />
+</div>
+
+
+###  Подробнее
+
+HUMANKIND – историческая пошаговая стратегия, в которой у вас будет возможность переписать историю человечества. Сочетайте различные культуры, ценности и истории, чтобы создать уникальную цивилизацию. Участвуйте в реальных исторических событиях, применяйте тактические навыки для градостроительства и военных действий, раскрывайте природные богатства планеты, стройте (   Читать дальше...   )Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1A1F29C3480C8837BDC1F001ACBFD60506681D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1762963   (728093)
+
+Songs of Silence (2024) [Ru/Multi] (1.0.2-d.7718) Repack Let'sРlay [Supporter Bundle]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1762963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Songs of Silence погружает игроков в фантастический мир под угрозой надвигающейся Тишины. Эта стратегическая игра сочетает в себе управление королевством, развитие героя и элементы автобоя, кульминацией которых становятся захватывающие сражения в реальном времени. Погрузитесь в насыщенное повествование, ведя свое королевство против наступающей тьмы.Тип издания: RepackРазработчик: Chimera EntertainmentЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DEF4DEF32BD22AE9A5416C315E5E6D6A9C515B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1762681   (727986)
+
+Terraforming Mars (2018) [Ru/Multi] (2.7.1/dlc) Repack Let'sРlay
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1762681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terraforming Mars – официальная адаптация популярной за океаном настольной игры о колонизации Марса и превращения этой планеты в пригодной для обитания человечества. Видеоигра представлена в виде пошаговой стратегии, где предоставляется достаточное количество времени для обдумывания дальнейших действий с целью извлечения максимальной выгоды. Игровой процесс строится (   Читать дальше...   )Тип издания: RepackРазработчик: Artefacts StudioЖанр: СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A4A9861DA431896EA8F3C8875B4C85322AD84D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1762622   (727939)
+
+Northgard (2018) [Ru/Multi] (3.6.8.40407/dlc) Repack Let'sРlay [The Viking Age Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1762622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя годы неутомимых поисков отважные викинги обнаружили новую землю, полную тайн, опасностей и богатств, — Нордгард. Храбрейшие из северян подняли паруса и отправились покорять чужие берега в надежде прославить свой клан и войти в историю благодаря своим завоеваниям, торговле и ревностному служению богам.Тип издания: RepackРазработчик: Shiro GamesЖанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE88892C937117FB6EEC657B4D15B9B7F03B90F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1760333   (727881)
+
+WARNO (2024) [Ru/Multi] (138477/dlc) Repack Let'sРlay
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1760333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы готовы принять командование на себя? Сделайте это в аутентичной, масштабной и тщательно выверенной стратегической игре в реальном времени в духе холодной войны – WARNO. Являясь духовным наследником знаменитой серии Wargame, игра WARNO представляет собой совершенный боевой симулятор нового поколения по Третьей мировой войне.Тип издания: RepackРазработчик: Eugen SystemsЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0D17D9BE0EC4D634707C9D9E1E21DE3E3F8D56
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1757398   (727636)
+
+WARNO (2024) [Ru/Multi] (138477/dlc) License GOG
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1757398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы готовы принять командование на себя? Сделайте это в аутентичной, масштабной и тщательно выверенной стратегической игре в реальном времени в духе холодной войны – WARNO. Являясь духовным наследником знаменитой серии Wargame, игра WARNO представляет собой совершенный боевой симулятор нового поколения по Третьей мировой войне.Тип издания: LicenseРазработчик: Eugen SystemsЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C4333A3E928346931EF99903DBD1D36452620BF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1759589   (727331)
+
+Age of Mythology: Retold (2024) [Ru/Multi] (100.17.46557.0/dlc) Repack Let'sРlay [Premium Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1759589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Mythology: Retold - игра от создателей культовой серии Age of Empires. На этот раз вам предстоит выйти за рамки привычной истории и погрузиться в мифическую эпоху, где бок о бок сосуществуют боги, чудовища и люди. Retold - это эволюция всеми любимой стратегии в реальном времени Age of Mythology, ставшая возможной благодаря современной графике и свежему подходу (   Читать дальше...   )Тип издания: RepackРазработчик: World's Edge, Forgotten Empires, Tantalus Media, CaptureAge, Virtuos GamesЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7EC75576AA970F151AE795636BCBEA8E1406A7E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1760651   (726870)
+
+Ara: History Untold (2024) [Ru/Multi] (1.1.0.318/dlc) Repack Let'sРlay [Premium Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1760651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте страну и проведите свой народ сквозь века к вершинам прогресса. Расширяйте территории, развивайте культуру и доказывайте свое величие на полях сражений или в дипломатических спорах. Этот мир в ваших руках. Ara: History Untold - новая ступень в жанре исторической стратегии. Классические механики компьютерных стратегий сочетаются с такими инновациями, как (   Читать дальше...   )Тип издания: RepackРазработчик: Oxide GamesЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA7C592F17629E45232DB6BF25CEC62CB5738DC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1760738   (726868)
+
+Hearts of Iron IV (4) (2016) [Ru/Multi] (1.15.0.acbb/dlc) Repack FitGirl
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1760738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hearts of Iron 4 (IV) – отличный военный симулятор, в котором вы, следя за огромной глобальной картой времен Второй Мировой войны будете следить за развитием событий и решать, что нужно сделать для того, чтоб выбранная вами страна пережила войну, а возможно даже и захватила весь мир… Самое прекрасное заключается в том, что в этом симуляторе на огромной глобальной (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudiosЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF176EC147766704363C5670645C12ADC7B6405
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1751975   (726865)
+
+Age of Mythology: Retold (2024) [Ru/Multi] (100.17.43876.0/dlc) Repack Wanterlude [Premium Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1751975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Mythology: Retold - игра от создателей культовой серии Age of Empires. На этот раз вам предстоит выйти за рамки привычной истории и погрузиться в мифическую эпоху, где бок о бок сосуществуют боги, чудовища и люди. Retold - это эволюция всеми любимой стратегии в реальном времени Age of Mythology, ставшая возможной благодаря современной графике и свежему подходу (   Читать дальше...   )Тип издания: RepackРазработчик: World's Edge, Forgotten Empires, Tantalus Media, CaptureAge, Virtuos GamesЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9580B9FEFE175FF3F4E4215D70B47FE1CDEC5205
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1760835   (726754)
+
+Hearts of Iron IV (4) (2016) [Ru/Multi] (1.15.0/dlc) Scene Rune
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1760835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hearts of Iron 4 (IV) – отличный военный симулятор, в котором вы, следя за огромной глобальной картой времен Второй Мировой войны будете следить за развитием событий и решать, что нужно сделать для того, чтоб выбранная вами страна пережила войну, а возможно даже и захватила весь мир… Самое прекрасное заключается в том, что в этом симуляторе на огромной глобальной (   Читать дальше...   )Тип издания: SceneРазработчик: Paradox Development StudiosЖанр: Strategy (Real-time), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C6F763A34CE899773DFBC793D64B9A2D5F1C02
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1755890   (725781)
+
+Hearts of Iron IV (4) (2016) [Ru/Multi] (1.14.10/dlc) Repack Pioneer
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1755890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hearts of Iron 4 (IV) – отличный военный симулятор, в котором вы, следя за огромной глобальной картой времен Второй Мировой войны будете следить за развитием событий и решать, что нужно сделать для того, чтоб выбранная вами страна пережила войну, а возможно даже и захватила весь мир… Самое прекрасное заключается в том, что в этом симуляторе на огромной глобальной (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudiosЖанр: Strategy (Real-time), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF68C3BC7B7332CEB31F9A414865E14A8D18D692
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1755350   (725470)
+
+9-Bit Armies: A Bit Too Far (2024) [Ru/Multi] (856409, 859761) Repack FitGirl
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1755350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветераны стратегий в реальном времени Petroglyph представляют 9-Bit Armies: A Bit Too Far продолжение их триумфальной 8-битной серии игр. В 9-Bit Armies объединяйте свои военные силы на различных полях сражений и реализуйте свою стратегию на суше, на море и в воздухе. Размещайте своих воздушно-десантных солдат, разрушайте мосты и цельтесь из супероружия в новом виде (   Читать дальше...   )Тип издания: RepackРазработчик: PetroglyphЖанр: Экшены, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9451de411ddd995253020cc74d93fad1e6c3a2f3&tr=http%3A%2F%2Fbt02.nnm-club.cc%3A2710
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1751598   (723623)
+
+Crusader Kings III (3) (2020) [Ru/Multi] (1.13.0.1/dlc) Repack FitGirl [Royal Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1751598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crusader Kings 3 - глобальная стратегия, значительно расширяющая границы возможностей предыдущей части. Короли-крестоносцы 3 охватывают временной промежуток с 1066 по 1453 года. В отличие от второй части, начать игру в любой момент времени не получится. Новая карта тянется от Испании до Бирмы и Монголии, а также от Скандинавии до Центральной Африки. Масштаб игры (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F54DABDC473C261F7ED9B1CCDD2F867D067515
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1751599   (723622)
+
+Crusader Kings III (3) (2020) [Ru/Multi] (1.13.0.1/dlc) Repack Wanterlude [Royal Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1751599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crusader Kings 3 - глобальная стратегия, значительно расширяющая границы возможностей предыдущей части. Короли-крестоносцы 3 охватывают временной промежуток с 1066 по 1453 года. В отличие от второй части, начать игру в любой момент времени не получится. Новая карта тянется от Испании до Бирмы и Монголии, а также от Скандинавии до Центральной Африки. Масштаб игры (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2599F6F42271FF0BEA1DA01D404021BE2BB21F63
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1750609   (722981)
+
+StarCraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219/dlc) Repack dixen18
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1750609.jpg" />
+</div>
+
+
+###  Подробнее
+
+StarCraft 2: Legacy of the Void - это третья, и заключительная часть культовой стратегии в реальном времени, события которой разворачиваются параллельно с Heart of the Swarm и после его окончания. Главным героем этой части вновь станет Зератул, однако игрокам предстоит взять на себя роль не лидера Темных Тамплиеров Протоссов, а Артаниса, командира протоссов, который (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A70439700E420ECB46B49939306DD2FEFF0817
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1728188   (721150)
+
+Three Kingdoms: The Last Warlord / Три королевства: Последний военачальник (2021) [Ru/Multi] (1.0.0.
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1728188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Three Kingdoms: The Last Warlord - двумерная пошаговая стратегия, основанная на китайском историческом романе Троецарство. Три королевства: Последний военачальник рассказывает про разделение Китая между тремя государствами, среди которых Вэу, Шу и Ву. Каждая фракция имеет свои особенности, показывая различия между культурами. Стройте уникальные здания и применяйте (   Читать дальше...   )Тип издания: SceneРазработчик: LongYou Game StudioЖанр: Симуляторы, СтратегииЯзык озвучки: КитайскийЯзык субтитров: Русский, Английский, Китайский, Японский и другиеЯзык интерфейса: Русский, Английский, Китайский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B835D80CA5B43B014980C7248FC50A8DBA5DA78
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1745816   (719705)
+
+Northgard (2018) [Ru/Multi] (3.5.15.39065/dlc) Repack Other s [The Viking Age Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1745816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скандинавская стратегия Northgard с углублением в древнюю мифологию викингов, которые нашли Нордгард - город, полный богатств, мифов и древних легенд. Игра сочетает в себе миролюбивую графику и постепенное развитие вашего поселения. Однако викинги быстро охладили свой пыл, когда встретились с первой опасностью Northgard - зверским холодом, окутывающим все берега (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EC03B817E3824E6C900BEE1B374DE203034A46
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1743831   (718504)
+
+Regiments (2022) [Ru/Multi] (1.4.0S.1609/dlc) Repack Other s
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1743831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Regiments – стратегия в реальном времени, где Холодная Война переросла в Третью мировую. События развернутся в Германии 1989 года, ставшей основным полем битвы между армиями НАТО и Варшавским Договором. Здесь игрок сможет стать главнокомандующим армии: управлять взводами, вызывать удары артиллерии или поддержку с воздуха. Под контролем будет как обычная пехота, так (   Читать дальше...   )Тип издания: RepackРазработчик: Bird's Eye GamesЖанр: Стратегия, Сражения, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5810436AC3B7DE750196C13D00BD8EEC08DD5C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1741751   (717267)
+
+Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack dixen18 [Anniversary Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1741751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третье продолжение оригинальной игры и первое, над которым трудится новая студия разработки, не участвовавшая в работе над трилогией. Анонс, состоявшийся ещё в 2017 году, стал отличным подарком для фанатов серии на юбилей появления франшизы – в 1997 году. В "Эпохе Империй 4" присутствуют режимы как для одиночного прохождения, так и мультиплеерного. В нём (   Читать дальше...   )Тип издания: RepackРазработчик: Relic Entertainment, Forgotten Empires, Climax Studios, World's EdgeЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FEF07B85126A874BE412C16D1C477DA4F996DF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1741546   (717241)
+
+Age of Empires IV (4) (2021) [Ru/Multi] (11.0.782/dlc) Scene Rune [Anniversary Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1741546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третье продолжение оригинальной игры и первое, над которым трудится новая студия разработки, не участвовавшая в работе над трилогией. Анонс, состоявшийся ещё в 2017 году, стал отличным подарком для фанатов серии на юбилей появления франшизы – в 1997 году. В "Эпохе Империй 4" присутствуют режимы как для одиночного прохождения, так и мультиплеерного. В нём (   Читать дальше...   )Тип издания: SceneРазработчик: Relic Entertainment, Forgotten Empires, Climax Studios, World's EdgeЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5784E01B2720E11106CE86C205029C77165CA541
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1741555   (717227)
+
+Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack Decepticon [Anniversary Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1741555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третье продолжение оригинальной игры и первое, над которым трудится новая студия разработки, не участвовавшая в работе над трилогией. Анонс, состоявшийся ещё в 2017 году, стал отличным подарком для фанатов серии на юбилей появления франшизы – в 1997 году. В "Эпохе Империй 4" присутствуют режимы как для одиночного прохождения, так и мультиплеерного. В нём (   Читать дальше...   )Тип издания: RepackРазработчик: Relic Entertainment, Forgotten Empires, Climax Studios, World's EdgeЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2EC1F5A0AB746F1D05BA125B83D555A4095890
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1740706   (716556)
+
+Great Houses of Calderia (2023) [En] (1.0.1.1337) Scene Tenoke
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1740706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Great Houses of Calderia с головой окунает вас в жестокий мир благородных семей, борющихся за контроль над богатой провинцией. Это не просто отдача приказов и завоевание земель - проект требует проницательного маневрирования семейной динамикой и использования индивидуальных преимуществ, чтобы переиграть соперников. Думайте об этом как о шахматном матче с высокими (   Читать дальше...   )Тип издания: SceneРазработчик: Resistance GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4035DF7DF2E54938CE678D14CB066EEC89FCB8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1739880   (715947)
+
+War for the Overworld (2015) [Ru/Multi] (2.1.1/dlc) Repack FitGirl [Ultimate Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1739880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надоело завоевывать подземелья? Пора построить свое собственное! Чувствуете, что начинает угасать интерес к монотонному расчленению злодеев и бесконечным заданиям и наградам - золоту и обуви чуть приличней, чем раньше? Начинаете сомневаться в своем героическом призвании? Тогда добро пожаловать в War for the Overworld!Тип издания: RepackРазработчик: Brightrock GamesЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB62C32FB312E046D979047440B3249525CF5435
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1704031   (713837)
+
+Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.04.987.01) Scene Rune
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1704031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terminator: Dark Fate – Defiance позволяет окунуться в суровый мир боевых действий, что происходит на территории разрушенных городов. Игра выполнена в сеттинге постапокалипсиса, где между человечеством и сетью интеллектуальных машин Legion происходит конфликт. Люди вынуждены сопротивляться восставшим роботизированным киборгам, чтобы положить конец наступлению противника (   Читать дальше...   )Тип издания: SceneРазработчик: Slitherine Ltd.Жанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010928AF75FD92B8550388ABE164742D92C6F5DF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1726912   (712359)
+
+StarCraft II: Антология (2010-2015) [Ru/En] (3.0.5.39117/dlc) Repack FitGirl
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/" />
+</div>
+
+
+###  Подробнее
+
+StarCraft 2: Legacy of the Void - это третья, и заключительная часть культовой стратегии в реальном времени, события которой разворачиваются параллельно с Heart of the Swarm и после его окончания. Главным героем этой части вновь станет Зератул, однако игрокам предстоит взять на себя роль не лидера Темных Тамплиеров Протоссов, а Артаниса, командира протоссов, который (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Strategy (RTS)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E2F0592176358D3F2A45F78C1CE6A881BEA739
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1725532   (711654)
+
+Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1.02) Repack 1nomok
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1725532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный экшен с множеством перестрелок, неожиданных появлений противников из-за угла и большим простором для тактических действий. Способов прохождения уровней в Cold Zero несколько. Игровой процесс соответствует вашим желаниям, всё зависит от выбранного вами стиля прохождения. Любите динамичные игры с ураганным огнем со всех сторон? Улучшайте силу, покупайте (   Читать дальше...   )Тип издания: RepackРазработчик: Drago EntertainmentЖанр: Action, Strategy, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13445E851C84B3F7BDCEBAC20C260933818A1B29
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1724323   (710966)
+
+Warcraft 3: Expansion Set / Военное Ремесло 3: Расширенный набор (2002) [Ru/En] (1.31.1/dlc) Unoffic
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1724323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warcraft III - культовая компьютерная игра в жанре стратегии в реальном времени. В отличие от предыдущих игр серии, количество противоборствующих сторон увеличилось с двух до четырех: можно играть за уже известные Альянс и Орду, а также за две новые расы - Нежить и Ночных эльфов. Однако, общий геймплей не изменился - игроку все также нужно добывать ресурсы, строить (   Читать дальше...   )Тип издания: UnofficialРазработчик: Blizzard EntertainmentЖанр: Стратегия, В реальном времениЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE39E3FE168B80637DE164B6859B840CBABBC496
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1724258   (710868)
+
+Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое издание (1999) [Ru/En] (2.02.4/dlc) Repa
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1724258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернитесь в эпоху хаоса и обрушьте на соперников, играющих за людей или орков все свои навыки, приобретенные в жестоких баталиях Warcraft: Orcs and Humans. Проявите свое мастерство в самых эпических сражениях Warcraft II в истории. Чемпионы, желающие испытать игру в ее подлинном облике, могут насладиться ей в том виде, в котором она появилась в 1999 году.Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Strategy (Real-time)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963B84716CD1AE808EC717A34BB7B8847397FF9F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1724226   (710791)
+
+StarCraft: Remastered (2017) [Ru/En] (1.23.9.10756) Repack dixen18
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1724226.jpg" />
+</div>
+
+
+###  Подробнее
+
+StarCraft Remastered - это обновленная версия знаменитой научно-фантастической стратегии. В нее входят оригинальная игра и дополнение StarCraft: Brood War в современной переработке. Мы пересмотрели все боевые единицы, строения и декорации, усовершенствовали звуковое сопровождение и ввели поддержку для различных разрешений экрана. Иллюстрированные вставки рассказывают (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard Entertainment, Lemon Sky StudiosЖанр: Strategy (RTS), IsometricЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FCC71AD4BAD1E9957AF36DC9CE7BE0220F7788
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1721833   (709197)
+
+Expansion - Europa Universalis IV: Domination (2023) [Multi] (1.37.0/dlc) Scene Rune
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1721833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Europa Universalis IV – продолжение знаменитой серии стратегий от Paradox Interactive. В этой части серьезно улучшена карта, которая теперь сделана полностью в 3D, усовершенствована торговая система, добавлено больше гибкости в развитии государства, а также переделан интерфейс. Кроме этого Europa Universalis IV содержит больше исторических событий, земель и личностей, (   Читать дальше...   )Тип издания: SceneРазработчик: Paradox Development Studio, Paradox TintoЖанр: Симуляторы, СтратегииЯзык субтитров: Английский, Немецкий, Французский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544C64E6F9B159755D7F21476619A4D52F9A6E30
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1708174   (707679)
+
+The Lord of the Rings: War of the Ring / Властелин колец: Война Кольца (2003) [Ru/En] (1.1, 1.01.001
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1708174.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Lord of the Rings: War of the Ring предлагает полностью окунуться во Вселенную Толкина. Здесь игрок займется созданием базы, формированием армии и битвами с противником. Ресурсы - руда и пища, необходимы для исследований и строительства. В игре есть артефакты - статуи, которые дают персонажу отдельные свойства, например, здоровье, - это места силы. Уничтожая (   Читать дальше...   )Тип издания: RepackРазработчик: Liquid EntertainmentЖанр: RTSЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD436694871A024AE71BFEBA43CB1CC850AB641
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1714343   (705420)
+
+Wingspan  / Крылья (2020) [Ru/Multi] (196/dlc) License GOG [Special Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1714343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wingspan - стратегическая карточная игра про птиц, предназначенная для 1–5 игроков. Это официальное цифровое издание одноимённой настольной игры, получившей престижную немецкую премию Kennerspiel des Jahres как лучшая игра 2019 года. В этой игре Вы выступите в роли орнитологов, коллекционеров, знатоков и наблюдателей, желающих отыскать и приманить в природные заповедники (   Читать дальше...   )Тип издания: LicenseРазработчик: Monster CouchЖанр: Стратегии, Казуальные игрыЯзык озвучки: Английский, Польский, Китайский (упрощённый)Язык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE48AC220F3EA73725494530C831993425E5E91
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1718243   (703581)
+
+Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/Multi] (2.2.1-40632/dlc) Repack dix
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1718243.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Might & Magic Heroes VII были добавлены такие вещи, как вид от третьего лица и красивый мир вокруг нашего мага; жанр игры немного поменялся, став одновременно RPG и ролевой игрой от третьего лица. Вся серия потерпела значительное количество изменений, поэтому следует уделять внимание каждой детали в этой части. Эта серия пошаговых стратегий в одно время стала (   Читать дальше...   )Тип издания: RepackРазработчик: Limbic EntertainmentЖанр: Strategy (Turn-based), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF29BC7AC9814F3621B758BDF2E3F127933B2641
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1718246   (703580)
+
+Emperor of the Fading Suns / Император Угасающих Звезд (1997) [En] (1.51) License GOG [Enhanced]
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1718246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Emperor of the Fading Suns – это глобальная пошаговая стратегия с необычным сеттингом. На дворе пятое тысячелетие. Люди освоили подобие звездных врат, начали колонизировать далекие планеты и стали знакомиться с пришельцами. Так продолжалось до тех пор, пока не начали гаснуть солнца. В результате миры стали умирать, а человечество утратило технологии и деградировало. (   Читать дальше...   )Тип издания: LicenseРазработчик: Holistic Design, Inc.Жанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E197C78B52373B640293586113DE41F1024A9F8C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1718436   (703411)
+
+Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/Multi] (2.2.1-40632/dlc) Repack Dec
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1718436.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Might & Magic Heroes VII были добавлены такие вещи, как вид от третьего лица и красивый мир вокруг нашего мага; жанр игры немного поменялся, став одновременно RPG и ролевой игрой от третьего лица. Вся серия потерпела значительное количество изменений, поэтому следует уделять внимание каждой детали в этой части. Эта серия пошаговых стратегий в одно время стала (   Читать дальше...   )Тип издания: RepackРазработчик: Limbic EntertainmentЖанр: Strategy (Turn-based), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29594A5BF75A4D85585E70FC851ECA7A92FA0D24
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1719640   (702336)
+
+Medieval II (2): Total War (2006) [Ru/Multi] (1.52/dlc) Scene PROPHET
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1719640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возглавьте свою армию и завоюйте мир в Total War: MEDIEVAL II, четвертой игре знаменитой серии стратегических игр Total War. Ведите масштабные 3D-битвы с участием до 10 000 кровожадных бойцов на эпических полях сражений, будучи правителем величайших средневековых государств Западной Европы и Ближнего Востока. В это беспокойное для Западного мира время сражайтесь (   Читать дальше...   )Тип издания: SceneРазработчик: CREATIVE ASSEMBLY, Feral Interactive (Mac), Feral Interactive (Linux)Жанр: СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8DE3A917720E68E087BEFAA1B23BE643404059
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1710764   (701329)
+
+Victoria II (2) (2010) [Ru<3>Multi] (4904558<3>dlc) Repack dixen18
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1710764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Victoria 2 – масштабная компьютерная игра в жанре глобальной стратегии, использующая настоящие исторические события для освещения событий тех лет и предоставления возможности геймеру влиять на них. Этот проект охватывает временной промежуток в столетие – с 1836 по 1936 года. 271 государство, присутствующие в тот отрезок на карте Земли, доступно к выбору геймеру для (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Strategy, Real-time, HistoricalЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65F19E830EF8958EBF332C7FEF7375FBD235262
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1704946   (700080)
+
+Plague Inc: Evolved (2016) [Ru<3>Multi] (1.19.1.0<3>dlc) Repack Decepticon
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1704946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стратегический симулятор, завоевавший всю популярность мира - больше 75 миллионов бесплатных скачиваний, - Plague Inc: Evolved - это игра, в которой надо максимально научным способом убить всех живых людей на земле. Делать это мы будем после создания болезни, которая должна заразить первого «нулевого человека». Каждая болезнь передается определенными путями: воздушно-капельным, (   Читать дальше...   )Тип издания: RepackРазработчик: Ndemic CreationsЖанр: Strategy (Real-time)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E743F18CF4EC284BDBD704D2EE1D789EE41DE23
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1701549   (698132)
+
+Northgard (2018) [Ru<3>Multi] (3.3.18.36375<3>dlc) Scene Tenoke [The Viking Age Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1701549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя годы неутомимых поисков отважные викинги обнаружили Нордгард – новую землю, полную тайн, опасностей и богатств. Храбрейшие из северян подняли паруса и отправились покорять чужие берега в надежде прославить свой клан и войти в историю благодаря своим завоеваниям, торговле и ревностному служению богам. Но для этого им придется отбиваться от диких зверей и мертвецов, (   Читать дальше...   )Тип издания: SceneРазработчик: Shiro GamesЖанр: 3D, Simulation, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB6BC4BCE659F9AED485E5C41887D4F246C1577
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1700700   (697708)
+
+Cossacks: Back to War <3> Казаки. Снова война (2002) [Ru<3>En] (1.35<3>dlc) Repack Deceptico
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1700700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень неприятно сражаться отдельно от остальных. Сражаться в отдельной версии игры «Казаки: Снова война», напротив, очень приятно. Этот комплект, содержащий в себе все наработки из игр «Казаки: Европейские войны» и «Казаки: Последний довод королей», полностью удовлетворит запросы как старых, так и новых поклонников серии. В этом дополнении вас ждет 100 увлекательных (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: СтратегияЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AF894D82575FC015E3061219401B4A0F787C28
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1693033   (694326)
+
+Wingspan <3> Крылья (2020) [Ru<3>Multi] (20240111<3>dlc) Scene Tenoke
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1693033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекционная карточная игра по мотивам одноименной настолки. Версия для персональных компьютеров рассчитана на сессии от одного до пяти человек. Игрокам отводится роль орнитологов, занимающиеся тем, что изучают новые виды птиц и стараются собрать и привезти в природный заповедник как можно больше редких особей.Тип издания: SceneРазработчик: Monster CouchЖанр: Инди, СтратегииЯзык озвучки: Английский, Польский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E284B8CB12A664A34A7F57786E68854B19E7B7BD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 160180   (687655)
+
+King Arthur: The Role-playing Wargame <3> Король Артур [Ru] (L) 2009
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+«Добро пожаловать в эпоху рыцарей и замков! Вам предначертано стать легендарным воителем – королем Артуром, сыном Утера Пендрагона, избранником судьбы и будущим правителем Британии».
+
+Выполните свое предназначение – соберите рыцарей за Круглым Столом и объедините с их помощью истощенную войной страну. Под вашим командованием они совершат множество подвигов, поучаствуют в сражениях и поисках артефактов, станут могущественными и преданными героями королевства. Вы построите величественный Камелот, откуда будете править всей Британией. Но помните: великого короля везде подстерегают враги, среди которых есть и люди, и потусторонние силы. Они попытаются захватить власть и уничтожить вас. Будьте готовы отправить в битву свою грозную армию, чтобы защитить королевство и престол. Исход противостояния определит будущее страны. Судьба Британии теперь в ваших руках!Тип издания: лицензияЖанр: Strategy (Real-time <3> Turn-based) <3> 3DЯзык озвучки: русскаяЯзык интерфейса: только русский
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 226635   (685303)
+
+Victoria 2 <3> Виктория 2 + DLC [En<3>Ru] (L) 2010
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_226635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: ЛицензияРазработчик: Paradox EntertainmentЖанр: Strategy (Real-time <3> Grand strategy) <3> Top-downЯзык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1089200   (538457)
+
+Stronghold Crusader 2 (2014) [Ru<3>Multi] (1.0.22689<3>dlc) SteamRip Let<1>sPlay [Special Ed
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1089200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stronghold Crusader 2 - это долгожданный сиквел оригинального castle-сима Stronghold: Crusader. Спустя 12 лет Stronghold возвращается в 1189 год в пустыни Среднего Востока, но уже с новым 3D-движком и реалистичной системой разрушения замков, созданной при помощи Havok Physics.Тип издания: SteamRipРазработчик: FireFly StudiosЖанр: Strategy (Manage, Busin, Real-time), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6112312CAC3944D9E4E7DBDF9C6939B6953DB0F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 821577   (531002)
+
+Lords of the Black Sun (2014) [En] (1.00) License CODEX
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Lords of the Black Sun — эпичная, сложная, захватывающая 4X-глобальная стратегия, действие которой разворачивается в глубоком космосе.
+
+Встаньте во главе одной из рас и вступите в борьбу за галактическое господство. Как главе империи, вам придется исследовать звезды, заселять новые миры, управлять империей и побеждать всех, кто осмелится противостоять вам.
+Галактика полна тайн и опасностей: разыскивайте древние руины и артефакты, сражайтесь или дружите с пиратами, обучайте генерала, который поведет ваш флот к победе. Плетите сложную паутину заговоров вместе с союзниками или отправляйте шпионов отыскивать уязвимости империй, главы которых поклялись вас уничтожить.
+Всегда следите, чтобы ваши подданные были довольны. В противном случае готовьтесь к антиправительственным выступлениям, а при наихудшем варианте развития событий, к появлению в вашей империи мятежников.
+
+Лишь самые могущественные правители могут удержать власть в глубинах космоса. А вам по силам стать Звездным правителем?(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Arkavi StudiosЖанр: Strategy <3> 3DЯзык озвучки: Музыкальное сопровождениеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC2F3D4097C66DA145A7FDF49B4A06800DB9E4B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1092778   (528406)
+
+Planar Conquest (2016) [Ru<3>Multi] (1.3.1f) SteamRip Let<1>sPlay
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1092778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Planar Conquest — это глобальная пошаговая стратегия, создатели которой вдохновлялись миром Master of Magic. Она погружает в удивительный мир старых игр благодаря схожему игровому процессу, получившему современный вид. «Исследуй, расширяй, используй, уничтожай» — четыре составляющих сложной, но увлекательной игры.Тип издания: SteamRipРазработчик: Wastelands InteractiveЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D5DB6503CD00C48F17D6A6C35771C30194022A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1052565   (528349)
+
+Meridian: New World (2014) [Ru<3>Multi] (1.0.4.0) License GOG
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1052565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Meridian: New World - это стратегия в реальном времени основным вниманием на сюжет. Игроки возьмут на себя роль Даниэля Хэнсона, командира первой экспедиции на планету Меридиан и её первооткрывателя. Иследуя всё вокруг себя, они смогут принимать разные сложные решения в интересных диалогах. Meridian: New World позволит создать собственную армию, в которой каждый (   Читать дальше...   )Тип издания: LicenseРазработчик: Elder GamesЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E90D66FD63CE255329A2D34CCE7F003BA3761F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1092911   (528339)
+
+Stronghold: Crusader II (2014) [Ru<3>Multi] (1.0.22714) License GOG [Special Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1092911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stronghold Crusader 2 - это долгожданный сиквел оригинального castle-сима Stronghold: Crusader. Спустя 12 лет Stronghold возвращается в 1189 год в пустыни Среднего Востока, но уже с новым 3D-движком и реалистичной системой разрушения замков, созданной при помощи Havok Physics. Firefly Studios воссоздают аутентичный симулятор замков с быстрым и захватывающим геймплеем.Тип издания: LicenseРазработчик: Firefly StudiosЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78FEC4DEF21DAC4A285C64F22994D81AAD15939
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1224260   (466941)
+
+Age of Wonders III <3> Age of Wonders 3 (2014) [Ru<3>Multi] (1.801) Repack xatab [Deluxe Edi
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1224260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Wonders III - давно ожидаемое продолжение отмеченной наградами серии стратегических игр. В нем сочетаются строительство, война и ролевая составляющая. Age of Wonders III - лучшая пошаговая стратегия в мире фэнтези для опытных игроков и новичков. Eternal LordsТип издания: RepackРазработчик: Triumph StudiosЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2965B51127C5B360516AC569E1558D854771F382
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1125241   (463159)
+
+SpellForce 2 (2017) [Ru<3>Multi] (2.01.8596) License PLAZA [Anniversary Edition]
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1125241.jpg" />
+</div>
+
+
+###  Подробнее
+
+SpellForce 2 - Anniversary Edition переизданная версия посвященная одиннадцатилетнию релиза игры, которая включает в себя дополнения Shadow Wars и Dragon Storm. В игру добавлено много исправлений, поддержку широкоформатных мониторов и современных операционных систем. Таинственные силы сочатся из тени и мрака, образуя новую угрозу для мира Эо. Кровь легендарного Шайкан (   Читать дальше...   )Тип издания: LicenseРазработчик: Phenomic, THQ NordicЖанр: Strategy (Real-time), RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F6635FC7D07ADEA80D8BD8D7A8FD4AD3F2BEED
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1126026   (461035)
+
+SpellForce 2 (2017) [Ru<3>En<3>Ge] (2.01.85906) License GOG [Anniversary Edition]
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1126026.jpg" />
+</div>
+
+
+###  Подробнее
+
+SpellForce 2 Anniversary Edition переизданная версия посвященная одиннадцатилетию релиза игры, которая включает в себя дополнения Shadow Wars и Dragon Storm. В игру добавлено много исправлений, поддержку широкоформатных мониторов и современных операционных систем. Таинственные силы сочатся из тени и мрака, образуя новую угрозу для мира Эо. Кровь легендарного Шайкан (   Читать дальше...   )Тип издания: LicenseРазработчик: Phenomic, THQ NordicЖанр: Strategy (Real-time), RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2386660E6BBC93FA83173EEB0E01D7BA22E67E70
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 822639   (455927)
+
+Total War ROME II<3>2 (2013) [Ru<3>Multi] (2.0.0<3>dlc) SteamRip Let<1>sPlay [Emperor Editio
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_822639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьмите под свое командование самую сильную армию времен Древнего мира, превратите свою страну в великую империю и заставьте врагов склониться перед вашей военной, экономической и политической мощью. Разумеется, одни будут восхищаться вашими успехами, а другие станут завидовать, не исключено, что в числе последних окажутся и ваши ближайшие соратники.
+Сумеют ли предатели нанести вам удар в спину или же вы первым выступите против старых друзей? Сколь многим готовы вы пожертвовать ради того, чтобы Рим стал именно (   Читать дальше...   )Тип издания: SteamRipРазработчик: The Creative AssemblyЖанр: Strategy (Real-time <3> Turn-based), 3DЯзык озвучки: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Польский, Чешский, Турецкий.Язык субтитров: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, Чешский, TурецкийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, Чешский, Tурецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFEEA6FD3F18CE042BD3F834ACF6B2E773F6EEA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 565974   (454350)
+
+Total War Anthology <3> Антология Total War [Ru<3>En] (Repack) 2000 - 2012 | R.G. Механики
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Total War Battles: SHOGUN – новая стратегическая игра от создателей знаменитой серии Total War, разработанная специально для платформ с сенсорным экраном, теперь и на ПК!
+В Total War Battles стремительные тактические сражения гармонично сочетаются с интуитивно понятной экономической составляющей. События разворачиваются в средневековой Японии, атмосфера которой великолепно передана в игре..(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Tower Defense) <3> 3D <3> IsometricЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2E554EE0E12AF3D266F64259E00A5D952571D1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 720163   (454233)
+
+TimeLines: Assault on America (2013) [Ru<3>Multi] (1.4) Repack R.G. Catalyst
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+TimeLines: Assault On America - это стратегия в реальном времени, действие которой разворачивается в альтернативной истории, когда Германия вторгается в США во время Второй Мировой войны.
+
+(   Читать дальше...   )Тип издания: RepackРазработчик: Strategy FirstЖанр: Strategy (Real-time) <3> 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD721B5D3EFD51EEC0A9A695BDDF8141A9348678
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 565146   (449775)
+
+The Lord of the Rings: War of the Ring <3> Властелин колец: Война Кольца [Ru] (L<3>1.01.0011) 20
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_565146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая в истории стратегическая игра, созданная по мотивам великой трилогии Толкина, поразит вас своей масштабностью и бесконечным вниманием к деталям. Разработчикам удалось почти невозможное — в полной мере передать в игре атмосферу «Властелина колец», при этом сохранив отточенный баланс сил, что для стратегии является критически важным фактором успеха, а так же (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Liquid EntertainmentЖанр: RTSЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 570511   (441087)
+
+Earth 2150: Escape from the Blue Planet <3> Земля 2150: Война Миров [Ru] (L<3>2.6) 2000
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_570511.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Земля 2150: Война Миров» — полностью трехмерная стратегия реального времени. События игры берут свое начало в недалеком будущем, в 2150 году, в тяжелейшее за всю историю человечества время.
+Вам предстоит взять на себя очень ответственное и без преувеличения судьбоносное задание — возглавить одну из трех противоборствующих коалиций и привести ее к победе. Но этого мало. Дополнительная сложность, которая не даст расслабиться ни на мгновенье, заключается в том, что вам нужно успеть покинуть планету до наступления коллапса. До того, как безжалостный и коварный враг уведет у вас из-под носа бесценные ресурсы, без которых невозможно построить эвакуационный космический флот.
+Три враждующих коалиции — Евроальянс, Атлантический Союз и Дети Селены — существенно отличаются друг от друга и исповедуют совершенно разные способы ведения войны. Пожалуй, единственным объединяющим их фактором является желание поскорее покинуть умирающую планету. Любой ценой. Любыми средствами.Тип издания: ЛицензияЖанр: Стратегия <3> StrategyЯзык озвучки: РусскийЯзык субтитров: -<3>-Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E861296EB6EAE113E813C57199255620ABDCE09
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 146714   (435561)
+
+Stronghold Коллекция [Ru] (P) 2002-2008
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Специальное издание известной стратегии в реальном времени. Свежий взгляд на легендарное средневековье и крестовые походы. Европа и Азия - две культуры, два мира, две правды, - и, как известно, вместе им не сойтись. Отчаянные защитники веры, разделенные на две непримиримые стороны, отстаивают свои идеалы с оружием в руках. Исход чрезвычайно сложных битв, представленных искушенным игрокам в версии Extreme, зависит от мастерства полководца, которому предстоит командовать многотысячными армиями, возводить аванпосты и осваивать новые тактические приемы. Тем же, кто окажется на полях сражений Stronghold Crusader впервые, рекомендуется обновленная версия оригинальной игры, представленная со всеми эксклюзивными дополнениямиТип издания: лицензияЖанр: Strategy (Real-time)Язык интерфейса: только русский
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 147348   (434331)
+
+Hearts of Iron <3> День Победы Коллекционное издание [Ru] (RePack) 2003-2009
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Третья часть глобальной стратегии о самой жестокой войне человечества достигла поистине исполинских масштабов и, наконец, обрела трёхмерность. Для управления доступно 150 государств, в которые входит в общей сложности 10 тысяч провинций, существовавших на карте мира в период с 1936 по 1948 год. На сегодняшний день — это мировой рекорд! Игроки будут избавлены от мелких и рутинных задач вроде управления дивизией. В игре «День Победы III» ведение войны происходит на уровне фронтов: локальные задачи группы армий решают самостоятельно, а игрок ставит глобальные цели. Однако при этом ничто не мешает самостоятельно управлять каждой армией. Кроме этого, игроков ждёт множество других интересных новшеств.Windows 98<3>ME<3>2000<3>XPТип издания: Перепакованная лицензияЖанр: Strategy(Real-time<3>Grand strategy)Top-down<3>3D
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0973350B6802221C2EB19114E70AF3C72C8C08
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1231392   (431984)
+
+XCOM: Enemy Unknown (2012) [Ru<3>Multi] (401776<3>dlc) License GOG [Complete Pack]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1231392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели Sid Meier’s Civilization подарили нам игру о сражениях, исход которых решит участь нашей цивилизации. Вы - командир элитной военной организации XCOM, который обязан защитить Землю от поражающего своим размахом инопланетного вторжения. В этот набор входит собравшая множество наград базовая игра XCOM: Enemy Unknown и дополнение XCOM: Enemy Within, а также (   Читать дальше...   )Тип издания: LicenseРазработчик: Firaxis Games, Feral InteractiveЖанр: Стратегия, Пошаговая, ФантастикаЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0555F78F94DBA11F6140BF24DD1C32BC0541F1A0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 728203   (431529)
+
+Disciples III: Перерождение <3> Disciples III: Reincarnation (2012) [Ru<3>En] (1.0.3) SteamR
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Данный проект раскрывает перед игроком дополненную и расширенную историю, рассказанную в «Ренессансе» и «Ордах Нежити», на полностью переработанных картах.
+«Disciples III: Перерождение» - красивый фэнтезийный мир, населенный ужасными монстрами и отважными героями. Не отступая от канонов пошаговых стратегий, игра привносит в жанр множество нововведений, дающих возможность почувствовать себя настоящими вождями магических армий.
+В «Disciples III: Перерождение» будет четыре доступных игроку расы: Империя, Орды Нежити, Легионы проклятых и Эльфийский союз. У каждой из них есть свои собственные герои и персонажи, будь то воины или маги, а также оригинальное древо строений. Игра полностью трехмерна: вместо статичной картинки вас ждут детализованные 3D модели городов и воинов. Меню строительства также изменилось. При выборе здания показывается список его улучшений, определяющих путь развития соответствующего воина. Помимо всего этого игрокам будет представлена совершенно новая система боя.
+Собственный графический движок VirtualDream поддерживает все самые современные технологии: вертексные и пиксельные шейдеры, карты нормалей, скелетную, морфичную и процедурную анимацию, систему частиц, динамическое освещение и тени, технологию порталов, пост-обработку изображения и многое другое.
+(   Читать дальше...   )Тип издания: Цифровая ЛицензияРазработчик: Hex StudioЖанр: Strategy (Turn-based) <3> 3D <3> CompilationЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63A3814D495906C73280588D643D4028C6C1AF8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 834633   (431134)
+
+Medieval II Total War Collection (2006) [Ru<3>Multi] (1.5.2.0<3>dlc) License PROPHET
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Возглавьте собственную армию и добейтесь господства в мире Medieval II — четвертой игры завоевавшей множество наград серии стратегических игр Total War. Вступайте в грандиозные 3D-сражения с участием до 10 тысяч отважных воинов, и одновременно с этим, правьте крупнейшими Средневековыми нациями Запада и Среднего Востока. Игра охватывает одну из самых бурных и нестабильных эпох в истории человечества; поиски новых земель и безграничной власти проведут вас через всю Европу, Африку, Средний Восток и даже Новый Мир. (   Читать дальше...   )Тип издания: LicenseРазработчик: The Creative AssemblyЖанр: Strategy (Real-time <3> Turn-based) <3> 3DЯзык озвучки: Русский, Английский, Немецкий, Французский, Испанский, ИтальянскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, ЧешскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, Чешский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319BE68B88C974F3B10638A85F112577300F19A1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 577310   (425861)
+
+Rise Of Nations Anthology [En<3>Ru] (Repack) 2003 - 2006 | R.G. Механики
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_577310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rise of Nations: Rise of Legends – один из самых ожидаемых и неординарных стратегических проектов 2006 года. Игра завоевала популярность благодаря роскошному графическому оформлению и нетривиальному сеттингу, сочетающему в себе ретро-фантастику, магию сказок «1001 и 1 ночи» и мифологию древних народов. Средний рейтинг игры, вычисленный на основании 50 рецензий от отечественной и зарубежной профильной прессы, составляет 82%.
+Эта стратегия в реальном времени разработана компанией Big Huge Games, хорошо известной вам по играм Civilization II, Colonization, Alpha Centauri и Rise of Nations. Rise of Legends продолжает и развивает ключевые идеи, заложенные в серии Rise of Nations: границы территорий и их значимость, масштабные сражения и инновационный подход к строительству городов. Игрок, получив во владение небольшое селение, сможет взрастить на его основе могущественную цивилизацию и ввергнуть ее в крупномасштабную войну с участием огромных армий и героев, наделенных специальными способностями.
+Rise of Legends, помимо всего прочего, содержит режим «Покорение мира», ставший чрезвычайно популярным среди пользователей еще в предыдущей игре серии - оригинальной Rise of Nations. Новая кампания этого режима познакомит игроков с игровой вселенной Rise of Legends, позволив всем желающим стать свидетелями захватывающей истории, разворачивающейся в живом трехмерном мире игры, где рождаются, враждуют и гибнут целые цивилизации.(   Читать дальше...   )Тип издания: RePackРазработчик: Big Huge GamesЖанр: Strategy (Real-time) <3> IsometricЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD27A9CBA7F3FBF3D191296A1F2F59F927CE2E3F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1209133   (423018)
+
+Ultimate General: Civil War (2017) [Ru<3>Multi] (1.11) License GOG
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1209133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultimate General: Civil War - тактическая военная игра. Вы попадете в самое кровавое время в истории США - в период Гражданской войны 1861-1865 годов. Полная кампания: кампания Гражданской войны в США насчитывает более 50 сражений - от мелких стычек до масштабных битв, которые разворачиваются по несколько дней на сотнях квадратных километров. Ход кампании полностью (   Читать дальше...   )Тип издания: LicenseРазработчик: Game-LabsЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0375EF83C2E3158E4EE34E81A3C6001B19B258
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1234030   (407903)
+
+Eador: Genesis <3> Эадор. Сотворение (2009) [Ru<3>Multi] (1.05.2 Language Update) License GO
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1234030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эадор - это вселенная из множества осколков суши, дрейфующих посреди Великого небытия. Даже по отдельности каждый из них представляет собой целый мир со своей географией и обитателями. За власть над осколками сражаются Владыки - бессмертные существа, которых многие смертные считают богами. Станьте могущественным Владыкой и решите судьбу Эадора, ведя борьбу на земле (   Читать дальше...   )Тип издания: LicenseРазработчик: Alexey BokulevЖанр: Стратегия, Пошаговая, ФэнтезиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0AA4993D5AE943B0524F2F6C0D5BC9EC9CB03C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1043254   (406160)
+
+Sacrifice <3> Жертвоприношение (2000) [Ru<3>En] (15.08.2016) License GOG
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1043254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нетривиальная и красочная игра, удачно сочетающая в себе стратегию в реальном времени и RPG с видом от третьего лица. Вашему персонажу, боевому магу-наемнику, предстоит принять участие в кровопролитной войне пяти богов. Выбрав одного из них, вы тут же попадете в немилось к остальным четырем.Тип издания: LicenseРазработчик: Shiny EntertainmentЖанр: Action, Strategy (Real-time), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EDE49559BCAC186F6D35072F3C518A20974326
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 588578   (398609)
+
+Civilization 2: Test of Time [Ru] (P) 1999
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_588578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переиздание Civilization 2. Test of Time включает оригинальную кампанию, присутствовавшую в Civilization II, с рядом небольших изменений. Особенно сильны внешние различия — в игре почти полностью переделана графика и появилась анимация юнитов. Появилась также расширенная оригинальная кампания, в которой «розовый» слот занимает цивилизация центавриан с которыми вступает в войну игрок, пославший к Альфе Центавра космический корабль. Игрок также может играть за инопланетян, но тогда придётся долго ждать прибытия землян.Тип издания: ПираткаЖанр: Глобальная пошаговая стратегияЯзык озвучки: -<3>-Язык субтитров: -<3>-Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7FA97A2631BACF2C4B79CD3CD75A75CAD676CE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 845730   (397562)
+
+Empires: Dawn of the Modern World (2003) [Ru] (1.0.5163) Repack
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Средние века и расцвет Империй, кровопролитные бои Первой и Второй мировой – в Empires: Dawn of the Modern World вы пройдете долгий путь, своими руками строя города и разрушая неприятельские замки, развивая экономику и отправляя в бой многотысячные армии.
+
+Славные рыцари, великие полководцы и могущественные короли, чья власть порой кажется безграничной; свобода, которую отстаивают с оружием в руках; слава, что добывается в кровопролитных битвах – вот он, удел настоящего стратега, вот оно, непередаваемое чувство глобальности происходящего, вот она, история!(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Stainless Steel StudiosЖанр: Strategy (Real-time) <3> 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB1929D137A6E02B7F477D2DF6A88AC140EFCE5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 933252   (397360)
+
+Heroes of Might and Magic 5 <3> Герои Меча и Магии 5 (2006) [Ru] (1.0) License
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_933252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте свидетелем поразительной эволюции направляющей жанр стратегической игры, ставшей феноменом нового поколения игр, объединяющей классическое глубокое фэнтези с графикой и игровым процессом нового поколения. В известной вселенной Might & Magic толпы демонов распространяют хаос по всем землям в безжалостных нападениях.Тип издания: ЛицензияРазработчик: Nival InteractiveЖанр: Strategy (Turn-based) <3> 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31364FCDCDE3C872F84E0041D3E3EE9531B334CF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1148171   (396447)
+
+War for the Overworld: Anniversary Collection (2015) [Ru<3>Multi] (2.0.3f1<3>dlc) License GO
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1148171.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь двухлетия игры War for the Overworld мы собрали столько интересного, что нам позавидовал бы сам Скарг: оригинальную игру, дополнительные материалы из издания Underlord Edition и дополнения Heart of Gold, My Pet Dungeon и Crucible. Надоело захватывать подземелья? Так постройте свое! Игра War for the Overworld сочетает в себе лучшие черты стратегии в реальном (   Читать дальше...   )Тип издания: LicenseРазработчик: Subterranean GamesЖанр: Strategy (God Sim, Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F0325C94978B95CBFBE0DD7C28F7C13A6E2A07
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 882697   (394017)
+
+Heroes of Annihilated Empires <3> Герои уничтоженных империй (2006) [Ru<3>En] (1.1.0) Repack
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_882697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои Уничтоженных Империй - это фэнтэзийная игровая трилогия, основанная на противопоставлении двух жанров - стратегии реального времени и ролевой игры. Игра построена на новом 3D-движке от GSC Game World. Действие первого эпизода разворачивается на острове Атланс - исторической родине эльфов.Тип издания: RepackРазработчик: GSC Game WorldЖанр: Strategy (Real-time) <3> RPG <3> 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9B9114EAFF93734991EBD0CD679D9CA401CD52
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 735693   (390746)
+
+Disciples III: Перерождение <3> Disciples III: Reincarnation (2012) [Ru] (1.0.3) Repack Feni
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Данный проект раскрывает перед игроком дополненную и расширенную историю, рассказанную в «Ренессансе» и «Ордах Нежити», на полностью переработанных картах.
+«Disciples III: Перерождение» - красивый фэнтезийный мир, населенный ужасными монстрами и отважными героями. Не отступая от канонов пошаговых стратегий, игра привносит в жанр множество нововведений, дающих возможность почувствовать себя настоящими вождями магических армий.
+В «Disciples III: Перерождение» будет четыре доступных игроку расы: Империя, Орды Нежити, Легионы проклятых и Эльфийский союз. У каждой из них есть свои собственные герои и персонажи, будь то воины или маги, а также оригинальное древо строений. Игра полностью трехмерна: вместо статичной картинки вас ждут детализованные 3D модели городов и воинов. Меню строительства также изменилось. При выборе здания показывается список его улучшений, определяющих путь развития соответствующего воина. Помимо всего этого игрокам будет представлена совершенно новая система боя.
+Собственный графический движок VirtualDream поддерживает все самые современные технологии: вертексные и пиксельные шейдеры, карты нормалей, скелетную, морфичную и процедурную анимацию, систему частиц, динамическое освещение и тени, технологию порталов, пост-обработку изображения и многое другое.
+(   Читать дальше...   )Тип издания: RepackРазработчик: Hex StudioЖанр: Strategy (Turn-based) <3> 3D <3> CompilationЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5F659CD3E69DE329E1637AF5BA735E667D94F4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1238718   (387049)
+
+Krush Kill <1>N Destroy Xtreme (1997) [En] (1.0) License GOG
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1238718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте мир после ядерной войны, где все живут по военным законам, а вокруг бродят жутковатого вида мутанты, которых приходится уничтожать. Добро пожаловать в ад, солдат. Ах да, не вдыхайте радиоактивную пыль. Присоединитесь к одной из двух группировок, каждая из которых борется за выживание, не жалея живота, когтей, щупалец и прочих экзотических отростков.Тип издания: LicenseРазработчик: Beam SoftwareЖанр: Стратегия, В реальном времени, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B44C9B7C782A967AF57C01097B30BD84CCE64F3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 937499   (381678)
+
+Act of Aggression (2015) [En<3>Multi] (770000573) SteamRip R.G. Игроманы
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_937499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Act of Aggression начинается в 2020 году в мрачном реалистичном будущем, где 3 крупные фракции сражаются за свои интересы. Первая - подпольный Картель, обладающий высокими технологиями, украденными прототипами, устраивающий секретные операции. Вторая - финансируемая ООН военная организация Химера (Chimere), пытающаяся быстрыми ударами добиться мира и порядка.Тип издания: SteamRipРазработчик: Eugen SystemsЖанр: Strategy (Real-time) <3> 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий, ИспанскийЯзык интерфейса: Английский, Французский, Итальянский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D1A9DABD5A402A5895BB0F0BCC676866F41515
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1079945   (380895)
+
+Master of Orion: Conquer the Stars (2016) [Ru<3>Multi] (55.1.1<3>dlc) Repack R.G. Catalyst
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1079945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master of Orion предлагает игрокам исследовать безграничные просторы галактики, выступив на стороне одной из многочисленных разумных рас, населяющих вселенную. Возрожденная Master of Orion наследует лучшие черты своих знаменитых предшественниц, совмещая в себе традиционную философию 4Х (Explore, Expand, Exploit and Exterminate) и новейшие разработки индустрии.Тип издания: RepackРазработчик: NGD Studios и Wargaming.netЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6770C803333C39AC910E8B1522076F6C3F2403C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1240275   (380061)
+
+Total War: ROME II (2013) [Multi] (2.4.0<3>dlc) License CODEX [Emperor Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1240275.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Total Wa: ROME II Обновленное издание» - это наиболее полное издание игры ROME II с улучшенной системой политики, переработанными цепочками построек, исправленным балансом в битвах и улучшенной графикой в кампании и боях. Кроме того, издание «Обновленное издание» содержит все обновления функций и дополнительные материалы, выпущенные для ROME II с момента выхода (   Читать дальше...   )Тип издания: LicenseРазработчик: Creative AssemblyЖанр: Strategy (Real-time), 3DЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF75C0B0B87D10067DD1E5D391F958C7A573005
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1153253   (378428)
+
+Master of Orion 1+2 (1993<3>1996) [Multi] (1.3<3>1.31) License GOG
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Master of Orion II: Battle at Antares - компьютерная игра в жанре глобальной стратегии, продолжение компьютерной игры Master of Orion. Как и в предыдущей части, в Master of Orion II игроку предоставляется выбор расы, за которую он будет вести игру. Но теперь этот выбор существенно расширен. Во-первых, добавились 3 новые расы. Во-вторых, появилась возможность создать (   Читать дальше...   )Тип издания: LicenseРазработчик: Simtex и MicroProseЖанр: Strategy (Turn-based, Grand strategy)Язык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9A97E4BF1FFE0DC4489B2F9C4220FAA5AB626D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1154180   (375227)
+
+Sudden Strike: Resource War <3> Sudden Strike: Битва за ресурсы (2004) [Multi] (2.4) License
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1154180.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Sudden Strike. Битва за ресурсы» - стратегия в реальном времени от создателей легендарной серии тактических RTS, известных в России под названием «Противостояние». Впервые за всю историю серии игрокам предстоит не только командовать десятками юнитов, побеждать врага на протяжении исторически достоверных кампаний и разрабатывать новые тактические схемы, но и вести (   Читать дальше...   )Тип издания: LicenseРазработчик: FireglowЖанр: Strategy (Real-time), IsometricЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89660EB35E81C7F37B2479F53C4AE44C89F96C58
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 595712   (374873)
+
+Demigod <3> Demigod. Битвы богов [Ru<3>En] (RePack<3>1.30.154) 2009 | R.G. Механики
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_595712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибрид экшена, ролевой игры и стратегии реального времени, разрабатываемый Крисом Тейлором и его Gas Powered Games с явной оглядкой на непревзойденный мод Defence of the Ancients для Warcraft 3, в народе больше известный под именем DotA. В котором, в отличие от других «правильных» RTS, вы не собираете ресурсы и не клонируете в бараках юнитов, а управляете одним-единственным героем, который раздает оплеухи нейтральным монстрам и героям оппонентов. Опыт, деньги, покупка ценных вещей – все как в лучших домах ролевого жанра.
+Примерно на этих же принципах будет построен и Demigod. Вы управляете одним из множества «полубогов», разительно отличающихся друг от друга. Кто-то «выезжает» исключительно на собственных навыках и физической силе, посылая соперника в нокаут с пары ударов, кто-то полагается на призываемую в больших количествах пузатую мелочь. Один из представленных героев - The Rook – покойный король, дух которого оживляет на поле боя ходячий замок с внушительной кувалдой.
+Разумеется, ставка в игре будет сделана на сетевые сражения, в особенности – на кооператив. Однопользовательский режим тоже имеет место быть, хотя, по словам самих разработчиков, он будет не более чем тренировочной площадкой перед выходом в «онлайн». (   Читать дальше...   )Тип издания: RePackРазработчик: Gas Powered GamesЖанр: Strategy (Real-time) <3> RPG (Rogue<3>Action) <3> 3D <3> 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русскиe, АнглийскиeЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A844F104E7EA73058D13D35435A0B828640D0E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 943594   (373233)
+
+Endless Legend (2014) [Ru<3>Multi] (1.6.4.S3<3>dlc) Repack R.G. Механики [Emperor Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_943594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Endless Legend - 4X-стратегия от создателей Endless Space. Бороться за власть на планете Аурига будут 8 цивилизаций. Игрокам предстоит собирать «пыль» и другие ресурсы, торговать, развивать науку и волшебство, искать артефакты и экипировать ими героев, ассимилировать малые народы.Тип издания: RepackРазработчик: Amplitude StudiosЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D192F37464CDFAB0DA799D9CCB1876773EC458FD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1063067   (301606)
+
+Endless Legend (2014) [Ru<3>Multi] (1.5.1.s3<3>dlc) License HI2U
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1063067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще один рассвет — и впереди еще один день, полный забот. Нужно вырастить пищу, построить здания, заняться науками и магией, сделать еще один шаг к процветанию вашей цивилизации. И как можно быстрее, ведь вы пишете историю своей планеты в нелегкое время — после необъяснимого апокалипсиса и самой суровой зимы, которую когда-либо переживало человечество. Впрочем, предыдущие (   Читать дальше...   )Тип издания: LicenseРазработчик: Amplitude StudiosЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188F8D735BCA7DECA5F500A438B47821479F2314
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1192828   (283895)
+
+Earth 2150: Lost Souls <3> Земля 2150: Воды Стикса (2002) [Ru<3>Multi] (2.1.0.1) License GOG
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1192828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть эпической саги о мрачном будущем Земли. На фоне развалин городов и зарева ядерной войны разворачиваются драматические события, в которых вам предстоит сыграть решающую роль. Уже построены космические корабли, и телепортатор практически готов. Люди готовы покинуть умирающую планету, так долго служившую им домом. Но в этот момент становится ясно, что плодами (   Читать дальше...   )Тип издания: LicenseРазработчик: Reality Pump StudiosЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Английский, Немецкий, ПольскийЯзык субтитров: Русский, Английский, Немецкий, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B7B9A40CA8A66DA13D19A054AB5FB75A1AB7B8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 991068   (282697)
+
+Life in Bunker (2016) [Ru<3>Multi] (1.0.1192) License SKIDROW
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_991068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Life in Bunker - это симулятор строительства бункера. Вы были выбраны новым Хранителем Бункера! Теперь вам предстоит возглавить управление над всеми жителями бункера и постараться продержаться до тех пор, пока поверхность вновь не станет пригодной для жизни людей. Однако, это не такая уж и тривиальная задача. Жизнь под землей очень сложная и полна опасностей. Ваши (   Читать дальше...   )Тип издания: LicenseРазработчик: Flox Studios Ltd.Жанр: Indie, Simulation, StrategyЯзык озвучки: Русский, Английский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A18F5370E37257AA50F51BAE5F83CFC28D35487
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1048776   (282430)
+
+Crusader Kings II (2016) [Multi] (3.0.1.1<3>dlc) License CODEX [Imperial Collection]
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1048776.jpg" />
+</div>
+
+
+###  Подробнее
+
+По всей Европе полная разруха, земли поделены мелкими феодалами, император борется с Папой Римским, и Святой Отец объявляет о том, что всем, кто отправится на освобождение Святой Замли, будет даровано прощение грехов. Вам предстоит взять роль правителя одной из могущественных христианских династий и постараться расширить свои границы.Тип издания: LicenseРазработчик: Paradox Development StudioЖанр: Strategy (Real-time, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, ИспанскийЯзык интерфейса: Английский, Французский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349B216F00A2436D9826FD0946FF5E9AC178A784
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1193336   (281646)
+
+Earth 2160 <3> Земля 2160 (2005) [Ru<3>En] (1.3.8) License GOG
+Win Старые Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1193336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лишь несколько тысяч людей успели покинуть Землю до того, как ее уничтожили в 2150 году. Следующие годы беженцы провели, терраформируя Красную планету, развивая технологии и создавая новые цивилизации. Каким-то образом каждая из фракций – Евразийская Династия, Объединенные Цивилизованные Штаты и Лунная Корпорация – сумели сделать все это самостоятельно и независимо (   Читать дальше...   )Тип издания: LicenseРазработчик: Reality Pump StudiosЖанр: Стратегия, В реальном времени, ФантастикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF510175DE3C65F8A54B0505AC734FD5CEFF493F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1085535   (281396)
+
+Age of Empires II HD (2013) [Ru<3>Multi] (5.0.1<3>dlc) License RELOADED
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1085535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Empires II HD Edition – переиздание стратегии 1999 года, где доступны все миссии как оригинальной игры Age of Kings, так и дополнения Conquerors. Кроме этого все желающие могут бросить вызов своим товарищам в онлайне. Кроме переработки графики под разрешение 1080p, разработчики используют усовершенствованный графический движок с улучшенной обработкой текстур (   Читать дальше...   )Тип издания: LicenseРазработчик: Hidden Path EntertainmentЖанр: Strategy (Real-time), IsometricЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239FA7914221E2514606FC6C7A86C9CEE90D7EBC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1278147   (281174)
+
+Medieval Kingdom Wars (2018) [Ru<3>Multi] (1.11) License PLAZA
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1278147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Medieval Kingdom Wars – глобальная стратегия в реальном времени, предлагающая историческую достоверность, огромный живой и меняющийся мир, исторические квесты, строительство городов, реалистичные осадные сражения и многое другое. Вас ждет однопользовательская кампания, одиночный или кооперативный многопользовательский режим, редактор мира и мастерская.Тип издания: LicenseРазработчик: Reverie World StudiosЖанр: Strategy, RTS, SimulationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADD95C2B19098B3A8BE5FA78E4DB6B56DFB1730
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1138530   (279070)
+
+Quarantine (2017) [Ru<3>Multi] (1.0.24.17) License CODEX
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1138530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quarantine - это пошаговая стратегия, посвященная борьбе человечества с чудовищной пандемией. Игроки встают во главе <2>Биозащиты<2>, международного агентства биобезопасности, и стараются сдержать распространение различных смертельных болезней.Тип издания: LicenseРазработчик: SproingЖанр: Strategy (Real-time), SimulationЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5997114FF4524E7D5047726E8FE192F8D82DA7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1701970   (67477)
+
+Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.00.987.01) License GOG
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1701970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terminator: Dark Fate – Defiance позволяет окунуться в суровый мир боевых действий, что происходит на территории разрушенных городов. Игра выполнена в сеттинге постапокалипсиса, где между человечеством и сетью интеллектуальных машин Legion происходит конфликт. Люди вынуждены сопротивляться восставшим роботизированным киборгам, чтобы положить конец наступлению противника (   Читать дальше...   )Тип издания: LicenseРазработчик: Slitherine Ltd.Жанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9152EF1E65898970F8194BD0C74ECEC38AB9AE0F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1682389   (38617)
+
+SGS Taipings (2023) [Ru<3>Multi] (23.07.21) Scene Tenoke
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1682389.jpg" />
+</div>
+
+
+###  Подробнее
+
+SGS Taipings - военный и политический симулятор, который погрузит вас в самую смертоносную и кровопролитную гражданскую войну в Китае, унесшую миллионы жизней. Готовы ли вы возглавить повстанцев-тайпинов и их союзников в борьбе за создание нового государства, или вы возьмете на себя роль императора Цин, решительно настроенного подавить восстание и его иностранных (   Читать дальше...   )Тип издания: SceneРазработчик: Strategy Game StudioЖанр: СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275FE7ABECC2AEC58B453627D4BF86D48B6CB12D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1676262   (35586)
+
+Stronghold (2023) [Ru<3>En] (12632923) Repack dixen18 [Definitive Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1676262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stronghold: Definitive Edition оживляет средневековую Англию в стратегической и захватывающей игре. В этой классической стратегии в реальном времени геймерам предстоит восстановить разрушенное королевство, объединить разрозненные силы и сразиться с коварными злодеями - Крысой, Свиньей, Змеей и Волком. Сюжет разворачивается на истерзанной войной границе, где король (   Читать дальше...   )Тип издания: RepackРазработчик: FireFly StudiosЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE83BBCC7305B36F7B6080D79F9DB1E10A1164B0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1675906   (35442)
+
+Crusader Kings III (3) (2020) [Ru<3>Multi] (1.11.0<3>dlc) Scene Rune [Royal Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1675906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crusader Kings 3 - глобальная стратегия, значительно расширяющая границы возможностей предыдущей части. Короли-крестоносцы 3 охватывают временной промежуток с 1066 по 1453 года. В отличие от второй части, начать игру в любой момент времени не получится. Новая карта тянется от Испании до Бирмы и Монголии, а также от Скандинавии до Центральной Африки. Масштаб игры (   Читать дальше...   )Тип издания: SceneРазработчик: Paradox Development StudioЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E849F3178B66FAEDADB761E6B2D7D9D0CC17EA4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1675111   (35035)
+
+Stronghold (2023) [Ru<3>Multi] (12632923) Scene Rune [Definitive Edition]
+След.
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1675111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stronghold: Definitive Edition оживляет средневековую Англию в стратегической и захватывающей игре. В этой классической стратегии в реальном времени геймерам предстоит восстановить разрушенное королевство, объединить разрозненные силы и сразиться с коварными злодеями - Крысой, Свиньей, Змеей и Волком. Сюжет разворачивается на истерзанной войной границе, где король (   Читать дальше...   )Тип издания: SceneРазработчик: FireFly StudiosЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9B07CA6E5878531EAEDBE0381C8DE23430AF23
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1654307   (24341)
+
+Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1654307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возглавьте племя Рассвета и отправьтесь вглубь запретных земель. Выполняйте задания, которые сформируют личности ваших подопечных, повлияют на их благополучие и решат судьбу сообщества. Помогите народу выжить в мрачном фэнтезийном мире, вдохновленным славянским фольклором.Тип издания: RepackРазработчик: Covenant.devЖанр: Стратегия, Приключение, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BB9562566D3020E919994795E9C8DAD91BA62D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1131453   (22616)
+
+Age of Wonders III (3) (2014) [Ru/Multi] (1.802fix/dlc) License GOG [Deluxe Edition]
+Win Игры
+Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1131453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изгнание королей-чародеев ознаменовало конец Второй эпохи и погрузило мир в хаос. Теперь им на смену пришли новые герои и злодеи, алчущие богатства и власти. Только самые сильные из них одержат победу и подчинят себе мир Третьей эпохи чудес! Дополнительный сценарий для одиночной игры. Множество историй повествует о драконах, издревле правивших морем Пламени, но никто (   Читать дальше...   )Тип издания: LicenseРазработчик: Triumph StudiosЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672327902A329B12E96F93716BCA443B076C70CD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1725600   (4450)
 
 WARNO (2024) [Ru/Multi] (125318/dlc) Scene Rune
 Win Игры
 Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1725600.jpg" />
+</div>
+
 
 ###  Подробнее
 
@@ -1749,12 +3716,9 @@ Strategy (RTS/TBS/Grand)
 
 ## Скачать торент
 ```bash
-    magnet:?xt=urn:btih:A48B17954DCE3291DBBBABA0ECAD34695F9F76E8
+magnet:?xt=urn:btih:A48B17954DCE3291DBBBABA0ECAD34695F9F76E8
 ```
 
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/save_picture_1725600.jpg" />
-</div>
+#Mybot  @nnmclub_mybot
 
 ---------------------------------------------------------------------------------------------------------------
-
