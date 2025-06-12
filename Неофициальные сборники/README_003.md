@@ -1,4 +1,37 @@
 
+###  Публикация: 814575   (607587)
+
+VA - Beautiful Lounge (2014) [MP3|320 кб<3>с]<Downtempo, Lounge, ChillOut>
+Неофициальные сборники
+Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Paradisiac - Good News
+02. International Freedom - Easy Vibes
+03. Marlon - Double Six
+04. The Fabulous Lounge Quartet - Yesterday
+05. Volo - Loft Jazz
+06. Manyus Joan Eta - The Road
+07. Starshine Bros - Hot Love
+08. Sweet Night - Maximum Pleasure
+09. International Swing Affair - Wireless
+10. Top Lounge Collection - In Quota(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 08:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1D13380D04E7B58A5AB9C9424DDFB139953416
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 814303   (607547)
 
 VA - Клубные Новинки Vol.481 (2014) [MP3|320 кб<3>с]<Club, Dance>
@@ -29715,32 +29748,6 @@ VA - Acoustic Pop Covers (2016) [MP3|320 кб<3>с] <Pop, Acoustic, Covers>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D2A0BEBE7A09E33A656A7D3347519D303427CCA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 994409   (574386)
-
-VA - 8 Марта. Праздничный хит-парад №1 (2016) [MP3|192 кб<3>с-320 кб<3>с] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_994409.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тимур Родригез - Я Верю В Твою Любовь.mp3
-002. Лобода - Революция (Radio Version).mp3
-003. Тамерлан и АленаЖанр: PopПродолжительность: 06:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31403D7DEE0D8A41FAA240477A5C3B0E39A5D82D
 ```
 
 #Mybot  @nnmclub_mybot

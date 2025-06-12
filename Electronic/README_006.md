@@ -1,4 +1,139 @@
 
+###  Публикация: 1125076   (468284)
+
+Germind - Thoughtform (2017) [MP3|320 Kbps] <Psybient, Ambient, Downtempo>
+Electronic
+Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1125076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Textures Life
+02. Shimmering At Sunrise
+03. Thoughtform
+04. Galactic Stems(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E846A6614EA80F8942534A0F22C3BD8EFDA2B50
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 909125   (468261)
+
+Salt Tank - Phoenix (2015) [FLAC|Lossless|WEB-DL]<Trance>
+Electronic
+Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_909125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoenix (Voices From The Fire Mix) (07:29)
+02. Phoenix (Allende Remix EA3 Reconstruction) (09:13)
+03. Phoenix (Adam Ellis Remix) (07:58)
+04. Phoenix (Tasso Remix) (07:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8E8E66B67C8B8FFFEAF6C47C00414822516E72
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1124967   (468224)
+
+VA - Dark Sessions Radio 025 (Mixed by Oberon) (2017) [FLAC|Lossless|WEB|tracks|image] <Tran
+Electronic
+Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1124967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omega Drive - MIDI 1 (6:36)
+02. Cristian Ketelaars - Limitless (Omega Drive Remix) (7:46)
+03. Opt-in - Wurmtreiber (7:18)
+04. Mekk V - Embryo (Funked Up Mix) (6:19)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE5E8D4A26E72EED1CDD581148E18BA8B0A1178
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1124971   (468220)
+
+VA - Recoverworld Radio 009 (Mixed by Rich Smith) (2017) [FLAC|Lossless|WEB|tracks|image] <T
+Electronic
+Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1124971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Legatto & Alex Van Gray - Fly Away (7:59)
+02. Laura May - Are You Afraid of Ghosts (Cenk Basaran Remix) (6:57)
+03. Nikolauss - Solaris (6:24)
+04. Tau-Rine & Haig & Raffi - Redemption (8:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A15E770DF60CD39D551804C69636AFB171D53A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1125137   (468211)
+
+Robert Rich & Markus Reuter - Lift a Feather to the Flood (2017) [FLAC|Lossless|WEB-DL|tracks] <
+Electronic
+Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1125137.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. We Shed the Remnants of Last Winter (7:14)
+2. Twining Branches Make a Path (9:53)
+3. Glistening on Wet Tarmac (5:45)
+4. Seedlings Push Through Cracks (8:20)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFD071EFB581BC0CAA135C6299CC0FBBD8F9551
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1124899   (468210)
 
 Peter Bjargo - Animus Retinentia (2017) [MP3|320 Kbps] <Ambient>
@@ -27962,143 +28097,6 @@ Psychedelic, psytrance, fullon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7F74EB028788F8DB846C9A7C0D68C5A8CD36D37
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1233874   (422716)
-
-Rei Harakami - Collection (1997-2016) Sublime Records, Rings [FLAC|Lossless|tracks+.cue, tracks]
-Electronic
-IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Great 3 – Bee (Rei Harakami Remix) (05:27)
-02. Electrical Lovers – 二重螺旋 (05:26)
-03. イルリメ – 流星より愛をこめて「流星メドレーVer.」 (04:16)
-04. くるり – ばらの花 (06:18)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM<3>Experimental<3>AmbientПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CEF969023566F437225C9894B902AE73C1CB91
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 837140   (422636)
-
-VA - Erotic Lounge Session Vol 1 (Finest Bare & Secret Lounge Tunes) (2014) [MP3|320 кб<3>с]
-Electronic
-Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-001. Roberto Sol - Coracao
-002. Aza<1>s Lounge - This Is Not a Love Song
-003. Gerrit van der Meer - Eden
-004. Joker - Erotic Dream
-005. Peter Pearson - Let<1>s Take It Slowly
-006. Luis Hermandez - La Luna
-007. Michael E - Fall in Love with Me
-008. Frank Demegni - Global Sex
-009. The B Lounge - Sexy Soft
-010. Trillian Miles - Colour Me Sexy(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556837877C55C0988AE172E1EFD5A8550938EA41
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1233962   (422618)
-
-Markus Schulz & Emma Hewitt - Safe from Harm (The Remixes Extended Version)(Singles)(2018<
-Electronic
-Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1233962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Safe from Harm (Dylhen Extended Remix)
-02. Safe from Harm (Giuseppe Ottaviani Extended Remix)
-03. Safe from Harm (Markus Schulz In Bloom Extended Mix)Жанр: TranceПродолжительность: 00:21:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41276900251C4B3E14D60166B05BE81A00C73386
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1233888   (422506)
-
-U96 - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1233888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Angels (feat Terri B!)
-03. F......Camera
-04. Zukunftsmusik (feat Wolfgang Flar)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 01:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA745C023B94A8B621187B277367B891C8A2DBF7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1233953   (422396)
-
-VA - Kalpamantra Records presents: Compilations Collection - 27 Releases (2010-2018) [MP3|320 Kb
-Electronic
-Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dark Ambient, Drone, SoundscapeПродолжительность: 82:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E47194BAF1143E0A3A535262F502E89D6E35BD98
 ```
 
 #Mybot  @nnmclub_mybot

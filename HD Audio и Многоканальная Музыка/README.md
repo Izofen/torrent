@@ -1,4 +1,624 @@
 
+###  Публикация: 1801465   (754213)
+
+Monkey House - Crashbox (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz, Soft Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/" />
+</div>
+
+
+###  Подробнее
+
+01. Return of the Mayfly (4:30)
+02. Someplace on Madison (4:24)
+03. Crashbox (5:12)
+04. Disappear in Plain Sight (4:20)(   Читать дальше...   )Жанр: Jazz, Soft RockПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4237BCC0BBB9738F1C71A0E97C243B9451A70DF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801461   (754140)
+
+Birth Control - Bäng! (1982) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Prog Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuclear Attack (Remastered) [00:05:03]
+02. Get Ready To Run (Remastered) [00:04:08]
+03. Take Alarm (Remastered) [00:05:31]
+04. Greedy Eyes (Remastered) [00:04:56](   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8FAA7BA99574A13AF68F8744CC2682B23334FE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801445   (754124)
+
+Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why (Interlude) [00:00:41]
+02. Best For Me [00:03:27]
+03. More Than Twice [00:04:33]
+04. You First [00:04:29](   Читать дальше...   )Жанр: PopПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D848FFC35C106D020F147B9AA46B076DBA17F5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801444   (754123)
+
+King 810 - Rustbelt Numetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Rapcore>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/" />
+</div>
+
+
+###  Подробнее
+
+01. Rustbelt Numetal [00:02:34]
+02. Noonday Demon [00:03:22]
+03. Blue Collar Noose [00:03:00]
+04. Headshot [00:03:51](   Читать дальше...   )Жанр: Nu-Metal, RapcoreПродолжительность: 00:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E4E25E7CB8F362153742FCE27DDFE8F9D40428
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801410   (754065)
+
+Samael - Exodus (1998) (EP) Reissue, 2014, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801410.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Exodus
+A2 Tribes Of Caïn
+A3 Son Of Earth
+B1 Winter Solstice(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA43A92C43CA1A82120FB316C36DD3497DAD6A60
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801439   (754048)
+
+Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Carter [00:01:48]
+02. Welcome to Tha Carter [00:03:35]
+03. Bells [00:03:24]
+04. Hip-Hop [00:04:01](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE49CCBCE44980D9565B003E24BA5F4AB119C22
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801245   (753994)
+
+Cat Tales - Fables and Stories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  5 n Dime (4:45)
+02.  Best Intrests (3:26)
+03.  Toad Township (3:12)
+04.  Quarter in a Ditch (2:57)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5A577CC62BD9E892CDE5F4FAE6B8C770E174FE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801246   (753993)
+
+Chris Ramey - Children's Songs for Adults Only (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Thank You Mr. Gov’t (3:34)
+02.  Do You Like My Cologne? (3:33)
+03.  Perfectly (4:17)
+04.  I Took A Pill (4:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2860A1796D7364335D4AC19AE04A3280CD1781A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801257   (753988)
+
+Freedom Junction - Freedom Junction (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hitch A Ride (5:11)
+02.  Solid Ground (3:19)
+03.  Tell Me I'm a Lover (4:03)
+04.  Dream Machine (5:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1423C0112844F3B827AE0CD7CA1AC08BB639CA25
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801251   (753987)
+
+Sanctorium - Studio Albums (3 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sanctorium - метал-группа из России, г. Санкт-Петербург. Музыканты черпают свое вдохновение в мифологии, различных легендах, истории древних цивилизаций, философии и мистике. Влияния: Draconian, Epica, Therion, Nightwish, Tristania, Within Temptation.2014 - The Depths Inside
+2017 - Tessellation Of The Universe
+2020 - OrnamentsЖанр: Symphonic Gothic MetalПродолжительность: 03:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9357AEA626BFB48D29C842601BE4D596717BA9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801285   (753976)
+
+Glen Barbuto - CONCEPT ALBUM / DEMO 4 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chewing Gum on Ecstasy (2:00)
+02.  Dont take this the wrong way (2:05)
+03.  You and I (2:01)
+04.  Do You Know What Is Strange (2:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21667D99954C3A7BA17BE907A9E573F9436D60F2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801286   (753972)
+
+Hotel Draw - Spirit Come Spirit Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When You Go (4:26)
+02.  Milk & Honey (4:03)
+03.  Whiskey on the Workbench (2:25)
+04.  Fluorescent Lights (3:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C6BC9F96AED5D36093C6E22EC485BFEA3DC071
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801290   (753965)
+
+Hotpot of Genres - Impress to Express (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Impress to Express (4:05)
+02.  Fire & Ash (5:08)
+03.  What about us (4:34)
+04.  Drowning (4:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0D199316E512574CF3554B2FF817F064A6CFFE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801291   (753964)
+
+J.T. & The Plastic Garden Band - The 25th Hour (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The 25th Hour (2:52)
+02.  Chains and Mercy (3:33)
+03.  Devil Woman (3:12)
+04.  Hold Me In Your Hollow Hands (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7022234AA0C213AC889D292A24949934D0244BE4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801292   (753963)
+
+Lemon Generation - Music for Cowboys (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Space Cowboy (4:13)
+02.  Cosmic Funeral (4:14)
+03.  My Little Cowboy (3:26)
+04.  Peanut Planet (2:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5067DBEC98CF1361CDD9834D8C067B45082276DA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801294   (753962)
+
+LeSabre - LeAlbum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Fever (3:11)
+02.  The Circling (3:24)
+03.  The Black Sheep (2:30)
+04.  The Highness (2:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28FDADEEE9E9968EB2CCAF69D7FDB67DD44208E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801267   (753957)
+
+Seth MacFarlane - Lush Life: The Lost Sinatra Arrangements (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz, Big Band>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом содержит песни в аранжировках Фрэнка Синатры, которые певец собирался исполнить, но так и не успел.01. Give Me The Simple Life
+02. I Never Felt This Way Before
+03. Lush Life
+04. Flying Down To Rio(   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB91A4BB31DDD6626E62240431CA3EE535E30F4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801283   (753938)
+
+Gina Sicilia - Bring It On Home: A Tribute To Sam Cooke (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shake (2:44)
+02.  Bring It On Home to Me (3:59)
+03.  Another Saturday Night (2:37)
+04.  That's Where It's At (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457502B29F9A10031881310C0FE68B679ECDDC18
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1800850   (753932)
+
+СЛОТ - 15 (The Best Of) (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Nu Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Хаос (Demo 2002) [3:25]
+02 - Одни [3:12]
+03 - 2 войны [3:45]
+04 - 7 звонков [4:45](   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B8141F98ACCF2597CC9894058E3644276DDF15
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801035   (753879)
+
+Two Wolf - Two Wolf (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Keep On Movin' (04:21)
+ 02 - Too Hard To Handle (04:17)
+ 03 - Will I Believe (03:30)
+ 04 - Traveler (03:06)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2660CE98BD0902E67A12D2BDC0BC284AD29F79
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801058   (753859)
+
+Brian Eno & Beatie Wolfe - 2 Albums (2025) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Ambient, Modern-Classical>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milky Sleep [00:03:18]
+02. Hopelessly At Ease [00:03:41]
+03. My Lovely Days [00:04:43]
+04. Play On [00:05:55](   Читать дальше...   )Жанр: Ambient, Modern-ClassicalПродолжительность: 2 CD, 01:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E5A3867BE3B8B7279C0EC75DCB46CB61A7A75D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1800879   (753826)
+
+Green Day - Saviors (2024) edition de luxe, 2025, Reprise [FLAC 24/48, 24/96|Lossless|WEB-DL|tracks] <Punk, Alternative Rock, Indie Rock, Rock>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The American Dream Is Killing Me [3:07]
+02 - Look Ma, No Brains! [2:04]
+03 - Bobby Sox [3:45]
+04 - One Eyed Bastard [2:53](   Читать дальше...   )Жанр: Punk, Alternative Rock, Indie Rock, RockПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7130E5FDCA6A5A6B6404AD71EBD11B052FD0FB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1800907   (753825)
+
+Ice Nine Kills - I Heard They Kill Live 2 (2025) Live in Lowell 2022 [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Alternative Metal>
+HD Audio и Многоканальная Музыка
+WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Funeral Derangements (Live in Lowell / 2022) [4:28]
+02 - Wurst Vacation (Live in Lowell / 2022) [3:53]
+03 - Hip To Be Scared (Live in Lowell / 2022) [4:09]
+04 - IT Is The End (Live in Lowell / 2022) [5:06](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, Alternative MetalПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC83A9DC9AB4B7134EF8E0D2CA93F05F79F1B48
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1800770   (753802)
 
 Volbeat - God Of Angels Trust (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Groove Metal>
@@ -6,7 +626,7 @@ HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200ok" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800770.jpg" />
 </div>
 
 
@@ -33,7 +653,7 @@ HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200ok" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800817.jpg" />
 </div>
 
 
@@ -60,7 +680,7 @@ HD Audio и Многоканальная Музыка
 WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200ok" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800819.jpg" />
 </div>
 
 
@@ -26290,625 +26910,6 @@ WEB-DL-Audio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:628E3CC0573E278CEE3BA94DE2F48E4EBCA6E2C7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765963   (733066)
-
-Effie Zilch - Multitudes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayin' amos (3:37)
-02. Taking Me Over (3:54)
-03. Up and Down Blues (4:15)
-04. Carousel (2:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC89B905FF65AC1E0BFE49E0E74FD860E90988E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765962   (733062)
-
-Deep South - Entering Deep (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entering Deep (4:39)
-02. Waking Deep (4:17)
-03. Craig Bloxom - Heading Deep (5:07)
-04. Thinking Deep (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E36DCCC2B87BFC2F9A2EA79D8B40C48A6B2835
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765954   (733030)
-
-Bayou Boogie House - Blues on Bourbon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life in the Bayou (2:11)
-02. Blues on bourbon (2:11)
-03. In Your Honor (2:11)
-04. Crossroads blues (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0F40E1B74884C356A1136F0E99C66D88270D2A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765958   (733029)
-
-Beware Of Darkness - Lose Your Mind, Gain Your Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss The Void (4:01)
-02. Into The Currents (3:46)
-03. Depression Take The Wheel (3:45)
-04. Hero Of My Own Story (4:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA845B18746A06B8607AF1315D8C26DA9646B5B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765961   (733020)
-
-BJ Ryan - Down the Rabbit Hole (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Away (4:11)
-02. Here We Go Again (3:58)
-03. Withstand It All (4:11)
-04. New Front Door (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943E9B9600E78A3FEAE3A7254EFC3E6A1E51E70C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1764706   (732934)
-
-Mawuena Kalu - Smooth Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1764706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why You Leave Me (3:10)
-02. Home Alone (3:54)
-03. Lost Eyes (4:20)
-04. Silver Moon (2:29)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9837E34E0B885FA76128198683C0A2D04D57795A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1764708   (732933)
-
-Pathen X - Pay (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1764708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PAY (3:10)
-02. OUTRAGEOUS (3:11)
-03. WIDGET (3:23)
-04. BURN (3:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1EFEFE107D04B684E2DFBB51975E5DE23FA2DE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1764711   (732929)
-
-Slears - The Chaos Within (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1764711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chaos Within (1:12)
-02. Barricades (3:27)
-03. Particles (2:51)
-04. Digital Dreamer (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC6586A644344FFE467949521D06915F144FA07
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1764622   (732923)
-
-Night In Gales - Shadowreaper (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Melodic Death Met
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1764622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Into the Evergrey [5:06]
-02 - The Horrors of Endlessness [3:02]
-03 - Open the Sun [3:42]
-04 - The Nihilist Delta [4:21](   Читать дальше...   )Жанр: Metal, Melodic Death MetalПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649EE032A9EE8D2F4A3A92BD4538156020F13F90
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1764728   (732919)
-
-The Smoothies - December Chill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1764728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilling in a Winter Night (3:14)
-02. Psychology of Love (3:59)
-03. A Winter Night in Norway (3:50)
-04. A Winter's Tale (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1304E1BEFBC95539F56D044DCB5B40B5BAC802
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1764730   (732917)
-
-Whiskey Nips - Whiskey Nips (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1764730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Stranger To Frustration (4:32)
-02. Old Fashioned Romeo (4:24)
-03. Mamma Just Got Married (4:30)
-04. Superficial (5:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA7188B47BFB2294B61D1D3C94E7F1B8F0EE932
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765081   (732862)
-
-Babbba - Skat Academy III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, International Pop>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butterfly dreams (3:01)
-02. He is Babbba (2:48)
-03. Reboot (3:36)
-04. Flying high through the sky (2:34)(   Читать дальше...   )Жанр: Jazz, International PopПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECA8DB178AAAF5488710A0E0444D461790DE700
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765150   (732849)
-
-relaXX - Вечная Музыка Любви И Секса. Afternoon (qeHb) (2003) [FLAC 2.0|48/24|image +.cue|MC-Rip] <E
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Sparking Water
-02. Letter From Home
-03. Out Of The Deep(   Читать дальше...   )Жанр: Easy Listening, RelaxПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26F7F5A39365D6112E89330E2D35A56B3268FF9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765171   (732805)
-
-Jerry Cantrell (Alice in Chains) - Studio Albums (4 releases) (1998-2024) hand made [restored, decli
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джерри Фултон Кантрелл младший (англ. Jerry Fulton Cantrell Jr.; род. 18 марта 1966 года) — американский музыкант, основной автор песен, гитарист и вокалист группы Alice in Chains.1998 - Boggy Depot
-2002 - Degradation Trip
-2021 - Brighten
-2024 - I Want BloodЖанр: Hard Rock; GrungeПродолжительность: 05:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D119A60D7A3A103BDF8C22AC66A3ADAC6C7F0A6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1751292   (732756)
-
-Toni Braxton - Singles Collection (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1751292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Another Sad Love Song (1993)
-02. You`re Makin Me High (1996)
-03. Breathe Again (1993)(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 01:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0F36879A531718713E27E67859907AE1A8D5E8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1751288   (732751)
-
-Hiraes - Studio Albums (2 releases) (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|track
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1751288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hiraes — немецкая мелодик-дэт-метал группа из Оснабрюка, в состав которой входят бывшие участники Dawn of Disease и Бритта Гёрц, бывшая вокалистка Critical Mess.2021 - Solitary
-2024 - DormantЖанр: Melodic Death MetalПродолжительность: 01:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A6A18F916AF29076C0E9C7C6F3AB39084FAFB3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765701   (732745)
-
-Electric Wizard - Black Magic Rituals & Perversions Vol. 1 (Live Walpurgisnacht 2020) (2024) [FLAC 2
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dopethrone (Live Walpurgisnacht 2020)
-02. Incense For The Damned (Live Walpurgisnacht 2020)
-03. Black Mass (Live Walpurgisnacht 2020)
-04. Witchcult Today (Live Walpurgisnacht 2020)(   Читать дальше...   )Жанр: Doom Metal, Stoner MetalПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805F74CCE6B4ADF11DEE489C3A22297BAA206A5F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765804   (732698)
-
-Illusion Force - Halfana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Power Metal>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaleidoscopic
-02. Halfana
-03. Miracle Superior
-04. The Serene Valley(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43D254C711920B0A60FF1FC445E4A90F077F015
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1765806   (732695)
-
-Mörk Gryning - Fasornas Tid (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1765806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:13)
-02. The Seer (4:03)
-03. Tornet (4:00)
-04. Fasornas Tid (3:34)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A92D1E9A0B640FDA9EA12152A112214E2727800
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1751836   (732552)
-
-Armored Saint - Studio Albums (4 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1751836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armored Saint — американская хэви-метал-группа, наиболее известная вокальными стилями певца Джона Буша, который в течение нескольких лет работал также с группой Anthrax.2000 - Revelation
-2010 - La Raza
-2015 - Win Hands Down
-2020 - Punching The SkyЖанр: Heavy MetalПродолжительность: 04:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E482D559D5DA2FFC0EA4EFEE5BA407F8087C021
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1751881   (732526)
-
-Lady Gaga - Harlequin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1751881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Good Morning
-02 - Get Happy (2024)
-03 - Oh, When The Saints
-04 - World On A String(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC64D3A0950F245644BD11E256DFD4F4255F65A3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1751926   (732516)
-
-Whisky of Blood - Diablesse Of Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, R
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1751926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing More (4:03)
-02. Baby Revolution (4:33)
-03. Crazy Zone (4:36)
-04. Diablesse Of Love (3:46)(   Читать дальше...   )Жанр: Hard Rock, Rock 'N' RollПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D444BDEA9EF7BD5D79EC7E7E52998B6D382381F8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1751846   (732514)
-
-Karaone - Dragon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
-HD Audio и Многоканальная Музыка
-WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1751846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragon [00:03:12]
-02. Owl on the Hunt [00:03:42]
-03. My Dream [00:04:01]
-04. Morning at Dawn [00:06:53](   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303751AEE99B630A2DAF041C6AC7CC2DA3A81A47
 ```
 
 #Mybot  @nnmclub_mybot

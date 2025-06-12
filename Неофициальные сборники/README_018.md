@@ -1,4 +1,31 @@
 
+###  Публикация: 1550525   (134234)
+
+VA - Music News vol.187 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1550525.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amelie Martinez feat. Anis Karek & Houssem Amari - Besame (02:47)
+ 002. AJ Tracey - Reasonable (03:23)
+ 003. Alisa Cara - Bites (Radio Edit) (02:42)
+ 004. Alvaro De Luna feat. Philippine - Juramento Eterno De Sal (03:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB67C6A209CC3F05810BAD6E36EF7AA6A3DDDE08
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1551280   (134232)
 
 VA - Новинки С Разных Популярных мп3 Сайтов ver. 117 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
@@ -26953,33 +26980,6 @@ Electronic (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34B10DD881C4C5E21288781059AC8AC6734F7F27
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1505577   (81445)
-
-VA - The Delicate Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
-Неофициальные сборники
-Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1505577.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Darren Studholme - Pieces
-002. Juno Valdez - This Is Your Life
-003. Alex Poet feat. Michelle Weeks - Where Do I Begin
-004. Rony Seikaly - Frontin<1>(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3248BA494717F50B779F3EF74729CC38F62A352A
 ```
 
 #Mybot  @nnmclub_mybot

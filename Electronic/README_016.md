@@ -1,4 +1,138 @@
 
+###  Публикация: 1597092   (49212)
+
+Ben Böhmer - Live At The Roundhouse London (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1597092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Bohmer - Begin Again
+02. Ben Bohmer - Beyond Beliefs
+04. Ben Bohmer ft Lau.ra - Erase
+05. Ben Bohmer ft PBSR - Revelation(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281A016006562CB5337DE3287E8C75EB82BE8B23
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1677884   (49189)
+
+Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Central Europe [FLAC|
+Electronic
+Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1677884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1
+Disc 2
+Disc 3Жанр: Synth-popПродолжительность: 3CD, 03:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C878FC3C6B5CD81361EA5841AE54ED4044953DD3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1677878   (49188)
+
+Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Central Europe [FLAC
+Electronic
+Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1677878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1
+Disc 2Жанр: Synth-popПродолжительность: 2CD, 02:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC415B23CF32E58A2951D70D063CACBA622A39A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1677682   (49187)
+
+VA - Amsterdam Music Festival, Johan Cruijff ArenA, ADE (2023-10-21) [MP3|320 Kbps] <Tech House,
+Electronic
+Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1677682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headhunterz - Guess Who<1>s Back
+02. Yellow Claw & Juyen Sebulba - Do You Like Bass? (Headhunterz Edit)
+03. Joy Kitikonti - Joyenergizer (Dr. Rude Remix)
+04. Headhunterz - The Flame Inside(   Читать дальше...   )Жанр: Tech House, Melodic House, Hard Dance, TranceПродолжительность: 06:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047A47758A64AAE104C218E3C44AF4534244A86E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1677908   (49183)
+
+Kollektiv Turmstrasse - Unity of Opposites (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1677908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kollektiv Turmstrasse - Betwixt 1
+02. Kollektiv Turmstrasse - Distant Love
+03. Kollektiv Turmstrasse - When the Lights Go Lower
+04. Kollektiv Turmstrasse - Betwixt 2(   Читать дальше...   )Жанр: Tech House, Deep House, Bass, ProgressiveПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90CC5BE157083BBBA69683B13CA70F36D762E6A6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1518397   (49161)
 
 Kryder - Kryteria Radio 321 (Kryder Yearmix) (2021-12-15) [MP3|192 Kbps] <Progressive House>

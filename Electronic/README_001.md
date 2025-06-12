@@ -1,4 +1,139 @@
 
+###  Публикация: 1740583   (716365)
+
+VA - Electronica Confessions, Vol. 7 (2014) [MP3|320 Kbps] <Electro, House>
+Electronic
+Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1740583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Fred.O - The Drums (7:45)
+02. DANNI & Beekay Deep - Nyc (9:51)
+03. Distant People & Chappell - No I Ain't Done (The Squeeze Classic Redzone Mix) (8:23)
+04. FOND - Ohuenno (7:53)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1337E4C6DDD23993DE59A3A2C5C733C7D2734D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1740582   (716364)
+
+VA - Electronica Confessions, Vol. 6 (2014) [MP3|320 Kbps] <Electro, House>
+Electronic
+Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1740582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prince Kaybee - Odd Moments (Main Mix) (6:03)
+02. DJ Trinity Blade - Skyla Rose (Steel Drum Mix) (5:37)
+03. Disco Ball'z - Don't Stop (5:13)
+04. Antony Well - Please Don't (4:59)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE04FE8427E106AEFB7A8986728C33B9BFB2F38
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1740581   (716362)
+
+VA - Electronica Confessions, Vol. 5 (2014) [MP3|320 Kbps] <Electro, House>
+Electronic
+Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1740581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beekay Deep - Lead Yourself (7:13)
+02. TioMc - My Friend (6:32)
+03. Ted Jood - Margins (6:21)
+04. Soul Shift & The Squeeze - Nicole's Garden (6:35)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E5BC6DE2C8ACF1A1EE257B72C1C1F91E40CC62
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1740633   (716361)
+
+The Crystal Method - The Trip Out (Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Big Bea
+Electronic
+Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1740633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crystal Method;King Green - Let's Trip Out (Future Method Remix) [3:55]
+02. The Crystal Method;Billy Dean Thomas;VAAAL - Act Right (Future Funk Squad's "JAK 100" Remix) [2:34]
+03. The Crystal Method;Koda;VAAAL - Watch Me Now (Latroit x Ryden Remix) [3:00]
+04. The Crystal Method;Naz Tokio - House Broken (Tommie Sunshine & On Deck Remix) [4:32](   Читать дальше...   )Жанр: Breakbeat, Big Beat, ElectronicПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F72CCCEC4A4380734A4EE8BC2C6349FC125F10
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1740483   (716298)
+
+VA - Burning Mountain - Secret Garden Session (2024) [MP3|320 Kbps] <Progressive House, Melodic Hous
+Electronic
+House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1740483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaron Khaleian & Ambient Pino - Gobi (Original Mix) [6:24]
+02. Ambient Pino & Alok (IBZ) - Meu Grande Amor (Original Mix) [6:01]
+03. Aaron Suiss & Marcus Meinhardt - 2gether (Original Mix) [7:17]
+04. Umloud - Skyline (Original Mix) [8:01](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D73FD01801E4AFF78BBB1AF2F0C7E4AD87B9161
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1740435   (716297)
 
 VA - Armin van Buuren - A State Of Trance 1184 (2024) [MP3|320 Kbps] <Trance, Progressive, Electroni
@@ -28769,163 +28904,6 @@ Easy listening
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:386C84923DA0367FFF687935EB065CA0C0C4A8E9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 779051   (648977)
-
-RAM & Susana - RAMelia (Tribute To Amelia) (2013) [FLAC|Lossless]<Trance, Uplifting Trance>
-Electronic
-Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. RAMelia (Tribute To Amelia) (Original Mix) (8:17)
-02. RAMelia (Tribute To Amelia) (Radio Edit) (3:26)Жанр: Trance, Uplifting TranceПродолжительность: 00:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F9A4D6C2D8B11D2DBFB2F4353D72B3BD0D88C4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 779218   (648968)
-
-VA - Uplifting Only 2014: Top-Voted Tunes - Volume 1 (Mixed By Ori Uplift) (2014) [MP3|320 к
-Electronic
-Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. SoundLift - Horizonte (Andy Blueman Intro Mix) (9:47)
- 02. Simon O<1>Shine - Miss You (Original Mix) (7:53)
- 03. Global Influence - Depth Of My Dreams (Original Mix) (7:31)
- 04. Emanuele Congeddu & 4Seas - Butterfly Effect (Frank Dattilo Remix) (8:38)
- 05. Avenger - Orca (New World Remaster) (9:54)
- 06. New World - Fields Of La Tourette (Original Mix) (9:09)
- 07. Type 41 - Destination (Ikerya Project Remix) (7:37)
- 08. BluSkay & KeyPlayer - Nocturne In C# Minor (Original Mix) (8:42)
- 09. Ozo Effy - The Great Journey (Ikerya Project Remix) (8:24)
- 10. New World - Outreach (Original Mix) (9:51)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA5D46FB394EB61D6E26F64E3A8E16F6A98DADF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 779256   (648952)
-
-Astral Projection - Amen (2002) [FLAC|Lossless]<Goa Trance, Psy-Trance>
-Electronic
-Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Amen (6:02)
- 02. Chaos (8:40)
- 03. Infinite Justice (7:03)
- 04. The Nexus (7:45)
- 05. Sticks & Stones (9:35)
- 06. Techno Drome (7:50)
- 07. 1,000,000 Years From Today... (8:21)
- 08. Anything Is Possible (8:27)
- 09. Heaven<1>s Gate (7:38)
- 10. Electric Blue (7:53)Жанр: Goa Trance, Psy-TranceПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3B6F8BD1AAB21024DCD32D3DDD444BD0952D1A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 779491   (648717)
-
-VA - Paul van Dyk VONYC Sessions Selection 2014-04 (2014) [MP3|320 кб<3>с]<Trance>
-Electronic
-Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-001. Genix - Something New - Original Mix
-002. Ben Nicky - Brave Heart - Original Mix
-003. Eddie Bitar - Metal Mouth - Original Mix
-004. Mr. Pit - Nasty Beats - Original Mix
-005. Roman Messer - Frozen - Alex M.O.R.P.H. Remix
-006. Mike Sonar - Why So Serious - Original Mix
-007. Chris Bekker - Telling Tales - Sebastian Krieg Remix
-008. Chris Agnelli - Vanishing Point - Original Mix
-009. Genix - Tryfan - Original Mix
-010. Jason Ross - Run Away - EDU RemixЖанр: TranceПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AE9FE5E570A94A6E6418691A8AE5251286CFB7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 779478   (648696)
-
-VA - Music for Balearic Gabba Dreams (2014) [MP3|320 кб<3>с]<Chillout, Deep House, Chill House>
-Electronic
-Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_779478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balearic Gabba Sound System - Music for Balearic Gabba Dreams - Pt. # 1 (Continuous Mix) (51:21)
- 02. Balearic Gabba Sound System - Music for Balearic Gabba Dreams - Pt. # 2 (Continuous Mix) (45:56)
- 03. Tem pelhof - City Airport (05:30)
- 04. Mr Marvin - Entity (Fitzcarraldo...extasy of Love) (07:15)
- 05. Now Now Now - Problem (Enzo Elia Afro Neukolln Edit) (10:57)
- 06. Rusty - Everything<1>s Gonna Change (Prins Thomas Diskomiks) (05:50)
- 07. Sueno Latino - Luxuria (07:55)
- 08. Psycho Team - Hypno (Enzo Elia That Morning Edit) (06:16)
- 09. Luminodisco - Ragazzini (07:14)
- 10. Peter Katafalk - Pacific 202 (07:48)(   Читать дальше...   )Жанр: Chillout, Deep House, Chill HouseПродолжительность: 04:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAFE672D468878C7F8EC156735A0ADCC8224F89
 ```
 
 #Mybot  @nnmclub_mybot

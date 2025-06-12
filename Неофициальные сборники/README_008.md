@@ -1,4 +1,31 @@
 
+###  Публикация: 1280708   (468821)
+
+VA - Winter Sensation (2019) [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1280708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Janeway - Brighter Days
+002. Ar-Beat - Your Games
+003. Biank - Tease Me (Extended Mix)
+004. Ezechiel - Take Me Higher(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E11CB872604BFBC0FD0974803C299B75DAA4D5A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1124515   (468797)
 
 VA - Easy Listening: 100 Popular Jazzing (2017) [MP3|320 Kbps] <Easy Listening, Jazz, Romantic>
@@ -28820,33 +28847,6 @@ VA - Мачо. Академия новинок шансона (2015) [MP3|256 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2F3D96E355584EA846E9ADA6355E2D88984276D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1230023   (436712)
-
-VA - Союз Летний 50х50 (2018) [MP3|256-320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1230023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Монеточка - Нимфоманка
-02. Монеточка - Каждый раз
-03. David Guetta, Sia - Flames
-04. Jah Khalib - Медина(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78FEF254234D4308D7AAECBEBA70B2B92E246815
 ```
 
 #Mybot  @nnmclub_mybot

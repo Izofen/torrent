@@ -1,4 +1,31 @@
 
+###  Публикация: 1801269   (753956)
+
+EverEve - .Enetics (2003) 2 x CD, Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Goth Rock, Heavy Metal>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801269.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. This Heart 03:51
+02. The More She Knows 03:26
+03. Abraza la luz (Embrace the Light) 03:47(   Читать дальше...   )Жанр: Goth Rock, Heavy MetalПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850C9B52318988BBF9C32D65BA33688693CF9822
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1799491   (752935)
 
 ЛихорадкА - Смысловые Диссонансы (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
@@ -28184,39 +28211,6 @@ Rock, Alternative, Punk, Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6BE81CD8E6AAADDD02DA75E60B0841E11E6AF51
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 851510   (311909)
-
-Карнавал - Grand Collection (2008) [FLAC|Lossless]<Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_851510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Внезапный тупик
-02. Актер
-03. Остров
-04. Автомат
-05. Мы слушали битлз
-06. Рок-н-рольный марафон
-07. Подожди, постой
-08. Спасательный круг
-09. Крот
-10. Песня о друге(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CE332F6CE4ECA78E465B84792642A0F80D7F0E
 ```
 
 #Mybot  @nnmclub_mybot

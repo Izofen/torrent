@@ -6,7 +6,7 @@ Linux, Unix и другие ОС
 ОС Linux
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200ok" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800787.jpg" />
 </div>
 
 

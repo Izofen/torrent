@@ -1,4 +1,37 @@
 
+###  Публикация: 783350   (645498)
+
+VA - Радио Energy - NRJ HOT30 (30.04.2014) [MP3|~256 кб<3>с (V0)]<Pop, Dance>
+Неофициальные сборники
+Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Imany - You Will Never Know (Ivan Spell  Daniel Magre rmx)
+02. Faul & Wad Ad vs. Pnau - Changes
+03. Pharrell Williams - Happy
+04. David Guetta feat. Skylar Grey - Shot Me Down (Radio Edit)
+04. Lana Del Ray - Young And Beautiful (Kevin Blank rmx)
+05. Stromae - Tous Les Memes
+06. Eminem feat. Rihanna - The Monster
+07. Martin Garrix - Animals
+08. Imagine Dragons - Demons (TwentyForSeven Cover)
+09. Macklemore &  Ryan Lewis - Can<1>t Hold Us(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C7C28ACB0F8E4F402389C41C9BCD10D5D17937
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 599958   (645395)
 
 VA - Союз 51 (2012) [MP3|320 кб<3>с]<Pop>
@@ -32447,39 +32480,6 @@ Electronic (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8F83C7985B3A4B44C4384F8E2154AE94EBAAC7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 814575   (607587)
-
-VA - Beautiful Lounge (2014) [MP3|320 кб<3>с]<Downtempo, Lounge, ChillOut>
-Неофициальные сборники
-Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Paradisiac - Good News
-02. International Freedom - Easy Vibes
-03. Marlon - Double Six
-04. The Fabulous Lounge Quartet - Yesterday
-05. Volo - Loft Jazz
-06. Manyus Joan Eta - The Road
-07. Starshine Bros - Hot Love
-08. Sweet Night - Maximum Pleasure
-09. International Swing Affair - Wireless
-10. Top Lounge Collection - In Quota(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 08:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1D13380D04E7B58A5AB9C9424DDFB139953416
 ```
 
 #Mybot  @nnmclub_mybot

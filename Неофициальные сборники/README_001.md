@@ -1,4 +1,31 @@
 
+###  Публикация: 1691847   (688362)
+
+VA - Trance In Motion Vol.370 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+Неофициальные сборники
+Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1691847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doppenberg - Illusions (Extended Mix)
+02. Nikolauss - Rhythm Of The Universe (Extended Mix)
+03. Luke van Ness - Greed (Extended Mix)
+04. Doppenberg - After All These Years (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0746957A4B6011EA43AEE41DD04C9EC12F773E24
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1691457   (688348)
 
 The Sound of Love - Compilation (2024) [MP3|320 Kbps] <New Age<3>Enigmatic>
@@ -31555,39 +31582,6 @@ VA - Хит за хитом 4 (2014) [MP3|256 кб<3>с]<Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE13D70065C2C915B6205EC980860CF1C9076D28
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 783350   (645498)
-
-VA - Радио Energy - NRJ HOT30 (30.04.2014) [MP3|~256 кб<3>с (V0)]<Pop, Dance>
-Неофициальные сборники
-Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Imany - You Will Never Know (Ivan Spell  Daniel Magre rmx)
-02. Faul & Wad Ad vs. Pnau - Changes
-03. Pharrell Williams - Happy
-04. David Guetta feat. Skylar Grey - Shot Me Down (Radio Edit)
-04. Lana Del Ray - Young And Beautiful (Kevin Blank rmx)
-05. Stromae - Tous Les Memes
-06. Eminem feat. Rihanna - The Monster
-07. Martin Garrix - Animals
-08. Imagine Dragons - Demons (TwentyForSeven Cover)
-09. Macklemore &  Ryan Lewis - Can<1>t Hold Us(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C7C28ACB0F8E4F402389C41C9BCD10D5D17937
 ```
 
 #Mybot  @nnmclub_mybot

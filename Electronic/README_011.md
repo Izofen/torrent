@@ -1,4 +1,139 @@
 
+###  Публикация: 1297264   (269645)
+
+Bryan Kearney - Live @ Main Stage, Beyond Wonderland Monterrey, Mexico (2019-04-06)[MP3|224 Kbps
+Electronic
+Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1297264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Kearney - Mexican Rave (ID Remix)
+02. Key4050 - Schillachi
+03. ID - ID
+04. Key4050 - Gianfranco(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705C0C56705D3853EBF212714A923C124A37A378
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1297823   (269644)
+
+VA - Miami to Ibiza (2019) [MP3|320 Kbps] <Funky, Deep Groove, Minimal>
+Electronic
+House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1297823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Modena - Lover (Extended Mix)
+02. Glitch Matrix - Breeze
+03. Regie Rules - Hour Of The Morning
+04. Juli Lee - Time Warp(   Читать дальше...   )Жанр: Funky, Deep Groove, MinimalПродолжительность: 02:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA2A258B313DD92FACCC80F952F21EA9CF3A508
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1297688   (269636)
+
+Akob - Gravitational Waves (2019) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1297688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsar Timing Array (07:45)
+ 02. Gravitational Waves (07:16)
+ 03. Dark Matter (08:32)
+ 04. Event Horizon (07:34)Жанр: Techno, AcidПродолжительность: 00:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA86B2919F14837A0FEA3E3D345DAF75233A0BC5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1297268   (269635)
+
+Paul Denton - Live @ Anomaly, Rong Afterparty, Tunnel Club Birmingham, United Kingdom (2019-04-06<
+Electronic
+Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1297268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. John O<1>Callaghan & Deirdre McLaughlin vs. Karney - Stay Nothing (John O<1>Callaghan Noodle)
+03. Key4050 - The Truth
+04. Marco V - Godd(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B7D9B7BD4F558E5F2E13B2A94CA06FAD036E16
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1297815   (269628)
+
+VA - Lounge & Summer Vol. 1 (2019) [MP3|320 Kbps] <Lounge, Chill Out, Downtempo>
+Electronic
+Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1297815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sphere - Weeds (Original Mix)
+02. Dj Mnx - Emotions May Fly (Original Mix)
+03. Bob Zopp - Island Girl (Original Mix)
+04. Schwarz;Funk;Ann Francis - Deep Emotion (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E00E18A18C5F997D35F7AD6AB1993B485D3CEF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1297717   (269623)
 
 The Future Sound Of London - Yage 2019 (2019) FSOLdigital [FLAC|Lossless|WEB-DL|tracks] <Abstrac
@@ -26712,141 +26847,6 @@ Ambient, Experimental, Modern Classical (Lossless)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41D2851077940560EC69B4DE26E5142F7E117C6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1361240   (235836)
-
-Snakeskin - Medusa<1>s Spell (2020) [MP3|320 Kbps] <EBM, Synth, Gothic-Rock, Darkwave>
-Electronic
-Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1361240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Loaded Guns
-02 - Medusa
-03 - Once
-04 - Upon a Time(   Читать дальше...   )Жанр: EBM, Synth, Gothic-Rock, DarkwaveПродолжительность: 01:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27779E8F6BE5C6CE9D743F6E2F01F7BA5006354C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1361705   (235586)
-
-VA - Trancemission Valentine<1>s Rave (A2 Green Concert, St.Petersburg, Russia) 2020-02-14 [MP3|
-Electronic
-Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1361705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tycoos - Trancemission Valentine<1>s Rave:
-01. Tensteps ft. Karel & Xojani - Fly (Tycoos Remix)
-02. Tycoos - Wandering Alien
-03. Andrew Rayel & Chukiess & Whackboi - Kick, Bass & Trance(   Читать дальше...   )Жанр: TranceПродолжительность: 04:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F77DBE48D95FC2C6BECF5013EB750EE03E784583
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1361733   (235560)
-
-Nachtmahr - Flamme (2020) [MP3|320 Kbps] <EBM, Neofolk>
-Electronic
-Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1361733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Feinbild	4:37
-2	Kampfbereit	4:26
-3	Liebst Du Mich	4:02
-4	Krieg Und Frieden	3:51(   Читать дальше...   )Жанр: EBM, NeofolkПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D4202A46C6A87630DFF01EAC2EE89105C1FE47
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1361784   (235477)
-
-Depeche Mode - Mode (2020) 18 СD, Box Set, Compilation, Limited Edition, Numbered [FLAC|Lossless
-Electronic
-Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1361784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life (03:46)
-02. I Sometimes Wish I Was Dead (02:18)
-03. Puppets (03:57)
-04. Boys Say Go! (03:08)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 15:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50758C4FFA5A104A75812028B3969F1033222F67
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1362200   (235402)
-
-VA - Touch Me with House (Sensual House Music Dance) (2020) [MP3|320 Kbps] <House>
-Electronic
-House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1362200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Carl Carlton - I<1>ll Wait Here (Black Coffee Mix) 3:16
-02.Love Cascade - Six O┤nine (Universe & Dreams Mix) 4:20
-03.Godiva Street - What the Curate Really Did (Deep Love Mix) 3:32
-04.Cool Rhythms - The Force Beat (Maracuja Deep Mix) 3:21(   Читать дальше...   )Жанр: HouseПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E13DA02862A2D6D5D9D638079BF6AB7B9CAC4F5
 ```
 
 #Mybot  @nnmclub_mybot

@@ -1,4 +1,30 @@
 
+###  Публикация: 994409   (574386)
+
+VA - 8 Марта. Праздничный хит-парад №1 (2016) [MP3|192 кб<3>с-320 кб<3>с] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_994409.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тимур Родригез - Я Верю В Твою Любовь.mp3
+002. Лобода - Революция (Radio Version).mp3
+003. Тамерлан и АленаЖанр: PopПродолжительность: 06:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31403D7DEE0D8A41FAA240477A5C3B0E39A5D82D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 994386   (574384)
 
 VA - Дискотека на 8 марта (2016) [MP3|256 кб<3>с-320 кб<3>с] <Pop, Dance>
@@ -28851,30 +28877,6 @@ Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28FBB19A74C390FD713FAF0F985CEB2212E157D2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 549179   (545548)
-
-VA - Инструментальная музыка (2012) vol. № 78 [MP3|320 кб<3>с]<Instrumental>
-Неофициальные сборники
-Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_549179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED996F6D572DE55B5B214831307ADA432BC002B3
 ```
 
 #Mybot  @nnmclub_mybot

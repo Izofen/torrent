@@ -1,4 +1,31 @@
 
+###  Публикация: 1334255   (245015)
+
+VA - Breaking From The Shadows: Electro House Dance Mix (2019) [MP3|320 Kbps] <Electro House>
+Неофициальные сборники
+Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1334255.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Subandrio - The Future Now
+002. Lezcano - Abraham (Original Mix)
+003. Infected Mushroom - Chenchen Barvaz
+004. Acay - Yoruba (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E310A2E1B03DB598436F0021D840E2FE45EDD34
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1331495   (244934)
 
 VA - 100 Rock Ballads Vol.3 (2019) [MP3|320 Kbps] <Rock, Ballads>
@@ -26962,33 +26989,6 @@ VA - Sexy Vocal Deep House (2021) [MP3|320 Kbps] <House, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DB5E1BF4CC0130298280A5CB0EBD0B367B055D5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1453565   (205077)
-
-VA - The Rapsody Overture <3> Hip-Hop Meets Classic (2021) [MP3|320 Kbps] <Hip-Hop, Rap, Classic
-Неофициальные сборники
-Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1453565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Intro
-002 Lamar - Let Your Lovelight Shine (Remix)
-003 A.K.-S.W.I.F.T. - In The Game
-004 Pappa Bear - Cherish (feat. Jan Van Der Toorn)(   Читать дальше...   )Жанр: Hip-Hop, Rap, ClassicПродолжительность: 04:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF49EF8559063557C3927589A72AD4D202A9BFF3
 ```
 
 #Mybot  @nnmclub_mybot

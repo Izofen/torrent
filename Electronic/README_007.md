@@ -1,4 +1,141 @@
 
+###  Публикация: 1233874   (422716)
+
+Rei Harakami - Collection (1997-2016) Sublime Records, Rings [FLAC|Lossless|tracks+.cue, tracks]
+Electronic
+IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Great 3 – Bee (Rei Harakami Remix) (05:27)
+02. Electrical Lovers – 二重螺旋 (05:26)
+03. イルリメ – 流星より愛をこめて「流星メドレーVer.」 (04:16)
+04. くるり – ばらの花 (06:18)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM<3>Experimental<3>AmbientПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CEF969023566F437225C9894B902AE73C1CB91
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 837140   (422636)
+
+VA - Erotic Lounge Session Vol 1 (Finest Bare & Secret Lounge Tunes) (2014) [MP3|320 кб<3>с]
+Electronic
+Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+001. Roberto Sol - Coracao
+002. Aza<1>s Lounge - This Is Not a Love Song
+003. Gerrit van der Meer - Eden
+004. Joker - Erotic Dream
+005. Peter Pearson - Let<1>s Take It Slowly
+006. Luis Hermandez - La Luna
+007. Michael E - Fall in Love with Me
+008. Frank Demegni - Global Sex
+009. The B Lounge - Sexy Soft
+010. Trillian Miles - Colour Me Sexy(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556837877C55C0988AE172E1EFD5A8550938EA41
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1233962   (422618)
+
+Markus Schulz & Emma Hewitt - Safe from Harm (The Remixes Extended Version)(Singles)(2018<
+Electronic
+Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1233962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Safe from Harm (Dylhen Extended Remix)
+02. Safe from Harm (Giuseppe Ottaviani Extended Remix)
+03. Safe from Harm (Markus Schulz In Bloom Extended Mix)Жанр: TranceПродолжительность: 00:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41276900251C4B3E14D60166B05BE81A00C73386
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1233888   (422506)
+
+U96 - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1233888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Angels (feat Terri B!)
+03. F......Camera
+04. Zukunftsmusik (feat Wolfgang Flar)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 01:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA745C023B94A8B621187B277367B891C8A2DBF7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1233953   (422396)
+
+VA - Kalpamantra Records presents: Compilations Collection - 27 Releases (2010-2018) [MP3|320 Kb
+Electronic
+Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dark Ambient, Drone, SoundscapeПродолжительность: 82:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47194BAF1143E0A3A535262F502E89D6E35BD98
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 923252   (422341)
 
 VA - Toolroom Ibiza 2015 (2015) [MP3|320 кб<3>с]<Tech House<3>Deep House<3>Techno>
@@ -27763,141 +27900,6 @@ House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2EEE5125B26F80738672A7DF3E550A3E8CBA590
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1240241   (380391)
-
-VA - Pr Records Label Group Presents Beach Party Vibes (2018) [MP3|320 Kbps] <House, Electro Hou
-Electronic
-House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1240241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bayamo & Cielle - Hot Stuff (Interphace Radio) 3:28
-02. Newman Project - Make Some F Noise (Radio) 3:34
-03. Sommarpojkarna - Efterfest (Radio) 3:51
-04. Patrik Remann & Avini - The Sky 2018 (Original Mix) 3:17(   Читать дальше...   )Жанр: House, Electro House, BigRoom, Progressive HouseПродолжительность: 02:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DCE75D2770E366ED27424F377A06D1183AB091
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1240223   (380390)
-
-Alan Fitzpatrick - System Addict (2018) Unknown To The Unknown [FLAC|Lossless|WEB-DL|tracks] <Te
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1240223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. System Addict (8:43)
-02. Hold the Ripper (5:09)
-03. In Excess (6:32)
-04. In Excess (6:23) (Falcon Black Ops Remix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1787A5799C1CBBC044C511CD5AA73F90B575F51
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1240224   (380387)
-
-VA - OHM (2018) Ambidextrous Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid, Tech House, Te
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1240224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christ. - Rom (03:46)
- 02. Norken & _Nyquist - Od Detot (05:31)
- 03. Solipsism - Vice Is Nice (06:03)
- 04. _Nyquist - Fornax (05:09)(   Читать дальше...   )Жанр: Techno, Acid, Tech House, Techno AmbientПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3DF2A30AA1ABD81956D6D8F228CE6DF95B8C0A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1240227   (380386)
-
-VA - Realm Of Consciousness Pt. III (2018) Afterlife [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1240227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tale Of Us - Nova (07:23)
- 02. Agents Of Time - Paradigm (06:10)
- 03. Recondite & Henrik Schwarz - Motion (06:08)
- 04. Ovend - Nuits Fauves (09:05)(   Читать дальше...   )Жанр: Techno, Tech House, TranceПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34E34C8BEB41ADF74B6BFE8D26552AECA5C0FAE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1240243   (380385)
-
-VA - Top 50 Drops Summer <1>18 (2018) [MP3|320 Kbps] <House, Future House, Groove, Jackin, Tech
-Electronic
-House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1240243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Momentums - Love By You (Original Mix) 3:45
-02. Kid Williams - Shimmy Yam, Shimmy Yay (Dub Mix) 4:13
-03. Patrick Richmond - I<1>m Losing Control (Original Mix) 4:32
-04. Justin Berger - Ohh My (Original Mix) 3:44(   Читать дальше...   )Жанр: House, Future House, Groove, Jackin, Tech HouseПродолжительность: 03:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303DDC3C85CA1D4A385B22C12305B77F48B6002B
 ```
 
 #Mybot  @nnmclub_mybot

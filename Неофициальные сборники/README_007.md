@@ -1,4 +1,31 @@
 
+###  Публикация: 1209829   (495648)
+
+VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.24 (2018) [MP3|320 Kbps] <Pop, Dance>
+Неофициальные сборники
+Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1209829.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Britney Spears Feat Will.i.am - Scream & Shout
+002. Girls Aloud - Something New
+003. Винтаж - Свежая вода (ft. ChinKong)
+004. Nelly Furtado - Waiting for the Night(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33FBAC166A69CB3D847555520AB1B12704848DD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1110375   (495603)
 
 Buddy Guy - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Chicago Blues>
@@ -26932,33 +26959,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E247FB065ED2D24B86B80D4C10C8DACA4F5E23
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1280708   (468821)
-
-VA - Winter Sensation (2019) [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1280708.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Janeway - Brighter Days
-002. Ar-Beat - Your Games
-003. Biank - Tease Me (Extended Mix)
-004. Ezechiel - Take Me Higher(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E11CB872604BFBC0FD0974803C299B75DAA4D5A
 ```
 
 #Mybot  @nnmclub_mybot

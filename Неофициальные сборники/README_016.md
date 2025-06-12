@@ -1,4 +1,31 @@
 
+###  Публикация: 1453565   (205077)
+
+VA - The Rapsody Overture <3> Hip-Hop Meets Classic (2021) [MP3|320 Kbps] <Hip-Hop, Rap, Classic
+Неофициальные сборники
+Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1453565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Intro
+002 Lamar - Let Your Lovelight Shine (Remix)
+003 A.K.-S.W.I.F.T. - In The Game
+004 Pappa Bear - Cherish (feat. Jan Van Der Toorn)(   Читать дальше...   )Жанр: Hip-Hop, Rap, ClassicПродолжительность: 04:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF49EF8559063557C3927589A72AD4D202A9BFF3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1453732   (204981)
 
 VA - EDC: Deep Techno Electronic (2021) [MP3|320 Kbps] <Techno, Electronic>
@@ -26953,33 +26980,6 @@ Electronic (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F0789C05AFE33198733045FEF80E2B83EC4D6A6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1390935   (171483)
-
-VA - Music for You vol.7 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
-Неофициальные сборники
-Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1390935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Theater - A Better Life (04:40)
- 02. Arch Echo - Iris (07:58)
- 03. Mandroid Echostar - Hexaton (05:27)
- 04. Orphaned Land - The Simple Man (04:54)(   Читать дальше...   )Жанр: Rock, Metal, Progressive MetalПродолжительность: 04:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5AE270E1063D684C45B45D01E6AE3013C6E3B27
 ```
 
 #Mybot  @nnmclub_mybot

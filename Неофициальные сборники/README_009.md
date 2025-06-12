@@ -1,4 +1,31 @@
 
+###  Публикация: 1230023   (436712)
+
+VA - Союз Летний 50х50 (2018) [MP3|256-320 Kbps] <Pop, Dance, Other>
+Неофициальные сборники
+Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1230023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Монеточка - Нимфоманка
+02. Монеточка - Каждый раз
+03. David Guetta, Sia - Flames
+04. Jah Khalib - Медина(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FEF254234D4308D7AAECBEBA70B2B92E246815
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1133553   (436508)
 
 VA - World Wide Trance # 01 (2017) [MP3|320 Kbps] <Trance>
@@ -28601,33 +28628,6 @@ Electronic (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B986905AC799C0EEDDD5AFF88083ECC963B3DEF3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1044164   (401749)
-
-VA - MTV Hits Collection Vol.1 (2016) [MP3|320 Kbps] <Dance, Hip-Hop, Pop>
-Неофициальные сборники
-Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1044164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto feat. John Legend - Summer Nights
- 02. Peg Parnevik - Ain’t No Saint
- 03. Dami Im - Sound Of Silence
- 04. Justin Timberlake - Can<1>t Stop The Feeling!(   Читать дальше...   )Жанр: Dance, Hip-Hop, PopПродолжительность: 05:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFB1700279DCD59F9A19E6BACEA5152A108E68D
 ```
 
 #Mybot  @nnmclub_mybot

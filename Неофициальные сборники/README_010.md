@@ -1,4 +1,31 @@
 
+###  Публикация: 1044164   (401749)
+
+VA - MTV Hits Collection Vol.1 (2016) [MP3|320 Kbps] <Dance, Hip-Hop, Pop>
+Неофициальные сборники
+Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1044164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto feat. John Legend - Summer Nights
+ 02. Peg Parnevik - Ain’t No Saint
+ 03. Dami Im - Sound Of Silence
+ 04. Justin Timberlake - Can<1>t Stop The Feeling!(   Читать дальше...   )Жанр: Dance, Hip-Hop, PopПродолжительность: 05:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFB1700279DCD59F9A19E6BACEA5152A108E68D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1044306   (401748)
 
 VA - Summery Jazz (2016) [MP3|320 Kbps] <Jazz, Bossa Nova, Easy Listening>
@@ -28319,33 +28346,6 @@ Electronic (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C20C217EDC477F2DF7BA0E5FFFB81900637FAB58
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1244029   (367702)
-
-VA - Fun Disco Remix (2018) [MP3|320 Kbps] <Disco, Remix>
-Неофициальные сборники
-Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1244029.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chic - Le Freak
-002. EtzoWynd - Fabulous Night
-003. Half Waif - Keep It Out
-004. Jimmy Ross - Fall Into A Trance(   Читать дальше...   )Жанр: Disco, RemixПродолжительность: 09:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201C0FA93D93B21777D5A4F05DBAA6DE99F5AB00
 ```
 
 #Mybot  @nnmclub_mybot

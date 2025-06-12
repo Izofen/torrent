@@ -1,4 +1,436 @@
 
+###  Публикация: 1328282   (248999)
+
+Rammstein - Rammstein (2019) Deluxe Edition [FLAC|Lossless|image + .cue] <Industrial Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1328282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deutschland (05:23)
+02. Radio (04:37)
+03. Zeig Dich (04:15)
+04. Auslander (03:51)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44AF0F276963AA7CCA30463A621D045D7B084C30
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328347   (248962)
+
+Cosmic Overdose - 4668 (1981) LP [MP3|320 Kbps] <Electronic, Alternative Rock, Synth-pop, Experi
+Rock, Alternative, Punk, Metal
+Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bomber (2:25)
+02. En Av Dom (2:42)
+03. Android (3:08)
+04. Nina Fontanell (4:06)(   Читать дальше...   )Жанр: Electronic, Alternative Rock, Synth-pop, ExperimentalПродолжительность: 00:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E239662F92021D9501D172C7D6B1909948E65C6C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328492   (248960)
+
+The Maine - You Are OK (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Alterna
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slip the Noose (04:03)
+02. My Best Habit (03:54)
+03. Numb Without You (03:32)
+04. I Feel It All Over (04:00)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B847D337783B77E80746F4EE2B5420F3F2C3A039
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328523   (248959)
+
+Big Red Panda - Voyage (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Psychedelic Rock>
+Rock, Alternative, Punk, Metal
+Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1328523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recognition (05:20)
+02. Voyage (05:15)
+03. High Roads (04:00)
+04. Sunset Station (01:19)(   Читать дальше...   )Жанр: Stoner, Psychedelic RockПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01762B60000DCC3E08C889222E45043F31804883
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328521   (248958)
+
+PIG - Mobocracy (2019) EP [FLAC|Lossless|tracks + .cue] <Alternative Rock, Industrial, Punk>
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mobocracy [04:24]
+02. Divine Descent [04:57]
+03. Confession (Feeding The Beast Mix By The Joy Thieves) [05:29]
+04. Ecstasy & Exorcism (The Bacon Seduction Mix By Trade Secrets) [04:04]Жанр: Alternative Rock, Industrial, PunkПродолжительность: 00:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206C6391CC8CF9F0D8B4C1A66B7DBEB942BCDC56
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328583   (248951)
+
+Borknagar - True North (2019) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Progressive Metal, Vik
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1328583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderous (8:34)
+02. Up North (6:29)
+03. The Fire that Burns (6:33)
+04. Lights (5:04)(   Читать дальше...   )Производство: Century MediaЖанр: Black Metal, Progressive Metal, Viking Metal, Folk MetalПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C39207291260E1A51B82546CD08A013409DBA9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328572   (248949)
+
+Von Wegen Lisbeth - Sweetlilly93@hotmail.com (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, In
+Rock, Alternative, Punk, Metal
+Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wieso
+02. Lieferandomann
+03. Alexa Gib Mir Mein Geld Zurück!
+04. Staub Und Schutt(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Dream PopПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0E98BA5515F4F3B324EF24B707EBECFDDBC739
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328512   (248938)
+
+Klone - Le Grand Voyage (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Prog Rock, Alte
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yonder
+02. Breach
+03. Sealed
+04. Indelible(   Читать дальше...   )Жанр: Progressive Metal, Prog Rock, Alternative RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB81462435A30FD1AAAA6B15A961A3D2C3B0004
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328471   (248930)
+
+Павел Пиковский - Впереди Китай (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328471.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Шалтай-Болтай
+2. Питер
+3. Детство
+4. Края Моей Раны(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66E728AE6798EF500A026AA1F5239051F886B23
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328470   (248920)
+
+Александр Пушной - Live Б2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328470.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. СБТП
+2. Берёза
+3. Рябина
+4. Поранья(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1005465140CFC9EE7AE9150EB2227DBA5EA7CDAD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328695   (248816)
+
+Spiritual Beggars - 9 Albums, 11CD (1994-2016) [FLAC|Lossless|image + .cue | tracks + .cue] <Sto
+Rock, Alternative, Punk, Metal
+Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328695.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1992 году группу в шведском городке Хальмстадт создали Эмотт, Людвиг и первоначальный вокалист<3>басист коллектива Спайс (Kayser, Aeon, а впоследствии - The Mushroom River Band). Так как музыканты уже тогда участвовали в других группах, Spiritual Beggars планировался как проект, основанный на общей любви музыкантов к Deep Purple, Rainbow, Mountain, Captain Beyond (   Читать дальше...   )--------------------------
+
+01. Sunrise To Sundown (3:10)
+02. Diamond Under Pressure (3:44)(   Читать дальше...   )Жанр: Stoner Rock, Hard Rock, Psychedelic Rock, Heavy Metal |Продолжительность: 09:47:44 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA3299DC17FF2ED574CA167E4534EDFDD30F506
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328594   (248809)
+
+Sonata Arctica - Talviyo (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1328594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Message From The Sun_ (4:06)
+02. Whirlwind (6:32)
+03. Cold (4:29)
+04. Storm The Armada (5:08)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2459E85B435174897808FD7D986C06B142BC917B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328741   (248798)
+
+David Osborne - Songs For Oh-Mah (2019) [MP3|320 Kbps] <Rock, Folk Rock>
+Rock, Alternative, Punk, Metal
+Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogaloo Files
+02. Daydream Blues
+03. Mysterious Eyes
+04. You Found Me(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119B029655AFA8E56CF17FF83BE1027BD5526DD4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328362   (248780)
+
+Lynyrd Skynyrd - 25 Albums, 1 Box-set, 41CD (1973-2014) [FLAC|Lossless|image + .cue | tracks + .
+Rock, Alternative, Punk, Metal
+Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lynyrd Skynyrd - культовая американская рок-группа, наиболее известный представитель стиля Southern Rock, являющегося смесью рок-н-ролла, блюза, буги и кантри. Импровизации, характерная часть этих стилей, составляют наиболее привлекательную часть их концертных выступлений. Группа сформировалась в 1964 году в Джексонвилле, штат Флорида. Несколько раз меняя название, (   Читать дальше...   )--------------------------
+
+01. Sweet Home Alabama (4:46)
+02. Gimme Three Steps (4:32)(   Читать дальше...   )Жанр: Hard Rock, Southern Rock, Boogie Rock, Blues Rock |Продолжительность: 36:56:34 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98BD0A8D318A42B8C7AE97F87DF402C9B6AE3E7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328721   (248764)
+
+Наутилус Помпилиус - Платиновая коллекция 2CD (2002) [FLAC|Lossless|image + .cue] <Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1328721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Апельсиновый день
+02. Новые легионы
+03. Скованные одной цепью
+04. Хлоп-Хлоп(   Читать дальше...   )Жанр: RockПродолжительность: 02:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7EEEE02E64611FD16B90A785CFFE4385625DF8E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1328732   (248692)
+
+Type O Negative - The Best Of Type O Negative (2006) [APE|Lossless|image + .cue] <Gothic Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1328732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unsuccessfully Coping With the Natural Beauty of Infidelity
+02. Christian Woman (Edit)
+03. Black No. 1 (Edit)
+04. Too Late: Frozen(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F28B7CD369B140705A96658FC57930A9AFAF4B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1328918   (248690)
 
 Северный флот - Мёртвый изнутри (2019) Single [MP3|320 Kbps] <Rock>
@@ -26446,435 +26878,6 @@ Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EADAD6969F17DCB719019397DEF12E7FAF1351CC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1372664   (224517)
-
-Браво - The Best Of (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-Rock, Alternative, Punk, Metal
-Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1372664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жёлтые ботинки
-02. Кошки
-03. Ленинградский рок-н-ролл
-04. Старый отель(   Читать дальше...   )Жанр: RockПродолжительность: 02:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A693926902D9A1B01F3764BBA595DD1A65E72E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1687328   (224460)
-
-Borgne - II (2007) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1687328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akt 01 2 (03:52)
-02. Akt 02 2 (04:31)
-03. Akt 03 2 (03:17)
-04. Akt 04 2 (04:22)(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD766CFEAE8B531C63854D8EF3AD20CFE472CA1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1341983   (224441)
-
-Gudars Skymning - Dansa Tillbaks Till Din Grav (2008) [FLAC|Lossless|image + .cue] <Hard Rock, P
-Rock, Alternative, Punk, Metal
-Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1341983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giftas 1 & 2 (2:16)
-02. Allting Flyter (2:53)
-03. Ljusare Tider (4:41)
-04. Klippan (5:51)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Stoner RockПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8C0FD8597865332D539652A0AEB800F21C9065
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1333205   (224379)
-
-Brazzaville - Welcome to Brazzaville 2 (2012) [MP3|320 Kbps] <Chamber pop, Indie rock, Bossa Nov
-Rock, Alternative, Punk, Metal
-Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1333205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Clouds In Camarillo
-02. Jesse James
-03. Anabel2
-04. Bosphorus(   Читать дальше...   )Жанр: Chamber pop, Indie rock, Bossa NovaПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7416660AF6051FE72FAFF916D6B1EF542148CE40
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1372238   (224181)
-
-Rise On Everest - 2 Albums, 1 ЕР (2013-2020) [MP3|~245 Kbps<3>(V0)<3>320] <Post-Hardcore, Me
-Rock, Alternative, Punk, Metal
-Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1372238.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2013) Your Life Is In Your Hands (EP) (V0)
-(2016) Sharks Don<1>t Sleep (320)
-(2020) Hell Carousel (320)Жанр: Post-Hardcore, MetalcoreПродолжительность: 3 CD, 01:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0361FCCBC2E8B46F2B55DD8735789890BF2AA60
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1372728   (224179)
-
-Tulip - High Strangeness (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1372728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above [01:03]
-02. Midnight in the Desert [04:10]
-03. Missing Time [04:50]
-04. Communion [03:46](   Читать дальше...   )Жанр: Progressive Metal, SymphonicПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA24FB35F6463CD58447E469AD9A6776454DDE88
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1372959   (224178)
-
-AtomA - Skylight (2012) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Atmospheric Post Metal
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1372959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atoma (4:28)
-02. Skylight (5:17)
-03. Hole In The Sky (3:49)
-04. Highway (4:22)(   Читать дальше...   )Производство: Napalm Records – NPR 409Жанр: Progressive Metal, Atmospheric Post Metal, Post Rock, ElectronicПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9826A5598968AED616B7F927949FE22A3760A58E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1372816   (224169)
-
-Dwayne Ford - Neadless Freaking (1981) 2016, Epic [FLAC|Lossless|tracks + .cue] <Weastcoast, AOR
-Rock, Alternative, Punk, Metal
-Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1372816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Lovin<1> And Losin<1> You (03:30)
-02 Am I Ever Gonna Find Your Love (03:38)
-03 Stranger In Paradise (03:34)
-04 The Hurricane (03:51)(   Читать дальше...   )Жанр: Weastcoast, AORПродолжительность: 00:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A371DB0CF70F69BFD9063F08723B2E91006B103E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1372834   (224127)
-
-Mighty Baby - At A Point Between Fate And Destiny (The Complete Recordings): 6CD Box-set (2019
-Rock, Alternative, Punk, Metal
-Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1372834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незаслуженно забытая руппа Mighty Baby образова в 1968 году на пепелище британской группы The Action. Формация взяла за основу своего творчества американскую версию психоделического рока с изрядной долей фолк-музыки. Mighty Baby с самого начала заявили о себе как о профессиональном коллективе, способном выдавать лихо закрученные психоделические импровизации. Участники (   Читать дальше...   )Список альбомов:
-1969 | Mighty Baby
-1971 | A Jug Of Love
-1971 | A Jug Of Love Rehearsals(   Читать дальше...   )Жанр: Psychedelic Rock, Folk Rock, Acid Rock |Продолжительность: 06:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F50AD1758729E085C727C4DA61B051C2F27B6A8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1372839   (224115)
-
-Ad Infinitum - Chapter I: Monarchy (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1372839.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Infected Monarchy [5:46]
- 2. Marching On Versailles [3:53]
- 3. Maleficent [3:51]
- 4. See You In Hell [3:50](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65091ECAEA7CFF71E0F019A4FEC1E13C7B33F07E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1372783   (224098)
-
-Ёк-Макарёк - Песнь весла (2020) [MP3|320 Kbps] <Ethno Punk>
-Rock, Alternative, Punk, Metal
-Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1372783.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песнь весла
-2. Бабы
-3. Лётчик
-4. Люся(   Читать дальше...   )Жанр: Ethno PunkПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D050C4FF569A270E727FB23459E85EBF29A39D16
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1372737   (224093)
-
-Ekseption - 12 Albums, 14CD (1969-2019) [FLAC|Lossless|image + .cue] <Electric Prog Rock, Classi
-Rock, Alternative, Punk, Metal
-Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1372737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Ekseption была сформирована в 1965 году в голландском городе Гарлеме на базе руководимого джазовым трубачом Рейном ван дер Броеком ансамбля The Hokers. Известна своими рок-обработками классических произведений мировых композиторов, главным апологетом этого направления в Ekseption был органист ван дер Линден. Наряду с <2>Focus<2> - одна из наиболее успешных (   Читать дальше...   )--------------------------
-
-01. Talk About Tomorrow (2:30)
-02.  Mojo Ann (2:42)(   Читать дальше...   )Жанр: Electric Prog Rock, Neo-Classical, Classical Crossover, Fusion, Jazz-Rock |Продолжительность: 11:57:15 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAFCB8E2A4CEB2366A3F9EE552AE882F7E92B04
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1372912   (223832)
-
-Ильин - Кровь (2020) [MP3|320 Kbps] <Metal, Prog-Metal, Rock, Piano>
-Rock, Alternative, Punk, Metal
-Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1372912.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Слово
-2. Тополь
-3. Между тенями
-4. Воздух(   Читать дальше...   )Жанр: Metal, Prog-Metal, Rock, PianoПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C75F46F89748B6DCB04E4EFCB26B151FEA7E17
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1342780   (223808)
-
-Без Билета - Легенда (2019) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1342780.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я — легенда (Intro)
-2. Aloha
-3. Аляска
-4. Самолётом, поездом, кораблём!(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEAEB4DAA6E5CD6C69BCA6B0484AB0F961AD667A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1373094   (223719)
-
-Eternal Delyria - Letting Go Of Humanity <3> Paradox of the Mechanical Angel (2016-2020) [MP3|32
-Rock, Alternative, Punk, Metal
-Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1373094.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2016) Letting Go Of Humanity
-(2020) Paradox of the Mechanical AngelЖанр: Symphonic Death MetalПродолжительность: 2 CD, 01:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479ECC2104B6A85E2799D797490C3188B1063406
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1373102   (223675)
-
-VA - 100 Rock Classics (2020) [MP3|320 Kbps] <Rock>
-Rock, Alternative, Punk, Metal
-Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1373102.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Whitesnake - Guilty of Love (3:18)
-2.The Doobie Brothers - Long Train Runnin<1> (Full Guitar Mix) (5:31)
-3.Deep Purple - Speed King (5:52)
-4.Alice Cooper - I<1>m Eighteen (2:58)(   Читать дальше...   )Жанр: RockПродолжительность: 06:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DB46809D44ADE2EF4990558E5E4E02C104AC6B
 ```
 
 #Mybot  @nnmclub_mybot

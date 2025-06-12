@@ -1,4 +1,31 @@
 
+###  Публикация: 1801379   (754054)
+
+Ken Hensley - Live Compilation (2025) [MP3|320 Kbps] <Rock, Hard Rock>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/" />
+</div>
+
+
+###  Подробнее
+
+01. A Minor Life [04:12]
+02. Intro / Set Me Free (From Yesterday) [04:35]
+03. Lady In Black [12:29]
+04. Ready To Die [04:25](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 06:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9504783103E20DBCE886298661464A9D2A5536A1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1800809   (753780)
 
 VA - AFTERLIFE ANYMA The End of Genesys (2025) [MP3|320 Kbps] <Melodic House & Techno>
@@ -6,7 +33,7 @@ VA - AFTERLIFE ANYMA The End of Genesys (2025) [MP3|320 Kbps] <Melodic House & T
 Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200ok" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800809.jpg" />
 </div>
 
 
@@ -26983,33 +27010,6 @@ Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1E66C9B890BAA47AF0D27E88B3FB74F981D8E9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1691847   (688362)
-
-VA - Trance In Motion Vol.370 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-Неофициальные сборники
-Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1691847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doppenberg - Illusions (Extended Mix)
-02. Nikolauss - Rhythm Of The Universe (Extended Mix)
-03. Luke van Ness - Greed (Extended Mix)
-04. Doppenberg - After All These Years (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0746957A4B6011EA43AEE41DD04C9EC12F773E24
 ```
 
 #Mybot  @nnmclub_mybot

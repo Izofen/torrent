@@ -1,4 +1,139 @@
 
+###  Публикация: 1207057   (499476)
+
+VA - Running Electronica, Vol. 10 (For a Cool Rush of Blood to the Head) (2018) [MP3|320 Kbp
+Electronic
+House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1207057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5K Power-Run-Mix (continuous DJ mix 1) (30:35)
+02. 10K Power-Run-Mix (continuous DJ mix 2) (01:00:00)
+03. Spuri & Andre Bastos - Alika (original mix) (08:07)
+04. Jan Blomqvist - Winter Roads (04:51)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30054084E10B8F3930DFBD48866019B7F3A0380
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1107272   (499446)
+
+VA - Chill Top 50 - Armada Music (2017) [FLAC|Lossless|tracks] <Downtempo, Electronica, Instrume
+Electronic
+Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1107272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moby - Why Does My Heart Feel So Bad  4:25
+02.  Mokita & CADE - Monopoly (Acoustic Version)  3:01
+03.  Sasha - Time After Time  4:53
+04.  Jan Blomqvist - Empty Floor  3:39(   Читать дальше...   )Жанр: Downtempo, Electronica, InstrumentalПродолжительность: 03:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44CFD597D9765A554E3C783193849E02A7E99AB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1107265   (499444)
+
+VA - Chill Top 50 - Armada Music (2017) [MP3|320 Kbps] <Downtempo, Electronica, Instrumental>
+Electronic
+Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1107265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moby - Why Does My Heart Feel So Bad  4:25
+02.  Mokita & Cade - Monopoly (Acoustic Version)  3:01
+03.  Sasha - Time After Time  4:53
+04.  Jan Blomqvist - Empty Floor  3:39(   Читать дальше...   )Жанр: Downtempo, Electronica, InstrumentalПродолжительность: 03:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423285669CD7F4C071677314F3A9F275BA77FA69
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1107583   (499443)
+
+VA - Kamasutra Erotic and Sexy. Compilation Love Making Music Vol.4 (2017) [MP3|320 Kbps] <Downt
+Electronic
+Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1107583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street Line - Chill Sensation
+02. Indian Dawn - Predictions
+03. Sweet Ocean - Soft Emotion
+04. Deep blue - Velvet Secrets(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0836ECD7C992392AE0B8E2FABDE3A0C94497F3FD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1207427   (499200)
+
+Lane 8 - Little By Little (2018) This Never Happened [FLAC|Lossless|tracks+.cue] <Deep House, Ho
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1207427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daya (06:21)
+ 02. No Captain (feat. Poliça) (05:18)
+ 03. Atlas (05:52)
+ 04. Clarify (feat. Fractures) (04:02)(   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098194B75D1ADC8A386F7B0C01D220415915E175
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1206987   (499196)
 
 VA - Global DJ Broadcast - Top 20 February (2018) [MP3|320 Kbps] <Trance>
@@ -26769,141 +26904,6 @@ House, Techno, Electro, Minimal (Lossless)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B2C236643DEA22C3C878934A3CB508C2D4D8A28
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1125076   (468284)
-
-Germind - Thoughtform (2017) [MP3|320 Kbps] <Psybient, Ambient, Downtempo>
-Electronic
-Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1125076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Textures Life
-02. Shimmering At Sunrise
-03. Thoughtform
-04. Galactic Stems(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E846A6614EA80F8942534A0F22C3BD8EFDA2B50
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 909125   (468261)
-
-Salt Tank - Phoenix (2015) [FLAC|Lossless|WEB-DL]<Trance>
-Electronic
-Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_909125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix (Voices From The Fire Mix) (07:29)
-02. Phoenix (Allende Remix EA3 Reconstruction) (09:13)
-03. Phoenix (Adam Ellis Remix) (07:58)
-04. Phoenix (Tasso Remix) (07:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8E8E66B67C8B8FFFEAF6C47C00414822516E72
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1124967   (468224)
-
-VA - Dark Sessions Radio 025 (Mixed by Oberon) (2017) [FLAC|Lossless|WEB|tracks|image] <Tran
-Electronic
-Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1124967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omega Drive - MIDI 1 (6:36)
-02. Cristian Ketelaars - Limitless (Omega Drive Remix) (7:46)
-03. Opt-in - Wurmtreiber (7:18)
-04. Mekk V - Embryo (Funked Up Mix) (6:19)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE5E8D4A26E72EED1CDD581148E18BA8B0A1178
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1124971   (468220)
-
-VA - Recoverworld Radio 009 (Mixed by Rich Smith) (2017) [FLAC|Lossless|WEB|tracks|image] <T
-Electronic
-Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1124971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Legatto & Alex Van Gray - Fly Away (7:59)
-02. Laura May - Are You Afraid of Ghosts (Cenk Basaran Remix) (6:57)
-03. Nikolauss - Solaris (6:24)
-04. Tau-Rine & Haig & Raffi - Redemption (8:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A15E770DF60CD39D551804C69636AFB171D53A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1125137   (468211)
-
-Robert Rich & Markus Reuter - Lift a Feather to the Flood (2017) [FLAC|Lossless|WEB-DL|tracks] <
-Electronic
-Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1125137.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We Shed the Remnants of Last Winter (7:14)
-2. Twining Branches Make a Path (9:53)
-3. Glistening on Wet Tarmac (5:45)
-4. Seedlings Push Through Cracks (8:20)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFD071EFB581BC0CAA135C6299CC0FBBD8F9551
 ```
 
 #Mybot  @nnmclub_mybot

@@ -1,4 +1,28 @@
 
+###  Публикация: 549179   (545548)
+
+VA - Инструментальная музыка (2012) vol. № 78 [MP3|320 кб<3>с]<Instrumental>
+Неофициальные сборники
+Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_549179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED996F6D572DE55B5B214831307ADA432BC002B3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 549176   (545498)
 
 VA - Инструментальная музыка (2012) vol. № 77 [MP3|320 кб<3>с]<Instrumental>
@@ -28977,33 +29001,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:148983CD56DF1396423258B8433D79927F20F32B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1034469   (521421)
-
-VA - Endless Motion - Only Trance (episode1) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance
-Неофициальные сборники
-Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1034469.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Andrew Rayel Extended Remix) 6:56
-002. Denis Kenzo & Alexandra Badoi -  More Time (Original Mix) 5:49
-003. Alex M.O.R.P.H. & Den Rize feat. Natalie Gioia -  Angelic (Original mix) 7:56
-004. NoMosk & Ansia Orchestra -  Adventure  (UDM Remix) 6:58(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 11:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8655F82C8F458CEAE86834FDC1AF7F517ADA23
 ```
 
 #Mybot  @nnmclub_mybot

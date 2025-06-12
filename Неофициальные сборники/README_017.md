@@ -1,4 +1,31 @@
 
+###  Публикация: 1390935   (171483)
+
+VA - Music for You vol.7 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
+Неофициальные сборники
+Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1390935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Theater - A Better Life (04:40)
+ 02. Arch Echo - Iris (07:58)
+ 03. Mandroid Echostar - Hexaton (05:27)
+ 04. Orphaned Land - The Simple Man (04:54)(   Читать дальше...   )Жанр: Rock, Metal, Progressive MetalПродолжительность: 04:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AE270E1063D684C45B45D01E6AE3013C6E3B27
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1480278   (171470)
 
 VA - Tonight I Am The Music (2021) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
@@ -26962,33 +26989,6 @@ Jazz, Blues, Soul (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E49560B54F17C436C439550299D839B8643A2C6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1550525   (134234)
-
-VA - Music News vol.187 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-Неофициальные сборники
-Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1550525.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amelie Martinez feat. Anis Karek & Houssem Amari - Besame (02:47)
- 002. AJ Tracey - Reasonable (03:23)
- 003. Alisa Cara - Bites (Radio Edit) (02:42)
- 004. Alvaro De Luna feat. Philippine - Juramento Eterno De Sal (03:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB67C6A209CC3F05810BAD6E36EF7AA6A3DDDE08
 ```
 
 #Mybot  @nnmclub_mybot

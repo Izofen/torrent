@@ -1,4 +1,139 @@
 
+###  Публикация: 1191739   (304431)
+
+VA - Black Hole Recordings - Best Of (2017) [MP3|320 Kbps] <Trance>
+Electronic
+Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_1191739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Emma Hewitt – Tonight
+02. Giuseppe Ottaviani & Kyler England – Firefly Omnia Remix)
+03. Markus Schulz & Adina Butar – New York City (Take Me Away)
+04. Late Night Alumni & Myon – Love Song (Myon Definitive Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B6300C55F5028E69270568B946A43A1A986B44
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1191697   (304430)
+
+Isorinne - Speechless Malison (2017) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient
+Electronic
+Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1191697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9:21 (09:21)
+ 02. 3:29 (03:29)
+ 03. 4:05 (04:05)
+ 04. 4:55 (04:55)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D461233CEE6764747EEC8E175BF1D9B147DEB724
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 967385   (304412)
+
+Alphaville - Afternoons In Utopia (1986) [FLAC|Image+cue] <Synth-pop>
+Electronic
+Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_967385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IAO
+02. Fantastic Dream
+03. Jerusalem
+04. Dance With Me(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CCC64EB3CC08E9F42C12FA898449A2D95F0EA4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1191774   (304408)
+
+VA - The Best Of Suanda Voice (Mixed by Dennis Graft) (2017) [MP3|320 Kbps] <Vocal Trance>
+Electronic
+Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1191774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shawn Davis & Roman Messer  -  Tonight (Original Mix)  3:40
+02.  Vadim Spark & Cari  -  Beat Of My Heart (Original Mix)  3:39
+03.  Maria Milewska & Dennis Graft  -  Until (Original Mix)  2:42
+04.  Jan Johnston & Feel  -  Skysearch (Ruslan Radriges Radio Edit)  3:05(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0765A679D5A9919C66A47C3F09201CA9A8D86D18
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1191778   (304402)
+
+Velvet Dreamer - Different World (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Electronic
+Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1191778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Different World (5:45)
+02.  Blissful Journey (feat. Ilia Skibinsky) (6:12)
+03.  Midnight Lovers (feat. Michael Buk) (4:47)
+04.  Love Planet (feat. Michael Buk) (5:48)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3FE5ED65DA633F3654C8147B2D1A745562B514
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1191769   (304393)
 
 Parks (The Parks, Парки) - Discography 12 Releases (1991-2016) Elektrus, Фоно [FLAC|Lossless
@@ -26839,141 +26974,6 @@ House, Techno, Electro, Minimal (Lossless)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFD9D7AB1403C5CF4DCC78904AFABA58F2D3BA8E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1297264   (269645)
-
-Bryan Kearney - Live @ Main Stage, Beyond Wonderland Monterrey, Mexico (2019-04-06)[MP3|224 Kbps
-Electronic
-Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1297264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Kearney - Mexican Rave (ID Remix)
-02. Key4050 - Schillachi
-03. ID - ID
-04. Key4050 - Gianfranco(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705C0C56705D3853EBF212714A923C124A37A378
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1297823   (269644)
-
-VA - Miami to Ibiza (2019) [MP3|320 Kbps] <Funky, Deep Groove, Minimal>
-Electronic
-House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1297823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Modena - Lover (Extended Mix)
-02. Glitch Matrix - Breeze
-03. Regie Rules - Hour Of The Morning
-04. Juli Lee - Time Warp(   Читать дальше...   )Жанр: Funky, Deep Groove, MinimalПродолжительность: 02:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA2A258B313DD92FACCC80F952F21EA9CF3A508
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1297688   (269636)
-
-Akob - Gravitational Waves (2019) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1297688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsar Timing Array (07:45)
- 02. Gravitational Waves (07:16)
- 03. Dark Matter (08:32)
- 04. Event Horizon (07:34)Жанр: Techno, AcidПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA86B2919F14837A0FEA3E3D345DAF75233A0BC5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1297268   (269635)
-
-Paul Denton - Live @ Anomaly, Rong Afterparty, Tunnel Club Birmingham, United Kingdom (2019-04-06<
-Electronic
-Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1297268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. John O<1>Callaghan & Deirdre McLaughlin vs. Karney - Stay Nothing (John O<1>Callaghan Noodle)
-03. Key4050 - The Truth
-04. Marco V - Godd(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B7D9B7BD4F558E5F2E13B2A94CA06FAD036E16
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1297815   (269628)
-
-VA - Lounge & Summer Vol. 1 (2019) [MP3|320 Kbps] <Lounge, Chill Out, Downtempo>
-Electronic
-Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1297815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sphere - Weeds (Original Mix)
-02. Dj Mnx - Emotions May Fly (Original Mix)
-03. Bob Zopp - Island Girl (Original Mix)
-04. Schwarz;Funk;Ann Francis - Deep Emotion (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E00E18A18C5F997D35F7AD6AB1993B485D3CEF
 ```
 
 #Mybot  @nnmclub_mybot

@@ -1,4 +1,31 @@
 
+###  Публикация: 1505577   (81445)
+
+VA - The Delicate Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
+Неофициальные сборники
+Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1505577.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Darren Studholme - Pieces
+002. Juno Valdez - This Is Your Life
+003. Alex Poet feat. Michelle Weeks - Where Do I Begin
+004. Rony Seikaly - Frontin<1>(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3248BA494717F50B779F3EF74729CC38F62A352A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1505465   (81443)
 
 VA - Music News vol.144 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -26956,33 +26983,6 @@ Electronic (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EC362E8E0BD7DF472DD72A0A0E660C7A5DA77CA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1615636   (5585)
-
-VA - Fantastic 90s (2023) 3CD, Compilation, Box Set [MP3|320 Kbps] <Dance, Disco, New Wave, Synthpop
-Неофициальные сборники
-Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1615636.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Take That - Pray
-02. Backstreet Boys - I Want It That Way
-03. Christina Aguilera - Genie In a Bottle(   Читать дальше...   )Жанр: Dance, Disco, New Wave, SynthpopПродолжительность: 01:22:11 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2058FB018E2195CF5B8FAE7BCFF23E64323D3AF3
 ```
 
 #Mybot  @nnmclub_mybot

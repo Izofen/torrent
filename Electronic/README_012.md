@@ -1,4 +1,139 @@
 
+###  Публикация: 1361240   (235836)
+
+Snakeskin - Medusa<1>s Spell (2020) [MP3|320 Kbps] <EBM, Synth, Gothic-Rock, Darkwave>
+Electronic
+Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1361240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Loaded Guns
+02 - Medusa
+03 - Once
+04 - Upon a Time(   Читать дальше...   )Жанр: EBM, Synth, Gothic-Rock, DarkwaveПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27779E8F6BE5C6CE9D743F6E2F01F7BA5006354C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1361705   (235586)
+
+VA - Trancemission Valentine<1>s Rave (A2 Green Concert, St.Petersburg, Russia) 2020-02-14 [MP3|
+Electronic
+Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1361705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tycoos - Trancemission Valentine<1>s Rave:
+01. Tensteps ft. Karel & Xojani - Fly (Tycoos Remix)
+02. Tycoos - Wandering Alien
+03. Andrew Rayel & Chukiess & Whackboi - Kick, Bass & Trance(   Читать дальше...   )Жанр: TranceПродолжительность: 04:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F77DBE48D95FC2C6BECF5013EB750EE03E784583
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1361733   (235560)
+
+Nachtmahr - Flamme (2020) [MP3|320 Kbps] <EBM, Neofolk>
+Electronic
+Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1361733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Feinbild	4:37
+2	Kampfbereit	4:26
+3	Liebst Du Mich	4:02
+4	Krieg Und Frieden	3:51(   Читать дальше...   )Жанр: EBM, NeofolkПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D4202A46C6A87630DFF01EAC2EE89105C1FE47
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1361784   (235477)
+
+Depeche Mode - Mode (2020) 18 СD, Box Set, Compilation, Limited Edition, Numbered [FLAC|Lossless
+Electronic
+Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1361784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Life (03:46)
+02. I Sometimes Wish I Was Dead (02:18)
+03. Puppets (03:57)
+04. Boys Say Go! (03:08)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 15:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50758C4FFA5A104A75812028B3969F1033222F67
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1362200   (235402)
+
+VA - Touch Me with House (Sensual House Music Dance) (2020) [MP3|320 Kbps] <House>
+Electronic
+House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1362200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Carl Carlton - I<1>ll Wait Here (Black Coffee Mix) 3:16
+02.Love Cascade - Six O┤nine (Universe & Dreams Mix) 4:20
+03.Godiva Street - What the Curate Really Did (Deep Love Mix) 3:32
+04.Cool Rhythms - The Force Beat (Maracuja Deep Mix) 3:21(   Читать дальше...   )Жанр: HouseПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E13DA02862A2D6D5D9D638079BF6AB7B9CAC4F5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1362406   (235249)
 
 Still Harbours - Fluorochrome (2020) [FLAC|Lossless|tracks + .cue] <Ambient, Dark Ambient, Drone
@@ -26672,141 +26807,6 @@ Industrial, EBM, Dark Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE68BB09744F10C7541A36D4C4ABF2E725E2E765
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1453397   (204919)
-
-Djs From Mars - Live On The Snow, Italy (2021-03-09) [MP3|320 Kbps] <Electro House, Future House
-Electronic
-Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1453397.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fedde Le Grand vs. Lil Jon vs. Sonic One - Intro 2020 Put Ur Fuckin Hands Up vs. Punk (Djs From Mars Bootleg)
-2. Tiësto vs Energy 52 - The Business at Café Del Mar (Djs From Mars Bootleg)
-3. Meduza ft. Dermot Kennedy vs Age of Love - The Age of Love in Paradise (Djs From Mars Bootleg)
-4. Joel Corry X MNEK vs Alice Deejay - Head & Heart vs Better (   Читать дальше...   )Жанр: Electro House, Future House, Bass HouseПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B05601F251E0D645B1780A07950AA5FFCD0F45
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1453892   (204794)
-
-Gabriel & Dresden - AFTR:HRS SESSIONS 03 (2021-03-11) [MP3|320 Kbps] <Deep House, Progressive Ho
-Electronic
-Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1453892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CRi - Stranger
-02. Alex O’Rion - Cuprum
-03. Emil Berliner - Aoede
-04. Mind Against - Walking Away(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0F713C1A0B3CD71AC3D895DE663AFBFD752B27
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1454057   (204591)
-
-Tricky - Fall to Pieces (Remixes) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, E﻿lectr
-Electronic
-Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1454057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like a Stone (trentemøller Remix) [00:03:40]
-02. Fall Please (Kahn Remix) [00:05:38]
-03. I<1>m in the Doorway (LA Timpa Remix) [00:05:12]
-04. Vietnam (Lafawndah Remix) [00:03:25]Жанр: Trip-Hop, E﻿lectronicПродолжительность: 00:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C14DA995621AFAFC5AB6C518C6A30A691919EF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1454325   (204589)
-
-Louisahhh - The Practice of Freedom (2021) [FLAC|Lossless|WEB-DL|tracks] <EBM, Techno>
-Electronic
-Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1454325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is a Punk [00:03:15]
-02. Like a Shot [00:04:42]
-03. Chaos [00:03:48]
-04. Ferocious (Contained) [00:04:23](   Читать дальше...   )Жанр: EBM, TechnoПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833FE15D518679FE05C5BE0C423C13D2C81D487D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1454101   (204586)
-
-VA - Techno Zone Vol. 4 (2000) [FLAC|Lossless|tracks + .cue] <Techno, Euro House>
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1454101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Anastasia - Join Me (Vectrex Remix) [06:28]
-02 - Westbam feat. TL Pipmps - Do The Rambo [06:59]
-03 - Lexy & K-Paul - The Greatest DJ (Extended Mix) [05:43]
-04 - Paffendorf - Where Are You ? (Radio Edit) [03:28](   Читать дальше...   )Жанр: Techno, Euro HouseПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D97766DE76ACFEBFE026FEA8BD18A99343F3DAA
 ```
 
 #Mybot  @nnmclub_mybot

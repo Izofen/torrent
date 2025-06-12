@@ -1,4 +1,31 @@
 
+###  Публикация: 1615636   (5585)
+
+VA - Fantastic 90s (2023) 3CD, Compilation, Box Set [MP3|320 Kbps] <Dance, Disco, New Wave, Synthpop
+Неофициальные сборники
+Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1615636.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Take That - Pray
+02. Backstreet Boys - I Want It That Way
+03. Christina Aguilera - Genie In a Bottle(   Читать дальше...   )Жанр: Dance, Disco, New Wave, SynthpopПродолжительность: 01:22:11 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2058FB018E2195CF5B8FAE7BCFF23E64323D3AF3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1615580   (5572)
 
 VA - Disco Basics of The Hit Space (2023) [MP3|320 Kbps] <Funky, Nu-Disco, Indie Dance, Chicago Hous

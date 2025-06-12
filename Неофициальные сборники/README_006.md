@@ -1,4 +1,31 @@
 
+###  Публикация: 1034469   (521421)
+
+VA - Endless Motion - Only Trance (episode1) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance
+Неофициальные сборники
+Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1034469.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Andrew Rayel Extended Remix) 6:56
+002. Denis Kenzo & Alexandra Badoi -  More Time (Original Mix) 5:49
+003. Alex M.O.R.P.H. & Den Rize feat. Natalie Gioia -  Angelic (Original mix) 7:56
+004. NoMosk & Ansia Orchestra -  Adventure  (UDM Remix) 6:58(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 11:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8655F82C8F458CEAE86834FDC1AF7F517ADA23
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1034737   (521414)
 
 VA - Endless Motion - Only Trance (episode2) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance
@@ -27055,33 +27082,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59C6EE06702D99D0E0414BAD00364399FC03AC65
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1209829   (495648)
-
-VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.24 (2018) [MP3|320 Kbps] <Pop, Dance>
-Неофициальные сборники
-Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1209829.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Britney Spears Feat Will.i.am - Scream & Shout
-002. Girls Aloud - Something New
-003. Винтаж - Свежая вода (ft. ChinKong)
-004. Nelly Furtado - Waiting for the Night(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33FBAC166A69CB3D847555520AB1B12704848DD
 ```
 
 #Mybot  @nnmclub_mybot

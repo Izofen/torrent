@@ -1,4 +1,139 @@
 
+###  Публикация: 1168855   (339040)
+
+VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
+Electronic
+House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1168855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ VoJo — Lost in Sea (Original Mix) 05:16
+02. Oblomov — River of my Love (Original Mix) 04:13
+03. Bobryuko — Hover (Original Mix) 05:20
+04. Ver$us Beatz — You My Novocaine (Original Mix) 05:12(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BED3562F4AB1937AE18D9994835ADC0B411CC2F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1168895   (338979)
+
+Rahul Sharma & Richard Clayderman - Milap (2017) [FLAC|Lossless|tracks] <Easy Listening, Instrum
+Electronic
+Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1168895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance of the Sufis
+02. A Pure Flame of Love
+03. Endless Love (Duet Version)
+04. The Chaser(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2370C8C1B839B9F0B8025020B596D7470A44C89F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1168839   (338971)
+
+Richard Clayderman - Movie Favourites (2017) [FLAC|Lossless|tracks] <Easy Listening>
+Electronic
+Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1168839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Story (From Love Story) (03:00)
+02. Chariots Of Fire (From Chariots Of Fire) (02:58)
+03. Merry Christmas Mr Lawrence (From Merry Christmas Mr Lawrence) (03:17)
+04. Flashdance (What A Feeling) (From Flashdance) (02:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04328B8F179328651AA30A046CB02B7BC35F0105
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1168567   (338967)
+
+VA - Kosmological Conspiracy (2017) LP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+Electronic
+Drum<1>n<1>Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1168567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loucura & Dailiv - The Harsh Reality (06:30)
+ 02. Vortex Involute - Levity (05:52)
+ 03. Electrosoul System & Liquitek - The Pillars Of Creation (07:43)
+ 04. NClear & Triple Sky - Landmark (04:53)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD1E9463BA028F4324099FFBA5D2310982AE658
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1168779   (338913)
+
+VA - Black Hole Presents Best Of Vocal Trance Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Voc
+Electronic
+Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1168779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cosmic Gate & JES - Fall Into You (Sunny Lax Remix)  5:58
+02.  Markus Schulz - In The Night (feat. Brooke Tomlinson) (4 Strings Remix)  5:19
+03.  Artisan - Thank You (feat. Anki) (Extended Mix)  5:18
+04.  Planet Perfecto - Bullet In The Gun (Timelapse By Marco V Remix)  5:07(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9238B3B8585A271B017FD9AAFDBB156F152DB96B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1168542   (338912)
 
 VA - A State Of Trance Classics Vol.12 (The Full Unmixed Versions) (2017) [FLAC|Lossless|WEB
@@ -26871,141 +27006,6 @@ Radioshow, Live Mixes
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC67738FCB4E4305B5018A633ED689F402236C50
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1191739   (304431)
-
-VA - Black Hole Recordings - Best Of (2017) [MP3|320 Kbps] <Trance>
-Electronic
-Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_1191739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Emma Hewitt – Tonight
-02. Giuseppe Ottaviani & Kyler England – Firefly Omnia Remix)
-03. Markus Schulz & Adina Butar – New York City (Take Me Away)
-04. Late Night Alumni & Myon – Love Song (Myon Definitive Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B6300C55F5028E69270568B946A43A1A986B44
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1191697   (304430)
-
-Isorinne - Speechless Malison (2017) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient
-Electronic
-Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1191697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9:21 (09:21)
- 02. 3:29 (03:29)
- 03. 4:05 (04:05)
- 04. 4:55 (04:55)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D461233CEE6764747EEC8E175BF1D9B147DEB724
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 967385   (304412)
-
-Alphaville - Afternoons In Utopia (1986) [FLAC|Image+cue] <Synth-pop>
-Electronic
-Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_967385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IAO
-02. Fantastic Dream
-03. Jerusalem
-04. Dance With Me(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CCC64EB3CC08E9F42C12FA898449A2D95F0EA4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1191774   (304408)
-
-VA - The Best Of Suanda Voice (Mixed by Dennis Graft) (2017) [MP3|320 Kbps] <Vocal Trance>
-Electronic
-Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1191774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shawn Davis & Roman Messer  -  Tonight (Original Mix)  3:40
-02.  Vadim Spark & Cari  -  Beat Of My Heart (Original Mix)  3:39
-03.  Maria Milewska & Dennis Graft  -  Until (Original Mix)  2:42
-04.  Jan Johnston & Feel  -  Skysearch (Ruslan Radriges Radio Edit)  3:05(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0765A679D5A9919C66A47C3F09201CA9A8D86D18
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1191778   (304402)
-
-Velvet Dreamer - Different World (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-Electronic
-Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1191778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Different World (5:45)
-02.  Blissful Journey (feat. Ilia Skibinsky) (6:12)
-03.  Midnight Lovers (feat. Michael Buk) (4:47)
-04.  Love Planet (feat. Michael Buk) (5:48)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3FE5ED65DA633F3654C8147B2D1A745562B514
 ```
 
 #Mybot  @nnmclub_mybot

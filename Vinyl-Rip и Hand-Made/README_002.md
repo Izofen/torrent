@@ -1,4 +1,59 @@
 
+###  Публикация: 1531020   (129419)
+
+Halestorm - Дискография (1999-2022) hand made [restored, declipped] [FLAC 2.0|44<3>16|tracks +.c
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1531020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Halestorm — американская хард-рок-группа, образованная в маленьком городке
+ Рэд Лайон округа Йорк (штат Пенсильвания).1999 - Don<1>t Mess With the Time Man
+2001 - Breaking the Silence
+2009 - Halestorm
+2012 - The Strange Case of...Жанр: Hard Rock, Alternative MetalПродолжительность: 09:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC37BB5B6577C0D874FDE42B4A49952E360A5DC8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1603371   (128138)
+
+Jim MacLeod and his band - 60 Minutes de danses écossaises (1974) [FLAC 2.0|192<3>24|image +.cue
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1603371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Face 1:
+01.Duke And Duchess Of Edinburgh
+02.McDonald Of Sleat
+03.Circassian Circle(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B51C36E44B5715D78F1B08940C57CDFB31E257B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1603099   (128061)
 
 Гран-КуражЪ - Дискография (10 релизов) (2006 - 2021) hand made [restored, declipped] [FLAC 2

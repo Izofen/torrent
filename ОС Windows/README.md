@@ -1,4 +1,57 @@
 
+###  Публикация: 1801472   (754166)
+
+Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5965 [Ru]
+ОС Windows
+Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_10_business_editions_version_22h2_updated_may_2025_x64_dvd_821b97c3
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
+Установлены обновления по 10 июня 2025 года включительно(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023B1B19729EAEFA78E3D27E42A96B70BC5D54CE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801247   (753940)
+
+Антивирусная утилита AVZ 6.00 (08.05.2025) (Неофициальная)
+ОС Windows
+Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801247.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVZ - Бесплатная быстро работающая антивирусная утилита. Включает в себя собственно AVZ и дополнительные утилиты AVZGuard/AVZPM/BootCleaner.
+Основное назначение - обнаружение и удаление SpyWare и AdWare модулей, а также Dialer (Trojan.Dialer), троянских программ, BackDoor модулей, сетевых и почтовых червей, TrojanSpy, TrojanDownloader, TrojanDropper.
+По сути, AVZ (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCD5F4D6BB03EB0EDC6AB2E49ADBEA4E55FE4E8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1800665   (753759)
 
 Windows 10 Enterprise LTSC x64 21Н2 (build 19044.5917) by ivandubskoj 02.06.2025 [Ru]
@@ -6,7 +59,7 @@ Windows 10 Enterprise LTSC x64 21Н2 (build 19044.5917) by ivandubskoj 02.06.202
 Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200ok" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800665.jpg" />
 </div>
 
 
@@ -25054,54 +25107,6 @@ Windows 10 November 2021 Update (под кодовым названием <2>21H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A36471B66CCA80C700592CA3F0B870E3BDF3AF8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1584459   (78314)
-
-Microsoft Windows 11 [10.0.22621.674], Version 22H2 (Updated October 2022)  - Оригинальные образ
-ОС Windows
-Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1584459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как <2>операционную систему как службу<2>, которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E79090C873EF439349701E2FB6D0911ACE92A6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1584456   (78312)
-
-Windows Server 2022 LTSC, Version 21H2 Build 20348.1129 (Updated October 2022) - Оригинальные об
-ОС Windows
-Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1584456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014CEE0A1A82DB6A252B7EF94AB0906382C75F62
 ```
 
 #Mybot  @nnmclub_mybot

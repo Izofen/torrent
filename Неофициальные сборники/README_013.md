@@ -1,4 +1,31 @@
 
+###  Публикация: 1271473   (305727)
+
+VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+Неофициальные сборники
+Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1271473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoundLift - Emperor Of China (Original Mix) 7:36
+02. The Swan & The Lake feat. Emil De Waal & Johan Liepstack - Portofino 7:21
+03. Steve Brian - Kyoto (Steve Brian Ocean Influence Mix) 5:21
+04. Moonnight - Love Is The Key (Original Mix) 4:32(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Orchestral, Cinematic, Acoustic, AmbientПродолжительность: 02:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 966957   (305684)
 
 VA - Best of Beatport 2015 Staff Picks Tracks (2015) [MP3|320 кб<3>с] <Minimal, Techno, House, E
@@ -27179,33 +27206,6 @@ VA - Times Disco Fever Actions (2016) [MP3|317-320 Kbps] <Synth-pop, New Wave, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50556DC802481B30115BAA1CFC16CFE414D32857
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1086738   (276878)
-
-VA - Big Love 20 от Love Radio (18.12.2016)  [MP3|320 Kbps] <Pop>
-Неофициальные сборники
-Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1086738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye
-02. Макс Барских - Туманы
-03. Elvira T - Такси
-04. DJ Snake feat. Justin Bieber -Let Me Love You(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4922AF7875716A044A377DD59E45853F9B6B3683
 ```
 
 #Mybot  @nnmclub_mybot

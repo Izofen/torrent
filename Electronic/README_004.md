@@ -1,4 +1,144 @@
 
+###  Публикация: 1031829   (527959)
+
+VA - Earotic Vol 1 (Chill Out For Your Ears) (2016) [MP3|320 Kbps] <Deep House, Breaks, Сhil
+Electronic
+House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1031829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castlebed - Cold Moves (3:49)
+02. Dormidontov - Home (6:37)
+03. Anthony Chocco - You Are (Beach & Martini Mix) (4:03)
+04. Don Major - At Sunset (3:34)(   Читать дальше...   )Производство: KarmagrooveЖанр: Deep House, Breaks, СhillПродолжительность: 02:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AB362F2E6A56062520243FB7109B36F1528160
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1031990   (527877)
+
+Marga Sol - Colours (2016) [MP3|320 Kbps] <Lounge, Chill Out, Easy Listening>
+Electronic
+Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1031990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colours (6:23)
+02. Ibiza Blue (5:04)
+03. The Ocean (5:13)
+04. Amoralea (5:58)(   Читать дальше...   )Производство: M-Sol RecordsЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7414D4AAF712F8DFE240E15EE87A8109B1C8BDCA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1031892   (527859)
+
+Mahamudra - ScreenSaver (2015) [MP3|320 Kbps] <Morning, Progressive>
+Electronic
+Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1031892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Energy
+02 - Momento
+03 - The IndianЖанр: Morning, ProgressiveПродолжительность: 00:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13994C020737AFDC681DC1A633DDA5EF1E94AA10
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1196300   (527845)
+
+Bob Moses - Days Gone By (Never Enough Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep H
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1196300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like It Or Not (6:20)
+ 02. Talk (6:49)
+ 03. Before I Fall (3:59)
+ 04. Too Much Is Never Enough (5:25)(   Читать дальше...   )Жанр: Deep House, Downtempo, Dub HouseПродолжительность: 01:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6964C55E9A7D68118BFC90D5D628C379D5F9EAE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 822460   (527703)
+
+VA - Madre Natura Volume 16 (2014) [MP3|320 кб<3>с]<Deep House, Tech House>
+Electronic
+House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Adrian Hour - Chordgresion (Da Fresh Remix) 06:16
+02. Ant Brooks - Zone (Original Mix) 06:43
+03. Beckers & D-Nox - La Plata (Original Mix) 07:24
+04. Cristian Varela - Mr. Borowic (Wehbba Remix) 07:12
+05. Dani Sbert - Filter (Original Mix) 07:37
+06. Figueroa, Obando - Riesling (Dubfire Remix) 13:27
+07. Karada, Pedro Mercado & Zoe Xenia - You Take Me There (Behind the Sun) 06:44
+08. Kiko - Moto (Original Mix) 06:54
+09. Lutzenkirchen - Do You Really (Original Mix) 06:33
+10. Mahan, Flo Mrzdk - Drums,Love, (   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82FA36E99D80C3B818BE39E08995DF19A70DFD9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 822765   (527482)
 
 Pulse One - Origins (2014) [FLAC|Lossless] <Techno>
@@ -27014,141 +27154,6 @@ Easy listening
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F69F5B12AEECEB922EFD34F17D889E1E8CE6F86
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1207057   (499476)
-
-VA - Running Electronica, Vol. 10 (For a Cool Rush of Blood to the Head) (2018) [MP3|320 Kbp
-Electronic
-House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1207057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5K Power-Run-Mix (continuous DJ mix 1) (30:35)
-02. 10K Power-Run-Mix (continuous DJ mix 2) (01:00:00)
-03. Spuri & Andre Bastos - Alika (original mix) (08:07)
-04. Jan Blomqvist - Winter Roads (04:51)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30054084E10B8F3930DFBD48866019B7F3A0380
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1107272   (499446)
-
-VA - Chill Top 50 - Armada Music (2017) [FLAC|Lossless|tracks] <Downtempo, Electronica, Instrume
-Electronic
-Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1107272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Moby - Why Does My Heart Feel So Bad  4:25
-02.  Mokita & CADE - Monopoly (Acoustic Version)  3:01
-03.  Sasha - Time After Time  4:53
-04.  Jan Blomqvist - Empty Floor  3:39(   Читать дальше...   )Жанр: Downtempo, Electronica, InstrumentalПродолжительность: 03:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44CFD597D9765A554E3C783193849E02A7E99AB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1107265   (499444)
-
-VA - Chill Top 50 - Armada Music (2017) [MP3|320 Kbps] <Downtempo, Electronica, Instrumental>
-Electronic
-Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1107265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Moby - Why Does My Heart Feel So Bad  4:25
-02.  Mokita & Cade - Monopoly (Acoustic Version)  3:01
-03.  Sasha - Time After Time  4:53
-04.  Jan Blomqvist - Empty Floor  3:39(   Читать дальше...   )Жанр: Downtempo, Electronica, InstrumentalПродолжительность: 03:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423285669CD7F4C071677314F3A9F275BA77FA69
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1107583   (499443)
-
-VA - Kamasutra Erotic and Sexy. Compilation Love Making Music Vol.4 (2017) [MP3|320 Kbps] <Downt
-Electronic
-Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1107583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Line - Chill Sensation
-02. Indian Dawn - Predictions
-03. Sweet Ocean - Soft Emotion
-04. Deep blue - Velvet Secrets(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0836ECD7C992392AE0B8E2FABDE3A0C94497F3FD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1207427   (499200)
-
-Lane 8 - Little By Little (2018) This Never Happened [FLAC|Lossless|tracks+.cue] <Deep House, Ho
-Electronic
-House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1207427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daya (06:21)
- 02. No Captain (feat. Poliça) (05:18)
- 03. Atlas (05:52)
- 04. Clarify (feat. Fractures) (04:02)(   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 00:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098194B75D1ADC8A386F7B0C01D220415915E175
 ```
 
 #Mybot  @nnmclub_mybot

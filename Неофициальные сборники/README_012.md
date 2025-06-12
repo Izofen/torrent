@@ -1,4 +1,31 @@
 
+###  Публикация: 1073946   (336327)
+
+VA - Ministry of Sounds - I Love The 90s (2016) [MP3|320 Kbps] <Eurodance, Nu-Disco, Garage Hous
+Неофициальные сборники
+Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1073946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gala - Freed From Desire 3:31
+02. Black Box - Ride On Time 4:32
+03. Corona - Rhythm Of The Night 3:31
+04. Culture Beat - Mr Vain 4:16(   Читать дальше...   )Жанр: Eurodance, Nu-Disco, Garage House, Techno,  Trip Hop, DanceПродолжительность: 03:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F33327C95F31D88F310AA3F62FCF818B081621
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1169019   (336308)
 
 VA - Under The Carpet (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
@@ -27170,33 +27197,6 @@ Electronic (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DD040E2689A534DD7A5449769E7E3065EF05BC8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1271473   (305727)
-
-VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
-Неофициальные сборники
-Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1271473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoundLift - Emperor Of China (Original Mix) 7:36
-02. The Swan & The Lake feat. Emil De Waal & Johan Liepstack - Portofino 7:21
-03. Steve Brian - Kyoto (Steve Brian Ocean Influence Mix) 5:21
-04. Moonnight - Love Is The Key (Original Mix) 4:32(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Orchestral, Cinematic, Acoustic, AmbientПродолжительность: 02:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
 ```
 
 #Mybot  @nnmclub_mybot

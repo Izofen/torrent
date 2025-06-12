@@ -1,4 +1,31 @@
 
+###  Публикация: 1244029   (367702)
+
+VA - Fun Disco Remix (2018) [MP3|320 Kbps] <Disco, Remix>
+Неофициальные сборники
+Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1244029.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chic - Le Freak
+002. EtzoWynd - Fabulous Night
+003. Half Waif - Keep It Out
+004. Jimmy Ross - Fall Into A Trance(   Читать дальше...   )Жанр: Disco, RemixПродолжительность: 09:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201C0FA93D93B21777D5A4F05DBAA6DE99F5AB00
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1054895   (367660)
 
 VA - Trance Anthemic Elements Nature (2016) [MP3|320 Kbps] <Trance, Tech Trance, Harmonic, Melod
@@ -26951,33 +26978,6 @@ VA - The Official UK Top 40 Singles Chart 02.11.2018 (2018) [MP3|320 Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64D7809DC8D5B89E55545D208D8362F244D40AAF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1073946   (336327)
-
-VA - Ministry of Sounds - I Love The 90s (2016) [MP3|320 Kbps] <Eurodance, Nu-Disco, Garage Hous
-Неофициальные сборники
-Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1073946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gala - Freed From Desire 3:31
-02. Black Box - Ride On Time 4:32
-03. Corona - Rhythm Of The Night 3:31
-04. Culture Beat - Mr Vain 4:16(   Читать дальше...   )Жанр: Eurodance, Nu-Disco, Garage House, Techno,  Trip Hop, DanceПродолжительность: 03:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F33327C95F31D88F310AA3F62FCF818B081621
 ```
 
 #Mybot  @nnmclub_mybot

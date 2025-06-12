@@ -1,4 +1,464 @@
 
+###  Публикация: 724515   (441475)
+
+Ундервуд - Самая красивая девушка в мире (2013) Maxi-CDS [FLAC|Lossless]<Rock, Indie Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01.  Слабонервный   (3:20)
+02.  Самая красивая девушка в мире   (3:42)
+03.  Колыбельная для тех, кто украл   (4:54)
+04.  Не плачь   (3:26)Жанр: Rock, Indie RockПродолжительность: 00:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EA95929B83AFDCB7318F60C292EE40D58C0A84
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1228970   (441430)
+
+Little Feat - Hoy-Hoy! (1981) [FLAC|Lossless|tracks + .cue] <Southern Rock, Boogie Rock>
+Rock, Alternative, Punk, Metal
+Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1228970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocket in My Pocket (Lowell George) 00:51
+02. Rock and Roll Doctor (Lowell George <3> Fred Martin) 03:13
+03. Skin It Back (Paul Barrére) 04:43
+04. Easy to Slip (Lowell George) 03:21(   Читать дальше...   )Жанр: Southern Rock, Boogie RockПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB021380DC0C99EB423D7D871BDB3D278B4C9DF3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 831812   (441388)
+
+Amederia - Unheard Prayer (2014) [MP3|320 кб<3>с]<Gothic Doom<3>Death Metal>
+Rock, Alternative, Punk, Metal
+Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_831812.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Eden
+2. Who We Are
+3. Loneliness In Heaven
+4. The Dance Of Two Swans
+5. Forbidden Love
+6. Angel<1>s Fall
+7. Together
+8. SunsetЖанр: Gothic Doom<3>Death MetalПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE2BD6F20ECDBE450EC4A2B9AEFF66BCB26D33F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 831897   (441387)
+
+Orange Goblin - Back From The Abyss (2014) Limited Edition [FLAC|Lossless]<Stoner Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_831897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabbath Hex
+02. Übermensch
+03. The Devils Whip
+04. Demon Blues
+05. Heavy Lies The Crown
+06. Into The Arms Of Morpheus
+07. Mythical Knives
+08. Bloodzilla
+09. The Abyss
+10. Titan(   Читать дальше...   )Жанр: Stoner MetalПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248293FE132BC4FA4ECE8FDA6412D68EF0A50977
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 831937   (441384)
+
+Vega - Stereo Messiah (2014) [MP3|320 кб<3>с]<Melodic Hard Rock>
+Rock, Alternative, Punk, Metal
+Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Messiah
+02. All Or Nothing
+03. Wherever We Are
+04. Ballad Of The Broken Hearted
+05. Gonna Need Some Love Tonight
+06. The Fall
+07. Neon Heart
+08. With Both Hands
+09. 10 X Bigger Than Love
+10. My Anarchy(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68D389E23AB875073EE240FFCC5539F02F1BA22
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 724678   (441373)
+
+Scorpions - In Trance (1975) BSCD2 <3>2013, Sony Music<3> [FLAC|Lossless]<Hard Rock>
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01.  Dark Lady   (3:32)
+02.  In Trance   (4:47)
+03.  Life<1>s Like A River   (3:53)
+04.  Top Of The Bill   (3:25)
+05.  Living And Dying   (3:24)
+06.  Robot Man   (2:48)
+07.  Evening Wind   (5:07)
+08.  Sun In My Hand   (4:24)
+09.  Longing For Fire   (2:44)
+10.  Night Lights   (3:16)Жанр: Hard RockПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26200F81F74417851D7AF13F815CEBA61C8EC837
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 724481   (441363)
+
+Линда - Лай, @! (2013) [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Они так... [3:50]
+02. Повесь меня [3:35]
+03. Интеллектуальная шлюха [3:23]
+04. Мозговые помехи [3:42]
+05. Прямо в Рай! [4:28]
+06. Отказ [3:12]
+07. Лай, собака [2:57]
+08. Крик [3:43]
+09. Паранойя [3:25]
+10. Черновики [3:28](   Читать дальше...   )Жанр: RockПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F262CB6D774ADD01F207F04F10FB3F42A9D8F6FC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1228965   (441323)
+
+Sleep - The Sciences (2018) [FLAC|Lossless|tracks + .cue] <Stoner, Doom Metal>
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1228965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sciences (3:03)
+02. Marijuanaut<1>s Theme (6:39)
+03. Sonic Titan (12:26)
+04. Antarcticans Thawed (14:23)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB36B037FFEE2CFAB04D0A4C5320381E43EF6E0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1228884   (441316)
+
+Japan - 7 Albums (1978-1991) [MP3|320 Kbps] <Electronic, Rock, Pop>
+Rock, Alternative, Punk, Metal
+Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1228884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская музыкальная группа, образовавшаяся в 1974 году в Люишеме, юго-восточном пригороде Лондона и оказавшая огромное влияние не только на пост-панк сцену, но и на всю дальнейшую музыку 80х. Первое время Japan исполняли глэм-рок, созвучный музыке Дэвида Боуи, New York Dolls и Roxy Music - исполнителей, с которыми их часто сравнивали, но впоследствии создали собственную (   Читать дальше...   )Список альбомов:
+1978 - Adolescent Sex
+1978 - Obscure Alternatives
+1979 - Quiet Life(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 05:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E16580E3CD6D6BD276869AACA1A9B20D36E457
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1228802   (441311)
+
+Michael Schinkel<1>s Eternal Flame - Smoke on the Mo (2018) [FLAC|Lossless|tracks + .cue] <Hard
+Rock, Alternative, Punk, Metal
+Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1228802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignition (Intro) (1:59)
+02. Smoke On The Mountain (feat. Mark Boals)(4:35)
+03. This Is My Life (3:59)
+04. Queen Of The Hill (4:47)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763712612648150601132B4D9B65FE0C56A44DB3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1229062   (441210)
+
+КняZz - Футбольная Россия (2018) Single [MP3|320 Kbps] <Rock>
+Rock, Alternative, Punk, Metal
+Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1229062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Футбольная РоссияЖанр: RockПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC073BEC045BEFC9B246005CA8AADDB11DD315C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1229058   (441195)
+
+Харизма - Стражи границ (2018) EP [MP3|320 Kbps] <Melodic Power Metal>
+Rock, Alternative, Punk, Metal
+Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1229058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стражи границ
+02. Главный исход
+03. Братья в бой
+04. Харизма(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADCE45191FCEB6A087C9E80A5401B7C079D8315
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 586764   (441178)
+
+Roger Taylor - 5 albums (1981-2013) [MP3|320 кб<3>с]<Rock>
+Rock, Alternative, Punk, Metal
+Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_586764.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:21) 01. One Night Stand
+(3:02) 02. Fight Club
+(3:09) 03. Be With You
+(4:24) 04. Quality Street
+(3:24) 05. I Don<1>t Care
+(3:37) 06. Sunny Day
+(2:44) 07. Be My Gal (My Brightest Spark)
+(2:46) 08. I Am the Drummer (In A Rock N<1>
+(3:50) 09. Small
+(4:58) 10. Say It<1>s Not True (Feat. Jeff(   Читать дальше...   )Продолжительность: 00:47:18
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1131973   (441155)
+
+Chris Norman - The Hits! From His Smokie And Solo Years (2009) Compilation, 2CD [FLAC|Lossless|i
+Rock, Alternative, Punk, Metal
+Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1131973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Battlefield (5:09)
+02. Mindnight Lady (4:11)
+03. Some Hearts Are Diamonds  (3:45)
+04. No Arms Can Ever Hold You (3:47)(   Читать дальше...   )Жанр: Pop-Rock |Продолжительность: 02:15:37 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561F985587ADD886E77E1F2E9A450C5C3B386AF2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 247104   (441118)
+
+Mike & The Mechanics - Hits (1996) [FLAC|Lossless]<Rock>
+Rock, Alternative, Punk, Metal
+Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_247104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1228969   (441075)
+
+Nightwish - Decades: An Archive Of Song 1996-2015 (2018) 2CD [FLAC|Lossless|image + .cue] <Symph
+Rock, Alternative, Punk, Metal
+Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. The Greatest Show On Earth
+02. Élan
+03. My Walden(   Читать дальше...   )Жанр: Symphonic Power Metal |Продолжительность: 02:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD0ACD1E3CA499C972D1DB47AA99DA4CADB5B0B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1132395   (441023)
 
 Браво - Бравоспектива (2017) 2CD [MP3|320 Kbps] <Rock>
@@ -28533,458 +28993,6 @@ Rock, Alternative, Punk, Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1EF77DA9EE39115B1A12CA95F8C4262FBC4DC96
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 842966   (410008)
-
-Bryan Adams - Reckless 30th Anniversary (Deluxe Edition) (2014) [MP3|320 кб<3>с]<Classic Roc
-Rock, Alternative, Punk, Metal
-Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Disc: 1
-
-1. One Night Love Affair
-2. She<1>s Only Happy When She<1>s Dancin<1>
-3. Run To You
-4. Heaven
-5. Somebody
-6. Summer Of <1>69
-7. Kids Wanna Rock
-8. It<1>s Only Love(   Читать дальше...   )Жанр: RockПродолжительность: 02:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91951CDBCEB97CE6DF8AFDD09546AE3FFDC75B26
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 584882   (409995)
-
-Ленинград - Вечерний Ленинград (2012) [MP3|320 кб<3>с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_584882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WWW (Instrumental)
-02. Любит наш народ (Instrumental)
-03. …мба (Instrumental)
-04. Вода (Instrumental)
-05. Супергуд (Instrumental)
-06. Нет и ещё раз нет (Instrumental)
-07. Рас…дяй (Instrumental)
-08. Терминатор (Instrumental)
-09. Без тебя …дец (Instrumental)
-10. Надоел (Instrumental)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F2C4E19011102BAF0F66147CD5A0C672EE26777
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 842815   (409970)
-
-Обе-Рек - Зажигалка (2014) [MP3|320 кб<3>с]<Rock>
-Rock, Alternative, Punk, Metal
-Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Золотая Рыбка
- 02. Полость
- 03. Крошево Времени
- 04. Социалка
- 05. Художник
- 06. Раздолбай
- 07. Птица-Память
- 08. Зажигалка
- 09. Лес
- 10. Накануне Тепла(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411B9F52A67D699FB4AB82C03A19152DA2255F71
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1145067   (409952)
-
-Depression - Die Dunkle Dimension (2015) [FLAC|Lossless|image + .cue] <Grindcore>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1145067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dark Dimension
-02. False Apologies
-03. Smiling While You Die
-04. Working In The Coalmine Pt. 1(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6227B46E2E950D498BCC00F2FCE1933BC79329
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1144950   (409941)
-
-Old Season - Beyond the Black (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1144950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Dawn
-02. Scavenger
-03. Chosen
-04. Elegy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACEEFDE50C3A7DF6EB75A5F14798BF087C0BB796
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1144964   (409897)
-
-Odroerir - Das Erbe Unserer Ahnen (Limited Edition) (2017) [FLAC|Lossless|image + .cue] <Pag
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1144964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abecedarium Nord 09:27
-02. Das Erbe Unserer Ahnen 07:29
-03. Thule 07:38
-04. Idisi 08:41(   Читать дальше...   )Жанр: Pagan FolkПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E66AA0DCF2567410D6A40FD06EA91BE12AA166
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1144848   (409880)
-
-Primal Fear - Angels Of Mercy: Live In Germany (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-Rock, Alternative, Punk, Metal
-Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1144848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown to Insanity
-02. Final Embrace
-03. In Metal We Trust
-04. Angel In Black(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97789184288F916309C9A519C3BDCA1BBC05BE30
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1042337   (409849)
-
-Dave Stewart & Barbara Gaskin - Up From the Dark (1986) [WavPack|Lossless|image + .cue] <Prog Ro
-Rock, Alternative, Punk, Metal
-Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1042337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Ллойд Стюарт - британский клавишник и композитор, известный по выступлениям в составе групп Кентерберийской сцены Uriel, Egg, Khan, Hatfield and the North и National Health. В 80-х Стюарт резко изменил направление своей деятельности и занялся поп-музыкой, <2>совратив и растлив<2>  :redface:  по ходу дела, бывшую бэк-вокалистку из Hatfield and the North (   Читать дальше...   )01. I<1>m In A Different World (4:16)
-02. Leipzig (4:21)
-03. It<1>s My Party (3:50)
-04. Lenina Crowe (4:54)(   Читать дальше...   )Жанр: Prog Rock, Art Rock, Pop-RockПродолжительность: 01:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777BFDF99AF640D69B3E24F589619EF1E2A511C0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1145255   (409809)
-
-Nitro - Nitro II: H.W.D.W.S. (Hot, Wet, Drippin<1> With Sweat) (1991) Reissue, 1992, Alfa In
-Rock, Alternative, Punk, Metal
-Hard Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1145255.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Want U
-2. Cat Scratch Fever
-3. Crazy Love
-4. Hot, Wet, Drippin<1> With Sweat(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA69EEE35407A9A555F12898FEF4413C5E9E594
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 930253   (409759)
-
-Buckcherry - Rock <1>N<1> Roll (2015) [OGG| 449-513 кб<3>с]<Alternative, Hard Rock, Post Grunge>
-Rock, Alternative, Punk, Metal
-Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_930253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring It On Back (03:31)
-02. Tight Pants (03:19)
-03. Wish To Carry On (03:23)
-04. The Feeling Never Dies (03:57)(   Читать дальше...   )Жанр: Alternative, Hard Rock, Post GrungeПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E4119B5EB646A2ECB4AED07839C14F475C378C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 930272   (409748)
-
-Buckcherry - F*ck (2014) EP [OGG| 481-542 кб<3>с]<Alternative, Hard Rock, Post Grunge>
-Rock, Alternative, Punk, Metal
-Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_930272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody F*cked With Me (03:44)
-02. Say F*ck It (02:55)
-03. Motherf*cker (03:08)
-04. I Don<1>t Give A F*ck (03:19)(   Читать дальше...   )Жанр: Alternative, Hard Rock, Post GrungeПродолжительность: 00:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C351961B486D70D6A9B9CEC3254805093C3DD0CD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 930237   (409746)
-
-7eventh Time Down - God Is on the Move (2015) [MP3|320 кб<3>с]<Alternative Modern Rock, Pop Rock
-Rock, Alternative, Punk, Metal
-Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_930237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Is On The Move
-02. Hopes And Dreams
-03. I Still Believe
-04. Lean On(   Читать дальше...   )Жанр: Alternative Modern Rock, Pop Rock, ChristianПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3318E0DAB26FFFFB110AC8788A189D6C56D145AA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 585857   (409724)
-
-Ian Paice and Forever Deep - Made in Verona (2010) [MP3|320 кб<3>с]<Hard Rock, Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_585857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway Star (7:26)
-02. Strange Kind Of Woman (9:40)
-03. When A Blind Man Cries (4:34)
-04. Lazy (11:50)
-05. The Mule (8:27)
-06. Child In Time (15:28)
-07. Woman From Tokio (Guitar Solo) (4:41)
-08. Smoke On The Water (7:49)
-09. Black Night (8:43)Жанр: Hard Rock, RockПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE324BB866E38966426494C26060FB24EB8AA8A6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1042394   (409692)
-
-Sonata Arctica - Closer to an Animal (2016) Single [MP3|320 Kbps] <Power Metal>
-Rock, Alternative, Punk, Metal
-Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1042394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer to an AnimalЖанр: Power MetalПродолжительность: 00:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CAC12AF70464A0B9F63A272E099A910EC4224B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1042493   (409691)
-
-Ocean Jet - The Word Never Dropped (2016) EP [MP3|320 Kbps] <Indie Rock, Electronic, Synthpop>
-Rock, Alternative, Punk, Metal
-Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1042493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Storm
-02. A Part of You
-03. Breaking the Stones
-04. Think I Know YouЖанр: Indie Rock, Electronic, SynthpopПродолжительность: 00:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFD3C4D2EF355D2EC4A0E11534FDEF4860B1711
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 930225   (409642)
-
-Lynch Mob - Rebel (2015) [MP3|320 кб<3>с]<Hard Rock>
-Rock, Alternative, Punk, Metal
-Hard Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_930225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automatic Fix
-02. Between The Truth And A Lie
-03. Testify
-04. Sanctuary(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400988C3FAB1DBAD4B5DDB15F220C681A0DFBE10
 ```
 
 #Mybot  @nnmclub_mybot

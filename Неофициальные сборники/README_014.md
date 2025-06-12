@@ -1,4 +1,31 @@
 
+###  Публикация: 1086738   (276878)
+
+VA - Big Love 20 от Love Radio (18.12.2016)  [MP3|320 Kbps] <Pop>
+Неофициальные сборники
+Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1086738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye
+02. Макс Барских - Туманы
+03. Elvira T - Такси
+04. DJ Snake feat. Justin Bieber -Let Me Love You(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4922AF7875716A044A377DD59E45853F9B6B3683
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1194296   (276856)
 
 VA - Корпоратив 2018 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Disco House, Dance,
@@ -26953,33 +26980,6 @@ Pop (сборники)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51D3E4D2E2AC8856C96D4AA09C70A79EC732DBD9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1334255   (245015)
-
-VA - Breaking From The Shadows: Electro House Dance Mix (2019) [MP3|320 Kbps] <Electro House>
-Неофициальные сборники
-Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1334255.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Subandrio - The Future Now
-002. Lezcano - Abraham (Original Mix)
-003. Infected Mushroom - Chenchen Barvaz
-004. Acay - Yoruba (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E310A2E1B03DB598436F0021D840E2FE45EDD34
 ```
 
 #Mybot  @nnmclub_mybot

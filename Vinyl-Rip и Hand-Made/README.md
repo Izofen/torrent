@@ -1,4 +1,57 @@
 
+###  Публикация: 1801410   (754065)
+
+Samael - Exodus (1998) (EP) Reissue, 2014, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801410.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Exodus
+A2 Tribes Of Caïn
+A3 Son Of Earth
+B1 Winter Solstice(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA43A92C43CA1A82120FB316C36DD3497DAD6A60
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1801251   (753987)
+
+Sanctorium - Studio Albums (3 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
+HD Audio и Многоканальная Музыка
+Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sanctorium - метал-группа из России, г. Санкт-Петербург. Музыканты черпают свое вдохновение в мифологии, различных легендах, истории древних цивилизаций, философии и мистике. Влияния: Draconian, Epica, Therion, Nightwish, Tristania, Within Temptation.2014 - The Depths Inside
+2017 - Tessellation Of The Universe
+2020 - OrnamentsЖанр: Symphonic Gothic MetalПродолжительность: 03:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9357AEA626BFB48D29C842601BE4D596717BA9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1800686   (753696)
 
 Umpfel - Studio Albums (2 releases) (2015-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock, Progressive Metal>
@@ -27677,66 +27730,6 @@ D1 Lost Angeles (15:43)(   Читать дальше...   )Жанр: Prog Rock<3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479E2828159FCC6CD945896F06F11F007B6148DE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 707446   (543264)
-
-Deep Forest - Deep Forest (1993) Promo<3>Holland [FLAC 2.0 24<3>192|image (Vinyl-Rip)]<World
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Deep Forest (пер. с англ. дремучий лес) - музыкальная группа, состоящая из двух французских музыкантов, Эрика Муке и Мишеля Санчеса. Они пишут музыку в новом стиле world music, иногда называемом этно-электроника, микшируя этнические и электронные звуки, а также танцевальные биты или чил-аут биты. Фактически музыканты Deep Forest единолично создали столь популярный сегодня стиль world music, приоритет в котором ошибочно отдают Питеру Гэбриэлу и Майку Олдфилду. Deep Forest первым среди тяготеющих к рок-этносу групп придал прежде пунктирным и хаотическим «вкраплениям» элементов world music законченную, совершенную форму, эталоном которой можно считать выдающийся хит группы «Sweet Lullaby».A1.  Deep Forest  :: 05:35
-A2.  Sweet Lullaby  :: 03:54
-A3.  Hunting  :: 03:27
-A4.  Night Bird  :: 04:17
-A5.  The First Twilight  :: 03:19
-A6.  Savana Dance  :: 04:20
-B1.  Desert Walk  :: 05:15
-B2.  White Whisper  :: 05:46
-B3.  The Second Twilight  :: 03:00
-B4.  Sweet Lullaby (Ambient Mix)  :: 03:48(   Читать дальше...   )Жанр: World Music, Tribal, AmbientФормат: Vinyl, Promo LP, AlbumПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FC4DBB9C5DDE56328E74B2C2D8D6DEBE9DEC3C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1027018   (542765)
-
-VA - Архив Популярной Музыки 1-12 (1988-1990) [FLAC 2.0|96<3>24|image+.cue|Vinyl-Rip] <Rock-n-Ro
-HD Audio и Многоканальная Музыка
-Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1027018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Она Мило Улыбнулась · She Smiled Sweetly
-02. Соединение · Connection
-03. Вчерашние Газеты · Yesterday<1>s Papers
-04. Серьезная, Спокойная И Собранная · Cool, Calm And Collected(   Читать дальше...   )Жанр: Rock-n-Roll, Hard Rock, Pop Rock, SoulПродолжительность: 08:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B9A12060A1FA9D892B95D145EAE4122F73D695
 ```
 
 #Mybot  @nnmclub_mybot

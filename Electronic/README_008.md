@@ -1,4 +1,139 @@
 
+###  Публикация: 1240241   (380391)
+
+VA - Pr Records Label Group Presents Beach Party Vibes (2018) [MP3|320 Kbps] <House, Electro Hou
+Electronic
+House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1240241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bayamo & Cielle - Hot Stuff (Interphace Radio) 3:28
+02. Newman Project - Make Some F Noise (Radio) 3:34
+03. Sommarpojkarna - Efterfest (Radio) 3:51
+04. Patrik Remann & Avini - The Sky 2018 (Original Mix) 3:17(   Читать дальше...   )Жанр: House, Electro House, BigRoom, Progressive HouseПродолжительность: 02:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DCE75D2770E366ED27424F377A06D1183AB091
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1240223   (380390)
+
+Alan Fitzpatrick - System Addict (2018) Unknown To The Unknown [FLAC|Lossless|WEB-DL|tracks] <Te
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1240223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System Addict (8:43)
+02. Hold the Ripper (5:09)
+03. In Excess (6:32)
+04. In Excess (6:23) (Falcon Black Ops Remix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1787A5799C1CBBC044C511CD5AA73F90B575F51
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1240224   (380387)
+
+VA - OHM (2018) Ambidextrous Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid, Tech House, Te
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1240224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christ. - Rom (03:46)
+ 02. Norken & _Nyquist - Od Detot (05:31)
+ 03. Solipsism - Vice Is Nice (06:03)
+ 04. _Nyquist - Fornax (05:09)(   Читать дальше...   )Жанр: Techno, Acid, Tech House, Techno AmbientПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3DF2A30AA1ABD81956D6D8F228CE6DF95B8C0A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1240227   (380386)
+
+VA - Realm Of Consciousness Pt. III (2018) Afterlife [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech
+Electronic
+House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1240227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tale Of Us - Nova (07:23)
+ 02. Agents Of Time - Paradigm (06:10)
+ 03. Recondite & Henrik Schwarz - Motion (06:08)
+ 04. Ovend - Nuits Fauves (09:05)(   Читать дальше...   )Жанр: Techno, Tech House, TranceПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34E34C8BEB41ADF74B6BFE8D26552AECA5C0FAE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1240243   (380385)
+
+VA - Top 50 Drops Summer <1>18 (2018) [MP3|320 Kbps] <House, Future House, Groove, Jackin, Tech
+Electronic
+House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1240243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Momentums - Love By You (Original Mix) 3:45
+02. Kid Williams - Shimmy Yam, Shimmy Yay (Dub Mix) 4:13
+03. Patrick Richmond - I<1>m Losing Control (Original Mix) 4:32
+04. Justin Berger - Ohh My (Original Mix) 3:44(   Читать дальше...   )Жанр: House, Future House, Groove, Jackin, Tech HouseПродолжительность: 03:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303DDC3C85CA1D4A385B22C12305B77F48B6002B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1240245   (380384)
 
 VA - Ibiza Club Sounds Vol.2 (2018) [MP3|320 Kbps] <House, Electro House, BigRoom, Progressive H
@@ -26946,141 +27081,6 @@ House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B843A7DA3B9890710476349B61AA69D3F67E714D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1168855   (339040)
-
-VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
-Electronic
-House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1168855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ VoJo — Lost in Sea (Original Mix) 05:16
-02. Oblomov — River of my Love (Original Mix) 04:13
-03. Bobryuko — Hover (Original Mix) 05:20
-04. Ver$us Beatz — You My Novocaine (Original Mix) 05:12(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BED3562F4AB1937AE18D9994835ADC0B411CC2F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1168895   (338979)
-
-Rahul Sharma & Richard Clayderman - Milap (2017) [FLAC|Lossless|tracks] <Easy Listening, Instrum
-Electronic
-Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1168895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance of the Sufis
-02. A Pure Flame of Love
-03. Endless Love (Duet Version)
-04. The Chaser(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2370C8C1B839B9F0B8025020B596D7470A44C89F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1168839   (338971)
-
-Richard Clayderman - Movie Favourites (2017) [FLAC|Lossless|tracks] <Easy Listening>
-Electronic
-Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1168839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Story (From Love Story) (03:00)
-02. Chariots Of Fire (From Chariots Of Fire) (02:58)
-03. Merry Christmas Mr Lawrence (From Merry Christmas Mr Lawrence) (03:17)
-04. Flashdance (What A Feeling) (From Flashdance) (02:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04328B8F179328651AA30A046CB02B7BC35F0105
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1168567   (338967)
-
-VA - Kosmological Conspiracy (2017) LP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-Electronic
-Drum<1>n<1>Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1168567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loucura & Dailiv - The Harsh Reality (06:30)
- 02. Vortex Involute - Levity (05:52)
- 03. Electrosoul System & Liquitek - The Pillars Of Creation (07:43)
- 04. NClear & Triple Sky - Landmark (04:53)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD1E9463BA028F4324099FFBA5D2310982AE658
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1168779   (338913)
-
-VA - Black Hole Presents Best Of Vocal Trance Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Voc
-Electronic
-Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1168779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cosmic Gate & JES - Fall Into You (Sunny Lax Remix)  5:58
-02.  Markus Schulz - In The Night (feat. Brooke Tomlinson) (4 Strings Remix)  5:19
-03.  Artisan - Thank You (feat. Anki) (Extended Mix)  5:18
-04.  Planet Perfecto - Bullet In The Gun (Timelapse By Marco V Remix)  5:07(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9238B3B8585A271B017FD9AAFDBB156F152DB96B
 ```
 
 #Mybot  @nnmclub_mybot
