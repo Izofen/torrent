@@ -25878,7 +25878,7 @@ magnet:?xt=urn:btih:564284DA6D68156F116BC5C92BCA2AA57D3DE1A2
 
 ###  Публикация: 1701293   (697983)
 
-Дэвид Дэй <3> David Day | Герои Толкина <3> The Heroes of Tolkien (2020) [PDF]
+Дэвид Дэй   David Day | Герои Толкина   The Heroes of Tolkien (2020) [PDF]
 
 
 >>Научная и техническая литература

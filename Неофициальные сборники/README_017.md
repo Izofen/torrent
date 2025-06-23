@@ -1,4 +1,91 @@
 
+###  Публикация: 1393387   (166999)
+
+VA - Panorama: The Grand Lounge Sounds (2020) [MP3|320 Kbps] <Lounge, Downtempo, Ambient>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1393387.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capa - Freezing Moon
+002. Kevin Jenkins - So Many Hopes
+003. Arrojas - Nos Trilhos
+004. Boyce Peters - Full Time(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 08:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B515D717081C26819964CC5BF9E733D1176C143C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1393545   (166957)
+
+VA - Beach Trips (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1393545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Helmut Ebritsch - Dreamgarden
+002. Fejkб - Incision
+003. Cage 76 - Names Doesn<1>t Matter
+004. Fantastic Man - Lather Of Heaven(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 09:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95C80EC9C841B494FB55A1C5FA0B91ED2E0736D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1393548   (166956)
+
+VA - Beatport Uplifting Trance: Electro Sound Pack #118 (2020) [MP3|320 Kbps] <Uplifting, Vocal
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1393548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Knife - Cry From The Heart
+02. Simonini - Chemical Spill
+03. Independent Art - Legacy
+04. Misja Helsloot - Higher(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 08:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5020D0FB91A2FBDF2FEC8936F14CCA9230A16F52
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1393377   (166955)
 
 VA - Birds In The Windows (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
@@ -72,7 +159,7 @@ VA - Music for You vol.9 (2020) [MP3|320 Kbps] <Progressive Metal>
 
 ###  Подробнее
 
-01. Caligula<1>s Horse  - Valkyrie (05:06)
+01. Caligula s Horse  - Valkyrie (05:06)
  02. Deceptic - Ocean (04:36)
  03. Lost in Thought - Seek to Find (05:15)
  04. Pyramaze - Disciples of the Sun (04:12)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 06:38:45
@@ -929,7 +1016,7 @@ magnet:?xt=urn:btih:FB41CEE02D3BDFB842AE49D7F902E8E107B656E9
 
 ###  Публикация: 1531758   (165211)
 
-VA - 80<1>s Synthpop (2022) [MP3|320 Kbps] <Synthpop, New wave>
+VA - 80 s Synthpop (2022) [MP3|320 Kbps] <Synthpop, New wave>
 
 
 >>Неофициальные сборники
@@ -1262,7 +1349,7 @@ VA - German Top 100 Single Charts 03.07.2020 [MP3|320 Kbps] <Pop>
 ###  Подробнее
 
 01. The Rolling Stones - Living In A Ghost Town
-02. Miksu <3> Macloud - XXL (feat. Summer Cem, Luciano, Jamule)
+02. Miksu   Macloud - XXL (feat. Summer Cem, Luciano, Jamule)
 03. Jawsh 685, Jason Derulo - Savage Love (Laxed - Siren Beat)
 04. UFO361 - Emotions(   Читать дальше...   )Жанр: PopПродолжительность: 04:53:34
 
@@ -1435,9 +1522,9 @@ VA - Beatport Electro House: Sound Pack #409 (2022) [MP3|320 Kbps] <Electro Hous
 
 ###  Подробнее
 
-Beatport - одна из самых популярных  медиа площадок, не перестает радовать своих почитателей музыкальными новинками. Вот и на этот раз она преподносит нам <2>подарок<2> в виде 409-го релиза электро саунда - микс самых известных композиций клубного электро хауса со всего мира.001. Bt - Confunktion
+Beatport - одна из самых популярных  медиа площадок, не перестает радовать своих почитателей музыкальными новинками. Вот и на этот раз она преподносит нам  подарок  в виде 409-го релиза электро саунда - микс самых известных композиций клубного электро хауса со всего мира.001. Bt - Confunktion
 002. James Monro - Solid State
-003. Gianfranco Echandia - Morning It<1>s Coming
+003. Gianfranco Echandia - Morning It s Coming
 004. Antic - Punch Drunk(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:59:34
 
 ## Скачать торент
@@ -1522,7 +1609,7 @@ VA - Beatport Chill Electronic: Sound Pack #405 (2022) [MP3|320 Kbps] <Electroni
 
 ###  Подробнее
 
-Целительные силы музыки способны пробудить в человеке его скрытый потенциал, который не используется по одной простой причине – для нормальной, привычной жизни этот скрытый потенциал не особенно то и нужен, но становится необходим в том случае, когда обычная жизнь заводит в тупик и обычных усилий преодолеть <2>подарки судьбы<2> уже не хватает.001. Maarja Nuut Ja Ruum - Cloths Of Heaven
+Целительные силы музыки способны пробудить в человеке его скрытый потенциал, который не используется по одной простой причине – для нормальной, привычной жизни этот скрытый потенциал не особенно то и нужен, но становится необходим в том случае, когда обычная жизнь заводит в тупик и обычных усилий преодолеть  подарки судьбы  уже не хватает.001. Maarja Nuut Ja Ruum - Cloths Of Heaven
 002. Cashminus - Paradise
 003. Edvard Hunger - Seems All Is Great
 004. Neutron 9000 - She Trails Flowers(   Читать дальше...   )Жанр: Electronic, Chillout, Synth RelaxationПродолжительность: 08:46:10
@@ -1841,7 +1928,7 @@ VA - National Pop Dance Music (Vol.31) (2022) [MP3|320 Kbps] <Pop, Dance>
 
 ###  Подробнее
 
-Представляем Вам новый очередной 31-й сборник <2>National Pop Dance Music<2>, в котором вы сможете отыскать самые лучшие и самые признанные хиты европейской популярной национальной музыки текущего месяца. Только самая качественная танцевальная музыка зимнего сезона ждет Вас на треках позитивного лонгплея!001. Kondi Band - We Famous
+Представляем Вам новый очередной 31-й сборник  National Pop Dance Music , в котором вы сможете отыскать самые лучшие и самые признанные хиты европейской популярной национальной музыки текущего месяца. Только самая качественная танцевальная музыка зимнего сезона ждет Вас на треках позитивного лонгплея!001. Kondi Band - We Famous
 002. Clueso - 37 Grad Im Paradies
 003. Wildbach Trio - Mein Gruss
 004. Mickie Krause - Ein Tor(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:27:44
@@ -1957,7 +2044,7 @@ VA - Friday Funky House (2022) [MP3|320 Kbps] <Electro Disco, Nu Disco, Funky Ho
 
 ###  Подробнее
 
-Заряжайтесь позитивом и яркими эмоциями с музыкой танцевального сборника под наименованием <2>Friday Funky House<2>. Микс, сочетающий в своем творчестве танцевальную электронику с живым вокалом, и всё это - под соусом лёгких попсовых текстов с узнаваемыми нотками старого доброго диско.001. Next Door But One - From My Window
+Заряжайтесь позитивом и яркими эмоциями с музыкой танцевального сборника под наименованием  Friday Funky House . Микс, сочетающий в своем творчестве танцевальную электронику с живым вокалом, и всё это - под соусом лёгких попсовых текстов с узнаваемыми нотками старого доброго диско.001. Next Door But One - From My Window
 002. Jason Parker - Disco Disc
 003. Mark Funk & Danny Cruz - Good Lovin
 004. Daniele Danieli - All Alone(   Читать дальше...   )Жанр: Electro Disco, Nu Disco, Funky HouseПродолжительность: 10:12:43
@@ -2016,7 +2103,7 @@ VA - Late Night Mood (2020) [MP3|320 Kbps] <Pop, R&B, House>
 ###  Подробнее
 
 1. Naji - Might Just (2:52)
-2. H.E.R. - Could<1>ve Been (4:08)
+2. H.E.R. - Could ve Been (4:08)
 3. Tora - Escape Room (3:21)
 4. The Internet - Girl (6:55)(   Читать дальше...   )Жанр: Pop, R&B, HouseПродолжительность: 03:41:04
 
@@ -2334,7 +2421,7 @@ VA - Formed Of Clay (2022) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
 
 ###  Подробнее
 
-:Если вам симпатизирует авторский креативный полет души, и вы без опасения приемлете чрезвычайно разную музыку и при том цените качество и профессионализм, то убедительно рекомендуем обратить внимание на релиз <2>Formed Of Clay<2> и вы не останетесь разочарованы.001. Urfaust - Vom Freien Tode
+:Если вам симпатизирует авторский креативный полет души, и вы без опасения приемлете чрезвычайно разную музыку и при том цените качество и профессионализм, то убедительно рекомендуем обратить внимание на релиз  Formed Of Clay  и вы не останетесь разочарованы.001. Urfaust - Vom Freien Tode
 002. K2 - Bad Luck Attitude
 003. Stormruler - Culling Of The Blood Moon
 004. Ishvara - Shape Of A Void To Come(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 10:23:47
@@ -2597,7 +2684,7 @@ VA - Vintage Reggae Cafe: Hits Collection (2022) Presents Elgujakviso [MP3|320 K
 
 001 Natty Bong - Blue Jeans
 002 Sublime Reggae Kings - Human
-003 The Reggister<1>s & Melizza - Back to Black
+003 The Reggister s & Melizza - Back to Black
 004 Stereo Dub & Lila Liu - Set Fire to the Rain(   Читать дальше...   )Жанр: ReggaeПродолжительность: 05:05:12
 
 ## Скачать торент
@@ -2829,8 +2916,8 @@ VA - Pop Remix NNM (2022) [MP3|320 Kbps] <Pop>
 
 001. Lana Del Rey, Imanbek - Summertime (4:25)
 002. Faithless, Suli Breaks, Jazzie B., MEDUZA - Innadadance (Edit) (6:07)
-003. Bee Gees, SG Lewis - More Than A Woman - SG<1>s Paradise Edit (5:57)
-004. Halsey - I am not a woman, I<1>m a god - Hot Chip Remix (4:48)(   Читать дальше...   )Жанр: PopПродолжительность: 05:26:55
+003. Bee Gees, SG Lewis - More Than A Woman - SG s Paradise Edit (5:57)
+004. Halsey - I am not a woman, I m a god - Hot Chip Remix (4:48)(   Читать дальше...   )Жанр: PopПродолжительность: 05:26:55
 
 ## Скачать торент
 ```bash
@@ -3929,9 +4016,9 @@ VA - Acoustic Chill by Deezer (2020) [MP3|320 Kbps] <Rock, R&B, Soul & Funk>
 
 ###  Подробнее
 
-1. Billie Eilish - when the party<1>s over (3:19)
+1. Billie Eilish - when the party s over (3:19)
 2. Highland Peak - Trampoline (Acoustic) (3:33)
-3. Red Hot Chili Peppers - Road Trippin<1> (3:24)
+3. Red Hot Chili Peppers - Road Trippin  (3:24)
 4. Jorja Smith, Burna Boy - Be Honest (Acoustic) (3:11)(   Читать дальше...   )Жанр: Rock, R&B, Soul & FunkПродолжительность: 03:46:11
 
 ## Скачать торент
@@ -4016,7 +4103,7 @@ VA - Compilation Part 6 (2022) [MP3|320 Kbps] <Rock>
 
 ###  Подробнее
 
-01. I<1>m All Right (You Can<1>t See
+01. I m All Right (You Can t See
 02. Got My Life
 03. Time
 04. Love That Hurts(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:00
@@ -4123,7 +4210,7 @@ VA - Mysterium Desert (2020) 2CD [MP3|320 Kbps] <Enigmatic, New age>
 
 
 >>Неофициальные сборники
->>Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
+>>Instrumental New Age Meditative Relax (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1396187.jpg" />
@@ -4133,8 +4220,8 @@ VA - Mysterium Desert (2020) 2CD [MP3|320 Kbps] <Enigmatic, New age>
 ###  Подробнее
 
 01. Dead Can Dance - Opium
-02. Musique De Film - Tubular Bells (Tire Du Film <2>L<1>exorciste<2>)
-03. Johann Johannsson - It<1>s Not Your Fault
+02. Musique De Film - Tubular Bells (Tire Du Film  L exorciste )
+03. Johann Johannsson - It s Not Your Fault
 04. Danny Baranowsky - The Binding of Isaac(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 10:45:55
 
 ## Скачать торент
@@ -4628,7 +4715,7 @@ VA - NOW Yearbook Extra 1983 (2021) 3CD [MP3|320 Kbps] <Pop, Rock>
 CD1
 01. Wham! - Wham Rap! (Enjoy What You Do?)
 02. Paul McCartney, Michael Jackson - Say Say Say
-03. Elton John - I Guess That<1>s Why They Call It The Blues(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:12:15 hrs
+03. Elton John - I Guess That s Why They Call It The Blues(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:12:15 hrs
 
 ## Скачать торент
 ```bash
@@ -5640,9 +5727,9 @@ Enigma - The Story Of The Fall Of A Rebel Angel (2018) RUS Compilation [MP3|320 
 
 ###  Подробнее
 
-01 - The Story Of <1>Circle Eight (00:00)
+01 - The Story Of  Circle Eight (00:00)
 02 - Circle Eight (Feat. Nanuk) (00:56)
-03 - The Story Of <1>The Omega Point (03:14)
+03 - The Story Of  The Omega Point (03:14)
 04 - The Omega Point (04:59)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:06:13
 
 ## Скачать торент
@@ -6017,7 +6104,7 @@ VA - The Core Time (2022) [MP3|320 Kbps] <Hard Rock, Metal, Core>
 
 ###  Подробнее
 
-Хардовой рок-н-ролльной отвязности, грохочущих ритмов, <2>жирных<2> гитар, кричащего вибрирующего вокала, умения раскачать аудиторию - все это вы найдете изрядное количество на треках сборника под названием <2>The Core Time<2>.001. Iqonde - Marabù
+Хардовой рок-н-ролльной отвязности, грохочущих ритмов,  жирных  гитар, кричащего вибрирующего вокала, умения раскачать аудиторию - все это вы найдете изрядное количество на треках сборника под названием  The Core Time .001. Iqonde - Marabù
 002. Blaze Bayley - The Unstoppable Stephen Hawking
 003. Odd Dimension - The Supreme Being
 004. Axewitch - Violator(   Читать дальше...   )Жанр: Hard Rock, Metal, CoreПродолжительность: 08:21:55
@@ -6046,7 +6133,7 @@ VA - Electro Bass Exotic Style (2022) [MP3|320 Kbps] <Drum & Bass, Bassline, Dub
 
 ###  Подробнее
 
-Музыкальный арсенал под названием <2>Electro Bass Exotic Style<2>, который поможет создать настоящее безумие на танцполе. Лонгплей содержит целых 150 потрясающих треков, предлагая все необходимое для создания плей-стрима в стиле Drumsound . Вы найдете здесь грохочущие бас-линии, пробивные ритм биты, ошеломляющие Jungle пресеты и многое другое.001. Feint - Silent Light
+Музыкальный арсенал под названием  Electro Bass Exotic Style , который поможет создать настоящее безумие на танцполе. Лонгплей содержит целых 150 потрясающих треков, предлагая все необходимое для создания плей-стрима в стиле Drumsound . Вы найдете здесь грохочущие бас-линии, пробивные ритм биты, ошеломляющие Jungle пресеты и многое другое.001. Feint - Silent Light
 002. Nick The Lot - After Party
 003. Audio - Sanctuary
 004. Change Of Pace - Methuselah(   Читать дальше...   )Жанр: Drum & Bass, Bassline, Dubstep, Electro Bass, JungleПродолжительность: 11:53:11
@@ -6278,7 +6365,7 @@ VA - Summer Chillout: Distant Places Relax Mix (2022) [MP3|320 Kbps] <Chillout, 
 
 ###  Подробнее
 
-Отправляясь в путешествие возьмите с собой сборник релакс-музыки с летним названием <2>Summer Chillout: Distant Places Relax Mix<2>. Встречайте рассвет, любуйтесь зеленой долиной с высоты горного утёса или медитируйте на берегу моря под вдохновляющие мелодии лонгплея.001. Engtanz - Path Of Virtue
+Отправляясь в путешествие возьмите с собой сборник релакс-музыки с летним названием  Summer Chillout: Distant Places Relax Mix . Встречайте рассвет, любуйтесь зеленой долиной с высоты горного утёса или медитируйте на берегу моря под вдохновляющие мелодии лонгплея.001. Engtanz - Path Of Virtue
 002. Soft Drink - Meet Dubai
 003. Suduaya - Green Tara
 004. Asteroid - The Light In The Shadow(   Читать дальше...   )Жанр: Chillout, Lounge, Relax, DowntempoПродолжительность: 09:06:18
@@ -6307,7 +6394,7 @@ VA - The Best In EDM: Dance House Mixtape (2022) [MP3|320 Kbps] <EDM, Dance, Clu
 
 ###  Подробнее
 
-Предлагаемая коллекция модной танцевальной музыки поможет не заснуть на работе и отдохнуть после неё, а также безупречно украсит Вашу вечеринку у друзей или тусовку на даче. Ищите для себя новых звёзд с популярным сборником <2>The Best In EDM<2>. Жизнеутверждающие мелодии, клубная музыка и самые ротируемые треки с радиостанций – всё, мимо чего нельзя пройти (   Читать дальше...   )001. Twoseven - Blurry
+Предлагаемая коллекция модной танцевальной музыки поможет не заснуть на работе и отдохнуть после неё, а также безупречно украсит Вашу вечеринку у друзей или тусовку на даче. Ищите для себя новых звёзд с популярным сборником  The Best In EDM . Жизнеутверждающие мелодии, клубная музыка и самые ротируемые треки с радиостанций – всё, мимо чего нельзя пройти (   Читать дальше...   )001. Twoseven - Blurry
 002. Lahox - Feel This Way
 003. Albert Breaker - Childhood
 004. Double Pleasure - Flowerchild(   Читать дальше...   )Жанр: EDM, Dance, Club, HouseПродолжительность: 07:41:45
@@ -7003,7 +7090,7 @@ VA - Tropical Jungle Club (2021) [MP3|320 Kbps] <Drum & Bass, Jungle>
 
 ###  Подробнее
 
-001. Dynamite MC - It<1>s Just What Lovers Do
+001. Dynamite MC - It s Just What Lovers Do
 002. Amplify - Omg
 003. Brusten - In Motion
 004. Fushara - The Rave(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 08:08:28
@@ -7135,7 +7222,7 @@ magnet:?xt=urn:btih:78F7C734FAADFAE33CAEBE4A8194E2B9102F83DA
 
 ###  Публикация: 494141   (157415)
 
-VA - Trance In Motion vol 001-281 (2009-2019) [MP3|~182-320 кб<3>с]<Trance, Vocal Trance, Progre
+VA - Trance In Motion vol 001-281 (2009-2019) [MP3|~182-320 кб с]<Trance, Vocal Trance, Progre
 
 
 >>Неофициальные сборники
@@ -7148,7 +7235,7 @@ VA - Trance In Motion vol 001-281 (2009-2019) [MP3|~182-320 кб<3>с]<Trance, V
 
 ###  Подробнее
 
-01. Dirkie Coetzee - Adagio For S<1>trings (Extended Mix)
+01. Dirkie Coetzee - Adagio For S trings (Extended Mix)
 02. Exouler - Maria (Extended Mix)
 03. Driftmoon - New Dawn (Extended Mix)
 04. Shedona - Anubis (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 402:59:18
@@ -7526,7 +7613,7 @@ Kaleo - Compilation (2022) [MP3|320 Kbps] <Rock, Post-Rock>
 ###  Подробнее
 
 01. Way Down We Go
-02. Into My Mother<1>s Arms
+02. Into My Mother s Arms
 03. Broken BonesЖанр: Rock, Post-RockПродолжительность: 00:48:39
 
 ## Скачать торент
@@ -9668,7 +9755,7 @@ VA - Blaze: Rap & Hip Review (2022) [MP3|320 Kbps] <Hip Hop, Rap>
 
 ###  Подробнее
 
-Темы рэп-песен первоначально были довольно ограниченными - наркотики, криминал, путь к нехитрому бандитскому успеху. Однако после того, как этот жанр стал перебираться из нелегальных подвалов на официальную сцену, многие музыканты, не имеющие отношения к подобным вещам, стали использовать элементы рэпа в своих аранжировках.001. Pink Siifu - Spades<1>
+Темы рэп-песен первоначально были довольно ограниченными - наркотики, криминал, путь к нехитрому бандитскому успеху. Однако после того, как этот жанр стал перебираться из нелегальных подвалов на официальную сцену, многие музыканты, не имеющие отношения к подобным вещам, стали использовать элементы рэпа в своих аранжировках.001. Pink Siifu - Spades 
 002. Ion Miles - Atzenmodus
 003. Junk33 - Deception
 004. Becko - Cyberfriend(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 10:27:15
@@ -9800,7 +9887,7 @@ magnet:?xt=urn:btih:2129877DB23C6E5AF5EBB4CD52CF74DAC12CE702
 
 ###  Публикация: 1536950   (154575)
 
-VA - 80<1>s One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
+VA - 80 s One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
 
 
 >>Неофициальные сборники
@@ -9815,8 +9902,8 @@ VA - 80<1>s One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
 
 01. Soft Cell - Tainted Love
 02. Don Henley - The Boys Of Summer
-03. Michael Sembello - Maniac (From <2>Flashdance<2>)
-04. Bobby McFerrin - Don<1>t Worry Be Happy(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 03:50:02 hrs
+03. Michael Sembello - Maniac (From  Flashdance )
+04. Bobby McFerrin - Don t Worry Be Happy(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 03:50:02 hrs
 
 ## Скачать торент
 ```bash
@@ -10874,7 +10961,7 @@ magnet:?xt=urn:btih:24455E3E194021582994AC377F6963E7EED09B25
 
 ###  Публикация: 1399733   (153125)
 
-VA - Hits of My Soul Vol. 58 (2018) [MP3|320 кб<3>с]<House, Progressive House>
+VA - Hits of My Soul Vol. 58 (2018) [MP3|320 кб с]<House, Progressive House>
 
 
 >>Неофициальные сборники
@@ -10968,7 +11055,7 @@ VA - The LoungLegends play Barry Manilow (2011) [MP3|320 kbps]<Easy Listening, I
 
 
 >>Неофициальные сборники
->>Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
+>>Instrumental New Age Meditative Relax (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_359875.jpg" />
@@ -11264,7 +11351,7 @@ VA - Kings Of Improvisation (Vol. 02) (2020) [MP3|320 Kbps] <Jazz, Instrumental,
 
 ###  Подробнее
 
-001. Thelonious Monk - <1>round Midnight
+001. Thelonious Monk -  round Midnight
 002. Aurora Clara - Aktur
 003. Jazz Sabbath - Fairies Wear Boots
 004. Ilkka Arola Sound Tagine - Leadershipping(   Читать дальше...   )Жанр: Jazz, Instrumental, Smooth JazzПродолжительность: 11:19:48
@@ -11322,7 +11409,7 @@ VA - NME Essential Synthpop Hits (2022) [MP3|320 Kbps] <Synthpop, Electropop, Da
 
 ###  Подробнее
 
-В окно уже стучится весна, просыпается природа, проскальзывают тёплые, солнечные лучики. Первое пробуждение от всего спящего, немного заторможенного, новые краски жизни, новые эмоции и новые впечатления. Именно под это весеннее настроение прекрасно гармонирует музыка сборника под названием <2>NME Essential Synthpop Hits<2>.001. Grape Milk - Jellyfish Murder Spree
+В окно уже стучится весна, просыпается природа, проскальзывают тёплые, солнечные лучики. Первое пробуждение от всего спящего, немного заторможенного, новые краски жизни, новые эмоции и новые впечатления. Именно под это весеннее настроение прекрасно гармонирует музыка сборника под названием  NME Essential Synthpop Hits .001. Grape Milk - Jellyfish Murder Spree
 002. Flux Pavilion - Partial Fugue In B Minor
 003. Hot Chip - Hand Me Down Your Love
 004. Yello - Rush For Joe(   Читать дальше...   )Жанр: Synthpop, Electropop, DanceПродолжительность: 07:05:44
@@ -11410,7 +11497,7 @@ VA - 80s Rock Hits (2021) [MP3|320 Kbps] <Rock>
 ###  Подробнее
 
 001. Billy Idol - Dancing With Myself (5:59)
-002. Cinderella - Nobody<1>s Fool (4:47)
+002. Cinderella - Nobody s Fool (4:47)
 003. U2 - Pride (In The Name Of Love) - Remastered 2009 (3:48)
 004. Iron Maiden - Run to the Hills - 1998 Remastered Version (3:53)(   Читать дальше...   )Жанр: RockПродолжительность: 07:42:50
 
@@ -11632,7 +11719,7 @@ VA - Dream Collection. Vol.1 (1996-1999) [MP3|192-320 kbps]<Dream dance>
 
 
 >>Неофициальные сборники
->>Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
+>>Instrumental New Age Meditative Relax (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_192997.jpg" />
@@ -11949,7 +12036,7 @@ Ernesto Cortazar - Compilation part 3 (2022) [MP3|320 Kbps] <Easy Listening, Ins
 
 
 >>Неофициальные сборники
->>Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
+>>Instrumental New Age Meditative Relax (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1537883.jpg" />
@@ -11974,7 +12061,7 @@ magnet:?xt=urn:btih:5EFC6B744A68612502B720020CDAD95556CD50FF
 
 ###  Публикация: 1489677   (151596)
 
-VA - Русские 00<1> (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Русские 00  (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 
 
 >>Неофициальные сборники
@@ -12065,7 +12152,7 @@ Ernesto Cortazar - Compilation part 2 (2022) [MP3|320 Kbps] <Easy Listening, Ins
 
 
 >>Неофициальные сборники
->>Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
+>>Instrumental New Age Meditative Relax (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1538640.jpg" />
@@ -12094,7 +12181,7 @@ Ernesto Cortazar - Compilation part 4 (2022) [MP3|320 Kbps] <Easy Listening, Ins
 
 
 >>Неофициальные сборники
->>Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
+>>Instrumental New Age Meditative Relax (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1538643.jpg" />
@@ -12105,7 +12192,7 @@ Ernesto Cortazar - Compilation part 4 (2022) [MP3|320 Kbps] <Easy Listening, Ins
 
 01. La Vida Es Bella
 02. Winter
-03. Sol<1>itude (Concerto)
+03. Sol itude (Concerto)
 04. Our Wedding Day(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 03:23:15
 
 ## Скачать торент
@@ -12307,9 +12394,9 @@ VA - 100 Greatest 2000s Love Songs (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ###  Подробнее
 
 01. Mariah Carey - We Belong Together
-02. Alicia Keys - If I Ain<1>t Got You
-03. Jason Mraz - I<1>m Yours
-04. James Blunt - You<1>re Beautiful(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:34:59
+02. Alicia Keys - If I Ain t Got You
+03. Jason Mraz - I m Yours
+04. James Blunt - You re Beautiful(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:34:59
 
 ## Скачать торент
 ```bash
@@ -12916,7 +13003,7 @@ VA - 100 Greatest Party Songs (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ###  Подробнее
 
 01. Prince - 1999 (Edit) 3:39
-02. The B-52<1>s - Love Shack 5:22
+02. The B-52 s - Love Shack 5:22
 03. Taylor Swift - Shake It Off 3:39
 04. Black Eyed Peas - I Gotta Feeling (Edit) 4:06(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:54:22
 
@@ -13147,7 +13234,7 @@ VA - The Lunar Disco (2021) [MP3|320 Kbps] <Disco Remix, Dance, Funky House, Nu 
 
 ###  Подробнее
 
-001. J Paul Getto - It<1>s You
+001. J Paul Getto - It s You
 002. C Da Afro - You Can Stay The Night
 003. Alex Deeper - Make Me
 004. Norenoise & Deepower - Get Down(   Читать дальше...   )Жанр: Disco Remix, Dance, Funky House, Nu DiscoПродолжительность: 11:15:56
@@ -13207,7 +13294,7 @@ VA - Very very very slow Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 
 01. Stevie Ray Vaughan - Life Without You (Live at the Mann Music Center, Philadelphia, Pa 1987)
 02. Tinsley Ellis - Kiss Of Death
-03. Bon Jovi - I<1>ll Be There For You
+03. Bon Jovi - I ll Be There For You
 04. Katie Melua - The Closest Thing to Crazy(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 08:09:28
 
 ## Скачать торент
@@ -13816,7 +13903,7 @@ The Rolling Stones & Mick Jagger - The Best of 1964-2017 Vol.1-2 (2018) [Compile
 
 Пpодолжительность: 04:35:21
 01. (Get Your Kicks On) Route 66 [2:25]
-02. Now I<1>ve Got A Witness (Like Uncle Phil & Uncle Gene) [2:35]
+02. Now I ve Got A Witness (Like Uncle Phil & Uncle Gene) [2:35]
 03. Honest I Do [2:14](   Читать дальше...   )Жанр: RockПродолжительность: 09:14:28
 
 ## Скачать торент
@@ -14223,7 +14310,7 @@ VA - Electric Synthicate Volume 1-4 (2020-2022) [MP3|320 Kbps] <Synthwave, Retro
 01. Second Solstice - The March (4:16)
 02. Advection Stride - The Hawk (3:13)
 03. NightmareOwl - Changes (5:43)
-04. D<1>Abyss - All My Demons (5:53)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 04:20:59
+04. D Abyss - All My Demons (5:53)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 04:20:59
 
 ## Скачать торент
 ```bash
@@ -14626,7 +14713,7 @@ VA - E-Dance: Clubbing Electro House (Vol.12) (2022) [MP3|320 Kbps] <Club, Dance
 
 ###  Подробнее
 
-Всем хорошего настроения! Очередная пятница на исходе, приближаются выходные. Кто-то мечтает сходить в модный клуб и хорошенько <2>оторваться<2>, а кто-то за отдых на природе с романтикой, шашлыками и прочей экзотикой. Не важно, как ты проводишь время, главное с пользой для себя, а ещё под отличную танцевальную музыку.001. Damien Blanes - Slamin
+Всем хорошего настроения! Очередная пятница на исходе, приближаются выходные. Кто-то мечтает сходить в модный клуб и хорошенько  оторваться , а кто-то за отдых на природе с романтикой, шашлыками и прочей экзотикой. Не важно, как ты проводишь время, главное с пользой для себя, а ещё под отличную танцевальную музыку.001. Damien Blanes - Slamin
 002. Kevin Galloway - In My Mind
 003. Cupra - Fire In The Hole
 004. Southside Rollers - O.S.K(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:35:08
@@ -14858,7 +14945,7 @@ VA - Metal Track: Hard Musical Collection (2022) [MP3|320 Kbps] <Metal, Hardcore
 
 ###  Подробнее
 
-Специально для ценителей <2>серьёзной<2> музыки - самые лучшие зарубежные композиции в стиле жёсткого металла и хардкора в свежем сборнике под названием <2>Metal Track: Hard Musical Collection<2>. Композиции принесут слушающему очень разнообразную палитру эмоций и настроений, но однозначно никого не оставят безразличным.001. Cutters - Asphalt City
+Специально для ценителей  серьёзной  музыки - самые лучшие зарубежные композиции в стиле жёсткого металла и хардкора в свежем сборнике под названием  Metal Track: Hard Musical Collection . Композиции принесут слушающему очень разнообразную палитру эмоций и настроений, но однозначно никого не оставят безразличным.001. Cutters - Asphalt City
 002. The Flight Of Sleipnir - Voland
 003. Thaeia - Osservati
 004. Mannveira - Framtíðin Myrt(   Читать дальше...   )Жанр: Metal, Hardcore, Hard RockПродолжительность: 09:28:40
@@ -15005,7 +15092,7 @@ VA - E-Dance: Clubbing Electro House (Vol.04) (2021) [MP3|320 Kbps] <Club, Dance
 
 001. Solarii - Hands Up
 002. Coldplay - Higher Power
-003. Kevin Mckay - Comin<1> Home Baby
+003. Kevin Mckay - Comin  Home Baby
 004. Eidly - I Can Feel(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 08:09:15
 
 ## Скачать торент
@@ -15295,7 +15382,7 @@ VA - Deep & Electro House Vol.1 (2021) [MP3|256 Kbps] <Deep House, Electro House
 
 01 KeyPlayer - Illusion (Original Mix)
 02 Anil Altinay - Come To Me
-03 Anagramma - I Don<1>t Mind
+03 Anagramma - I Don t Mind
 04 Fade Off - Republic(   Читать дальше...   )Жанр: Deep House, Electro HouseПродолжительность: 04:58:34
 
 ## Скачать торент
@@ -15615,7 +15702,7 @@ VA - Big Blues Ballads (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 01. Robert Plant - Big Log (2006 Remaster)
 02. John Mayall & The Bluesbreakers - The Mists Of Time
 03. Rod Stewart - Maggie May (Remastered Version)
-04. Sting, Eric Clapton - It<1>s Probably Me(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 12:50:26
+04. Sting, Eric Clapton - It s Probably Me(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 12:50:26
 
 ## Скачать торент
 ```bash
@@ -15670,10 +15757,10 @@ John Lennon & Plastic Ono Band - The Ultimate Collection (2021) 8CD [MP3|320 Kbp
 
 ###  Подробнее
 
-01. Mother (Take 91 <3> Out-take <3> Raw Studio Mix) [00:03:59]
-02. Hold On (Take 18 <3> Out-take <3> Raw Studio Mix) [00:02:07]
-03. I Found Out (Take 7 <3> Out-take <3> Raw Studio Mix) [00:07:51]
-04. Working Class Hero (Take 10 <3> Out-take <3> Raw Studio Mix) [00:03:43](   Читать дальше...   )Жанр: Rock, Art-Rock, Pop-RockПродолжительность: 00:50:34
+01. Mother (Take 91   Out-take   Raw Studio Mix) [00:03:59]
+02. Hold On (Take 18   Out-take   Raw Studio Mix) [00:02:07]
+03. I Found Out (Take 7   Out-take   Raw Studio Mix) [00:07:51]
+04. Working Class Hero (Take 10   Out-take   Raw Studio Mix) [00:03:43](   Читать дальше...   )Жанр: Rock, Art-Rock, Pop-RockПродолжительность: 00:50:34
 
 ## Скачать торент
 ```bash
@@ -15715,7 +15802,7 @@ magnet:?xt=urn:btih:CA8FD5300C9FC8B65323F8B2C57AA246B1A9C4E4
 
 ###  Публикация: 1541441   (145815)
 
-VA - The Love Songs: Hits 2000<1>s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
+VA - The Love Songs: Hits 2000 s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
 
 
 >>Неофициальные сборники
@@ -15728,10 +15815,10 @@ VA - The Love Songs: Hits 2000<1>s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
 
 ###  Подробнее
 
-Сборник под названием <2>The Love Songs: Hits 2000<1>s<2> объединён темой человеческих отношений и невыраженных симпатий,  а музыкальная часть создаёт органично яркий настрой и ту тёплую ностальгическую атмосферу прошедших лет.001. Jay-Z, Amil - Can I Get A...
+Сборник под названием  The Love Songs: Hits 2000 s  объединён темой человеческих отношений и невыраженных симпатий,  а музыкальная часть создаёт органично яркий настрой и ту тёплую ностальгическую атмосферу прошедших лет.001. Jay-Z, Amil - Can I Get A...
 002. Spice Girls - Wannabe
 003. Nate Dogg - Regulate
-004. Destiny<1>s Child - Say My Name(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 09:45:26
+004. Destiny s Child - Say My Name(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 09:45:26
 
 ## Скачать торент
 ```bash
@@ -15786,9 +15873,9 @@ VA - The Land Of Country Music (2022) [MP3|320 Kbps] <Country, Folk Blues>
 
 ###  Подробнее
 
-В числе множества музыкальных жанров есть такие, которые способны создать особое душевное настроение. К одним из них относится кантри музыка, с которой Вы сможете познакомиться и убедиться в вышесказанном на треках сборника <2>The Land Of Country Music<2>.001. Midland - She’s A Cowgirl
+В числе множества музыкальных жанров есть такие, которые способны создать особое душевное настроение. К одним из них относится кантри музыка, с которой Вы сможете познакомиться и убедиться в вышесказанном на треках сборника  The Land Of Country Music .001. Midland - She’s A Cowgirl
 002. Justin Johnson - Richmond
-003. Jenny Tolman - Ain<1>t Mary Jane
+003. Jenny Tolman - Ain t Mary Jane
 004. Johnny Cash - Just One More(   Читать дальше...   )Жанр: Country, Folk BluesПродолжительность: 09:10:40
 
 ## Скачать торент
@@ -16019,8 +16106,8 @@ VA - All New Rock 2 (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
 ###  Подробнее
 
 001. Stands on Sapphires - For the Fight (7:48)
-002. John Lodge - Isn<1>t Life Strange - Live (6:52)
-003. Mal Hombre - Now That You<1>re Mine (6:19)
+002. John Lodge - Isn t Life Strange - Live (6:52)
+003. Mal Hombre - Now That You re Mine (6:19)
 004. Poets of the Fall - Requiem for My Harlequin - Radio Edit (5:40)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 06:59:09
 
 ## Скачать торент
@@ -16309,8 +16396,8 @@ VA - Fest Rebel Rock Radio , Vol.1 (2022) [MP3|320 Kbps] <Alternative, Progressi
 ###  Подробнее
 
 Непрекращающиеся экспериментыв подходе к написанию песен, яркие эмоции во время их исполнения — это то, чем исполнители рок жанра заслужили внимание музыкальной общественности и преданную любовь своих слушателей.001. Slaves - Wasting My Youth
-002. Stoner Avenue - Last Poor Man<1>s Pray
-003. La Femme - Tu T<1>en Lasses
+002. Stoner Avenue - Last Poor Man s Pray
+003. La Femme - Tu T en Lasses
 004. Fame On Fire - Headspace(   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 08:20:01
 
 ## Скачать торент
@@ -16918,7 +17005,7 @@ VA - 100 Greatest R&B Slow Jams (2021) [MP3|320 Kbps] <R&B>
 ###  Подробнее
 
 001. Jill Scott - A Long Walk (4:40)
-002. R. Kelly - Bump n<1> Grind (4:16)
+002. R. Kelly - Bump n  Grind (4:16)
 003. Boyz II Men - End Of The Road (5:49)
 004. En Vogue - Giving Him Something He Can Feel (3:55)(   Читать дальше...   )Жанр: R&BПродолжительность: 07:49:38
 
@@ -16947,7 +17034,7 @@ VA - Beatport Uplifting Trance: Electro Sound Pack #158 (2020) [MP3|192-320 Kbps
 ###  Подробнее
 
 001. Nicholson - Dirty Lil Bastard
-002. Niko Hoffre<1>n - Leave Me Again
+002. Niko Hoffre n - Leave Me Again
 003. Arjans - Whispers (Extended Mix)
 004. Tinlicker - When The Light Fades(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:39:26
 
@@ -18396,10 +18483,10 @@ VA - Open-Road Essentials (2021) [MP3|320 Kbps] <Rock, Pop>
 
 ###  Подробнее
 
-01. AC<3>DC - Thunderstruck (04:53)
- 02. Guns N<1> Roses - Sweet Child O<1> Mine (05:56)
+01. AC DC - Thunderstruck (04:53)
+ 02. Guns N  Roses - Sweet Child O  Mine (05:56)
  03. The Rolling Stones - Start Me Up (Remastered) (03:33)
- 04. Bryan Adams - Summer Of <1>69 (03:36)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 07:01:59
+ 04. Bryan Adams - Summer Of  69 (03:36)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 07:01:59
 
 ## Скачать торент
 ```bash
@@ -18514,7 +18601,7 @@ VA - The Timeless Rock Classic Collection (2021) [MP3|320 Kbps] <Classic Rock>
 
 001. Nazareth - Love Hurts
 002. The Stranglers - Golden Brown
-003. Uriah Heep - Free <1>n<1> Easy
+003. Uriah Heep - Free  n  Easy
 004. Royal Blood - Out Of The Black(   Читать дальше...   )Жанр: Classic RockПродолжительность: 08:09:38
 
 ## Скачать торент
@@ -18657,7 +18744,7 @@ VA - A Delicate Sacrifice (2022) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
 
 ###  Подробнее
 
-Эксклюзивный <2>хардово-металлический микс<2> специально для истинных металлистов и сочувствующих. На альбоме 115 песен, причем каждая композиция имеет свою особенную мелодию, а самое главное здесь сохраняется выверенное годами звучание присущее этому жанру музыки. Каждый трек выдает особую неповторимую атмосферу, поэтому назвать лучшие песни из всего плейлиста (   Читать дальше...   )001. Sundrowned - Ruins
+Эксклюзивный  хардово-металлический микс  специально для истинных металлистов и сочувствующих. На альбоме 115 песен, причем каждая композиция имеет свою особенную мелодию, а самое главное здесь сохраняется выверенное годами звучание присущее этому жанру музыки. Каждый трек выдает особую неповторимую атмосферу, поэтому назвать лучшие песни из всего плейлиста (   Читать дальше...   )001. Sundrowned - Ruins
 002. Stand Still - Id
 003. Blood Shot Down - The Light In The Dark
 004. Scale The Summit - A New Way(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 10:12:26
@@ -19195,7 +19282,7 @@ magnet:?xt=urn:btih:07367D9029A14BB8616EBEFB12F4E03ECB464F94
 
 ###  Публикация: 1543911   (141270)
 
-VA - Hypnotic Techno <3> Techno <3> 2022 <3> MP3 (2022) [MP3|320 Kbps] <Techno, Minimal, Electro
+VA - Hypnotic Techno   Techno   2022   MP3 (2022) [MP3|320 Kbps] <Techno, Minimal, Electro
 
 
 >>Неофициальные сборники
@@ -19208,7 +19295,7 @@ VA - Hypnotic Techno <3> Techno <3> 2022 <3> MP3 (2022) [MP3|320 Kbps] <Techno, 
 
 ###  Подробнее
 
-Любителям нетипичного восприятия музыки посвящена жанровая подборка пол названием <2>Hypnotic Techno<2>. Нестандартная подача и по свежему обрамленные мысли современными аранжировками дают совершенно новый саунд, который понравится, как поклонникам классического техно, так и современным слушателям экспериментальной музыки.001. Maraxe - Enforcer
+Любителям нетипичного восприятия музыки посвящена жанровая подборка пол названием  Hypnotic Techno . Нестандартная подача и по свежему обрамленные мысли современными аранжировками дают совершенно новый саунд, который понравится, как поклонникам классического техно, так и современным слушателям экспериментальной музыки.001. Maraxe - Enforcer
 002. Axa - Metak
 003. Aquatrax - Replay
 004. Rabo And Traumata - Fck The Party(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:37:39
@@ -19413,7 +19500,7 @@ VA - crazyДвиж (2020) [MP3|320 Kbps] <Club, Dance>
 
 01. Den Mayer - Tonight (5:51)
 02. Tom Pulse & C.R. Easy - Waves of Time (Extended Mix) (5:49)
-03. Captain G.Q. - Rockin<1> Through the Night 2020 (Extended Club Edit) (5:41)
+03. Captain G.Q. - Rockin  Through the Night 2020 (Extended Club Edit) (5:41)
 04. Dj Gollum Feat. Felixx - Fairytale Gone Bad (Club Mix) (5:23)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 03:53:54
 
 ## Скачать торент
@@ -19588,7 +19675,7 @@ VA - Music News vol.31 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 001. Jovi - Твой Рай (03:36)
  002. Alessiah - Love Me (02:53)
  003. Alex Mica - Let Me Be (03:24)
- 004. Aluna - Ain<1>t My Business (03:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:03:06
+ 004. Aluna - Ain t My Business (03:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:03:06
 
 ## Скачать торент
 ```bash
@@ -20399,8 +20486,8 @@ VA - Новинки С Разных Популярных мп3 Сайтов ver.
 
 Dance:
 01. Alok & Hollaphonic - Sunglasses At Night (Extended Mix)
-02. Alok, Sofi Tukker & Inna - It Don<1>t Matter (Yudzhin Radio Remix)
-03. David Guetta & The Egg - Love don<1>t let me go (Ayur Tsyrenov DFM Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 05:27:59
+02. Alok, Sofi Tukker & Inna - It Don t Matter (Yudzhin Radio Remix)
+03. David Guetta & The Egg - Love don t let me go (Ayur Tsyrenov DFM Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 05:27:59
 
 ## Скачать торент
 ```bash
@@ -21183,7 +21270,7 @@ VA - Ремейки и каверы NNM 2 (2021) [MP3|320 Kbps] <Pop, Dance, Oth
 01. Going Deeper, Maxim Schunk, KOYSINA - Sing It Back (2:32)
 02. 5sta family, Eva Miller - Зачем (2:43)
 03. Axel Cooper, Yves v, SHANGUY - Derniere Danse (2:34)
-04. Gorgon Breath - Beggin<1> (3:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:38:26
+04. Gorgon Breath - Beggin  (3:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:38:26
 
 ## Скачать торент
 ```bash
@@ -21443,7 +21530,7 @@ VA - The Herbal Chillout (2021) [MP3|320 Kbps] <Chillout, Lounge>
 
 001. Lenny Mac Dowell - Deepest Inner
 002. Peter Oehler - African Sunrise
-003. Jusscomplex - Takin<1> Time
+003. Jusscomplex - Takin  Time
 004. The Science Fiction Club - Return(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 09:50:35
 
 ## Скачать торент
@@ -21992,8 +22079,8 @@ VA - Beatport Techno: Electro Sound Pack #514 (2022) [MP3|320 Kbps] <Techno, Min
 
 ###  Подробнее
 
-Техно с <2>глубоким<2> звуком - элементами реверберации, эмбиента и минимала в 514-м сборнике от Beatport. В Вашем распоряжении 100 треков современного техно минимала высокого качества круглосуточно!001. Mario Massaro - What I Play
-002. Andy Naylor - Beat Won<1>t Stop
+Техно с  глубоким  звуком - элементами реверберации, эмбиента и минимала в 514-м сборнике от Beatport. В Вашем распоряжении 100 треков современного техно минимала высокого качества круглосуточно!001. Mario Massaro - What I Play
+002. Andy Naylor - Beat Won t Stop
 003. Matt Sassari - Violet
 004. Ng Rezonance - Acid Drop(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 11:04:20
 
@@ -22081,7 +22168,7 @@ VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
 
 Хотите окунуться в ретро-атмосферу и на несколько десятков лет перенестись назад в прошлое? В этом вам прекрасно поможет подборка популярнейших песен 70-80х годов. Истерики фанаток и восторженные крики толпы. До отказа заполненные стадионы и концертные залы. Миллионы поклонников по всему миру. Беспрерывные гастроли и несмолкающие овации.001. Patsy Gallant - From New York To L.A.
 002. Soft Cell - Tainted Love
-003. Andrea True Connection - What<1>s Your Name
+003. Andrea True Connection - What s Your Name
 004. Siouxsie And The Banshees - The Staircase(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 10:23:17
 
 ## Скачать торент
@@ -22138,7 +22225,7 @@ VA - Жирные Хиты Весны Remix NNM (2022) [MP3|320 Kbps] <Pop, Danc
 ###  Подробнее
 
 01. David Guetta feat Akon - Sexy Bitch (M1eb & Sergey Hobs Remix) (4:15)
-02. Casanovy - I need your lovin<1> (Ayur Tsyrenov DFM remix) (4:08)
+02. Casanovy - I need your lovin  (Ayur Tsyrenov DFM remix) (4:08)
 03. Spiller feat. Sophie Ellis-Bextor - Groovejet (Ayur Tsyrenov DFM remix) (2:57)
 04. Delerium feat. Sarah McLachlan - Silence (Ayur Tsyrenov DFM remix) (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:42:34
 
@@ -22195,7 +22282,7 @@ VA - Techno: Dream Sound Mix (2022) [MP3|320 Kbps] <Techno, Minimal, Electro>
 
 ###  Подробнее
 
-Минималистичная обложка пластинки <2>Techno: Dream Sound Mix<2> в полной мере передает настроение всего альбома. Треки демонстрируют бескомпромиссный и энергичный звук, чистоту и лаконичность идеи. В альбоме также присутствуют эксперименты с ритмом и элементы аналогового техно-саунда.001. Outsider Perception Syndrome - The Becoming
+Минималистичная обложка пластинки  Techno: Dream Sound Mix  в полной мере передает настроение всего альбома. Треки демонстрируют бескомпромиссный и энергичный звук, чистоту и лаконичность идеи. В альбоме также присутствуют эксперименты с ритмом и элементы аналогового техно-саунда.001. Outsider Perception Syndrome - The Becoming
 002. Nali - Nomadic Life
 003. Mhs - Beyond The Light
 004. Audio Units - Attack Of Arrakis(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:08:49
@@ -22224,7 +22311,7 @@ VA - Rebel: Rock Progressive (2022) [MP3|320 Kbps] <Rock, Progressive>
 
 ###  Подробнее
 
-Вашему вниманию произведения рок-прогрессива в подборке с названием <2>Rebel: Rock Progressive<2>. Композиции представляемого лонгплея хотя и сопровождаются элементами хардовой музыки, но все равно трогают за душу и не вызывают отторжения благодаря присутствию в песнях лирической составляющей.001. White Moth Black Butterfly - Heavy Heart
+Вашему вниманию произведения рок-прогрессива в подборке с названием  Rebel: Rock Progressive . Композиции представляемого лонгплея хотя и сопровождаются элементами хардовой музыки, но все равно трогают за душу и не вызывают отторжения благодаря присутствию в песнях лирической составляющей.001. White Moth Black Butterfly - Heavy Heart
 002. Zero 2 Nothing - Bloody Mary
 003. Strebla - Houdini
 004. Big Paul Ferguson - Data Lama(   Читать дальше...   )Жанр: Rock, ProgressiveПродолжительность: 08:55:20
@@ -22285,7 +22372,7 @@ La Bionda - Compilation (2022) [MP3|320 Kbps] <Pop, Disco>
 01. Sandstorm
 02. So Sad
 03. Tutto Va Benne
-04. You<1>re So Fine(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:19:38
+04. You re So Fine(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:19:38
 
 ## Скачать торент
 ```bash
@@ -22311,7 +22398,7 @@ VA - Vocal Trance: Spring Positive Mix (2022) [MP3|320 Kbps] <Trance, Club, Danc
 
 ###  Подробнее
 
-Прекрасные мелодии, отличная аранжировка, именитые гости, прогрессивные ритмы, дух беззаботности и позитивного настроения. Эти все составляющие присутствуют в сборнике <2>Vocal Trance: Spring Positive Mix<2> треки которого пришли к нам прямиком из кузницы европейской Trance музыки.001. Aurosonic - Onyx
+Прекрасные мелодии, отличная аранжировка, именитые гости, прогрессивные ритмы, дух беззаботности и позитивного настроения. Эти все составляющие присутствуют в сборнике  Vocal Trance: Spring Positive Mix  треки которого пришли к нам прямиком из кузницы европейской Trance музыки.001. Aurosonic - Onyx
 002. Caroline Harrison - There Was A Time
 003. Dj-Elven & D-Myo - Follow The Light
 004. Jay Hatfield - Time to Run Away(   Читать дальше...   )Жанр: Trance, Club, Dance, VocalПродолжительность: 08:32:30
@@ -22748,7 +22835,7 @@ VA - Planet Bossa Nova & Electric Jazz (2002) [MP3|192 Kbps] <Jazz>
 
 Planet Bossa Nova
 001 Cool Water - Afterglow
-002 Bert Kaempfert - Bert<1>s Bossa Nova
+002 Bert Kaempfert - Bert s Bossa Nova
 003 Eddy Harrys - Samba Para Dos(   Читать дальше...   )Жанр: JazzПродолжительность: 08:10:57
 
 ## Скачать торент
@@ -23065,7 +23152,7 @@ VA - Find Your Balance: Music For Deep Meditation (2022) [MP3|320 Kbps] <Meditat
 
 ###  Подробнее
 
-Кладезь целительной энергии звука в сборнике <2>Find Your Balance: Music For Deep Meditation<2>. Есть еще одно применение медитативной музыки это поддержание уровней сознания в состоянии гармонии и энергетического баланса. В этом музыкальное целительное воздействие музыки оправдало себя полностью и только с лучшей стороны.001. Hinterland - Circumnavigation
+Кладезь целительной энергии звука в сборнике  Find Your Balance: Music For Deep Meditation . Есть еще одно применение медитативной музыки это поддержание уровней сознания в состоянии гармонии и энергетического баланса. В этом музыкальное целительное воздействие музыки оправдало себя полностью и только с лучшей стороны.001. Hinterland - Circumnavigation
 002. Awakened Souls - Deepest Ocean
 003. Marco Simioni - Yugen
 004. Sven Laux - Before Clocks Start Ticking(   Читать дальше...   )Жанр: Meditation, Ambient, RelaxПродолжительность: 11:49:11
@@ -23578,7 +23665,7 @@ VA - New Age Style - Enigmatic 32 (2022) [MP3|320 Kbps] <Electronic, New age, En
 
 
 >>Неофициальные сборники
->>Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
+>>Instrumental New Age Meditative Relax (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1549281.jpg" />
@@ -23589,7 +23676,7 @@ VA - New Age Style - Enigmatic 32 (2022) [MP3|320 Kbps] <Electronic, New age, En
 
 01. Edelis - Desire (06:35)
 02. Apples From Mars - Amen (07:14)
-03. La Estacion Del Mar - Nanina<1>s Daughter (03:36)
+03. La Estacion Del Mar - Nanina s Daughter (03:36)
 04. Flaer Smin - Catharsis (Rock Version) (05:30)(   Читать дальше...   )Жанр: Electronic, New age, EnigmaticПродолжительность: 02:40:04
 
 ## Скачать торент
@@ -23674,10 +23761,10 @@ VA - Rebel Rock Fest (Vol.03) (2022) [MP3|320 Kbps] <Rock, Punk, Alternative>
 
 ###  Подробнее
 
-Третий релиз рок-сборника, как и его предшественники, порадует слушателя смелой, ритмичной, а порой и агрессивной музыкой! Музыкой наполненной особым смыслом. Тексты рок-песен имеют своеобразный язык и обязательную смысловую наполненность. Яркие метафоры, актуальные темы, философские размышления — все это вы найдете на треках представляемого сборника!001. Wvnder - I Don<1>t Think So
+Третий релиз рок-сборника, как и его предшественники, порадует слушателя смелой, ритмичной, а порой и агрессивной музыкой! Музыкой наполненной особым смыслом. Тексты рок-песен имеют своеобразный язык и обязательную смысловую наполненность. Яркие метафоры, актуальные темы, философские размышления — все это вы найдете на треках представляемого сборника!001. Wvnder - I Don t Think So
 002. Catapults - Open The Blinds
 003. Time Traveller - No Gravity
-004. Suzi Quatro - You Can<1>t Dream It(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 09:51:33
+004. Suzi Quatro - You Can t Dream It(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 09:51:33
 
 ## Скачать торент
 ```bash
@@ -23703,7 +23790,7 @@ VA - Rap & Hip Beats (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 ###  Подробнее
 
-Легкие подвижные ритмы и лирические мелодии в сборнике под названием <2>Rap & Hip Beats<2>. Гармоничное сочетание мелодии и текста, которое слушать одно удовольствие.001. Yg - Swag
+Легкие подвижные ритмы и лирические мелодии в сборнике под названием  Rap & Hip Beats . Гармоничное сочетание мелодии и текста, которое слушать одно удовольствие.001. Yg - Swag
 002. Dimitry Killstorm - Jane
 003. Funky Dl - My Brother Taught Me
 004. Pacman Da Gunman - Zero Tolerance(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:48:08
@@ -23790,7 +23877,7 @@ VA - The Romantic (2022) [MP3|320 Kbps] <Indie Rock, Alternative>
 
 ###  Подробнее
 
-Музыка сборника <2>The Romantic<2> погрузит слушателей в атмосферу остановившегося времени и настоящих эмоций. Это самобытные и душевные композиции. Признания в любви, что может быть искренне этих слов? Что может быть романтичнее и притягательнее? Только голос, произносящий эти строки под проникновенную музыку.001. Advance Base - Sweet Old World
+Музыка сборника  The Romantic  погрузит слушателей в атмосферу остановившегося времени и настоящих эмоций. Это самобытные и душевные композиции. Признания в любви, что может быть искренне этих слов? Что может быть романтичнее и притягательнее? Только голос, произносящий эти строки под проникновенную музыку.001. Advance Base - Sweet Old World
 002. Delta Sleep - Planet Fantastic
 003. Woolfy - Shooting Stars
 004. Kevin Morby - Sundowner(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:53:55
@@ -23850,7 +23937,7 @@ VA - Lyrical Rhythm And Blues (2022) [MP3|320 Kbps] <R&B, Soul>
 
 Так уж получилось, что R&B – стиль довольно гламурный. Исполнители, по крайней мере в клипах, на обложках альбомов и на фотографиях для журналов должны выглядеть ухоженными и одеваться по возможности дорого. Если, скажем, в хип-хопе еще могут играть на контрастах, рэпер либо запущенный и кое-как одетый обитатель гетто, либо крутой парень на «бентли» с килограммовыми (   Читать дальше...   )001. Raheem Devaughn & Apollo Brown - One Time
 002. Jacob Banks - Found
-003. Lil<1> Mo - Doing Me Wrong
+003. Lil  Mo - Doing Me Wrong
 004. Umi - Bet Reimagined(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 09:25:30
 
 ## Скачать торент
@@ -23907,7 +23994,7 @@ VA - The Cult Trance: Psychedelic Session (2022) [MP3|320 Kbps] <Psychedelic Tra
 ###  Подробнее
 
 Эта музыка зачаровывает своей атмосферностью, заполняет вдохновением и дарит возможность пофантазировать. Она способна приковать к себе слушателя на длительное время. Сотня треков лонгплея, похищающие твое время и убегающие с ним прочь минуты, стоит лишь отрешиться от всего и слиться в единый фантомный комок отдаваясь этой музыке.001. Spirit Architect - Megatron
-002. Axiomod - Everybody<1>s Turnin<1> Into Rabbits
+002. Axiomod - Everybody s Turnin  Into Rabbits
 003. Relativ - Surya
 004. Serenity Flux - Gran Torino(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:29:46
 
@@ -23984,7 +24071,7 @@ VA - Total Eclipse Of The Moon (Enigmatic) (2022) 7CD [MP3|320 Kbps] <Electronic
 
 
 >>Неофициальные сборники
->>Instrumental<3>New Age<3>Meditative<3>Relax (сборники)
+>>Instrumental New Age Meditative Relax (сборники)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1549824.jpg" />
@@ -24139,7 +24226,7 @@ Jascha Richter - Compilation (2022) [MP3|320 Kbps] <Soft Rock, Pop Rock>
 ###  Подробнее
 
 01. Respirator
-02. While Everybody<1>s Dancing
+02. While Everybody s Dancing
 03. Without Your Love
 04. Some Things(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:57:01
 
@@ -24547,7 +24634,7 @@ VA - Новинки С Разных Популярных мп3 Сайтов ver.
 Dance:
 01. 50 Cent x Flame, Faraon, Mamoru, Dias - Disco Inferno (Dj Baur 22 Rework)
 02. Adele - Rolling In The Deep (Ayur Tsyrenov DFM Remix)
-03. Claude Von Stroke - Who<1>s Afraid of Detroit (Nikita Nik Remix) (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:36:54
+03. Claude Von Stroke - Who s Afraid of Detroit (Nikita Nik Remix) (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:36:54
 
 ## Скачать торент
 ```bash
@@ -25039,7 +25126,7 @@ VA - Disco Top 50 (2022) [MP3|320 Kbps] <Disco, Pop, Club>
 
 01. Oliver Cheatham - Get Down Saturday Night (4:02)
 02. Lipps Inc. - Funkytown (Single Version) (3:55)
-03. Gloria Gaynor - I Will Survive (Original 7<1><1> Version) (3:19)
+03. Gloria Gaynor - I Will Survive (Original 7   Version) (3:19)
 04. Bee Gees - Stayin Alive (4:46)(   Читать дальше...   )Жанр: Disco, Pop, ClubПродолжительность: 03:47:23
 
 ## Скачать торент
@@ -25095,7 +25182,7 @@ VA - Hallucinogenic Trance (2022) [MP3|320 Kbps] <Psy, Progressive, Trance>
 
 ###  Подробнее
 
-Музыкальные новинки из мира синтетической транс психоделики ждут Вас в альбоме под названием <2>Hallucinogenic Trance<2>. Завораживающая и окутанная тайной экспериментальная музыка сформировавшаяся под влиянием влиянием восточного мистицизма традиционной и духовной индийской музыки.01. Electrypnose - Disto Disco
+Музыкальные новинки из мира синтетической транс психоделики ждут Вас в альбоме под названием  Hallucinogenic Trance . Завораживающая и окутанная тайной экспериментальная музыка сформировавшаяся под влиянием влиянием восточного мистицизма традиционной и духовной индийской музыки.01. Electrypnose - Disto Disco
 02. Triceradrops - Glare Into My Truth
 03. Sidekicks - Purest Strain Of Bass
 04. Kobolsk - Infinity Universe(   Читать дальше...   )Жанр: Psy, Progressive, TranceПродолжительность: 08:37:27
@@ -25327,9 +25414,9 @@ VA - Synthesis (2022) [MP3|320 Kbps] <Synthwave>
 
 ###  Подробнее
 
-Полное погружение в интенсивные потоки синтетического искусства Вам гарантирует музыка сборника под названием <2>Synthesis<2>. Слушайте с открытой душой и будьте готовы познать кульминацию электронного искусства и глубину открытого космоса.001. Xander Perera - New World
+Полное погружение в интенсивные потоки синтетического искусства Вам гарантирует музыка сборника под названием  Synthesis . Слушайте с открытой душой и будьте готовы познать кульминацию электронного искусства и глубину открытого космоса.001. Xander Perera - New World
 002. Meetsysteem - Het Zwarte Gat
-003. Rostislav Melangeur - El<1>dorado
+003. Rostislav Melangeur - El dorado
 004. Kuriose Naturale - One(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 09:26:35
 
 ## Скачать торент
@@ -25388,7 +25475,7 @@ VA - HarDD NRG OverDoZZe 6 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 01. De Niro - Mind Of Man (Binary Finary Remix) (HOOK,2000)
 02. Aava - Karma (Original Mix) (MONSTER PURE,2005)
 03. Mirco De Govia - Epic Monolith (Original Mix) (XTRAVAGANZA,2002)
-04. Gate 42 - Flow (John O<1>Callaghan Remix) (DISCOVER,2004)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 02:03:21
+04. Gate 42 - Flow (John O Callaghan Remix) (DISCOVER,2004)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 02:03:21
 
 ## Скачать торент
 ```bash
@@ -25459,7 +25546,7 @@ magnet:?xt=urn:btih:711BD14CBEAD3D7E9F29F0A22464EB6F460E584F
 
 ###  Публикация: 1551897   (133117)
 
-VA - Pop Rock: Old Love Songs 70<1>s-00<1>s (2022) [MP3|320 Kbps] <Pop, Rock, Lyric>
+VA - Pop Rock: Old Love Songs 70 s-00 s (2022) [MP3|320 Kbps] <Pop, Rock, Lyric>
 
 
 >>Неофициальные сборники
@@ -25517,7 +25604,7 @@ magnet:?xt=urn:btih:01C965624BB6857AA56F1CC3BCEA8A565D403156
 
 ###  Публикация: 1553313   (132929)
 
-VA - Warrior<1>s Words (горловое пение) (2022) 2CD [MP3|320 Kbps] <World Music, Ethno Fushio
+VA - Warrior s Words (горловое пение) (2022) 2CD [MP3|320 Kbps] <World Music, Ethno Fushio
 
 
 >>Неофициальные сборники
@@ -25997,7 +26084,7 @@ VA - Dance Rising 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 01. Duvall - Good Feeling (5:14)
 02. Essel - Try (Extended Mix) (5:24)
 03. OLAN - Promise To Keep (4:48)
-04. LOVRA - Let<1>s Freak (5:54)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:26:41
+04. LOVRA - Let s Freak (5:54)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:26:41
 
 ## Скачать торент
 ```bash
@@ -26834,7 +26921,7 @@ VA - Record Super Chart 11.06.2022 [MP3|320 Kbps] <Pop, Dance>
 
 ###  Подробнее
 
-01. MELISA & TOMMO - I<1>m Alone (2:59)
+01. MELISA & TOMMO - I m Alone (2:59)
 02. James Hype & Miggy Dela Rosa - Ferrari (5:38)
 03. Imanbek & BYOR - Belly Dancer (Extended Mix) (3:32)
 04. Gayle - Abc (The Wild Remix) (3:02)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:44
@@ -27214,7 +27301,7 @@ VA - В машине с музыкой Vol.270 (2022) [MP3|320 Kbps] <Pop, Dance
 01. Deddy feat. Caffellatte - Non Mi Fa Dormire
 02. 3-ий Январь  - Юность
 03. Sami Duque  - Como Rosalia
-04. Tate Mcrae  - Don<1>t Come Back(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:28:40 hrs
+04. Tate Mcrae  - Don t Come Back(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:28:40 hrs
 
 ## Скачать торент
 ```bash
@@ -27707,7 +27794,7 @@ VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|32
 001. Йорш - Половинки (3:25)
 002. Nagart - Сирена (4:15)
 003. Эпидемия - Письмо Ведьмаку (5:37)
-004. 25<3>17 - Остаться (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:28
+004. 25 17 - Остаться (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:28
 
 ## Скачать торент
 ```bash
@@ -28025,7 +28112,7 @@ VA - Day In Hits 2023 Genres Navigator (2023) [MP3|320 Kbps] <Electro House, Tec
 01. Wooddrowe - Sky Meet
 02. Oliver Tree & Robin Schulz - Miss You (GESES Remix) (Dirty)
 03. Wooddrowe - Sky Meet (Radio Edit)
-04. Route 94 feat. Jess Glynne vs. David Guetta & MORTEN - My Love (Rye & Josh Stylez <1>Element<1> Edit)(   Читать дальше...   )Жанр: Electro House, Techno, Afrobeat, ReggaetonПродолжительность: 02:13:21 hrs
+04. Route 94 feat. Jess Glynne vs. David Guetta & MORTEN - My Love (Rye & Josh Stylez  Element  Edit)(   Читать дальше...   )Жанр: Electro House, Techno, Afrobeat, ReggaetonПродолжительность: 02:13:21 hrs
 
 ## Скачать торент
 ```bash
@@ -28829,7 +28916,7 @@ VA - Winter Light Deep (2023) [MP3|320 Kbps] <Deep House>
 
 ###  Подробнее
 
-01. A. Rassevich - Don<1>t Fly with Me (Original Mix) (3:52)
+01. A. Rassevich - Don t Fly with Me (Original Mix) (3:52)
 02. Abriviatura IV & Soundsperale - I Like It (Original Mix) (5:00)
 03. Alex Menco - Bigger Than Life (Extended Mix) (3:36)
 04. Ali Bakgor feat. Felicia Lu - Mistake (Original Mix) (3:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:32:30
@@ -28895,93 +28982,6 @@ VA - 300 RU (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA466FA34A73B7622A868EF212D3A47533A50DCE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1560102   (126508)
-
-VA - Car Music Mix (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1560102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kendrick Lamar x Drake - Poetic Justice (James Miller x G.Key Remix) (3:20)
-02. Eminem - Ass Like That (Maga remix) (3:13)
-03. DeepSystem - Dame Locura (Robber DJ Remix) (2:56)
-04. David Guetta - The World Is Mine (Leonardo La Mark & Moresst Remix) (4:55)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 03:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECFDAD8E20EEA844B063128B49B049F78C8CA7A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1559861   (126507)
-
-Кипелов - Коллекция (2022) MP3 [MP3|320 Kbps] <Metal>
-
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1559861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый крутой отечественный хэви метал и мощный вокал. Я бы сказал словами классика. Здесь Русский дух, здесь русью пахнет. Сборник лучших композиций Валерия Кипелова и его команды. Все треки взяты с фирменных CD изданий. Приятного прослушивания. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. На распутье
-02. Дыханье Тьмы
-03. Пророк
-04. Не сейчас(   Читать дальше...   )Жанр: MetalПродолжительность: 03:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F17A4A5E8CF5CFAE125FD8890D22C87BE78F5E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1604478   (126489)
-
-VA - Дискотека 2023 Dance Club Vol. 214 от NNNB (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1604478.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KENSHI - Don<1>t Let Me Down (2:52)
-002. Armin van Buuren & Davina Michelle - Hold On (Extended Club Mix) (6:14)
-003. TRITICUM - Champagne On Ice (2:09)
-004. Ragunde - Dizzee (2:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3412940D3429BDF38D1508C7EA468E08E14437
 ```
 
 #Mybot  @nnmclub_mybot

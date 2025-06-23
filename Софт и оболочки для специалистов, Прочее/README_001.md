@@ -1,7 +1,33 @@
 
+###  Публикация: 1378030   (193219)
+
+Raxco PerfectUpdater 2.0.651.18068 [En]
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1378030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повысьте производительность вашего ПК с помощью простого сканирования, загрузки и установки последних драйверов для устройств в вашей системе. PerfectUpdater обнаруживает и устанавливает последние подходящие драйверы для устройств, минимизируя аппаратные конфликты и повышая стабильность системы.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6166C771F378F47490E1734DEA6342710ED6E6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1379793   (190755)
 
-Microsoft Exchange Server 2019 (CU5) 15.02.0595.003 [Multi<3>Ru]
+Microsoft Exchange Server 2019 (CU5) 15.02.0595.003 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -79,7 +105,7 @@ magnet:?xt=urn:btih:FDAA8A43D8A8487195F40E89BD21C8BD20B0916F
 
 ###  Публикация: 1521934   (185640)
 
-Safe Mode Launcher 1.1 Portable [Multi<3>Ru]
+Safe Mode Launcher 1.1 Portable [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -293,7 +319,7 @@ magnet:?xt=urn:btih:227664CCF0A84E3BC63D4AE4B818EA4F21B4C0D9
 
 ###  Публикация: 1481265   (169297)
 
-X7 5-Mode Wireless for R4 (H8GR4) mouse V11.09V02 [Multi<3>Ru]
+X7 5-Mode Wireless for R4 (H8GR4) mouse V11.09V02 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -535,7 +561,7 @@ magnet:?xt=urn:btih:0AAB49730337CD48FEEF47B6FF4834A1820A4BB9
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1536177.jpg" />
@@ -746,7 +772,7 @@ Ultimate Boot CD 5.3.9 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1403372.jpg" />
@@ -755,7 +781,7 @@ Ultimate Boot CD 5.3.9 [En]
 
 ###  Подробнее
 
-Ultimate Boot CD — образ загрузочного компакт-диска, содержащий в себе все необходимое ПО для исправления, восстановления или диагностики любых компьютерных проблем. Данная сборка полностью бесплатна и построена с использованием возможностей Bart<1>s PE. Данный образ может понадобиться, прежде всего, тогда, когда на вашем компьютере сохранились какие-то важные файлы, (   Читать дальше...   )Язык интерфейса: Английский
+Ultimate Boot CD — образ загрузочного компакт-диска, содержащий в себе все необходимое ПО для исправления, восстановления или диагностики любых компьютерных проблем. Данная сборка полностью бесплатна и построена с использованием возможностей Bart s PE. Данный образ может понадобиться, прежде всего, тогда, когда на вашем компьютере сохранились какие-то важные файлы, (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -794,7 +820,7 @@ magnet:?xt=urn:btih:B36C61D18243D9C4B22FD88A0475E68A439641A3
 
 ###  Публикация: 1543122   (142884)
 
-Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package Hybrid x86<3>x64 (
+Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package Hybrid x86 x64 (
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -808,7 +834,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 ###  Подробнее
 
 Пакет Microsoft Visual C++ Redistributable Package устанавливает компоненты среды выполнения библиотек Visual C++, необходимых для запуска приложений, разработанных с помощью Visual C++, на компьютере без установленной среды Visual C++.
-Способ интеграции - SVCPACK (T13) и также можно устанавливать на <2>живую<2> систему.Язык интерфейса: Русский
+Способ интеграции - SVCPACK (T13) и также можно устанавливать на  живую  систему.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -953,7 +979,7 @@ magnet:?xt=urn:btih:EA4FDEF681C99C3A6921549DB2F9F2F252DAEC32
 
 ###  Публикация: 1546328   (137674)
 
-Blumentals HTMLPad 2022 17.3.0.244 [Multi<3>Ru]
+Blumentals HTMLPad 2022 17.3.0.244 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1070,7 +1096,7 @@ HP Service Pack for ProLiant 2022.03.0 [En]
 
 ###  Подробнее
 
-Пакет обновления для ProLiant (SPP) - это комплексное решение для обновления системного программного и микропрограммного обеспечения, которое поставляется в виде единого образа ISO. Это решение использует Smart Update Manager (SUM) в качестве инструмента развертывания и протестировано на всех серверах HPE ProLiant Gen10<3>9, в соответствии с Руководством по поддержке (   Читать дальше...   )Язык интерфейса: английский
+Пакет обновления для ProLiant (SPP) - это комплексное решение для обновления системного программного и микропрограммного обеспечения, которое поставляется в виде единого образа ISO. Это решение использует Smart Update Manager (SUM) в качестве инструмента развертывания и протестировано на всех серверах HPE ProLiant Gen10 9, в соответствии с Руководством по поддержке (   Читать дальше...   )Язык интерфейса: английский
 
 ## Скачать торент
 ```bash
@@ -1153,7 +1179,7 @@ Natura Sound Therapy 3.0 [En]
 ###  Подробнее
 
 Natura Sound Therapy - программа поможет вам отвлечься от работы и хорошенько расслабиться под звуки океанских волн, шума леса, шторма и т.д., при этом выдаются красивейшие видео сцены природы в HD Video качестве с использованием стереозвука.
-У пользователя есть возможность смешивать <2>плеск волн<2>, <2>шум леса<2> и другие аудио-составляющие, накладывать (   Читать дальше...   )Язык интерфейса: Английский
+У пользователя есть возможность смешивать  плеск волн ,  шум леса  и другие аудио-составляющие, накладывать (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -1350,7 +1376,7 @@ magnet:?xt=urn:btih:DC7C7BC5F1AB8A87634DE0F45B7AEACA2A001058
 
 ###  Публикация: 1604786   (126212)
 
-Creative Sound Blaster Command 3.5.9.0 [Ru<3>En]
+Creative Sound Blaster Command 3.5.9.0 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1786,7 +1812,7 @@ Visual C++ Runtimes AIO 2023 v1.0 x86-x64 RePack by ivandubskoj [Ru]
 
 ###  Подробнее
 
-Авторская сборка, включающая в себя набор необходимых компонентов и DLL<3>OCX-библиотек, которая избавит вас от ошибок при запуске игр и программ, связанных с их отсутствием. А также установит, проверит или обновит все существующие версии пакетов Microsoft Visual C++ Redistributable и DirectX.Язык интерфейса: Русский
+Авторская сборка, включающая в себя набор необходимых компонентов и DLL OCX-библиотек, которая избавит вас от ошибок при запуске игр и программ, связанных с их отсутствием. А также установит, проверит или обновит все существующие версии пакетов Microsoft Visual C++ Redistributable и DirectX.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -1803,7 +1829,7 @@ Keysight Genesys 2023 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1612705.jpg" />
@@ -3336,7 +3362,7 @@ magnet:?xt=urn:btih:82E187E52AC425C79C45CAB477E2C06335E2465B
 
 ###  Публикация: 1420941   (82804)
 
-DriverPack Solution 17.10.14 Полная версия (DP 20104) [Multi<3>Ru]
+DriverPack Solution 17.10.14 Полная версия (DP 20104) [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3349,7 +3375,7 @@ DriverPack Solution 17.10.14 Полная версия (DP 20104) [Multi<3>Ru]
 
 ###  Подробнее
 
-DriverPack Solution - это когда-то популярная программа для автоматической установки, обновления и поиска драйверов. Это универсальный менеджер установки драйверов для всех версий Windows. В отличие от встроенной в Windows 7 функции обновления драйверов, этой программой можно пользоваться даже без наличия Интернета и для поиска<3>установки драйверов не только на устройства (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+DriverPack Solution - это когда-то популярная программа для автоматической установки, обновления и поиска драйверов. Это универсальный менеджер установки драйверов для всех версий Windows. В отличие от встроенной в Windows 7 функции обновления драйверов, этой программой можно пользоваться даже без наличия Интернета и для поиска установки драйверов не только на устройства (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -3466,7 +3492,7 @@ magnet:?xt=urn:btih:67BDEB0835EF70C0E4FC591836662E140DA778D4
 
 ###  Публикация: 1645808   (79221)
 
-Hallo northern sky 4.2.15d + Portable [Multi<3>Ru]
+Hallo northern sky 4.2.15d + Portable [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3657,7 +3683,7 @@ magnet:?xt=urn:btih:1844B6545D050E0789E6D758125F1B4A82B2DE58
 
 ###  Публикация: 1424321   (74867)
 
-MInstAll by StartSoft Lite 09-2020 [Ru<3>En]
+MInstAll by StartSoft Lite 09-2020 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3683,7 +3709,7 @@ magnet:?xt=urn:btih:2DE334633EDEF74DE73436368BA3704A7A59010E
 
 ###  Публикация: 1586166   (74604)
 
-Windows DesktopPack 22.10 [Multi<3>Ru]  (Авторская раздача)
+Windows DesktopPack 22.10 [Multi Ru]  (Авторская раздача)
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3767,7 +3793,7 @@ CSoft WiseImage Pro Standalone 22.0.1741 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1586797.jpg" />
@@ -3793,7 +3819,7 @@ ZWSim EM 2022 SP3 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1587226.jpg" />
@@ -3847,7 +3873,7 @@ CADbro 2023 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1587020.jpg" />
@@ -3984,7 +4010,7 @@ KLayout 0.27.12 + (standalone) [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1588062.jpg" />
@@ -4061,7 +4087,7 @@ magnet:?xt=urn:btih:75CB5DDE770A0E194D7F84B667FAA78A65A7C1D0
 
 ###  Публикация: 1511115   (68320)
 
-Microsoft Visual Studio 2019 Professional 16.11.6 (Offline Cache, Unofficial) [Ru<3>En]
+Microsoft Visual Studio 2019 Professional 16.11.6 (Offline Cache, Unofficial) [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4165,7 +4191,7 @@ magnet:?xt=urn:btih:2C2F3FD897AF625FD178572778FA22C4DBD6ED5F
 
 ###  Публикация: 1657879   (66804)
 
-Wolfram Mathematica 13.3.1.0 [Multi<3>Ru]
+Wolfram Mathematica 13.3.1.0 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4218,7 +4244,7 @@ magnet:?xt=urn:btih:7410F0A8CE4B206ADF970DC57FDE0C6811E0C55C
 
 ###  Публикация: 1661549   (62723)
 
-SAS.Планета 230909 Portable [Multi<3>Ru]
+SAS.Планета 230909 Portable [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4231,7 +4257,7 @@ SAS.Планета 230909 Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-SAS.Планета <3> SAS.Planet <3> SASPlanet – свободная программа, предназначенная для просмотра и загрузки спутниковых снимков высокого разрешения и обычных карт, представляемых такими сервисами, как Google Earth, Google Maps, Bing Maps, DigitalGlobe, “Космоснимки“, Яндекс.карты, Yahoo! Maps, VirtualEarth, Gurtam, OpenStreetMap, eAtlas, iPhone maps, карты Генштаба и др., (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+SAS.Планета   SAS.Planet   SASPlanet – свободная программа, предназначенная для просмотра и загрузки спутниковых снимков высокого разрешения и обычных карт, представляемых такими сервисами, как Google Earth, Google Maps, Bing Maps, DigitalGlobe, “Космоснимки“, Яндекс.карты, Yahoo! Maps, VirtualEarth, Gurtam, OpenStreetMap, eAtlas, iPhone maps, карты Генштаба и др., (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -4348,7 +4374,7 @@ magnet:?xt=urn:btih:92E2809BF0E9C8770CDD5DF239B8CB8C17F0037B
 
 ###  Публикация: 1593695   (57508)
 
-WimBuilder2 Full x86-x64 v2022.02.02 Portable [Multi<3>Ru]
+WimBuilder2 Full x86-x64 v2022.02.02 Portable [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4663,7 +4689,7 @@ magnet:?xt=urn:btih:B017C0BE5A91D42238A519DB3FD674EA2E4D1155
 
 ###  Публикация: 1431259   (54341)
 
-Software Collection 2020.12 [Multi<3>Ru]
+Software Collection 2020.12 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4716,11 +4742,11 @@ magnet:?xt=urn:btih:3BCF8392659D4F9DA0A34CAA9062095CC4C6F11B
 
 ###  Публикация: 1431978   (53732)
 
-ESRI ArcGIS Desktop 10.8 [Ru<3>En]
+ESRI ArcGIS Desktop 10.8 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1431978.jpg" />
@@ -5379,7 +5405,7 @@ magnet:?xt=urn:btih:21AE2739C9917C8ED662AF006AEC8374EE8D532D
 
 ###  Публикация: 1684637   (39995)
 
-Алгоритм 2 v2.7.1 [Ru<3>En]
+Алгоритм 2 v2.7.1 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -7588,7 +7614,7 @@ magnet:?xt=urn:btih:9157241542CCC4E1DF9AC67D6010088DC0DC64C4
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1655022.jpg" />
@@ -8270,7 +8296,7 @@ KiCad 7.0.6 [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1648518.jpg" />
@@ -8777,7 +8803,7 @@ LibreCAD 2.2.0.1 [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1646976.jpg" />
@@ -9968,7 +9994,7 @@ Windows 11 PE x64 by Xemom1 (30.05.23) [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1636790.jpg" />
@@ -10362,7 +10388,7 @@ Windows 11 PE (x64) by Ratiborus v.7.2023 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1632821.jpg" />
@@ -10388,7 +10414,7 @@ ZWCAD Architecture 2023 SP2 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1632599.jpg" />
@@ -10414,7 +10440,7 @@ magnet:?xt=urn:btih:C7861D1C022579A64BD821833EE9EC8D71D704B1
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1632474.jpg" />
@@ -11884,7 +11910,7 @@ ZWCAD 2023 SP1 Professional [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1624097.jpg" />
@@ -11989,7 +12015,7 @@ Autodesk AutoCAD 2024 [Ru/En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1622857.jpg" />
@@ -12250,7 +12276,7 @@ Windows 10 PE (x64) by Ratiborus v.5.2023 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1621916.jpg" />
@@ -12858,7 +12884,7 @@ MCBoot WinPE VN 2023 PRO v9.6 build 010323 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1618128.jpg" />
@@ -12936,7 +12962,7 @@ CADopia Pro 22 v.21.2.1.3514 (x64) [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1617413.jpg" />

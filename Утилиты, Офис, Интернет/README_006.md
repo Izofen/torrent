@@ -1,4 +1,85 @@
 
+###  Публикация: 1634831   (90389)
+
+Nmap 7.94 [Multi<3>Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1634831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nmap — (Network Mapper) — мультиплатформенное приложение для обследования сетей и проведения аудита защиты.
+Поддерживается сканирование на основе запроса отклика (определение жизнеспособности узлов), несколько методов сканирования портов, определение версий (какие приложения<3>службы работают на порте) и анализ трафика TCP<3>IP.
+Имеются гибко настраиваемые возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDC18507AF065A1CA21B7A4EC5356080657E2D6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1634752   (90387)
+
+Cent Browser 5.0.1002.354 Portable by Cento8 [Ru<3>En]
+
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1634752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C18F3CE8DE9CE99A3ED32961002545690A09D74
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1579440   (90084)
+
+Aiseesoft Data Recovery 1.5.6 RePack (& Portable) by TryRooM [Multi<3>Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1579440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Data Recovery - это мощное и безопасное программное обеспечение для восстановления данных. Оно может помочь вам восстановить почти все удаленные <3> потерянные файлы, такие как фотографии, документы, электронные письма, аудио, видео и многое другое с компьютера, жесткого диска, флэш-накопителя, карты памяти, цифровой камеры и так далее.
+Aiseesoft Data Recovery (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCAC3BF3EA2E5BB9952C8349FE9F77EF93853E9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1579455   (90077)
 
 NCH Doxillion Document Converter Plus 6.32 [En]
@@ -185,7 +266,7 @@ magnet:?xt=urn:btih:5E3DE7134E3CD13E4F374AA2F952B29F34E4955F
 
 ###  Публикация: 516785   (89225)
 
-SequoiaView 1.3 [Ru<3>En]
+SequoiaView 1.3 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -239,7 +320,7 @@ magnet:?xt=urn:btih:32C21ABDC4CEC8ED6349C793F3BD2A2669CA1DD3
 
 ###  Публикация: 1580271   (88671)
 
-Family Tree Builder 8.0.0.8625 [Multi<3>Ru]
+Family Tree Builder 8.0.0.8625 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -817,7 +898,7 @@ magnet:?xt=urn:btih:AF466AB673D9B897B7822ED390A21494094F9850
 
 ###  Публикация: 1504746   (84030)
 
-EssentialPIM Pro Business Edition 9.10.7 RePack (& portable) by KpoJIuK [Multi<3>Ru]
+EssentialPIM Pro Business Edition 9.10.7 RePack (& portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -1311,7 +1392,7 @@ magnet:?xt=urn:btih:8367D550CFCD321E19BBB9C871350CC0E602BEF6
 
 ###  Публикация: 1583884   (79772)
 
-Auto Recycle Bin 1.13 [Multi<3>Ru]
+Auto Recycle Bin 1.13 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -1391,7 +1472,7 @@ magnet:?xt=urn:btih:BD421072CBE6AB6D898B6563E51448BC81E17DA5
 
 ###  Публикация: 1506543   (79289)
 
-Internet Download Manager 6.39 Build 8 Final + Retail + Themes [Multi<3>Ru]
+Internet Download Manager 6.39 Build 8 Final + Retail + Themes [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -1469,7 +1550,7 @@ magnet:?xt=urn:btih:EDB0008DE9A85AB1230ECA854EAA379B66CD7418
 
 ###  Публикация: 1645927   (78854)
 
-Stardock Fences 4.1.9.2 (x64) RePack by xetrin [Multi<3>Ru]
+Stardock Fences 4.1.9.2 (x64) RePack by xetrin [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -1547,7 +1628,7 @@ magnet:?xt=urn:btih:8561923D740995F2D3994909BC8F442AAFCC070A
 
 ###  Публикация: 1585038   (78090)
 
-Glary Disk Explorer 5.27.1.75 RePack (& Portable) by Dodakaedr [Ru<3>En]
+Glary Disk Explorer 5.27.1.75 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -1731,7 +1812,7 @@ magnet:?xt=urn:btih:8C643AD617D40B7B85DA8E4DAD370C3C15D81D20
 
 ###  Публикация: 1585375   (77378)
 
-Product Key Explorer 4.3.3.0 RePack (& Portable) by elchupacabra [Ru<3>En]
+Product Key Explorer 4.3.3.0 RePack (& Portable) by elchupacabra [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -1836,7 +1917,7 @@ magnet:?xt=urn:btih:40CA09EC65AC152EF6119484E6C2F2DF72B86591
 
 ###  Публикация: 1585574   (76807)
 
-uTorrent 3.5.5 Build 46552 Stable RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+uTorrent 3.5.5 Build 46552 Stable RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -1940,7 +2021,7 @@ magnet:?xt=urn:btih:5597B5C53B83618396C01B4394879B85933197A2
 
 ###  Публикация: 1649894   (75656)
 
-HashMyFiles 2.44 Portable [Ru<3>En]
+HashMyFiles 2.44 Portable [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -2305,7 +2386,7 @@ magnet:?xt=urn:btih:8D1F62E5B7768DC613BFC3C8A936880F0E58E281
 
 ###  Публикация: 1425448   (71802)
 
-Tipard PDF Converter Platinum 3.3.26 RePack (& Portable) by TryRooM [Multi<3>Ru]
+Tipard PDF Converter Platinum 3.3.26 RePack (& Portable) by TryRooM [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -2318,7 +2399,7 @@ Tipard PDF Converter Platinum 3.3.26 RePack (& Portable) by TryRooM [Multi<3>Ru]
 
 ###  Подробнее
 
-Tipard PDF Converter Platinum - удобная и простая в использование программа для быстрого конвертирования электронных документов формата PDF в другие текстовые форматы. Программа способна конвертировать различные документы формата PDF в такие популярные форматы как Word (Microsoft Office с расширением <3>doc<3>docx), в графические изображения формата JPEG, PNG, GIF,BMP (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+Tipard PDF Converter Platinum - удобная и простая в использование программа для быстрого конвертирования электронных документов формата PDF в другие текстовые форматы. Программа способна конвертировать различные документы формата PDF в такие популярные форматы как Word (Microsoft Office с расширением  doc docx), в графические изображения формата JPEG, PNG, GIF,BMP (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
@@ -2383,7 +2464,7 @@ magnet:?xt=urn:btih:1DB75D66E0836D1228961BAE26C265F5C5055D96
 
 ###  Публикация: 1653754   (71310)
 
-ABBYY FineReader PDF 16.0.14.7295 RePack (& Portable) by TryRooM [Multi<3>Ru]
+ABBYY FineReader PDF 16.0.14.7295 RePack (& Portable) by TryRooM [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -2462,7 +2543,7 @@ magnet:?xt=urn:btih:1C37E5DE6EF5546B16C95FDFCBE4F40202298958
 
 ###  Публикация: 1653941   (70908)
 
-Print.Test.Page.OK 3.01 + Portable [Multi<3>Ru]
+Print.Test.Page.OK 3.01 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -2568,7 +2649,7 @@ magnet:?xt=urn:btih:BD725F14EBB7010C8E63D40936F15D6D0530A413
 
 ###  Публикация: 1654146   (70559)
 
-DesktopNoteOK 3.88 + Portable [Multi<3>Ru]
+DesktopNoteOK 3.88 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -2779,7 +2860,7 @@ magnet:?xt=urn:btih:2388016BE3CE91B9207E160D16477A1351CE41AA
 
 ###  Публикация: 1588546   (69667)
 
-uTorrent (AdFree) 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru<3>En]
+uTorrent (AdFree) 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -2885,7 +2966,7 @@ magnet:?xt=urn:btih:ED657D90972CBED1A283F8A42397ABCF14356673
 
 ###  Публикация: 1654732   (69495)
 
-DesktopImages3D 2.29 + Portable [Multi<3>Ru]
+DesktopImages3D 2.29 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -2912,7 +2993,7 @@ magnet:?xt=urn:btih:D979353002BE1890AF844F39B6A1676C281B3CBF
 
 ###  Публикация: 1654740   (69436)
 
-Streamlabs OBS 1.13.3 [Multi<3>Ru]
+Streamlabs OBS 1.13.3 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -2939,7 +3020,7 @@ magnet:?xt=urn:btih:E62534708F06B3EDE653D6F97C9E1F49E1FFF403
 
 ###  Публикация: 1654817   (69398)
 
-Download Master 7.0.1.1709 RePack (&Portable) by KpoJIuK [Multi<3>Ru]
+Download Master 7.0.1.1709 RePack (&Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -3284,7 +3365,7 @@ magnet:?xt=urn:btih:885EA1D30B6F0B410C19E79F1C9D4A6B4A01265A
 
 ###  Публикация: 1657578   (67228)
 
-CopyQ 7.1.0 + Portable [Multi<3>Ru]
+CopyQ 7.1.0 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -3310,7 +3391,7 @@ magnet:?xt=urn:btih:40F01DE3C8D2CF0B0B15A20982EE2AF1240580AB
 
 ###  Публикация: 1657640   (67227)
 
-WinPaletter 1.0.8.0 Standalone [Ru<3>En]
+WinPaletter 1.0.8.0 Standalone [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -3323,7 +3404,7 @@ WinPaletter 1.0.8.0 Standalone [Ru<3>En]
 
 ###  Подробнее
 
-Существует несколько инструментов, позволяющих настроить цвет в Windows 10-11 . Перед вами, относительно новое, портативное приложение WinPaletter, которое заботится не только о цветах, но и о входе в систему и экране блокировки. В главном окне есть настройки для светлого<3>темного стиля, а также цвета панели задач, стартового меню и программ. После внесения изменений (   Читать дальше...   )Язык интерфейса: Русский и английский
+Существует несколько инструментов, позволяющих настроить цвет в Windows 10-11 . Перед вами, относительно новое, портативное приложение WinPaletter, которое заботится не только о цветах, но и о входе в систему и экране блокировки. В главном окне есть настройки для светлого темного стиля, а также цвета панели задач, стартового меню и программ. После внесения изменений (   Читать дальше...   )Язык интерфейса: Русский и английский
 
 ## Скачать торент
 ```bash
@@ -3390,7 +3471,7 @@ magnet:?xt=urn:btih:74FA72904514A56E0AA51817F40700150FD62079
 
 ###  Публикация: 1657920   (66917)
 
-FileSeek Pro 6.9.0 [Multi<3>Ru]
+FileSeek Pro 6.9.0 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -3470,7 +3551,7 @@ magnet:?xt=urn:btih:420604F26382625683013D5EBD603A93B90FA8FB
 
 ###  Публикация: 1657914   (66721)
 
-Disk Drill 5.3.826 Enterprise (x64) [Multi<3>Ru]
+Disk Drill 5.3.826 Enterprise (x64) [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -3483,7 +3564,7 @@ Disk Drill 5.3.826 Enterprise (x64) [Multi<3>Ru]
 
 ###  Подробнее
 
-Disk Drill - простая и эффективная программа для восстановления данных на Windows ПК, позволяет восстановить потерянные данные с жесткого диска компьютера, внешнего жесткого диска, USB флэш-накопителя и практически любых носителях информации включая фото<3>видео камеры, аудио плееры. Особенностью программы является возможность её работы со всеми типами файловой системы (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+Disk Drill - простая и эффективная программа для восстановления данных на Windows ПК, позволяет восстановить потерянные данные с жесткого диска компьютера, внешнего жесткого диска, USB флэш-накопителя и практически любых носителях информации включая фото видео камеры, аудио плееры. Особенностью программы является возможность её работы со всеми типами файловой системы (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
 
 ## Скачать торент
 ```bash
@@ -3522,7 +3603,7 @@ magnet:?xt=urn:btih:BC0D81269DC38EA69A26402F8059829240E1D15A
 
 ###  Публикация: 1658163   (66405)
 
-WinUtilities Professional Edition 15.89 RePack (& Portable) by Dodakaedr [Multi<3>Ru]
+WinUtilities Professional Edition 15.89 RePack (& Portable) by Dodakaedr [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -3627,7 +3708,7 @@ magnet:?xt=urn:btih:62AB33680E78B8F5E6AA8CC726473523664F774B
 
 ###  Публикация: 1659163   (65644)
 
-ClassicDesktopClock 4.44 + Portable [Multi<3>Ru]
+ClassicDesktopClock 4.44 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -3865,7 +3946,7 @@ magnet:?xt=urn:btih:3C21E0D037EA7F17739A8EC2BC403DF97FE62967
 
 ###  Публикация: 1660275   (64602)
 
-AIDA64 Extreme <3> Engineer <3> Business <3> Network Audit 6.92.6600 + Portable [Multi<3>Ru]
+AIDA64 Extreme   Engineer   Business   Network Audit 6.92.6600 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -3917,7 +3998,7 @@ magnet:?xt=urn:btih:3A566F6FA4E586AA3E1F43DA22564B1BD8C79F3B
 
 ###  Публикация: 1660782   (64053)
 
-FileMenu Tools 8.2.2 + Portable [Multi<3>Ru]
+FileMenu Tools 8.2.2 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -3969,7 +4050,7 @@ magnet:?xt=urn:btih:414537C3CE844311F23C200E575BA88F120937DE
 
 ###  Публикация: 1499335   (63590)
 
-Mindjet MindManager 2020 v20.1.231 Portable [Multi<3>Ru]
+Mindjet MindManager 2020 v20.1.231 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4022,7 +4103,7 @@ magnet:?xt=urn:btih:1CBFBBE8C227462D87712DA545308BAAC6B2C76D
 
 ###  Публикация: 1661269   (63420)
 
-Bandizip 7.32 Build 65001 + Portable [Multi<3>Ru]
+Bandizip 7.32 Build 65001 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4048,7 +4129,7 @@ magnet:?xt=urn:btih:F50E16CAE73A82C6444F74DAF32824567E426632
 
 ###  Публикация: 1499342   (63404)
 
-Mindjet MindManager 21 v21.0.261 x64 [Multi<3>Ru]
+Mindjet MindManager 21 v21.0.261 x64 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4129,7 +4210,7 @@ magnet:?xt=urn:btih:3F1F89E85F27206A3A494972C7EB44331AD7896C
 
 ###  Публикация: 1661326   (63317)
 
-Change MAC Address 23.04 Repack (& Portable) by elchupacabra [Multi<3>Ru]
+Change MAC Address 23.04 Repack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4155,7 +4236,7 @@ magnet:?xt=urn:btih:9F696BBAE577401383DE35916EA84AACE2C975E8
 
 ###  Публикация: 1661330   (63314)
 
-4K Video Downloader 4.27.1.5590 RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+4K Video Downloader 4.27.1.5590 RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4286,7 +4367,7 @@ magnet:?xt=urn:btih:A92BBBAFB769F4A7CEC2F4A32612B8DDD7CFF394
 
 ###  Публикация: 1661347   (62894)
 
-PDF-XChange Editor Plus 10.1.0.380 Portable by FC Portables [Multi<3>Ru]
+PDF-XChange Editor Plus 10.1.0.380 Portable by FC Portables [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4338,7 +4419,7 @@ magnet:?xt=urn:btih:1DA00C8F60120F54747F4CB1C48F87D9A22226D2
 
 ###  Публикация: 1663234   (62015)
 
-Wise Data Recovery Pro 6.1.4.496 RePack (& portable) by elchupacabra [Multi<3>Ru]
+Wise Data Recovery Pro 6.1.4.496 RePack (& portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4390,7 +4471,7 @@ magnet:?xt=urn:btih:E1F9A09ADE0B664B986468BBA6C21F41B60DD467
 
 ###  Публикация: 1664930   (60996)
 
-WinBin2Iso 6.21 Build 001 + Portable [Multi<3>Ru]
+WinBin2Iso 6.21 Build 001 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4416,7 +4497,7 @@ magnet:?xt=urn:btih:059734075D9735DFB6C3CC959DAADE0F073F696F
 
 ###  Публикация: 1664928   (60914)
 
-Run-Command 6.06 + Portable [Multi<3>Ru]
+Run-Command 6.06 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4429,7 +4510,7 @@ Run-Command 6.06 + Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-Run-Command - небольшая программа, которая создана стать отличной заменой стандартной функции Windows под названием <2>Выполнить<2> - естественно тут вы получите гораздо больше возможностей, и после запуска это видно сразу. Например из главного окна можно сразу запустить нужный вам элемент от имени Администратора, под строкой ввода есть 5 иконок, которые дают (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Run-Command - небольшая программа, которая создана стать отличной заменой стандартной функции Windows под названием  Выполнить  - естественно тут вы получите гораздо больше возможностей, и после запуска это видно сразу. Например из главного окна можно сразу запустить нужный вам элемент от имени Администратора, под строкой ввода есть 5 иконок, которые дают (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -4455,7 +4536,7 @@ CPU-Z 2.08.0 Portable [Ru]
 
 ###  Подробнее
 
-CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется <2>разогнанность<2> процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Русский
+CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется  разогнанность  процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -4494,7 +4575,7 @@ magnet:?xt=urn:btih:6E02A1FB293CA2F9A2617D31DFEF3ABFAE17B117
 
 ###  Публикация: 1592652   (60196)
 
-MiniTool Power Data Recovery Standard <3> Deluxe <3> Enterprise <3> Technician 11.3 RePack by wadimu
+MiniTool Power Data Recovery Standard   Deluxe   Enterprise   Technician 11.3 RePack by wadimu
 
 
 >>Утилиты, Офис, Интернет
@@ -4507,7 +4588,7 @@ MiniTool Power Data Recovery Standard <3> Deluxe <3> Enterprise <3> Technician 1
 
 ###  Подробнее
 
-MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD<3>DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -4572,7 +4653,7 @@ magnet:?xt=urn:btih:56E5408DD3343D3E26F8ED54F809881DFF47AE1B
 
 ###  Публикация: 1592931   (59867)
 
-Waterfox Classic 2022.11 [Multi<3>Ru]
+Waterfox Classic 2022.11 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4611,7 +4692,7 @@ MiniTool Partition Wizard Free 12.7 [Multi]
 
 ###  Подробнее
 
-MiniTool Partition Wizard Free — бесплатный менеджер разделов. Он поддерживает 32<3>64 разрядные операционные системы Windows. Домашние пользователи могут выполнять сложные операции раздела с помощью этого бесплатного менеджера разделов, чтобы управлять своим жестким диском.
+MiniTool Partition Wizard Free — бесплатный менеджер разделов. Он поддерживает 32 64 разрядные операционные системы Windows. Домашние пользователи могут выполнять сложные операции раздела с помощью этого бесплатного менеджера разделов, чтобы управлять своим жестким диском.
      К основным функциям относятся: изменение размеров разделов, копирование разделов, создание (   Читать дальше...   )Язык интерфейса: Английский и другие (русского нет)
 
 ## Скачать торент
@@ -4679,7 +4760,7 @@ magnet:?xt=urn:btih:09DE58BC77B87B08D5693DB4B2BF9D357952C43B
 
 ###  Публикация: 1429753   (59615)
 
-Crosti 1.14.0 [Multi<3>Ru]
+Crosti 1.14.0 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4692,7 +4773,7 @@ Crosti 1.14.0 [Multi<3>Ru]
 
 ###  Подробнее
 
-Crosti — программа, которая создаёт схемы для вышивки крестом из картинок или фотографий. Цель программы - максимально просто конвертировать графический файл в схему для вышивания крестом. Для этого в Crosti есть <2>помощник<2>. Для полученной схемы используется палитра цветов DMC, нитки которой легко купить в магазине для рукоделия.
+Crosti — программа, которая создаёт схемы для вышивки крестом из картинок или фотографий. Цель программы - максимально просто конвертировать графический файл в схему для вышивания крестом. Для этого в Crosti есть  помощник . Для полученной схемы используется палитра цветов DMC, нитки которой легко купить в магазине для рукоделия.
 В программе доступны дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
@@ -4758,7 +4839,7 @@ magnet:?xt=urn:btih:DA89CA33A58441FF8246969437652D709F42CB68
 
 ###  Публикация: 1667436   (59109)
 
-Lacey Free Music & Video Downloader 2.90 Portable [Multi<3>Ru]
+Lacey Free Music & Video Downloader 2.90 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4810,7 +4891,7 @@ magnet:?xt=urn:btih:834E21CA1562D6E11E0281F33682267E5F0C29E9
 
 ###  Публикация: 1667852   (58845)
 
-Auslogics Registry Defrag 14.0.0.4 [Multi<3>Ru]
+Auslogics Registry Defrag 14.0.0.4 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4968,7 +5049,7 @@ magnet:?xt=urn:btih:F39C9C4A7D3E708FF87422ECE0F000802973BE81
 
 ###  Публикация: 1669700   (57197)
 
-Glary Tracks Eraser 5.0.1.265 [Multi<3>Ru]
+Glary Tracks Eraser 5.0.1.265 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -4994,7 +5075,7 @@ magnet:?xt=urn:btih:3ABB79C64FC5312A51A291A1664D07FAC431D297
 
 ###  Публикация: 1593975   (57177)
 
-WinSnap 5.3.6 RePack (& Portable) by Dodakaedr [Multi<3>Ru]
+WinSnap 5.3.6 RePack (& Portable) by Dodakaedr [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -5098,7 +5179,7 @@ magnet:?xt=urn:btih:ECE711959EE02DA9273B52B6DB4984BF9413A8B7
 
 ###  Публикация: 1594349   (56748)
 
-Auslogics Registry Cleaner Pro 10.0.0.1 RePack (& Portable) by Dodakaedr [Ru<3>En]
+Auslogics Registry Cleaner Pro 10.0.0.1 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -5163,7 +5244,7 @@ Universal USB Installer 2.0.2.0 Portable [En]
 
 ###  Подробнее
 
-Universal USB Installer – портативная программа для создания загрузочных USB-накопителей с операционными системами Windows и Linux, а также другими загрузочными программами. Утилита поддерживает запись на USB-устройство загрузочных образов Windows 10 <3> 8.1 <3> 7 и Vista, а также операционные системы Ubuntu, Linux Mint, CentOS, Debian, Fedora, OpenSUSE, Puppy Linux (   Читать дальше...   )Язык интерфейса: Английский
+Universal USB Installer – портативная программа для создания загрузочных USB-накопителей с операционными системами Windows и Linux, а также другими загрузочными программами. Утилита поддерживает запись на USB-устройство загрузочных образов Windows 10   8.1   7 и Vista, а также операционные системы Ubuntu, Linux Mint, CentOS, Debian, Fedora, OpenSUSE, Puppy Linux (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -5176,7 +5257,7 @@ magnet:?xt=urn:btih:B35B379CFF4B59CAD18CAF6CE2B14A310F26FF0F
 
 ###  Публикация: 1671633   (55354)
 
-ApowerREC 1.6.7.8 RePack (& Portable) by TryRooM [Multi<3>Ru]
+ApowerREC 1.6.7.8 RePack (& Portable) by TryRooM [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -5202,7 +5283,7 @@ magnet:?xt=urn:btih:4DB626C10E56E35C8912647D4A9724E41D1F1BDD
 
 ###  Публикация: 1594777   (55263)
 
-Hasleo Backup Suite 3.0.1 Portable by AlexYar [Ru<3>En]
+Hasleo Backup Suite 3.0.1 Portable by AlexYar [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -5215,7 +5296,7 @@ Hasleo Backup Suite 3.0.1 Portable by AlexYar [Ru<3>En]
 
 ###  Подробнее
 
-Hasleo Backup Suite — это бесплатное программное обеспечение для Windows, которое выполняет резервное копирование файлов операционной системы или выбранного диска<3>логического раздела. Конечно же копированием дело не ограничивается и программа может восстановить файлы из резервной копии, а так же упростит переезд с одного диска на другой.
+Hasleo Backup Suite — это бесплатное программное обеспечение для Windows, которое выполняет резервное копирование файлов операционной системы или выбранного диска логического раздела. Конечно же копированием дело не ограничивается и программа может восстановить файлы из резервной копии, а так же упростит переезд с одного диска на другой.
 В случае проблем с системой (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
@@ -5229,7 +5310,7 @@ magnet:?xt=urn:btih:FD00276FA80EAAA5B21C64AE05ED0F7499033778
 
 ###  Публикация: 1672146   (55015)
 
-HiBit Uninstaller 3.1.70 RePack (& Portable) by Dodakaedr [Multi<3>Ru]
+HiBit Uninstaller 3.1.70 RePack (& Portable) by Dodakaedr [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -5256,7 +5337,7 @@ magnet:?xt=urn:btih:E4A980C472FFEF462E164DABF44535B22966B4A6
 
 ###  Публикация: 1672219   (54966)
 
-Elcomsoft System Recovery 8.31.1157 Professional Edition (BootCd) [Ru<3>En<3>De]
+Elcomsoft System Recovery 8.31.1157 Professional Edition (BootCd) [Ru En De]
 
 
 >>Утилиты, Офис, Интернет
@@ -5311,7 +5392,7 @@ magnet:?xt=urn:btih:99AF26C6A4652058928B20BAC32018BC2DB0037A
 
 ###  Публикация: 1672968   (54482)
 
-Hosts File Editor+ 1.5.13 Portable [Multi<3>Ru]
+Hosts File Editor+ 1.5.13 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -5471,7 +5552,7 @@ magnet:?xt=urn:btih:BD671CF1665A1002E9229EC1241A158BE4603759
 
 ###  Публикация: 1673369   (54059)
 
-SiSoftware Sandra Lite 20<3>21 R25 (версия 31.137) [Multi<3>Ru]
+SiSoftware Sandra Lite 20 21 R25 (версия 31.137) [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -5525,7 +5606,7 @@ magnet:?xt=urn:btih:D54521A03DF14E0D88B5E831C4E8F85DE2CE25DA
 
 ###  Публикация: 1673499   (53950)
 
-WinTools.net Premium <3> Professional <3> Classic 23.11.1 RePack (& Portable) by Dodakaedr [Mult
+WinTools.net Premium   Professional   Classic 23.11.1 RePack (& Portable) by Dodakaedr [Mult
 
 
 >>Утилиты, Офис, Интернет
@@ -5577,7 +5658,7 @@ magnet:?xt=urn:btih:03FA86CFFC4F689C1192DE1BA344A3CD9F237BF2
 
 ###  Публикация: 1673527   (53881)
 
-WinTools.net Premium 23.11.1 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+WinTools.net Premium 23.11.1 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -5656,7 +5737,7 @@ magnet:?xt=urn:btih:675B6DA473600F91072BF6EB4BC53169CEDE917E
 
 ###  Публикация: 1673885   (53333)
 
-EaseUS Data Recovery Wizard Technician 17.0.0.0 RePack (& Portable) by Dodakaedr [Ru<3>En]
+EaseUS Data Recovery Wizard Technician 17.0.0.0 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -5787,7 +5868,7 @@ magnet:?xt=urn:btih:1F6D6FCC098EA773318F4E1E808614795A6999D3
 
 ###  Публикация: 1674935   (52212)
 
-Ashampoo UnInstaller 14.00.11 [Multi<3>Ru]
+Ashampoo UnInstaller 14.00.11 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -5814,7 +5895,7 @@ magnet:?xt=urn:btih:E26AD0902ADF8D576862CD6A5F22354FD88ADFEE
 
 ###  Публикация: 1674936   (52209)
 
-Ashampoo UnInstaller 14.00.11 Portable by 7997 [Multi<3>Ru]
+Ashampoo UnInstaller 14.00.11 Portable by 7997 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -5866,7 +5947,7 @@ magnet:?xt=urn:btih:891715066FE0C87004BCC05BD18A0B121ACD5DCD
 
 ###  Публикация: 1674917   (52154)
 
-Win10 All Settings 2.0.4.35 (x64) Portable [Multi<3>Ru]
+Win10 All Settings 2.0.4.35 (x64) Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -6153,7 +6234,7 @@ magnet:?xt=urn:btih:0F3F723D9640EF38E21E7848FBB544F639347DD2
 
 ###  Публикация: 1596200   (51344)
 
-SoundPad 3.3.2.0 RePack by elchupacabra [Multi<3>Ru]
+SoundPad 3.3.2.0 RePack by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -6524,7 +6605,7 @@ magnet:?xt=urn:btih:70EE280E1E7ECB010347B9F675ABE5DA851798B1
 
 ###  Публикация: 1676960   (50095)
 
-Smart Driver Manager Pro 7.1.1105 RePack (& Portable) by TryRooM [Multi<3>Ru]
+Smart Driver Manager Pro 7.1.1105 RePack (& Portable) by TryRooM [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -6576,7 +6657,7 @@ magnet:?xt=urn:btih:5EB1804C860994E8808F2E0989D7231E7C0C88EC
 
 ###  Публикация: 1676992   (50042)
 
-ASCOMP PDF Imager Pro 2.002 RePack (& Portable) by elchupacabra [Ru<3>En]
+ASCOMP PDF Imager Pro 2.002 RePack (& Portable) by elchupacabra [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -6841,7 +6922,7 @@ magnet:?xt=urn:btih:0AEDC33790A4ACBD7ECE5CD437ACC975E17D2701
 
 ###  Публикация: 1677140   (49893)
 
-QuickMemoryTestOK 4.68 + Portable [Multi<3>Ru]
+QuickMemoryTestOK 4.68 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -6948,7 +7029,7 @@ magnet:?xt=urn:btih:3D8683C6FEDC1CEECC9AF79E4A5A11C7BB44FC22
 
 ###  Публикация: 1677223   (49844)
 
-Autorun Organizer 5.39 [Ru<3>En]
+Autorun Organizer 5.39 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -7066,7 +7147,7 @@ WinAutomation 3.1.6.676 [En]
 
 ###  Подробнее
 
-Мощная программа для автоматизации часто повторяющихся действий и запуска задач по расписанию. WinAutomation в числе прочих позволяет автоматизировать выполнение таких задач, как файловые операции (включая FTP-трансфер), импорт<3>экспорт данных в Excel, отправку почты, подключение и создание запросов к базам данных.Язык интерфейса: Английский
+Мощная программа для автоматизации часто повторяющихся действий и запуска задач по расписанию. WinAutomation в числе прочих позволяет автоматизировать выполнение таких задач, как файловые операции (включая FTP-трансфер), импорт экспорт данных в Excel, отправку почты, подключение и создание запросов к базам данных.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -7079,7 +7160,7 @@ magnet:?xt=urn:btih:D6E9F82E6A2B532DE9BB948082F63F1D566ECE68
 
 ###  Публикация: 1677726   (49137)
 
-Allavsoft Video Downloader Converter 3.26.0.8721 RePack (& Portable) by elchupacabra [Multi<3>Ru
+Allavsoft Video Downloader Converter 3.26.0.8721 RePack (& Portable) by elchupacabra [Multi Ru
 
 
 >>Утилиты, Офис, Интернет
@@ -7131,7 +7212,7 @@ magnet:?xt=urn:btih:84C588901A6CAE9EFB3B6C122EDE46E68BF6017F
 
 ###  Публикация: 1433674   (49100)
 
-Smarty Uninstaller 4.9.6 (SharewareOnSale) [Multi<3>Ru]
+Smarty Uninstaller 4.9.6 (SharewareOnSale) [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -7210,7 +7291,7 @@ magnet:?xt=urn:btih:1ABEA20C53CDD7FFCDB8E158BE84CE4FD38D9CFC
 
 ###  Публикация: 1678124   (48810)
 
-Total Commander 11.02 Portable by wincmd64 [Multi<3>Ru]
+Total Commander 11.02 Portable by wincmd64 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -7238,7 +7319,7 @@ magnet:?xt=urn:btih:AB5762057FCA87B370CBA43EFF55B00B7D16C6D0
 
 ###  Публикация: 1518270   (48804)
 
-Wise JetSearch 4.1.4.219 + Portable [Multi<3>Ru]
+Wise JetSearch 4.1.4.219 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -7251,7 +7332,7 @@ Wise JetSearch 4.1.4.219 + Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-Утилита для поиска файлов и папок на локальных дисках ПК, которая может стать неплохой заменой стандартному поиску ОС Windows. Присутствует поддержка NTFS и FAT дисков, возможность поиска файлов<3>папок по имени или шаблону.Язык интерфейса: Русский, английский и другие
+Утилита для поиска файлов и папок на локальных дисках ПК, которая может стать неплохой заменой стандартному поиску ОС Windows. Присутствует поддержка NTFS и FAT дисков, возможность поиска файлов папок по имени или шаблону.Язык интерфейса: Русский, английский и другие
 
 ## Скачать торент
 ```bash
@@ -7264,7 +7345,7 @@ magnet:?xt=urn:btih:78DE4169FCF72CD6473E81C76242D9FABE905B9A
 
 ###  Публикация: 1677980   (48784)
 
-Bandicam 7.0.1.2132 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Bandicam 7.0.1.2132 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -7277,7 +7358,7 @@ Bandicam 7.0.1.2132 RePack (& Portable) by elchupacabra [Multi<3>Ru]
 
 ###  Подробнее
 
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX<3>OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, другие
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -7317,7 +7398,7 @@ magnet:?xt=urn:btih:1252E03D0AB0E0A5A5501209E874A6B76F133EEF
 
 ###  Публикация: 1678509   (48378)
 
-R-Studio Network 9.3 Build 191259 RePack (& portable) by KpoJIuK [Multi<3>Ru]
+R-Studio Network 9.3 Build 191259 RePack (& portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -7476,7 +7557,7 @@ magnet:?xt=urn:btih:AB647F6447D94B33FD45098394BCE7CB5C5AB88D
 
 ###  Публикация: 1679175   (47687)
 
-Windows 10 Debloater 2.6.3 Portable [Multi<3>Ru]
+Windows 10 Debloater 2.6.3 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -7502,7 +7583,7 @@ magnet:?xt=urn:btih:99DEE1C0EBBE49F9358AC5FFFB751765229ACDF2
 
 ###  Публикация: 1679267   (47682)
 
-MathType 7.7.1.258 RePack by KpoJIuK [Ru<3>En]
+MathType 7.7.1.258 RePack by KpoJIuK [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -7554,7 +7635,7 @@ magnet:?xt=urn:btih:B1C15929CFFA7A343BFE62F3026DE6079AC089F9
 
 ###  Публикация: 1679338   (47372)
 
-iTubeGo 7.2.0 RePack (& Portable) by elchupacabra  [Multi<3>Ru]
+iTubeGo 7.2.0 RePack (& Portable) by elchupacabra  [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -7567,7 +7648,7 @@ iTubeGo 7.2.0 RePack (& Portable) by elchupacabra  [Multi<3>Ru]
 
 ###  Подробнее
 
-Скачивайте видео в формате Full HD<3>4K<3>8K с YouTube и более чем с 10 000 веб-сайтов на высокой скорости.
+Скачивайте видео в формате Full HD 4K 8K с YouTube и более чем с 10 000 веб-сайтов на высокой скорости.
 Являясь мощным загрузчиком HD-видео для YouTube, Dailymotion, Facebook и других потоковых сайтов, iTubeGo HD Video Downloader обеспечивает в 10 раз более высокую скорость для массовой загрузки высококачественных видео. Кроме того, он предоставляет встроенный браузер (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
@@ -7607,7 +7688,7 @@ magnet:?xt=urn:btih:32A8DEC69A04272DE978B9D6968D70754AA6E3E9
 
 ###  Публикация: 1679976   (46874)
 
-FileOptimizer 16.40.2781 + Portable [Multi<3>Ru]
+FileOptimizer 16.40.2781 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -7739,7 +7820,7 @@ magnet:?xt=urn:btih:7C625F6B5F3A252B0FC02FC35961321F2820B07A
 
 ###  Публикация: 1434437   (46624)
 
-Discord 0.0.309 b73806 Stable [Multi<3>Ru]
+Discord 0.0.309 b73806 Stable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -8417,7 +8498,7 @@ magnet:?xt=urn:btih:F4DD2BBD21BF876F8F513CAA333BEF2DAAC897BC
 
 ###  Публикация: 1599009   (43299)
 
-Bandicam 6.0.5.2033 [Multi<3>Ru]
+Bandicam 6.0.5.2033 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -8430,7 +8511,7 @@ Bandicam 6.0.5.2033 [Multi<3>Ru]
 
 ###  Подробнее
 
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX<3>OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский и другие
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -8576,7 +8657,7 @@ magnet:?xt=urn:btih:8ECAC409B662CF02D2D1F5285674C7A602404B64
 
 ###  Публикация: 1684736   (42923)
 
-CurrPorts 2.77 Portable [Ru<3>En]
+CurrPorts 2.77 Portable [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -8589,7 +8670,7 @@ CurrPorts 2.77 Portable [Ru<3>En]
 
 ###  Подробнее
 
-CurrPorts – полезная бесплатная программа для сетевого мониторинга, которая отображает список всех открытых TCP<3>IP и UDP портов на вашем локальном компьютере.
+CurrPorts – полезная бесплатная программа для сетевого мониторинга, которая отображает список всех открытых TCP IP и UDP портов на вашем локальном компьютере.
 Для каждого порта в списке также содержится информация о процессе, который открыл порт, включая имя процесса, полный путь к процессу, информацию о версии процесса (название продукта, описание файла и так далее), (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
@@ -8852,7 +8933,7 @@ magnet:?xt=urn:btih:69C8F1FCB8D1555BB3D3589BD987F0D2F6950129
 
 ###  Подробнее
 
-Бесплатная, Новогодняя программа украшающая рабочий стол компьютера яркими, разноцветными лампочками, мигание которых, предает по истине Новогоднее настроение. Как только Вы украсите рабочий стол новогодней гирляндой, сразу появится ощущение приближающегося праздника <2>Нового года<2>. Гирлянду можно сделать как поверх всех программ и окон, так и на заднем (   Читать дальше...   )Язык интерфейса: Русский
+Бесплатная, Новогодняя программа украшающая рабочий стол компьютера яркими, разноцветными лампочками, мигание которых, предает по истине Новогоднее настроение. Как только Вы украсите рабочий стол новогодней гирляндой, сразу появится ощущение приближающегося праздника  Нового года . Гирлянду можно сделать как поверх всех программ и окон, так и на заднем (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -8944,7 +9025,7 @@ magnet:?xt=urn:btih:2C865EF342FC16E32E872C56E104FBAA7ED7084E
 
 ###  Публикация: 1601377   (41378)
 
-Glarysoft File Recovery Pro 1.20.0.20 RePack (& Portable) by Dodakaedr [Ru<3>En]
+Glarysoft File Recovery Pro 1.20.0.20 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -8957,7 +9038,7 @@ Glarysoft File Recovery Pro 1.20.0.20 RePack (& Portable) by Dodakaedr [Ru<3>En]
 
 ###  Подробнее
 
-Glarysoft File Recovery Pro - это простое в использовании, но мощное решение для восстановления файлов для файловых систем FAT и NTFS. Это вернет файлы, очищенные из корзины. Он даже восстановит файлы, которые были удалены ошибками, сбоями и вирусами. Программа поддерживает все файловые системы Windows для жестких и гибких дисков, включая FAT12<3>16<3>32, NTFS<3>NTFS5, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Glarysoft File Recovery Pro - это простое в использовании, но мощное решение для восстановления файлов для файловых систем FAT и NTFS. Это вернет файлы, очищенные из корзины. Он даже восстановит файлы, которые были удалены ошибками, сбоями и вирусами. Программа поддерживает все файловые системы Windows для жестких и гибких дисков, включая FAT12 16 32, NTFS NTFS5, (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -9104,7 +9185,7 @@ magnet:?xt=urn:btih:1CF03DE9460542B875964922343748A2C68CF22E
 
 ###  Публикация: 1069836   (40402)
 
-UFS Explorer Professional Recovery 5.20.3 RePack (& Portable) by Trovel [Multi<3>Ru]
+UFS Explorer Professional Recovery 5.20.3 RePack (& Portable) by Trovel [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -9183,7 +9264,7 @@ magnet:?xt=urn:btih:618037DC498219A27C86C93B58AF0E6064185538
 
 ###  Публикация: 1685996   (40392)
 
-SupRemo 4.10.4.2204 [Multi<3>Ru]
+SupRemo 4.10.4.2204 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -9631,7 +9712,7 @@ magnet:?xt=urn:btih:3C219003D5EB7AB632EC820D9B118FB13BC904C3
 
 ###  Публикация: 1685682   (40174)
 
-Tor Browser Bundle 13.0.7 [Multi<3>Ru]
+Tor Browser Bundle 13.0.7 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -9865,7 +9946,7 @@ magnet:?xt=urn:btih:699BEC8F4A81F0DE85EB4BE91F78EF49BE6A722D
 
 ###  Публикация: 1684488   (39715)
 
-Far Manager 3.0.6226 Final + Portable [Multi<3>Ru]
+Far Manager 3.0.6226 Final + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -10391,7 +10472,7 @@ magnet:?xt=urn:btih:825B0DC59A7C2FAA47CD1E246D865EEFC40A4AB6
 
 ###  Публикация: 1683574   (39254)
 
-OBS Studio 30.0.2 + Portable (x64) [Multi<3>Ru]
+OBS Studio 30.0.2 + Portable (x64) [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -10524,7 +10605,7 @@ magnet:?xt=urn:btih:0BDFC943441CF5651FCD2A8C16D49724EA3FBE78
 
 ###  Публикация: 1683368   (39140)
 
-PowerISO 8.7 [Multi<3>Ru]
+PowerISO 8.7 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -10537,7 +10618,7 @@ PowerISO 8.7 [Multi<3>Ru]
 
 ###  Подробнее
 
-PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD<3>DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -10995,7 +11076,7 @@ magnet:?xt=urn:btih:7CA3F9016C4A37CBA5ACF7AC7295CE683DDE9AFE
 
 ###  Публикация: 1682253   (38524)
 
-Google Chrome 120.0.6099.63 Portable by Cento8 [Ru<3>En]
+Google Chrome 120.0.6099.63 Portable by Cento8 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -11386,7 +11467,7 @@ magnet:?xt=urn:btih:A287947013909F44827F422F9B540A811785DB3D
 
 ###  Публикация: 1681951   (38365)
 
-Office 2013-2024 C2R Install + Lite 7.7.7.2 ++ Portable by Ratiborus [Multi<3>Ru]
+Office 2013-2024 C2R Install + Lite 7.7.7.2 ++ Portable by Ratiborus [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -11682,7 +11763,7 @@ magnet:?xt=urn:btih:664EAE82E6FE654DBCB0BA6399C2AB362AF85931
 
 ###  Публикация: 1681490   (38076)
 
-SRWare Iron 118.0.6000.0 + Portable [Multi<3>Ru]
+SRWare Iron 118.0.6000.0 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -11708,7 +11789,7 @@ magnet:?xt=urn:btih:39D13A9040D3675C2840DA305E1DE446E078C91D
 
 ###  Публикация: 1681498   (38071)
 
-LibreWolf 120.0.1-1 + Portable [Multi<3>Ru]
+LibreWolf 120.0.1-1 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -11973,7 +12054,7 @@ magnet:?xt=urn:btih:5304F5EFE5EFB6F219FF204235F05317E510ADC5
 
 ###  Публикация: 1681065   (37779)
 
-Opera Crypto Browser 105.0.4970.29 + Portable [Multi<3>Ru]
+Opera Crypto Browser 105.0.4970.29 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -12080,7 +12161,7 @@ magnet:?xt=urn:btih:B39DB456F29A959A8FC80E7D2F57CFD4922363B8
 
 ###  Публикация: 1681006   (37736)
 
-Icecream PDF Editor PRO 3.16 RePack (& Portable) by Dodakaedr [Ru<3>En]
+Icecream PDF Editor PRO 3.16 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -12093,7 +12174,7 @@ Icecream PDF Editor PRO 3.16 RePack (& Portable) by Dodakaedr [Ru<3>En]
 
 ###  Подробнее
 
-Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью <2>умной<2> панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью  умной  панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -12318,7 +12399,7 @@ magnet:?xt=urn:btih:C56460B2F07A73194F9BA3F6532DB02815FA5CA1
 
 ###  Публикация: 1680746   (37543)
 
-Glary Disk Cleaner 6.0.1.2 [Multi<3>Ru]
+Glary Disk Cleaner 6.0.1.2 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -12554,7 +12635,7 @@ magnet:?xt=urn:btih:BD5BB26A755808828417A522953578CC05011278
 
 ###  Публикация: 1680515   (37363)
 
-Google Chrome 119.0.6045.200 Portable by Cento8 [Ru<3>En]
+Google Chrome 119.0.6045.200 Portable by Cento8 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -12632,7 +12713,7 @@ magnet:?xt=urn:btih:4E538990D2FED96451687BDAF6F655A7F729CB4A
 
 ###  Публикация: 1680439   (37303)
 
-Zentimo xStorage Manager 3.0.4.1298 RePack by KpoJIuK [Multi<3>Ru]
+Zentimo xStorage Manager 3.0.4.1298 RePack by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -12658,7 +12739,7 @@ magnet:?xt=urn:btih:5FC1FEFCED6F6478473064CAC00AFC7914AE33AE
 
 ###  Публикация: 1680431   (37295)
 
-Skype 8.109.0.209 RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+Skype 8.109.0.209 RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -12710,7 +12791,7 @@ magnet:?xt=urn:btih:AB8A287CD97AE43DFBEA69E782F9A0951B1C8749
 
 ###  Публикация: 1680424   (37289)
 
-YT Downloader 9.6.0 RePack (& Portable) by Dodakaedr [Ru<3>En]
+YT Downloader 9.6.0 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -12895,7 +12976,7 @@ magnet:?xt=urn:btih:601EF00FBD7B3E51553EE3D9BE14C58577287EF2
 
 ###  Публикация: 1680132   (37101)
 
-Internet Download Manager 6.42 Build 2 RePack by elchupacabra [Multi<3>Ru]
+Internet Download Manager 6.42 Build 2 RePack by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -12988,7 +13069,7 @@ Microsoft Activation Scripts (MAS) 2.5 Portable [En]
 
 ###  Подробнее
 
-Активатор Windows и Office с использованием методов активации HWID<3>Ohook<3>KMS38<3>Online KMS с упором на открытый исходный код и меньшее количество обнаружений антивируса.Язык интерфейса: Английский
+Активатор Windows и Office с использованием методов активации HWID Ohook KMS38 Online KMS с упором на открытый исходный код и меньшее количество обнаружений антивируса.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -13057,7 +13138,7 @@ magnet:?xt=urn:btih:DFDD8B8F96F3D18BFAE4A6AE104217103DC2E959
 
 ###  Публикация: 1679027   (36708)
 
-Tor Browser Bundle 13.0.5 [Multi<3>Ru]
+Tor Browser Bundle 13.0.5 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -13163,7 +13244,7 @@ magnet:?xt=urn:btih:62D0D6A936782DFD840D71653DF5AF94363CE87E
 
 ###  Публикация: 1678927   (36618)
 
-Foxit PDF Editor Pro 2023.3.0.23028 Portable by 7997 [Multi<3>Ru]
+Foxit PDF Editor Pro 2023.3.0.23028 Portable by 7997 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -13191,7 +13272,7 @@ magnet:?xt=urn:btih:B0CF20EDA58F6984BCE4E671F15D579CBC45EF04
 
 ###  Публикация: 1678645   (36515)
 
-SoftMaker Office Professional 2024 rev. S1206.1118 RePack (& portable) by KpoJIuK [Ru<3>En]
+SoftMaker Office Professional 2024 rev. S1206.1118 RePack (& portable) by KpoJIuK [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -13296,7 +13377,7 @@ magnet:?xt=urn:btih:47506EC65B217F9A9EE15FF78A6A20582699755D
 
 ###  Публикация: 1678221   (36346)
 
-CrystalDiskInfo 9.2.0 + Portable [Multi<3>Ru]
+CrystalDiskInfo 9.2.0 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -13309,7 +13390,7 @@ CrystalDiskInfo 9.2.0 + Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку <2>здоровья<2> вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку  здоровья  вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -13664,7 +13745,7 @@ magnet:?xt=urn:btih:D167AC08704EF7A044FBAEFF82457613271449C9
 
 ###  Публикация: 1676755   (35728)
 
-Bandicam 7.0.1.2132 RePack (& portable) by KpoJIuK [Multi<3>Ru]
+Bandicam 7.0.1.2132 RePack (& portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -13677,7 +13758,7 @@ Bandicam 7.0.1.2132 RePack (& portable) by KpoJIuK [Multi<3>Ru]
 
 ###  Подробнее
 
-Bandicam — это компактная программа записи экрана для Windows, которая может записывать все, что происходит на экране ПК, в формате высококачественного видео. Также можно выполнять запись определенной части экрана или игр, использующих графические технологии DirectX<3>OpenGL<3>Vulkan.
+Bandicam — это компактная программа записи экрана для Windows, которая может записывать все, что происходит на экране ПК, в формате высококачественного видео. Также можно выполнять запись определенной части экрана или игр, использующих графические технологии DirectX OpenGL Vulkan.
 Bandicam поможет вам сделать запись игры с высоким коэффициентом сжатия, сохраняя при (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
@@ -14010,7 +14091,7 @@ magnet:?xt=urn:btih:6863D6586F29117FCD7DFB2D7EF1149B1F543072
 
 ###  Публикация: 1675330   (35196)
 
-VueScan Pro 9.8.21 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+VueScan Pro 9.8.21 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -14036,7 +14117,7 @@ magnet:?xt=urn:btih:5CF4A9131B99F7129FE65108F9AD18AC518537D4
 
 ###  Публикация: 1675332   (35195)
 
-R-Wipe & Clean 20.0.2429 RePack (& Portable) by elchupacabra [Ru<3>En]
+R-Wipe & Clean 20.0.2429 RePack (& Portable) by elchupacabra [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -14062,7 +14143,7 @@ magnet:?xt=urn:btih:1C657DACE06A5196D6ABABF74B3DD4DB8F53A1F4
 
 ###  Публикация: 1675334   (35194)
 
-O&O DiskImage Professional 18.5 Build 342 RePack by elchupacabra [Ru<3>En]
+O&O DiskImage Professional 18.5 Build 342 RePack by elchupacabra [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -14088,7 +14169,7 @@ magnet:?xt=urn:btih:B7404EC1614E2137C66793D386DE3D3F102740A8
 
 ###  Публикация: 1675338   (35193)
 
-DriverMax Pro 16.11.0.3 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+DriverMax Pro 16.11.0.3 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -14114,7 +14195,7 @@ magnet:?xt=urn:btih:9A472B34F16A95D73A530A4614C3B5AA0CD51A08
 
 ###  Публикация: 1675354   (35192)
 
-Start11 Version 2.0 [Multi<3>Ru]
+Start11 Version 2.0 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -14323,7 +14404,7 @@ magnet:?xt=urn:btih:B32B0DA8962F8C84DAAC66F2513E1E0903DA272F
 
 ###  Публикация: 1674999   (34956)
 
-AOMEI Backupper Pro 7.3.3 [Multi<3>Ru] (акция Comss)
+AOMEI Backupper Pro 7.3.3 [Multi Ru] (акция Comss)
 
 
 >>Утилиты, Офис, Интернет
@@ -14678,7 +14759,7 @@ TweakNow WinSecret Plus! 4.9.12 RePack (& Portable) by elchupacabra [En]
 
 ###  Подробнее
 
-TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10<3>11.
+TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10 11.
 Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
 
 ## Скачать торент
@@ -14692,7 +14773,7 @@ magnet:?xt=urn:btih:AF9E9C9525DA647E1A8362788B212A349B733403
 
 ###  Публикация: 1674344   (34612)
 
-IceCream Ebook Reader Pro 6.40 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+IceCream Ebook Reader Pro 6.40 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -15006,7 +15087,7 @@ magnet:?xt=urn:btih:CBF62EBF48FD716A1447D8CCDAA2C8D048DEEC54
 
 ###  Публикация: 1673641   (34235)
 
-IObit Driver Booster Pro 11.1.0.26 RePack (& Portable) by Dodakaedr [Multi<3>Ru]
+IObit Driver Booster Pro 11.1.0.26 RePack (& Portable) by Dodakaedr [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -15058,7 +15139,7 @@ magnet:?xt=urn:btih:C668AA1BDE2A9C6F23D950FD8156EF3DE6AF8001
 
 ###  Публикация: 1673294   (34142)
 
-XtraTools Professional 23.10.1 Portable by FC Portables [Multi<3>Ru]
+XtraTools Professional 23.10.1 Portable by FC Portables [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -15318,7 +15399,7 @@ magnet:?xt=urn:btih:0686041FFAA45F079F2F6B6986DF50A708485482
 
 ###  Публикация: 1673029   (33970)
 
-Q-Dir 11.44 + Portable [Multi<3>Ru]
+Q-Dir 11.44 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -15332,7 +15413,7 @@ Q-Dir 11.44 + Portable [Multi<3>Ru]
 ###  Подробнее
 
 Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок <2>Quick-Link<1>s<2>, поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок  Quick-Link s , поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -15398,7 +15479,7 @@ magnet:?xt=urn:btih:4C694ABB746DA593BF0BCF273B6FF39E82D0744F
 
 ###  Публикация: 1672979   (33953)
 
-YT Downloader 9.5.9 RePack (& Portable) by Dodakaedr [Ru<3>En]
+YT Downloader 9.5.9 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -15642,7 +15723,7 @@ magnet:?xt=urn:btih:1668E62E8248E6BC5BDA92E754ABD66D25191F35
 
 ###  Публикация: 1672529   (33642)
 
-uTorrent Pack 1.2.3.77 Repack (& Portable) by elchupacabra [Multi<3>Ru]
+uTorrent Pack 1.2.3.77 Repack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -15656,7 +15737,7 @@ uTorrent Pack 1.2.3.77 Repack (& Portable) by elchupacabra [Multi<3>Ru]
 ###  Подробнее
 
 µTorrent Pack (Repack & Portable) - популярный клиент пиринговых p2p-сетей (протокол BitTorrent), который благодаря своей функциональности и небольшому размеру заслуженно является лидером среди программ данной категории.
-К достоинствам µTorrent можно отнести многопоточную загрузку файлов, распределение полосы пропускания, установку ограничения загрузки<3>раздачи, (   Читать дальше...   )Язык интерфейса: Русский, Английский? другие
+К достоинствам µTorrent можно отнести многопоточную загрузку файлов, распределение полосы пропускания, установку ограничения загрузки раздачи, (   Читать дальше...   )Язык интерфейса: Русский, Английский? другие
 
 ## Скачать торент
 ```bash
@@ -15669,7 +15750,7 @@ magnet:?xt=urn:btih:676229716D3C0E8104C370C4AB78D7212F1DA685
 
 ###  Публикация: 1672313   (33513)
 
-Foxit PDF Editor Pro 2023.2.0.21408 [Multi<3>Ru]
+Foxit PDF Editor Pro 2023.2.0.21408 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -15906,7 +15987,7 @@ magnet:?xt=urn:btih:71775C9A0BE2AAA92CA2DAE4AA47B6DC6DF37346
 
 ###  Публикация: 1672232   (33461)
 
-Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -15958,7 +16039,7 @@ magnet:?xt=urn:btih:4939D4F2161395EDBE7E0989B41A11F18C7D06A0
 
 ###  Публикация: 1672078   (33369)
 
-eM Client Pro 9.2.2157.0 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+eM Client Pro 9.2.2157.0 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -16196,7 +16277,7 @@ magnet:?xt=urn:btih:F29E0D8D6FCEC8B230E1900D94B8ED452A18DF1A
 
 ###  Публикация: 1671776   (33171)
 
-Ashampoo UnInstaller 14.00.10 [Multi<3>Ru]
+Ashampoo UnInstaller 14.00.10 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -16553,7 +16634,7 @@ Alt SwitchER 21.3 Portable [Ru]
 
 ###  Подробнее
 
-Alt SwitchER - программа для автоматического исправления <2>раскладки<2> слова (с возможностью отключения, назначения программ-исключений), а также авто-обучением и возможностью <2>ручного<2> добавления слов в пользовательский словарь и словарь исключений. Alt SwitchER прекрасная альтернатива таким программам, как Punto switcher и Caramba Switcher. В (   Читать дальше...   )Язык интерфейса: Русский
+Alt SwitchER - программа для автоматического исправления  раскладки  слова (с возможностью отключения, назначения программ-исключений), а также авто-обучением и возможностью  ручного  добавления слов в пользовательский словарь и словарь исключений. Alt SwitchER прекрасная альтернатива таким программам, как Punto switcher и Caramba Switcher. В (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -16618,7 +16699,7 @@ magnet:?xt=urn:btih:7350039971E73E42A35C11F840311AFBF03BA440
 
 ###  Публикация: 1671486   (32945)
 
-Sumatra PDF 3.5.1 + Portable [Multi<3>Ru]
+Sumatra PDF 3.5.1 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -16631,7 +16712,7 @@ Sumatra PDF 3.5.1 + Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR<3>CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
+Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
 Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
@@ -17223,7 +17304,7 @@ magnet:?xt=urn:btih:E17FADB58549F450A002D19C06B80E880E8A889D
 
 ###  Публикация: 1671096   (32729)
 
-Revo Uninstaller Pro 5.2.1 Portable by 7997 [Multi<3>Ru]
+Revo Uninstaller Pro 5.2.1 Portable by 7997 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17236,7 +17317,7 @@ Revo Uninstaller Pro 5.2.1 Portable by 7997 [Multi<3>Ru]
 
 ###  Подробнее
 
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный <2>режим охотника<2> предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный  режим охотника  предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -17355,7 +17436,7 @@ magnet:?xt=urn:btih:AAE57AAF16D54A3E92E4B935D1637BA4DBE8B003
 
 ###  Публикация: 1670742   (32490)
 
-Windows 10 Manager 3.8.7 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Windows 10 Manager 3.8.7 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17698,7 +17779,7 @@ magnet:?xt=urn:btih:3DB763B04D723E87A10DAD3281C8728E559D2614
 
 ###  Публикация: 1670471   (32304)
 
-Internet Download Manager 6.41 Build 22 RePack by elchupacabra [Multi<3>Ru]
+Internet Download Manager 6.41 Build 22 RePack by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -26251,84 +26332,6 @@ RegCool 1.343 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE5441F94197C851488E65AB232F8F8E9A40AAFB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1658250   (26495)
-
-Iridium Browser 116.0 + Portable [Multi/Ru]
-
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1658250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Браузер на основе Chromium, предлагающий улучшенную безопасность, контроль за передачей данных и защиту приватности. Показывает довольно быструю скорость загрузки веб-страниц, стабильную работу, отличную совместимость с интернет-ресурсами и поддержку последних веб-технологий. Имеет минималистичный интерфейс и совместим с расширениями Google Chrome.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92701A0F4F38090A28FB4FCF0589B0F1C45B8D14
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1658140   (26442)
-
-Vivaldi 6.2.3105.47 include standalone [Multi/Ru]
-
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1658140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF25660B845EAFFF228807A85D5C53BBE1A9573D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1658142   (26440)
-
-CPU-Z 2.07.0 Portable [Ru]
-
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1658142.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется "разогнанность" процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BCE9E9D709430E3BB1D7C9F17FC0294FC313C9
 ```
 
 #Mybot  @nnmclub_mybot

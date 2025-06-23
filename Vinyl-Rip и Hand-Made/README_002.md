@@ -1,4 +1,33 @@
 
+###  Публикация: 1552689   (129930)
+
+Kreator - Studio Albums (9 releases) (1995 - 2022) hand made [restored, declipped] [FLAC 2.0
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1552689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kreator — немецкая трэш-метал-группа, основанная в 1982 году в Эссене. Название группы происходит от лат. create — «создавать», «творец», а также от имени демона в древненемецкой мифологии. Однако существует и иная трактовка этого названия («Kreatur» с немецкого языка переводится как «тварь» или «создание»). В 1980-х годах группа приложила много усилий к распространению (   Читать дальше...   )1995 - Cause For Conflict
+1997 - Outcast
+1999 - Endorama
+2001 - Violent Revolution(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 08:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A9601336EC49E31AE8BCD94F5C69F3EFD20FFD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1557908   (129534)
 
 Triptykon - Studio Albums (2010 - 2020) hand made [restored, declipped] [FLAC 2.0|44<3>16|tracks
@@ -133,7 +162,7 @@ Volbeat - Studio Albums (8 releases) (2005 - 2021) hand made [restored, declippe
 Volbeat — датская метал-группа, образованная в Копенгагене в 2001 году. Музыкальный стиль группы вдохновлён такими исполнителями как Metallica, Social Distortion, Элвис Пресли и Джонни Кэш. Текущий состав группы включает вокалиста и гитариста Микаэля Поулсена, гитариста Роберта Каджано, басиста Каспара Бойе Ларсена и ударника Йона Ларсена.  Название Volbeat восходит (   Читать дальше...   )2005 - The Strength The Sound The Songs
 2007 - Rock The Rebel Metal The Devil
 2009 - Guitar Gangsters & Cadillac Blood
-2010 - Beyond Hell-Above HeavenЖанр: Heavy<3>Groove MetalПродолжительность: 08:46:13
+2010 - Beyond Hell-Above HeavenЖанр: Heavy Groove MetalПродолжительность: 08:46:13
 
 ## Скачать торент
 ```bash
@@ -204,7 +233,7 @@ magnet:?xt=urn:btih:C02762DD7A2E305447501C9C4AA8D425D81B0BD0
 
 ###  Публикация: 1604028   (127139)
 
-VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192<3>24|image +.cue|Vinyl-Rip] <Pop>
+VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -277,7 +306,7 @@ Machine Head - Studio Albums (10 releases) (1994 - 2022) hand made [restored, de
 Machine Head — американская грув-метал-группа, образованная гитаристом и вокалистом Роббом Флинном 12 октября 1991 года в Окленде, Калифорния1994 - Burn My Eyes
 1997 - The More Things Change
 1999 - The Burning Red
-2001 - SuperchargerЖанр: Thrash<3>Groove Metal, Nu-MetalПродолжительность: 12:48:07
+2001 - SuperchargerЖанр: Thrash Groove Metal, Nu-MetalПродолжительность: 12:48:07
 
 ## Скачать торент
 ```bash
@@ -319,7 +348,7 @@ magnet:?xt=urn:btih:8D4BD9E87949CE71FE289F047EAF16A076B29EF4
 
 ###  Публикация: 1604982   (125454)
 
-Czerwone Gitary - Two Albums (1974, 1976) [FLAC 2.0|192<3>24|image +.cue|Vinyl-Rip] <Pop Rock, F
+Czerwone Gitary - Two Albums (1974, 1976) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop Rock, F
 
 
 >>HD Audio и Многоканальная Музыка
@@ -348,7 +377,7 @@ magnet:?xt=urn:btih:777FB3100117D2AA13CAE8293BCA015E18E8E9F4
 
 ###  Публикация: 1560933   (125392)
 
-Black Sabbath - Russian Vinyl Collection<3>Блэк Сэбэт - Русская коллеция винила (1990) 6LP [FLAC
+Black Sabbath - Russian Vinyl Collection Блэк Сэбэт - Русская коллеция винила (1990) 6LP [FLAC
 
 
 >>HD Audio и Многоканальная Музыка
@@ -551,7 +580,7 @@ magnet:?xt=urn:btih:ADC167E734912BB685FEAD90C5F870D269160022
 
 ###  Публикация: 1152990   (122999)
 
-The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192<3>24|image+.cue|Vinyl-Rip] <Pop Rock, Class
+The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Pop Rock, Class
 
 
 >>HD Audio и Многоканальная Музыка
@@ -714,7 +743,7 @@ Falkenbach — немецко-исландский метал-проект.
 Группа на самом деле представляет сольное творчество Маркуса Тюммерса (Vratyas Vakyas). По происхождению немец, большую часть своей жизни он прожил в Исландии. Потом переехал в Германию, сейчас живёт в Дюссельдорфе, где у него собственная студия звукозаписи Skaldik Art, специализирующаяся на поддержке молодых языческих (   Читать дальше...   )1996 - ...En Their Medh Riki Fara...
 1998 - ...Magni Blandinn Ok Megintiri...
 2003 - Ok Nefna Tysvar Ty
-2005 - Heralding The FirebladeЖанр: Viking<3>Black<3>Folk MetalПродолжительность: 04:39:19
+2005 - Heralding The FirebladeЖанр: Viking Black Folk MetalПродолжительность: 04:39:19
 
 ## Скачать торент
 ```bash
@@ -798,9 +827,9 @@ The Dogma - Studio Albums (3 releases) (2006-2010) hand made [restored, declippe
 
 ###  Подробнее
 
-The Dogma — прогрессив-метал<3>пауэр-метал группа из Анконы, Италия.2006 - Black Roses
+The Dogma — прогрессив-метал пауэр-метал группа из Анконы, Италия.2006 - Black Roses
 2007 - A Good Day to Die
-2010 - Black WidowЖанр: Symphonic Gothic<3>Power MetalПродолжительность: 02:38:16
+2010 - Black WidowЖанр: Symphonic Gothic Power MetalПродолжительность: 02:38:16
 
 ## Скачать торент
 ```bash
@@ -1118,8 +1147,8 @@ The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tc
 ###  Подробнее
 
 Side 1:
-01. Adolphe Adam - <1><1>Giselle<1><1>
-02. Franz Schubert - <1><1>Rosamunde<1><1>
+01. Adolphe Adam -   Giselle  
+02. Franz Schubert -   Rosamunde  
 (   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:54
 
 ## Скачать торент
@@ -1162,7 +1191,7 @@ magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
 
 ###  Публикация: 1306433   (116635)
 
-T. Texas Tyler - His Great Hits (1967) [FLAC 1.0|96<3>24|image +.cue|Vinyl-Rip] <Folk, Country>
+T. Texas Tyler - His Great Hits (1967) [FLAC 1.0|96 24|image +.cue|Vinyl-Rip] <Folk, Country>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -1175,8 +1204,8 @@ T. Texas Tyler - His Great Hits (1967) [FLAC 1.0|96<3>24|image +.cue|Vinyl-Rip] 
 
 ###  Подробнее
 
-A1 Courtin<1> In The Rain
-A2 I Ain<1>t Got A Lick Of Sense
+A1 Courtin  In The Rain
+A2 I Ain t Got A Lick Of Sense
 A3 Remember Me
 A4 Filipino Baby(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:28:55
 
@@ -1249,7 +1278,7 @@ magnet:?xt=urn:btih:CD3654D172170AF48F6FC9169C4425D801B3CBDD
 
 ###  Публикация: 1611646   (116248)
 
-Tom Jones - This Is Tom Jones (1969) [FLAC 2.0|192<3>24|image+.cue] <Lounge, Pop Rock>
+Tom Jones - This Is Tom Jones (1969) [FLAC 2.0|192 24|image+.cue] <Lounge, Pop Rock>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -1391,7 +1420,7 @@ magnet:?xt=urn:btih:E5730B564F27F9B2BA76D1724B4318711BF71FDE
 
 ###  Публикация: 1612594   (115150)
 
-ВИА Синяя птица - Коллекция (1977-1987) [FLAC 2.0|192<3>24|image+.cue|Vinyl-Rip] <Pop Rock>
+ВИА Синяя птица - Коллекция (1977-1987) [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Pop Rock>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -1494,7 +1523,7 @@ Gamma Ray (Helloween, Iron Savior, Unisonic) - Studio Albums (1990 - 2014) hand 
 Gamma Ray — немецкая метал-группа, созданная в 1989 году Каем Хансеном, бывшим гитаристом и вокалистом группы Helloween.1990 - Heading For Tomorrow
 1991 - Sigh No More
 1993 - Insanity And Genius
-1995 - Land Of The FreeЖанр: Heavy<3>Power<3>Speed MetalПродолжительность: 12:16:08
+1995 - Land Of The FreeЖанр: Heavy Power Speed MetalПродолжительность: 12:16:08
 
 ## Скачать торент
 ```bash
@@ -1714,7 +1743,7 @@ magnet:?xt=urn:btih:A5BA947D2F3AC15DB5E4CFB7155D821701A6D621
 
 ###  Публикация: 1497416   (111249)
 
-Laid Back - Hole In The Sky (1990) Unofficial Release [FLAC 2.0|48<3>24|image +.cue|MC-Rip] <Ele
+Laid Back - Hole In The Sky (1990) Unofficial Release [FLAC 2.0|48 24|image +.cue|MC-Rip] <Ele
 
 
 >>HD Audio и Многоканальная Музыка
@@ -1801,7 +1830,7 @@ magnet:?xt=urn:btih:D11B1B383658D143701BEA72C5C68C3CE018A6ED
 
 ###  Публикация: 1497397   (111127)
 
-VA - Любимой Женщине 3. Сборник медленных композиций (1997) Unofficial Release [FLAC 2.0|48<3>24
+VA - Любимой Женщине 3. Сборник медленных композиций (1997) Unofficial Release [FLAC 2.0|48 24
 
 
 >>HD Audio и Многоканальная Музыка
@@ -1846,7 +1875,7 @@ Dynazty - Studio Albums (8 releases) (2009-2022) hand made [restored, declipped]
 Dynazty  — шведская пауэр-метал-группа из Стокгольма.2009 - Bring The Thunder
 2011 - Knock You Down
 2012 - Sultans Of Sin
-2014 - Renatus(   Читать дальше...   )Жанр: Heavy<3>Power Metal, Hard RockПродолжительность: 07:13:35
+2014 - Renatus(   Читать дальше...   )Жанр: Heavy Power Metal, Hard RockПродолжительность: 07:13:35
 
 ## Скачать торент
 ```bash
@@ -2206,7 +2235,7 @@ magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
 
 ###  Публикация: 1172695   (107211)
 
-VA - Звёзды шансона (2000) [FLAC 2.0|44,1<3>16|image+.cue|MC-Rip] <Chanson>
+VA - Звёзды шансона (2000) [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Chanson>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -2235,7 +2264,7 @@ magnet:?xt=urn:btih:E59F93A57D00DBF3E160F82898F2EDB6649956B3
 
 ###  Публикация: 1208528   (107146)
 
-VA - Italian Pop Music (1986) [FLAC 2.0|96<3>24|image+.cue|Vinyl-Rip] <Italo Pop>
+VA - Italian Pop Music (1986) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -2250,7 +2279,7 @@ VA - Italian Pop Music (1986) [FLAC 2.0|96<3>24|image+.cue|Vinyl-Rip] <Italo Pop
 
 01. Claudio Baglioni - Un Giorno nuovo
 02. Lucio Battisti - E Penso A Te
-03. Edoardo Bennato - L<1>isola Che Non C<1>e
+03. Edoardo Bennato - L isola Che Non C e
 04. Lucio Battisti - Ancora Tu(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:43:24
 
 ## Скачать торент
@@ -2321,7 +2350,7 @@ magnet:?xt=urn:btih:6E947E88F3B70B38407E60B17E797932E3A969BE
 
 ###  Публикация: 1499460   (106799)
 
-Bonnie Tyler - All In One Voice (1999) Unofficial Release [FLAC 2.0|48<3>24|image +.cue|MC-Rip]
+Bonnie Tyler - All In One Voice (1999) Unofficial Release [FLAC 2.0|48 24|image +.cue|MC-Rip]
 
 
 >>HD Audio и Многоканальная Музыка
@@ -2449,7 +2478,7 @@ MaYaN - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [
 
 ###  Подробнее
 
-MaYaN — нидерландская симфоник-дэт-метал-группа, образованная в 2011 году лидером группы <2>Epica<2> вокалистом Марком Янсеном, клавишником Яком Дриссеном и гитаристом Франком Схипхорстом. Название группы было выбрано Марком из-за его заинтересованности в культуре майя..
+MaYaN — нидерландская симфоник-дэт-метал-группа, образованная в 2011 году лидером группы  Epica  вокалистом Марком Янсеном, клавишником Яком Дриссеном и гитаристом Франком Схипхорстом. Название группы было выбрано Марком из-за его заинтересованности в культуре майя..
 2011 - Quarterpast
 2014 - Antagonise
 2018 - DhyanaЖанр: Symphonic Death MetalПродолжительность: 03:08:38
@@ -2552,7 +2581,7 @@ magnet:?xt=urn:btih:45BDF5DC1E86CB1F425135296872F490FA1598BE
 
 ###  Публикация: 1572611   (105515)
 
-Europe - Дискография (14 albums) (1983-2017) hand made [restored, declipped] [FLAC 2.0|44<3>
+Europe - Дискография (14 albums) (1983-2017) hand made [restored, declipped] [FLAC 2.0|44
 
 
 >>HD Audio и Многоканальная Музыка
@@ -2639,7 +2668,7 @@ magnet:?xt=urn:btih:758B21FB195E6A2868BB9C44981F05983F1924E2
 
 ###  Публикация: 1500378   (104530)
 
-Cinderella - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48<3>24|image +.cue|MC
+Cinderella - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48 24|image +.cue|MC
 
 
 >>HD Audio и Многоканальная Музыка
@@ -3032,7 +3061,7 @@ Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] 
 Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
 1998 - The Electric Sleep
 2000 - Celestial Hi-Fi
-2003 - SynchronizedЖанр: Stoner<3>Doom MetalПродолжительность: 07:57:54
+2003 - SynchronizedЖанр: Stoner Doom MetalПродолжительность: 07:57:54
 
 ## Скачать торент
 ```bash
@@ -3414,7 +3443,7 @@ magnet:?xt=urn:btih:C053294091A78AD79E78FAEA3F3D23B502A1EB28
 
 ###  Публикация: 1624222   (98499)
 
-The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192<3>24|image + .cue|Vinyl-Rip] <Electronic
+The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Electronic
 
 
 >>HD Audio и Многоканальная Музыка
@@ -3733,7 +3762,7 @@ magnet:?xt=urn:btih:FB40DB677524F1F1F8DAA0B20AE52A8BAE3F0F2C
 
 ###  Публикация: 1628810   (95645)
 
-Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192<3>24|image + .cue|Vinyl-Rip]<Synth-pop>
+Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Synth-pop>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -3747,7 +3776,7 @@ Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192<3>24|image + .cue|Vinyl
 ###  Подробнее
 
 A1 Do I
-A2 Shouldn<1>t Do That
+A2 Shouldn t Do That
 A3 Your Appetite
 A4 Rivers(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:25
 
@@ -3936,7 +3965,7 @@ magnet:?xt=urn:btih:3A6368B651AB53F531204BA100055EBE19AAC61E
 
 ###  Публикация: 1629816   (95028)
 
-Baccara - Baccara (1977)  [FLAC 2.0|192<3>24|image + .cue|Vinyl-Rip] <Pop>
+Baccara - Baccara (1977)  [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Pop>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -4717,7 +4746,7 @@ magnet:?xt=urn:btih:85A02A41D513E96BF4A8D2E4BC34F831F4224D94
 
 ###  Публикация: 1306733   (88681)
 
-Paper Lace - First Edition (1972) [FLAC 2.0|192<3>24|image +.cue|Vinyl-Rip] <Pop Rock>
+Paper Lace - First Edition (1972) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop Rock>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -4733,7 +4762,7 @@ Paper Lace - First Edition (1972) [FLAC 2.0|192<3>24|image +.cue|Vinyl-Rip] <Pop
 A1 In The Morning
 A2 Stoney End
 A3 Lady
-A4 I<1>ve Got You, That<1>s Enough For Me(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:51
+A4 I ve Got You, That s Enough For Me(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:51
 
 ## Скачать торент
 ```bash
@@ -4762,7 +4791,7 @@ Sabaton - Studio Albums (11 releases) (2005 - 2022) hand made [restored, declipp
 Sabaton — шведская хэви-пауэр-метал группа, основанная в декабре 1999 года. Основной темой для песен являются войны и отдельные сражения и подвиги. Название группы в переводе с английского означает латный ботинок, часть рыцарских доспехов.2005 - Primo Victoria
 2006 - Attero Dominatus
 2007 - Metalizer
-2008 - The Art Of WarЖанр: Heavy<3>Power MetalПродолжительность: 10:40:26
+2008 - The Art Of WarЖанр: Heavy Power MetalПродолжительность: 10:40:26
 
 ## Скачать торент
 ```bash
@@ -4878,7 +4907,7 @@ Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and oth
 01. Chirpy Chirpy Cheep Cheep
 02. Lingering Sounds
 03. Fate Strange Fate
-04. I Can<1>t Tell The Bottom From The Top(   Читать дальше...   )Жанр: Pop<3>EuropopПродолжительность: 00:39:27
+04. I Can t Tell The Bottom From The Top(   Читать дальше...   )Жанр: Pop EuropopПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
@@ -5036,7 +5065,7 @@ magnet:?xt=urn:btih:66F8DF0D3D53CE72269879416C1A7A2360416B26
 
 ###  Публикация: 1312267   (86096)
 
-Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192<3>24|image +.cue|Vinyl-Rip] <Pop, Easy Lis
+Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop, Easy Lis
 
 
 >>HD Audio и Многоканальная Музыка
@@ -5050,9 +5079,9 @@ Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192<3>24|image +.cue|Vinyl-Rip
 ###  Подробнее
 
 A1 The Impossible Dream
-A2 An Improvisation On <1><1>None But The Lonely Heart<1><1>
+A2 An Improvisation On   None But The Lonely Heart  
 A3 Yonger Than Springtime
-A4 Favourite Love Theme From Tchaikovsky<1>s <1><1>Romeo And Juliet<1><1>(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:29:01
+A4 Favourite Love Theme From Tchaikovsky s   Romeo And Juliet  (   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:29:01
 
 ## Скачать торент
 ```bash
@@ -5309,7 +5338,7 @@ Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored,
 
 ###  Подробнее
 
-Bathory — шведская группа, внёсшая значительный вклад в развитие блэк-метала и викинг-метала, возникшая в Стокгольме в 1983 году. В составе Bathory побывало множество музыкантов, но лидером в начале творческого пути и фактически единственным участником в конце был музыкант-мультиинструменталист Quorthon.АЛЬБОМЫЖанр: Black<3>Viking Metal, Thrash MetalПродолжительность: 07:48:59
+Bathory — шведская группа, внёсшая значительный вклад в развитие блэк-метала и викинг-метала, возникшая в Стокгольме в 1983 году. В составе Bathory побывало множество музыкантов, но лидером в начале творческого пути и фактически единственным участником в конце был музыкант-мультиинструменталист Quorthon.АЛЬБОМЫЖанр: Black Viking Metal, Thrash MetalПродолжительность: 07:48:59
 
 ## Скачать торент
 ```bash
@@ -5526,7 +5555,7 @@ magnet:?xt=urn:btih:2E8F2B0185E7F0A09F6CBE31E3B50331C819D7F7
 
 ###  Публикация: 1582344   (83247)
 
-Rainbow - Ансамбль Rainbow (1988) [FLAC 2.0|192<3>24|image +.cue|Vinyl-Rip] <Hard Rock>
+Rainbow - Ансамбль Rainbow (1988) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Hard Rock>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -5540,8 +5569,8 @@ Rainbow - Ансамбль Rainbow (1988) [FLAC 2.0|192<3>24|image +.cue|Vinyl-R
 ###  Подробнее
 
 A1 Человек На Серебряной Горе • Man On The Silver Mountain
-A2 Я Все Еще Грустен • Still I<1>m Sad
-A3 Да Здравствует Рок-Н-Ролл • Long Live Rock<1>n<1>Roll
+A2 Я Все Еще Грустен • Still I m Sad
+A3 Да Здравствует Рок-Н-Ролл • Long Live Rock n Roll
 A4 Всю Ночь • All Night Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:27
 
 ## Скачать торент
@@ -5847,7 +5876,7 @@ magnet:?xt=urn:btih:DE295B1A4D28869EEC14D76C44A8F616674DF333
 
 ###  Публикация: 1506326   (79348)
 
-U2 - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48<3>24|image +.cue|MC-Rip] <P
+U2 - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48 24|image +.cue|MC-Rip] <P
 
 
 >>HD Audio и Многоканальная Музыка
@@ -6283,7 +6312,7 @@ magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
 
 ###  Публикация: 1524571   (72989)
 
-A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC 2.0|44<3>16|tracks +.cue] <
+A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC 2.0|44 16|tracks +.cue] <
 
 
 >>HD Audio и Многоканальная Музыка
@@ -6398,7 +6427,7 @@ magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
 
 ###  Публикация: 1649632   (72284)
 
-Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit<3>192kHz] (2LP, EU)  <Thrash Metal>
+Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit 192kHz] (2LP, EU)  <Thrash Metal>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -6601,7 +6630,7 @@ magnet:?xt=urn:btih:B3874243E70F4E3A7B443B1D14C4566ED417DBF6
 
 ###  Публикация: 1652921   (71147)
 
-Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24<3>192|image + .cue|Vinyl-Rip] <Thra
+Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24 192|image + .cue|Vinyl-Rip] <Thra
 
 
 >>HD Audio и Многоканальная Музыка
@@ -6847,13 +6876,13 @@ VA - Metallica. Tributes Collection (14 releases) (1994 - 2021) hand made [resto
 
 ###  Подробнее
 
-Данный сборник представляет из себя коллекцию изданий под общим смысловым названием <2>Tribute to Metallica<2>.
+Данный сборник представляет из себя коллекцию изданий под общим смысловым названием  Tribute to Metallica .
 
-Песни группы <2>Metallica<2> исполнены коллективами различной степени известности из разных стран мира.
+Песни группы  Metallica  исполнены коллективами различной степени известности из разных стран мира.
 (   Читать дальше...   )1994 - Metal Militia - Tribute To Metallica
 1996 - Metal Militia - Tribute To Metallica II
 1999 - Phantom Lords
-2002 - A Tribute To The Four HorsemenЖанр: Thrash<3>Groove<3>Death<3>Doom Metal, MetalcoreПродолжительность: 13:39:25
+2002 - A Tribute To The Four HorsemenЖанр: Thrash Groove Death Doom Metal, MetalcoreПродолжительность: 13:39:25
 
 ## Скачать торент
 ```bash
@@ -6866,7 +6895,7 @@ magnet:?xt=urn:btih:BAE7D0D7EA278DFE6C98BF7927AB0A0F863C099A
 
 ###  Публикация: 1059507   (68762)
 
-George Benson - Tell It Like It Is (1984) [FLAC 2.0|192<3>24|image+.cue|Vinyl-Rip] <Jazz, Funk,
+George Benson - Tell It Like It Is (1984) [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Jazz, Funk,
 
 
 >>HD Audio и Многоканальная Музыка
@@ -7011,7 +7040,7 @@ magnet:?xt=urn:btih:5CF14060D125CA94EFADCD263421BBBF3DCDFB9C
 
 ###  Публикация: 1590282   (65873)
 
-Алексей Рыбников - «Юнона» И «Авось» (1982) [FLAC 2.0|192<3>24|side-tracks|Vinyl-Rip] <Opera, Ar
+Алексей Рыбников - «Юнона» И «Авось» (1982) [FLAC 2.0|192 24|side-tracks|Vinyl-Rip] <Opera, Ar
 
 
 >>HD Audio и Многоканальная Музыка
@@ -7085,7 +7114,7 @@ Iced Earth - Studio Albums (13 releases) (1990-2017) hand made [restored, declip
 Iced Earth — американская хэви-метал-группа. Основана ритм-гитаристом и композитором Джоном Шаффером в 1985 году.1990 (2020) - Iced Earth (30th Anniversary Edition)
 1991 - Night Of The Stormrider
 1995 - Burnt Offerings
-1996 - The Dark SagaЖанр: Power<3>Thrash MetalПродолжительность: 13:05:30
+1996 - The Dark SagaЖанр: Power Thrash MetalПродолжительность: 13:05:30
 
 ## Скачать торент
 ```bash
@@ -7182,7 +7211,7 @@ magnet:?xt=urn:btih:44C7531B9D98C6243DE8F8D2E90C177BF1E0E092
 
 ###  Публикация: 1660750   (64291)
 
-Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24<3>96|ima
+Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24 96|ima
 
 
 >>HD Audio и Многоканальная Музыка
@@ -7471,7 +7500,7 @@ magnet:?xt=urn:btih:F83ACB44E747F4FA6D5EE396478127C262650E15
 
 ###  Публикация: 1486296   (61669)
 
-Александр Градский - Коллекция (1974 - 1990) 15 LP+2MC [FLAC 2.0|96<3>24|image +.cue|Vinyl-Rip,
+Александр Градский - Коллекция (1974 - 1990) 15 LP+2MC [FLAC 2.0|96 24|image +.cue|Vinyl-Rip,
 
 
 >>След.
@@ -7720,7 +7749,7 @@ Lacuna Coil — итальянская готик-метал группа, со�
 Прежние названия: Sleep of Right и Ethereal. По словам участников группы, на их творчество оказали сильное влияние такие команды как Paradise Lost, Tiamat, Septic Flesh и Type O Negative.1999 - In A Reverie
 2001 - Unleashed Memories
 2002 - Comalies
-2006 - KarmacodeЖанр: Gothic<3>Alternative MetalПродолжительность: 11:21:13
+2006 - KarmacodeЖанр: Gothic Alternative MetalПродолжительность: 11:21:13
 
 ## Скачать торент
 ```bash
@@ -7995,7 +8024,7 @@ magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
 
 ###  Публикация: 1669651   (57422)
 
-Sieges Even - Steps (1990)  [FLAC|24<3>192|image + .cue|Vinyl-Rip]<Progressive Thrash Metal, Pro
+Sieges Even - Steps (1990)  [FLAC|24 192|image + .cue|Vinyl-Rip]<Progressive Thrash Metal, Pro
 
 
 >>HD Audio и Многоканальная Музыка
@@ -8098,7 +8127,7 @@ Tremonti (Creed, Alter Bridge) - Studio Albums (5 releases) (2012 - 2021) hand m
 Mark Tremonti — американский гитарист и вокалист. Со времен участия в Creed, Тремонти стал широко известен своими способностями в написании песен и техническим мастерством и был награждён несколькими наградами, в число которых входит Грэмми. В течение трех лет подряд журнал Guitar World выбирал его в качестве гитариста года. В 2011 году Total Guitar включил его в (   Читать дальше...   )2012 - All I Was
 2015 - Cauterize
 2016 - Dust
-2018 - A Dying MachineЖанр: Heavy<3>Thrash<3>Speed Metal, Post-GrungeПродолжительность: 04:40:27
+2018 - A Dying MachineЖанр: Heavy Thrash Speed Metal, Post-GrungeПродолжительность: 04:40:27
 
 ## Скачать торент
 ```bash
@@ -8169,7 +8198,7 @@ magnet:?xt=urn:btih:9A6E0E359C40CB6239B717F21304D8182B0B5E2F
 
 ###  Публикация: 1670637   (56141)
 
-Devin Townsend - The Puzzle (2021) [FLAC|24<3>192|image + .cue|Vinyl-Rip] <Progressive Metal, Ro
+Devin Townsend - The Puzzle (2021) [FLAC|24 192|image + .cue|Vinyl-Rip] <Progressive Metal, Ro
 
 
 >>HD Audio и Многоканальная Музыка
@@ -8390,7 +8419,7 @@ Bal-Sagoth - Studio Albums (6 releases) (1995-2006) hand made [restored, declipp
 Bal-Sagoth — английская группа, играющая в жанре симфонический блэк-метал, существующая с 1993 года. Как представитель эпик-метала, Bal-Sagoth тяготеют к крупным эпическим формам, создавая сюжетные концептуальные альбомы в жанре фэнтэзи.1995 - A Black Moon Broods over Lemuria
 1996 - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule
 1997 - Battle Magic
-1999 - The Power CosmicЖанр: Symphonic<3>Epic Black MetalПродолжительность: 05:12:56
+1999 - The Power CosmicЖанр: Symphonic Epic Black MetalПродолжительность: 05:12:56
 
 ## Скачать торент
 ```bash
@@ -8751,7 +8780,7 @@ magnet:?xt=urn:btih:78572654FFAE4B6DAA591D91089C8C7CCF9313F8
 
 ###  Публикация: 1503358   (51100)
 
-Smackbound - 20<3>20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44<3>16|tracks +
+Smackbound - 20 20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44 16|tracks +
 
 
 >>HD Audio и Многоканальная Музыка
@@ -8881,7 +8910,7 @@ Therion - Studio Albums (17 releases) (1991 - 2022) hand made [restored, declipp
 Therion (от греч. θηρίον —  «зверь», «чудовище») — шведская симфоник-метал-группа, основанная в 1987 году. Therion считаются старейшей группой в стиле симфоник-метал и одними из основателей этого жанра (наряду с более поздними Nightwish). С середины 1990-х их композиции записываются и исполняются с участием живых оркестров, приглашённых (   Читать дальше...   )1991 - Of Darkness
 1992 - Beyond Sanctorum
 1993 - Symphony Masses: Ho Drakon Ho Megas
-1995 - Lepaca KliffothЖанр: Death Metal, Symphonic<3>Operatic MetalПродолжительность: 19:20:02
+1995 - Lepaca KliffothЖанр: Death Metal, Symphonic Operatic MetalПродолжительность: 19:20:02
 
 ## Скачать торент
 ```bash
@@ -8923,7 +8952,7 @@ magnet:?xt=urn:btih:781609E457EF84EA151F424B69C932A1EB30BBE4
 
 ###  Публикация: 1677142   (49972)
 
-Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24<3>192|image + .cue|Vinyl-Rip]
+Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24 192|image + .cue|Vinyl-Rip]
 
 
 >>HD Audio и Многоканальная Музыка
@@ -9140,7 +9169,7 @@ Fozzy - Studio Albums (8 releases) (2000 - 2022) hand made [restored, declipped]
 ###  Подробнее
 
 Fozzy — американская хэви-метал группа.
-В 1999 году рестлер Крис Джерико и гитарист группы <2>Stuck Mojo<2> Рич Уорд создали кавер-группу <2>Fozzy Osbourne<2>. Вскоре название сократилось до <2>Fozzy<2>, а в 2000 году на лейбле <2>Megaforce Records<2> вышел одноименный дебютный альбом.2000 - Fozzy
+В 1999 году рестлер Крис Джерико и гитарист группы  Stuck Mojo  Рич Уорд создали кавер-группу  Fozzy Osbourne . Вскоре название сократилось до  Fozzy , а в 2000 году на лейбле  Megaforce Records  вышел одноименный дебютный альбом.2000 - Fozzy
 2002 - Happenstance
 2005 - All That Remains
 2009 - Chasing The GrailЖанр: Heavy Metal, Hard RockПродолжительность: 06:20:45
@@ -9301,7 +9330,7 @@ magnet:?xt=urn:btih:1AA060F65666CDE58970FC83A6EFDDCEE0CF1BEB
 
 ###  Публикация: 1518693   (47553)
 
-Motograter - Studio Albums (2003, 2017) hand made [restored, declipped] [FLAC 2.0|Lossless|44<3>
+Motograter - Studio Albums (2003, 2017) hand made [restored, declipped] [FLAC 2.0|Lossless|44
 
 
 >>HD Audio и Многоканальная Музыка
@@ -9416,7 +9445,7 @@ magnet:?xt=urn:btih:3A0BDBB5480F0ADADC367CD76B2E444F63CD6611
 
 ###  Публикация: 1554322   (46303)
 
-Stratovarius (Kotipelto, Cain<1>s Offering) - Studio Albums (23 releases) (1989 - 2022)
+Stratovarius (Kotipelto, Cain s Offering) - Studio Albums (23 releases) (1989 - 2022)
 
 
 >>HD Audio и Многоканальная Музыка
@@ -10145,7 +10174,7 @@ magnet:?xt=urn:btih:0F95D624568EF20257BD4F6B1226F564DA8B37FC
 
 ###  Публикация: 1015340   (40531)
 
-Imagination - Imagination (1985) [FLAC 2.0|96<3>24|image+.cue|Vinyl-Rip] <Synth-Pop, Disco>
+Imagination - Imagination (1985) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Synth-Pop, Disco>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -10232,7 +10261,7 @@ magnet:?xt=urn:btih:36728EE6E92CB9444221B4731F58A1793CA2FDB6
 
 ###  Публикация: 1685908   (40397)
 
-Atomkraft - Future Warriors (1985) [FLAC|24<3>96|tracks|Vinyl-Rip]<NWOBHM, Heavy Metal, Speed Me
+Atomkraft - Future Warriors (1985) [FLAC|24 96|tracks|Vinyl-Rip]<NWOBHM, Heavy Metal, Speed Me
 
 
 >>HD Audio и Многоканальная Музыка
@@ -10247,7 +10276,7 @@ Atomkraft - Future Warriors (1985) [FLAC|24<3>96|tracks|Vinyl-Rip]<NWOBHM, Heavy
 
 A1. Future Warriors
 A2. Starchild
-A3. Dead Man<1>s Hand
+A3. Dead Man s Hand
 A4. Total Metal(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:35:05
 
 ## Скачать торент
@@ -10519,7 +10548,7 @@ magnet:?xt=urn:btih:E02EC2818F0C326084AFCCFEA0EFE39D87FA3D16
 
 ###  Публикация: 1684117   (39581)
 
-Ayreon - The Theory of Everything (2013) [FLAC|24<3>96|image + .cue|Vinyl-Rip] <Progressive Meta
+Ayreon - The Theory of Everything (2013) [FLAC|24 96|image + .cue|Vinyl-Rip] <Progressive Meta
 
 
 >>HD Audio и Многоканальная Музыка
@@ -10548,7 +10577,7 @@ magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
 
 ###  Публикация: 1684124   (39580)
 
-System Of A Down - Hypnotize (2005) [FLAC|24<3>192|image + .cue|Vinyl-Rip] <Alternative Metal, N
+System Of A Down - Hypnotize (2005) [FLAC|24 192|image + .cue|Vinyl-Rip] <Alternative Metal, N
 
 
 >>HD Audio и Многоканальная Музыка
@@ -10563,7 +10592,7 @@ System Of A Down - Hypnotize (2005) [FLAC|24<3>192|image + .cue|Vinyl-Rip] <Alte
 
 A1 Attack
 A2 Dreaming
-A3 Kill Rock <1>N Roll
+A3 Kill Rock  N Roll
 A4 Hypnotize(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:39:49
 
 ## Скачать торент
@@ -10590,10 +10619,10 @@ Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, decli
 
 ###  Подробнее
 
-Anubis Gate - датская пауэр<3>прог-метал группа, образованная в 2001 году в Ольборге.2004 - Purification
+Anubis Gate - датская пауэр прог-метал группа, образованная в 2001 году в Ольборге.2004 - Purification
 2005 - A Perfect Forever
 2007 - Andromeda Unchained
-2009 - The DetachedЖанр: Progressive<3>Power MetalПродолжительность: 09:49:38
+2009 - The DetachedЖанр: Progressive Power MetalПродолжительность: 09:49:38
 
 ## Скачать торент
 ```bash
@@ -10722,7 +10751,7 @@ magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
 
 ###  Публикация: 1682844   (38933)
 
-Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24<3>192|image + .cue|Viny
+Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24 192|image + .cue|Viny
 
 
 >>HD Audio и Многоканальная Музыка
@@ -11099,7 +11128,7 @@ magnet:?xt=urn:btih:65CB716CFC68BD32768AF0093627BBDF48143897
 
 ###  Публикация: 1680509   (37381)
 
-Poison Dollys - Invasion (1985) [FLAC|24<3>192|image + .cue|Vinyl-Rip] <Hard Rock>
+Poison Dollys - Invasion (1985) [FLAC|24 192|image + .cue|Vinyl-Rip] <Hard Rock>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -11605,7 +11634,7 @@ Butcher Babies - Studio Albums (5 releases) (2013-2023) hand made [restored, dec
 Butcher Babies — американская метал группа из Лос-Анджелеса, Калифорния. Группа была создана в 2010 году2013 - Goliath
 2015 - Take It Like A Man
 2017 - Lilith
-2023 - Eye for an Eye... <3> ...<1>Til the World<1>s BlindЖанр: Metalcore, Groove Metal, Thrash MetalПродолжительность: 03:49:54
+2023 - Eye for an Eye...   ... Til the World s BlindЖанр: Metalcore, Groove Metal, Thrash MetalПродолжительность: 03:49:54
 
 ## Скачать торент
 ```bash
@@ -11792,7 +11821,7 @@ magnet:?xt=urn:btih:ED0DB99FE15017F7B8CD88B777045DA6B307DFBE
 
 ###  Публикация: 1674546   (34764)
 
-David Coverdale - Snakebite (1978) [WavPack|24<3>192|image + .cue|Vinyl-Rip] <Blues Hard Rock>
+David Coverdale - Snakebite (1978) [WavPack|24 192|image + .cue|Vinyl-Rip] <Blues Hard Rock>
 
 
 >>HD Audio и Многоканальная Музыка
@@ -11807,7 +11836,7 @@ David Coverdale - Snakebite (1978) [WavPack|24<3>192|image + .cue|Vinyl-Rip] <Bl
 
 01. Come On
 02. Bloody Mary
-03. Ain<1>t No Love In The Heart Of The City
+03. Ain t No Love In The Heart Of The City
 04. Steal Away(   Читать дальше...   )Жанр: Blues Hard RockПродолжительность: 00:36:41
 
 ## Скачать торент
@@ -11979,7 +12008,7 @@ Chuck Schuldiner (Death; Control Denied; Voodoocult; Naphobia) - Studio Albums (
 Чарльз Майкл «Чак» Шульдинер (Charles Michael «Chuck» Schuldiner; 13 мая 1967 года, Глен-Ков, штат Нью-Йорк, США — 13 декабря 2001 года, Олтамонт-Спрингс, Флорида, США) — американский музыкант, наиболее известный как основатель, гитарист, вокалист, автор песен дэт-метал-группы Death, созданной в 1983 году под названием Mantas. В 1996 году основал группу Control Denied. (   Читать дальше...   )1987 - Scream Bloody Gore
 1988 - Leprosy
 1990 - Spiritual Healing
-1991 - Human(   Читать дальше...   )Жанр: Death<3>Thrash MetalПродолжительность: 08:17:11
+1991 - Human(   Читать дальше...   )Жанр: Death Thrash MetalПродолжительность: 08:17:11
 
 ## Скачать торент
 ```bash
@@ -12050,7 +12079,7 @@ magnet:?xt=urn:btih:246AEE83850E959DFF7A93C94D0DC7BF6B17688D
 
 ###  Публикация: 1673744   (34316)
 
-Riverside - Out of Myself (2003) Reissue 2021, Sony Music [FLAC|24<3>192|image + .cue|Vinyl-Rip]
+Riverside - Out of Myself (2003) Reissue 2021, Sony Music [FLAC|24 192|image + .cue|Vinyl-Rip]
 
 
 >>HD Audio и Многоканальная Музыка
@@ -12079,7 +12108,7 @@ magnet:?xt=urn:btih:CC86F13BDF95ABAEA3E89E7F2A4644B0592ABF43
 
 ###  Публикация: 1673285   (34147)
 
-Havok - Studio Albums (6 releases) (2009-2020) hand made [restored, declipped] [FLAC |16<3>4
+Havok - Studio Albums (6 releases) (2009-2020) hand made [restored, declipped] [FLAC |16 4
 
 
 >>HD Audio и Многоканальная Музыка
@@ -12485,7 +12514,7 @@ magnet:?xt=urn:btih:08B2C03D66B08AC7471D628BDD3EB9CE8853A29D
 
 ###  Публикация: 1670844   (32591)
 
-Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2.0|24<3>192|imag
+Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2.0|24 192|imag
 
 
 >>HD Audio и Многоканальная Музыка
@@ -12499,7 +12528,7 @@ Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2
 ###  Подробнее
 
 A1 Tony Allen - Love Letters In The Sand
-A2 Tony Allen - He<1>ll Have To Go
+A2 Tony Allen - He ll Have To Go
 A3 Tony Allen - Forgiving You Was Easy
 A4 Tony Allen - My Own Peculiar Way(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:32:37
 
@@ -12514,7 +12543,7 @@ magnet:?xt=urn:btih:51C7AD077D030FDB0A110D824B28F733C4F2FACD
 
 ###  Публикация: 1670597   (32413)
 
-Devin Townsend - Snuggles (Beautiful Dream) (2021) [FLAC|24<3>192|image + .cue|Vinyl-Rip] <P
+Devin Townsend - Snuggles (Beautiful Dream) (2021) [FLAC|24 192|image + .cue|Vinyl-Rip] <P
 
 
 >>HD Audio и Многоканальная Музыка

@@ -1,4 +1,30 @@
 
+###  Публикация: 1630927   (12207)
+
+Иллюзии (2021) WEBRip [H.264/1080p]
+
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, UHD, UHD-LQ)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1630927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этого фильма по мотивам пьесы Ивана Вырыпаева происходит в кабинете семейного психотерапевта, куда по очереди друг за другом заходят две молодые семейные пары. Они пришли, чтобы рассказать истории Денни, Сандры, Альберта и Маргарет, проживших вместе долгую жизнь и лишь в преклонном возрасте осознавших всю неоднозначность своего жизненного опыта. Однако, (   Читать дальше...   )Производство: Россия | «Process»Жанр: комедия, драмаРежиссер: Николай ГостюхинАктеры: Ксения Отинова, Алексей Каракулов, Дмитрий Нескоромный, Екатерина Мудрая, Александр СмирновСубтитры: ОтсутствуютПродолжительность: 01:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1485888E844851C69C570A8D2F1C749FD08BB38
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1630612   (12140)
 
 Отставник. Защита Дедова (2023) SATRip ( серии 1-3 из 3)
@@ -579,7 +605,7 @@ magnet:?xt=urn:btih:A8EFB3E8D94AA56A2D7ADA312528C71F8A3B972E
 
 
 >>Отечественное кино
->>Отечественные Фильмы (HD*Rip<3>LQ, DVDRip, SATRip, VHSRip)
+>>Отечественные Фильмы (HD*Rip LQ, DVDRip, SATRip, VHSRip)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1624896.jpg" />
@@ -657,7 +683,7 @@ magnet:?xt=urn:btih:34EC0063F0F1FAA2EE2ABE81F9D5B52FDDA92DA2
 
 
 >>Отечественное кино
->>Отечественные Фильмы (HD*Rip<3>LQ, DVDRip, SATRip, VHSRip)
+>>Отечественные Фильмы (HD*Rip LQ, DVDRip, SATRip, VHSRip)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_1623909.jpg" />
@@ -684,7 +710,7 @@ magnet:?xt=urn:btih:A8AB5E2677A6FE7A796E8800B6FC43CD29D884BD
 
 
 >>Отечественное кино
->>Отечественные Фильмы (HD*Rip<3>LQ, DVDRip, SATRip, VHSRip)
+>>Отечественные Фильмы (HD*Rip LQ, DVDRip, SATRip, VHSRip)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1623776.jpg" />
@@ -867,7 +893,7 @@ magnet:?xt=urn:btih:7E6A220B62937C01B7DA33C51734607305749FF5
 
 
 >>Отечественное кино
->>Отечественные Фильмы (HD*Rip<3>LQ, DVDRip, SATRip, VHSRip)
+>>Отечественные Фильмы (HD*Rip LQ, DVDRip, SATRip, VHSRip)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1620460.jpg" />
