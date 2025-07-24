@@ -1,4 +1,270 @@
 
+###  Публикация: 1454203   (204462)
+
+Unity Pro 2020 2.7f1 x64 [En]
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1454203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unity — межплатформенная среда разработки компьютерных игр. Unity позволяет создавать приложения, работающие под более чем 20 различными операционными системами, включающими персональные компьютеры, игровые консоли, мобильные устройства, интернет-приложения и другие. Выпуск Unity состоялся в 2005 году и с того времени идёт постоянное развитие.
+
+Основными преимуществами (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD41F2A88F77BCB01DC70724BE5AC188226D168E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1455567   (203656)
+
+ESRI ArcGIS Pro + Addons 2.5 [Ru]
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР ГИС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1455567.jpg" />
+</div>
+
+
+###  Подробнее
+
+ArcGIS Pro, мощное приложение ГИС для одного рабочего стола, представляет собой многофункциональное программное обеспечение, разработанное с учетом усовершенствований и идей сообщества пользователей ArcGIS Pro. ArcGIS Pro поддерживает визуализацию данных; расширенный анализ; и авторитетное ведение данных в 2D, 3D и 4D. Он поддерживает совместное использование данных (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3F2597907B8710AD75AADF4C39ACA3DDFC905E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1456001   (203330)
+
+Synopsys Saber 2019.06 [En]
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР ГИС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1456001.jpg" />
+</div>
+
+
+###  Подробнее
+
+SaberRD - интегрированная среда разработки и моделирования электронных компонентов. Унаследованная компанией Synopsys после приобретения компании Analogy, Inc, основного разработчика программы.
+
+Обеспечивает аналоговое моделирование с использованием языка Saber-МАСТ.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8590C92505052FE7FEAC7CB963F601A0532AC21C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1451460   (201955)
+
+Help+Manual Professional Edition 8.3.1 Build 5793 + HelpXplain 1.4.0.1345 + Premium Pack 4.1.0 [Ru<3
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1451460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Help+Manual - программа для создания справочных руководств в форматах CHM, PDF, RTF и электронных книг в виде исполняемых файлов. Вы являетесь разработчиком и нуждаетесь в приложении, которое поможет вам создавать руководства к вашим программам? Или просто занимаетесь изготовлением различных книг в электронном формате? Help+Manual - это то, что вам нужно. Эта программа (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB6E994A5B5CC468F63D33F9F58CEA80571C4E2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1461184   (199981)
+
+InstallAware Studio Admin X13 Build 3.9 2021 [Ru En]
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1461184.jpg" />
+</div>
+
+
+###  Подробнее
+
+InstallAware на данный момент - это самая мощная платформа для автоматического создания установочных пакетов, это целый комбайн возможностей. Просто посмотрите на его размерчик, а лучше на требуемое место для установки. Все основные свойства Вашего проекта задаются непосредственно в Visual Studio. Данное приложение умеет определять операционную систему и проверять (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACEB55A116B47C42E1C34020A03EFDA2DB1F77F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1462902   (198584)
+
+HelpXplain 1.5.0.1428 [Ru En]
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1462902.jpg" />
+</div>
+
+
+###  Подробнее
+
+HelpXplain идеально подходит для слайд-шоу, встроенных в веб-страницы и техническую документацию. Создавайте пошаговые и быстрые учебные пособия за считанные минуты, а не часы. Магия заключается в методе: HelpXplain оживляет серию простых снимков экрана, каждый из которых можно отредактировать или заменить в любое время.
+
+HelpXplain также может записывать многостраничные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F290BFAE55DEEF22AB1EF5BD052BFD972C5AD2DA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1490836   (198554)
+
+X7 5-Mode Oscar Editor for F2 F3 F4 F5 F7 mouse V14.03V03 [Multi Ru]
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1490836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычные компьютерные мыши ограничены своими заводскими настройками, и даже в случае с программируемыми мышами вам доступен лишь небольшой фиксированный набор функций. Теперь же, благодаря A4Tech X7 Oscar Editor, вы можете писать любые скрипты, которые вам понадобятся, легко расширяя возможности своей мыши, а также получая возможность делиться скриптами с другими (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957911D33C166E3D98FD04AD01347E5AE0A9D1B4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1375680   (196153)
+
+Bootstrap Studio 5.0.3 [En]
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1375680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bootstrap Studio - программа для создания красивых веб-сайтов с использованием структуры Bootstrap. Работа в данном редакторе происходит максимально удобно и продуктивно, так как здесь имеются сотни разнообразных вариаций дизайнов, которые подойдут под самые различные сервисы. Дополнительно их можно отредактировать, максимально тонко проводя работу. Этим приложением (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D547900DE77FC589F9A440A6FE925F464C5A85
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1376026   (196120)
+
+Axure RP Pro, Team, Enterprise 9.0.0.3693 [En]
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1376026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Axure RP- быстрое макетирование для приложений веб-сайта, ориентированное под каркасные прототипы веб-сайтов. Продукт предназначен для снижения издержек проектирования веб-сайтов. Это решение поможет быстро в визуальном режиме создать рабочий прототип будущего сайта, затем выгрузить прототип в html и просмотреть его через браузер. Качество вполне приемлемо для дальнейшей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBEF2925977CE855DA2FBD47235A9F9927D0487
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1376450   (195848)
+
+SQLite Expert Professional 5.3.5.475 [En]
+
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1376450.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLite Expert Professional – мощный визуальный инструмент для удобного управления БД SQLite3. Программа совмещает управление базами данных и их обслуживание в единой интегрированной среде с четким и интуитивно понятным пользователю графическим интерфейсом. С помощью этого приложения пользователь может редактировать и просматривать таблицы, перестраивать поля, проставлять (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CBDE18CE7CEF6198AF450B75C6C82B90BE1244
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1378030   (193219)
 
 Raxco PerfectUpdater 2.0.651.18068 [En]
@@ -79,7 +345,7 @@ magnet:?xt=urn:btih:235CB6B7453C09B45E0931CBDAD30F52F444DC88
 
 ###  Публикация: 1472036   (188281)
 
-Game WideScreener 2.0.1 + Portable [Ru<3>En]
+Game WideScreener 2.0.1 + Portable [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -131,11 +397,11 @@ magnet:?xt=urn:btih:D2513816BC8E4C9B5F222ADF1CC0CE6B35726BFD
 
 ###  Публикация: 1476446   (179750)
 
-Apowersoft CAD Viewer 1.0.4.1 RePack (& Portable) by TryRooM [Ru<3>En]
+Apowersoft CAD Viewer 1.0.4.1 RePack (& Portable) by TryRooM [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1476446.jpg" />
@@ -185,7 +451,7 @@ magnet:?xt=urn:btih:0E9EF4242E4B81451728A6B2A6C4B215A934F2DA
 
 ###  Публикация: 1478623   (175028)
 
-Active PKiller 1.6 + Portable [Ru<3>En]
+Active PKiller 1.6 + Portable [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -239,7 +505,7 @@ magnet:?xt=urn:btih:F2B0B124A1D3F6EF08C86A64906126DE0D6CDD7B
 
 ###  Публикация: 1686947   (174702)
 
-BlueStacks App Player 5.14.10.1008 [Multi<3>Ru]
+BlueStacks App Player 5.14.10.1008 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -252,7 +518,7 @@ BlueStacks App Player 5.14.10.1008 [Multi<3>Ru]
 
 ###  Подробнее
 
-BlueStacks App Player — бесплатное программное решение, представляющее собой эмулятор операционной системы Android. Уникальная технология <2>Layercake<2> позволяет насладиться в полном объеме не только системными приложениями, но и великолепной графикой популярных игр, предназначенных для работы в вышеупомянутой операционной системе, которая используется в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+BlueStacks App Player — бесплатное программное решение, представляющее собой эмулятор операционной системы Android. Уникальная технология  Layercake  позволяет насладиться в полном объеме не только системными приложениями, но и великолепной графикой популярных игр, предназначенных для работы в вышеупомянутой операционной системе, которая используется в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -265,7 +531,7 @@ magnet:?xt=urn:btih:AB3D29207F1CC62850FBBFCEB3179C3246DB4E08
 
 ###  Публикация: 1479492   (173172)
 
-NVIDIA GeForce Experience 3.23.0.74 Final [Multi<3>Ru]
+NVIDIA GeForce Experience 3.23.0.74 Final [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -291,7 +557,7 @@ magnet:?xt=urn:btih:8A1C3A74600ABF44F558C212A6200D571292DAE3
 
 ###  Публикация: 1390454   (172449)
 
-KDevelop 5.5.0 [Multi<3>Ru]
+KDevelop 5.5.0 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -304,7 +570,7 @@ KDevelop 5.5.0 [Multi<3>Ru]
 
 ###  Подробнее
 
-KDevelop - мощная интегрированная среда разработки для C, C++, Python, QML<3>JavaScript и PHP. IDE обрабатывает всю кодовую базу и запоминает, элементом каких классов является каждая из функций, где определен тип каждой переменной, а также многие другие параметры ващего кода.
+KDevelop - мощная интегрированная среда разработки для C, C++, Python, QML JavaScript и PHP. IDE обрабатывает всю кодовую базу и запоминает, элементом каких классов является каждая из функций, где определен тип каждой переменной, а также многие другие параметры ващего кода.
 
 Имеется менеджер проектов, подсветка кода с учетом синатксиса, навигатор классов, автозавершение (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
@@ -371,11 +637,11 @@ magnet:?xt=urn:btih:9FE6194ABB4612106626C41451FD106706560022
 
 ###  Публикация: 1482723   (166420)
 
-CorelCAD 2021.5 Build 21.1.1.2097 RePack by KpoJIuK [Multi<3>Ru]
+CorelCAD 2021.5 Build 21.1.1.2097 RePack by KpoJIuK [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1482723.jpg" />
@@ -411,7 +677,7 @@ Unity Asset - Obfuscator Pro 3.9.5 [En]
 ###  Подробнее
 
 Obfuscator Pro разработан для повышения безопасности программного обеспечения и игр, особенно для игр, созданных с использованием Unity3d.
-Его функция заключается в том, чтобы запутывать встроенные сборки dotNet, такие как Assembly-Csharp и Assembly-Unity Script для Windows <3> Mac <3> Linux Standalone Games и встроенных систем, таких как Android и IPhone. Бета: Xbox (   Читать дальше...   )Язык интерфейса: Английский
+Его функция заключается в том, чтобы запутывать встроенные сборки dotNet, такие как Assembly-Csharp и Assembly-Unity Script для Windows   Mac   Linux Standalone Games и встроенных систем, таких как Android и IPhone. Бета: Xbox (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -476,11 +742,11 @@ magnet:?xt=urn:btih:EAE8C7B6378A645B8A8C09B4AB0F0A6093FBFD5B
 
 ###  Публикация: 1484050   (162878)
 
-LiraLand LIRA-SAPR + SAPFIR (ЛИРА-САПР + САПФИР) 2015 R4 [Multi<3>Ru]
+LiraLand LIRA-SAPR + SAPFIR (ЛИРА-САПР + САПФИР) 2015 R4 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1484050.jpg" />
@@ -533,7 +799,7 @@ magnet:?xt=urn:btih:9D3755F105525A37BD7F28516953BC5E1A4A460F
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1397259.jpg" />
@@ -587,7 +853,7 @@ Microsoft Diagnostic and Recovery Toolset 10 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1398704.jpg" />
@@ -742,7 +1008,7 @@ magnet:?xt=urn:btih:AFC5E9B4E25BBE5135736334F06FAED613F04F78
 
 ###  Публикация: 1403136   (146408)
 
-Hasleo WinToHDD 4.4 Enterprise [Multi<3>Ru]
+Hasleo WinToHDD 4.4 Enterprise [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -755,7 +1021,7 @@ Hasleo WinToHDD 4.4 Enterprise [Multi<3>Ru]
 
 ###  Подробнее
 
-WinToHDD Professional позволяет устанавливать, переустанавливать, клонировать ОС Windows 10, 8.1, 7 и Vista без использования CD<3>DVD дисков или USB-носителя. С помощью универсального инструмента установки Windows – WinToHDD Professional – можно легко переустановить Windows, установить Windows на диски, отличные от того, на которых установлена текущая операционная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+WinToHDD Professional позволяет устанавливать, переустанавливать, клонировать ОС Windows 10, 8.1, 7 и Vista без использования CD DVD дисков или USB-носителя. С помощью универсального инструмента установки Windows – WinToHDD Professional – можно легко переустановить Windows, установить Windows на диски, отличные от того, на которых установлена текущая операционная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -940,7 +1206,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 24.12.2023) [Ru] (а
 
 ###  Подробнее
 
-Вам представлен обновлённый 24 декабря 2023 года распределённый по категориям сборник портативных программ самого широкого спектра назначения: различные оптимизаторы, активаторы, твикеры, управление обновлениями Windows, очистка компьютера от разного рода мусорных файлов, управление контекстным меню и системным реестром, получение полной информации о <2>железе<2>, (   Читать дальше...   )
+Вам представлен обновлённый 24 декабря 2023 года распределённый по категориям сборник портативных программ самого широкого спектра назначения: различные оптимизаторы, активаторы, твикеры, управление обновлениями Windows, очистка компьютера от разного рода мусорных файлов, управление контекстным меню и системным реестром, получение полной информации о  железе , (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -953,7 +1219,7 @@ magnet:?xt=urn:btih:C9EC72C52D4B3D636AC655ECE490B0D25071B6D1
 
 ###  Публикация: 1546327   (137683)
 
-Blumentals Rapid CSS 2022 17.3.0.244 [Multi<3>Ru]
+Blumentals Rapid CSS 2022 17.3.0.244 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1005,7 +1271,7 @@ magnet:?xt=urn:btih:B31DA2E202155DA8048D40A64CBDC095CBD7901A
 
 ###  Публикация: 1546329   (137648)
 
-Blumentals Rapid PHP 2022 17.3.0.244 [Multi<3>Ru]
+Blumentals Rapid PHP 2022 17.3.0.244 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1031,7 +1297,7 @@ magnet:?xt=urn:btih:4E8ABF9E3B41468819F23C58E77BBABE4EDA85B9
 
 ###  Публикация: 1547810   (136554)
 
-Nintex Workflow 2016 4.6.2.70 [Ru<3>En]
+Nintex Workflow 2016 4.6.2.70 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1057,7 +1323,7 @@ magnet:?xt=urn:btih:B70D7E96F86CE22F1242AB31323694EF6A5ACE83
 
 ###  Публикация: 1548468   (136187)
 
-Аура Леса 2.8.10i.216 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Аура Леса 2.8.10i.216 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1109,11 +1375,11 @@ magnet:?xt=urn:btih:4B9810FAFB5C77AEC422A3CBC59975A8F3DAEF63
 
 ###  Публикация: 1551356   (134163)
 
-SketchCut PRO 4.0.3 [Multi<3>Ru]
+SketchCut PRO 4.0.3 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1551356.jpg" />
@@ -1192,7 +1458,7 @@ magnet:?xt=urn:btih:28C64A920BE178281BE21EA197893AEECA7793E6
 
 ###  Публикация: 1553419   (132739)
 
-Microsoft Endpoint Configuration Manager 2203 [Multi<3>Ru]
+Microsoft Endpoint Configuration Manager 2203 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1244,11 +1510,11 @@ magnet:?xt=urn:btih:3D3CBF527CA212D69965C4A6F4AF80B85A3E4B31
 
 ###  Публикация: 1556496   (130908)
 
-Geomagic Control X 2020.1.1 [Multi<3>Ru]
+Geomagic Control X 2020.1.1 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1556496.jpg" />
@@ -1270,7 +1536,7 @@ magnet:?xt=urn:btih:F3563C85E9BAA8233D6494231F3190353D030FF6
 
 ###  Публикация: 1556534   (130893)
 
-Zettlr 2.3.0 [Multi<3>Ru]
+Zettlr 2.3.0 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1296,11 +1562,11 @@ magnet:?xt=urn:btih:6B5CE645978846F36BCD5761353FDAF406E4C2A7
 
 ###  Публикация: 1556492   (130889)
 
-Geomagic Design X 2020.0.3 [Multi<3>Ru]
+Geomagic Design X 2020.0.3 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1556492.jpg" />
@@ -1350,7 +1616,7 @@ magnet:?xt=urn:btih:7BD6F627E344F2EC7BBE9D1851DAB4AC255CA134
 
 ###  Публикация: 1558782   (128120)
 
-WYSIWYG Web Builder 17.3.1 [Ru<3>En]
+WYSIWYG Web Builder 17.3.1 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1402,7 +1668,7 @@ magnet:?xt=urn:btih:758F6D73963B885895B81D79359E29458F9C1593
 
 ###  Публикация: 1560662   (126006)
 
-Adobe Dreamweaver 2021 21.3.0.15593 RePack by KpoJIuK [Multi<3>Ru]
+Adobe Dreamweaver 2021 21.3.0.15593 RePack by KpoJIuK [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1592,7 +1858,7 @@ Avia Systems - Scan2CAD 10.4.16 Repack by F4CG [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1610635.jpg" />
@@ -1619,7 +1885,7 @@ Cabinet Vision 2021.1.0.571 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1567066.jpg" />
@@ -1777,7 +2043,7 @@ Sprint-Layout 6.0 DC 08.07.2022 RePack (& Portable) by NikZayatS2018 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1568224.jpg" />
@@ -1879,7 +2145,7 @@ magnet:?xt=urn:btih:D6C7EDF7FF06263417C3B86FA62D1DCBE24C991D
 
 ###  Публикация: 1568943   (114588)
 
-SamDrivers 22.7 OLD - Сборник драйверов для Windows [Multi<3>Ru]
+SamDrivers 22.7 OLD - Сборник драйверов для Windows [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -1892,7 +2158,7 @@ SamDrivers 22.7 OLD - Сборник драйверов для Windows [Multi<3>
 
 ###  Подробнее
 
-Сборник драйверов от SamLab, для всех 32-х и 64-битных операционных систем Windows, начиная от Windows XP и до Windows 11, включая серверные платформы. В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus <3> Drivers Installer Assistant (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Сборник драйверов от SamLab, для всех 32-х и 64-битных операционных систем Windows, начиная от Windows XP и до Windows 11, включая серверные платформы. В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus   Drivers Installer Assistant (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -1931,7 +2197,7 @@ magnet:?xt=urn:btih:3BFAE29EA0D8FA093CB88904368D20A7834DA60E
 
 ###  Публикация: 1569136   (114089)
 
-Microsoft .NET Framework 4.8.1 [Multi<3>Ru]
+Microsoft .NET Framework 4.8.1 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2048,7 +2314,7 @@ Windows USB-DVD Download Tool 1.0.30 (Portable) [En]
 
 ###  Подробнее
 
-Windows USB<3>DVD Download Tool - инструмент от компании Microsoft, переназначенный для быстрого и простого создания загрузочных USB-флешек или DVD-дисков и образами операционной системы Windows. Она позволяет записать образ системы на флешку или DVD-диск, чтобы затем использовать его для установки на компьютер или ноутбук. При этом, программа очень проста в использовании (   Читать дальше...   )Язык интерфейса: Английский
+Windows USB DVD Download Tool - инструмент от компании Microsoft, переназначенный для быстрого и простого создания загрузочных USB-флешек или DVD-дисков и образами операционной системы Windows. Она позволяет записать образ системы на флешку или DVD-диск, чтобы затем использовать его для установки на компьютер или ноутбук. При этом, программа очень проста в использовании (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -2061,7 +2327,7 @@ magnet:?xt=urn:btih:2B41C243F3F3AB9B3C5B49CAB2FE3CCC858B3EEF
 
 ###  Публикация: 1570195   (111563)
 
-IDM UltraCompare Pro 22.20.0.26 <3> UltraEdit 29.1.0.90 Portable by AlexYar [Ru]
+IDM UltraCompare Pro 22.20.0.26   UltraEdit 29.1.0.90 Portable by AlexYar [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2167,11 +2433,11 @@ magnet:?xt=urn:btih:CF7DA71A88E00EAA8E028BE4813CD092A52ED666
 
 ###  Публикация: 1616077   (110384)
 
-WinPE 11-10-8 Sergei Strelec (x86<3>x64<3>Native x86) 2023.02.28 [En]
+WinPE 11-10-8 Sergei Strelec (x86 x64 Native x86) 2023.02.28 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1616077.jpg" />
@@ -2299,7 +2565,7 @@ magnet:?xt=urn:btih:AB5D87791F06E3489FC5EB371873544BE575B65B
 
 ###  Публикация: 1571399   (108272)
 
-LDPlayer 4.0.83 [Multi<3>Ru]
+LDPlayer 4.0.83 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2325,7 +2591,7 @@ magnet:?xt=urn:btih:756EF1C507D44DF650785DBBCC669446007DDBAB
 
 ###  Публикация: 1571841   (107025)
 
-Open Server 5.4.3 [Multi<3>Ru]
+Open Server 5.4.3 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2353,7 +2619,7 @@ magnet:?xt=urn:btih:D87122E9A38F8799FD9C684C5E519B1BB3767A75
 
 ###  Публикация: 1499688   (106459)
 
-Qemu Simple Boot 1.3 Portable [Multi<3>Ru]
+Qemu Simple Boot 1.3 Portable [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2379,7 +2645,7 @@ magnet:?xt=urn:btih:EF24A65B64F2CD02A4BFD317BB306F607A16B74E
 
 ###  Публикация: 1572105   (106392)
 
-WinToUSB Enterprise 7.1 Release 1 Portable by AlexYar [Ru<3>En]
+WinToUSB Enterprise 7.1 Release 1 Portable by AlexYar [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2392,7 +2658,7 @@ WinToUSB Enterprise 7.1 Release 1 Portable by AlexYar [Ru<3>En]
 
 ###  Подробнее
 
-WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD<3>DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский
+WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -2432,7 +2698,7 @@ magnet:?xt=urn:btih:029BF7C84B9FB4930C5EC38A73DD3B4D316F266D
 
 ###  Публикация: 1411194   (104009)
 
-CoolUtils Total CAD Converter 3.1.0.178 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+CoolUtils Total CAD Converter 3.1.0.178 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2458,7 +2724,7 @@ magnet:?xt=urn:btih:53073BAB0417098470C0A8ACBD5B1F8231468E83
 
 ###  Публикация: 1411498   (103303)
 
-KinoScreen 1.1 + Portable [Ru<3>En]
+KinoScreen 1.1 + Portable [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2488,7 +2754,7 @@ Altair Flux & FluxMotor 2022.2.0 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1621913.jpg" />
@@ -2511,11 +2777,11 @@ magnet:?xt=urn:btih:704C365520BFF3E94C9B77F51C97FC0999577104
 
 ###  Публикация: 1501809   (101691)
 
-Ashampoo 3D CAD Professional 8.0.0 [Multi<3>Ru]
+Ashampoo 3D CAD Professional 8.0.0 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1501809.jpg" />
@@ -2541,7 +2807,7 @@ NI Circuit Design Suite 14.3 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1622243.jpg" />
@@ -2564,7 +2830,7 @@ magnet:?xt=urn:btih:A231C2F9728869E286F1FFBAC96DD8C56AC2A25E
 
 ###  Публикация: 1412500   (101274)
 
-XAMPP 7.4.10 + Portable [En<3>De]
+XAMPP 7.4.10 + Portable [En De]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2617,7 +2883,7 @@ magnet:?xt=urn:btih:59D5F9685425A3EC1D27EF248FB4BE23AECE060C
 
 ###  Публикация: 1412538   (100635)
 
-Tarma InstallMate 9.97.1.7573 [Ru<3>En]
+Tarma InstallMate 9.97.1.7573 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2630,7 +2896,7 @@ Tarma InstallMate 9.97.1.7573 [Ru<3>En]
 
 ###  Подробнее
 
-Tarma InstallMate - удобная программа для создания автономных инсталляторов, совместимых с любыми Windows 32<3>64-разрядными операционными системами или серверными платформами, с полной настройкой всех установочных действий и диалогов. Программа обладает красивым дизайном и простым в использовании интерфейсом, что позволяет быстро освоиться в ней даже новичкам. С помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Tarma InstallMate - удобная программа для создания автономных инсталляторов, совместимых с любыми Windows 32 64-разрядными операционными системами или серверными платформами, с полной настройкой всех установочных действий и диалогов. Программа обладает красивым дизайном и простым в использовании интерфейсом, что позволяет быстро освоиться в ней даже новичкам. С помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -2643,7 +2909,7 @@ magnet:?xt=urn:btih:C9149A11BDC058672D26F3A57BC99C6E4922D3F2
 
 ###  Публикация: 1623066   (100474)
 
-Microsoft SQL Server 2022 16.0.1000.6 (RTM) + CU2 + SSMS [Ru<3>En]
+Microsoft SQL Server 2022 16.0.1000.6 (RTM) + CU2 + SSMS [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2671,7 +2937,7 @@ magnet:?xt=urn:btih:04FC1CD085F3E3E23AAEF2E0A3256F4260D23664
 
 ###  Публикация: 375494   (99800)
 
-PGI Visual Fortran + Workstation C<3>C++ 11.7 [En]
+PGI Visual Fortran + Workstation C C++ 11.7 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2701,7 +2967,7 @@ Simulia Abaqus 6.13-1 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1624102.jpg" />
@@ -2751,7 +3017,7 @@ magnet:?xt=urn:btih:46776C866A601E2A8F831C1BB37710AC421ADDB6
 
 ###  Публикация: 1575204   (98251)
 
-LDPlayer 3.126 [Multi<3>Ru]
+LDPlayer 3.126 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2781,7 +3047,7 @@ Realtime Landscaping Architect 2023 v23.02 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1624636.jpg" />
@@ -2858,11 +3124,11 @@ magnet:?xt=urn:btih:8142F31203D63CE07583AA9CC329DAE07ED29532
 
 ###  Публикация: 1626004   (97694)
 
-DATAKIT CrossManager 2023.2 [Multi<3>Ru]
+DATAKIT CrossManager 2023.2 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1626004.jpg" />
@@ -2889,7 +3155,7 @@ Altair SimLab 2022.3 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1630959.jpg" />
@@ -2911,7 +3177,7 @@ magnet:?xt=urn:btih:F4838632D0EB6091CE84F46919C0392F82BDF7D5
 
 ###  Публикация: 1417143   (91371)
 
-2GIS оболочка 3.16.3.0 [Ru<3>En]
+2GIS оболочка 3.16.3.0 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2938,7 +3204,7 @@ magnet:?xt=urn:btih:11B7A36F3B0F70F06704C1D9EB99799CDAD182D1
 
 ###  Публикация: 1578809   (91301)
 
-CodeLobster IDE 2.1.0 [Multi<3>Ru]
+CodeLobster IDE 2.1.0 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -2992,7 +3258,7 @@ magnet:?xt=urn:btih:481C5468F00D032E364F6D975A4E07E64714AA9A
 
 ###  Публикация: 1634659   (90539)
 
-BlueStacks Tweaker 6.9.2 beta Portable [Multi<3>Ru]
+BlueStacks Tweaker 6.9.2 beta Portable [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3005,7 +3271,7 @@ BlueStacks Tweaker 6.9.2 beta Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-Приложение для <2>BlueStacks App Player<2>.
+Приложение для  BlueStacks App Player .
 
 BlueStacksTweaker поможет: получить root права, убрать рекомендованные приложения, изменить модель устройства, страну, разрешение экрана, плотность DPI, оперативную и постоянную память, получить премиум бесплатно, пользоваться без авторизации в Google и многое другое.Язык интерфейса: Русский, Английский и другие
 
@@ -3020,7 +3286,7 @@ magnet:?xt=urn:btih:63AF93BFD72FC3877D5978F6B6BBDF385DB02D4A
 
 ###  Публикация: 1579279   (90459)
 
-GameMaker 2022.8.1.37 [Multi<3>Ru]
+GameMaker 2022.8.1.37 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3124,7 +3390,7 @@ magnet:?xt=urn:btih:A37BA0AD760164CF12CAD5344B868DA96296E7D1
 
 ###  Публикация: 1686419   (89452)
 
-LDPlayer 9.0.64 [Multi<3>Ru]
+LDPlayer 9.0.64 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3151,7 +3417,7 @@ magnet:?xt=urn:btih:26618AAE4CE9AB83347782112E2D032A3189DF53
 
 ###  Публикация: 1636080   (89052)
 
-Resource Tuner Business|Personal 2.23.0 RePack (& Portable) by Dodakaedr 2.23.0 [Ru<3>En]
+Resource Tuner Business|Personal 2.23.0 RePack (& Portable) by Dodakaedr 2.23.0 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3178,7 +3444,7 @@ magnet:?xt=urn:btih:DFABDAF35B7C253223C9DF63A0BC753384FAEF5D
 
 ###  Публикация: 1503010   (88218)
 
-Microsoft Visual Studio 2019 Community 16.11.5 (Offline Cache, Unofficial) [Ru<3>En]
+Microsoft Visual Studio 2019 Community 16.11.5 (Offline Cache, Unofficial) [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3204,7 +3470,7 @@ magnet:?xt=urn:btih:3DAC8D15E2D2652C8AFA27AEFE98842AE92561C2
 
 ###  Публикация: 1503204   (87681)
 
-Geany 1.38.0 + Plugins [Multi<3>Ru]
+Geany 1.38.0 + Plugins [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3234,7 +3500,7 @@ BricsCAD Ultimate 23.2.06 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1639422.jpg" />
@@ -3256,7 +3522,7 @@ magnet:?xt=urn:btih:C38A27A2C2AEC0D276442AE8F8EF5BF897D4E227
 
 ###  Публикация: 1420276   (84784)
 
-Windows Post-Install Wizard by StartSoft Cowboy Style Full 06-2020 [Ru<3>En]
+Windows Post-Install Wizard by StartSoft Cowboy Style Full 06-2020 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3308,11 +3574,11 @@ magnet:?xt=urn:btih:1B4D8BCDA17DE07B30DC4F8C5FADC40434E5F30E
 
 ###  Публикация: 1639952   (84270)
 
-Graebert ARES Commander 2024.1 [Multi<3>Ru]
+Graebert ARES Commander 2024.1 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1639952.jpg" />
@@ -3388,7 +3654,7 @@ magnet:?xt=urn:btih:2CFAFC422A01E7D3207F6E7D22FDE1CFBE0510CB
 
 ###  Публикация: 1642062   (82084)
 
-X-Mouse Button Control 2.20.5 + Portable [Multi<3>Ru]
+X-Mouse Button Control 2.20.5 + Portable [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3414,7 +3680,7 @@ magnet:?xt=urn:btih:A641585B41348FDAE741859162A80BBBC97F2598
 
 ###  Публикация: 1582880   (81688)
 
-Trados Studio 2022 Professional 17.0.3.11695 [Multi<3>Ru]
+Trados Studio 2022 Professional 17.0.3.11695 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3466,7 +3732,7 @@ magnet:?xt=urn:btih:3F3073B579A5630C4F03B19E1DE97CB236890EA4
 
 ###  Публикация: 1584142   (79259)
 
-NVIDIA GeForce Desktop Game Ready 473.81 WHQL + DCH [Multi<3>Ru]
+NVIDIA GeForce Desktop Game Ready 473.81 WHQL + DCH [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3520,7 +3786,7 @@ magnet:?xt=urn:btih:A1C6787845CAFC6625582A9EC7CA7F238C89559E
 
 ###  Публикация: 1646067   (78995)
 
-PSPad 5.0.7 Build 775 + Portable [Multi<3>Ru]
+PSPad 5.0.7 Build 775 + Portable [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3548,7 +3814,7 @@ magnet:?xt=urn:btih:36675C3BF67AEF6BF050B122F20AB10FA011E359
 
 ###  Публикация: 1506710   (78744)
 
-HxD Hex Editor 2.5.0.0 + Portable [Multi<3>Ru]
+HxD Hex Editor 2.5.0.0 + Portable [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -3579,7 +3845,7 @@ Plexim Plecs 4.7.5 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1646277.jpg" />
@@ -3588,7 +3854,7 @@ Plexim Plecs 4.7.5 [En]
 
 ###  Подробнее
 
-PLECS® является инструментом для высокоскоростного моделирования систем силовой электроники. Он доступен в двух версиях: PLECS Blockset для бесшовной интеграции с MATLAB® <3> Simulink® и PLECS Standalone, полностью самостоятельный продукт.
+PLECS® является инструментом для высокоскоростного моделирования систем силовой электроники. Он доступен в двух версиях: PLECS Blockset для бесшовной интеграции с MATLAB®   Simulink® и PLECS Standalone, полностью самостоятельный продукт.
 В раздачу входит вариант Standalone для процессоров x64.Язык интерфейса: Английский
 
 ## Скачать торент
@@ -3606,7 +3872,7 @@ Keysight EMPro 2023 Update 0.1 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1647668.jpg" />
@@ -3617,7 +3883,7 @@ Keysight EMPro 2023 Update 0.1 [En]
 
 Современная, точная среда 3D ЭМ анализа
 2 методики расчета: FEM(Метод конечных элементов) и FDTD (Метод конечных разностей во временной области)
-Связь с САПР ADS — импорт<3>экспорт проектов, совместное моделирование
+Связь с САПР ADS — импорт экспорт проектов, совместное моделирование
 Простой импорт CAD файлов из других программ(   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
@@ -3631,11 +3897,11 @@ magnet:?xt=urn:btih:BB15E8726C624C6AB58F818F8AE079E7A28235E7
 
 ###  Публикация: 1648979   (76632)
 
-QuarkXPress 2023 v19.2.1.55827 [Multi<3>Ru]
+QuarkXPress 2023 v19.2.1.55827 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1648979.jpg" />
@@ -3657,11 +3923,11 @@ magnet:?xt=urn:btih:2A777AFDEFD709F38C78A0993E8E3B8171C384B1
 
 ###  Публикация: 1650100   (75166)
 
-LibreCAD 2.2.0.2 [Multi<3>Ru]
+LibreCAD 2.2.0.2 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1650100.jpg" />
@@ -3847,7 +4113,7 @@ ZWSim Structural 2022 SP3 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1587118.jpg" />
@@ -3899,7 +4165,7 @@ ZWMeshWorks 2022 SP3 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1587246.jpg" />
@@ -3923,7 +4189,7 @@ magnet:?xt=urn:btih:01DC12F135EA92AE6A6B5E1B45C67091976DA478
 
 ###  Публикация: 1425027   (72463)
 
-Developer Express VCL for Delphi 14.2.2 Full Sources для IDE Delphi 7 - XE7 [Ru<3>En]
+Developer Express VCL for Delphi 14.2.2 Full Sources для IDE Delphi 7 - XE7 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4036,7 +4302,7 @@ LTspice 17.1.10 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1654562.jpg" />
@@ -4071,7 +4337,7 @@ Muscle Premium 4.0.09 Portable [Multi]
 
 ###  Подробнее
 
-Подробное руководство от <2>Visible Body<2> в 3D для пониманию того, как взаимодействуют мышцы и кости, и как возникают распространенные травмы и состояния.
+Подробное руководство от  Visible Body  в 3D для пониманию того, как взаимодействуют мышцы и кости, и как возникают распространенные травмы и состояния.
 ПО предоставляет:
 3D-модели костей, связок, сумок и скелетных мышц с кровоснабжением и иннервацией. Включает в себя мужскую и женскую опорно-двигательную систему.
 Подробную информацию по каждой скелетной (   Читать дальше...   )Язык интерфейса: Английский, немецкий, и др. (русского нет).
@@ -4113,7 +4379,7 @@ magnet:?xt=urn:btih:5F42B40EB3C6EE561187E319C1DCDA547E2BD19D
 
 ###  Публикация: 1589212   (68306)
 
-Adobe XD 55.1.12.7 RePack by KpoJIuK [Multi<3>Ru]
+Adobe XD 55.1.12.7 RePack by KpoJIuK [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4139,7 +4405,7 @@ magnet:?xt=urn:btih:C21AC1ABCD334DD8F178E835FF4A27F940900E87
 
 ###  Публикация: 1657763   (66916)
 
-Freeplane 1.11.6 + Portable [Multi<3>Ru]
+Freeplane 1.11.6 + Portable [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4178,7 +4444,7 @@ magnet:?xt=urn:btih:42C4ED4D6E4C147045D69B6A6BB98B5528416844
 
 ###  Подробнее
 
-78RePack (утилита для конвертации архивов Wim<3>Esd<3>Swm<3>Rwm) это GUI для WimLib (альтернативный @MS набор библиотек для работы с wim-архивами). GUI сделан с помощью скрипта PECMD2012. Возможности утилиты: преобразование архивов Wim<3>Esd<3>Swm<3>Rwm, просмотр информации выбранного архива, проверка архива на целостность, распаковка архива в выбранную папку. Работает независимо (   Читать дальше...   )Язык интерфейса: Английский
+78RePack (утилита для конвертации архивов Wim Esd Swm Rwm) это GUI для WimLib (альтернативный @MS набор библиотек для работы с wim-архивами). GUI сделан с помощью скрипта PECMD2012. Возможности утилиты: преобразование архивов Wim Esd Swm Rwm, просмотр информации выбранного архива, проверка архива на целостность, распаковка архива в выбранную папку. Работает независимо (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -4296,7 +4562,7 @@ magnet:?xt=urn:btih:692938BCA3AB83B1D31054DC4787C6E543E307E2
 
 ###  Публикация: 1593401   (58439)
 
-Remote Desktop Manager Enterprise 2022.3.24.0 Portable by FC Portables [Multi<3>Ru]
+Remote Desktop Manager Enterprise 2022.3.24.0 Portable by FC Portables [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4335,7 +4601,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4535 [En]
 
 ###  Подробнее
 
-EditPlus – это компактный текстовый редактор для Windows, умеющий читать тексты различных форматов и кодировок. В программе реализована подсветка синтаксиса для HTML, CSS, PHP, ASP, PERL, C<3>C , Java, javascript и VBScript. В программе имеется многооконный интерфейс, встроенный веб-браузер для предварительного просмотра HTML или Java-aпплетов. Редактор может служить (   Читать дальше...   )Язык интерфейса: Английский
+EditPlus – это компактный текстовый редактор для Windows, умеющий читать тексты различных форматов и кодировок. В программе реализована подсветка синтаксиса для HTML, CSS, PHP, ASP, PERL, C C , Java, javascript и VBScript. В программе имеется многооконный интерфейс, встроенный веб-браузер для предварительного просмотра HTML или Java-aпплетов. Редактор может служить (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -4404,7 +4670,7 @@ Keysight WaferPro Express 2016.04 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1669639.jpg" />
@@ -4430,7 +4696,7 @@ Keysight Model Builder Program 2019 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1669665.jpg" />
@@ -4456,7 +4722,7 @@ Keysight Model Quality Assurance 2019 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1669678.jpg" />
@@ -4482,7 +4748,7 @@ Keysight IC-CAP 2018 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1669650.jpg" />
@@ -4508,7 +4774,7 @@ ZWCAD 2024 SP1 Professional [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1669643.jpg" />
@@ -4530,7 +4796,7 @@ magnet:?xt=urn:btih:D05B54AE7B1A02891CD0B36C7FE3837D8EA3D281
 
 ###  Публикация: 1669709   (56939)
 
-VirtualBox 7.0.12 Build 159484 + Extension Pack [Multi<3>Ru]
+VirtualBox 7.0.12 Build 159484 + Extension Pack [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4583,7 +4849,7 @@ magnet:?xt=urn:btih:F4157544EFE0D49EDC4ADAC54BCB8EA4ED3D2D06
 
 ###  Публикация: 1670330   (56262)
 
-Bizagi Modeler 4.0.0.096 [Multi<3>Ru]
+Bizagi Modeler 4.0.0.096 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4720,7 +4986,7 @@ CSoft PlanTracer Техплан Pro 8.0.3016.1703.825 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1431820.jpg" />
@@ -4768,7 +5034,7 @@ magnet:?xt=urn:btih:7A1F07D284E165A9442948BFF0339BAD0F6E08D9
 
 ###  Публикация: 1673930   (53356)
 
-AMD Radeon Software Adrenalin Edition 23.11.1 WHQL [Multi<3>Ru]
+AMD Radeon Software Adrenalin Edition 23.11.1 WHQL [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4820,11 +5086,11 @@ magnet:?xt=urn:btih:DA6EF0C18797F2945387CCC8E3D4EC84EA910472
 
 ###  Публикация: 1674690   (52387)
 
-Archicad 27 build 3001 + Content [Multi<3>Ru]
+Archicad 27 build 3001 + Content [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1674690.jpg" />
@@ -4873,7 +5139,7 @@ magnet:?xt=urn:btih:B8467F81551D767E0C440599D991FD6505BCB9E9
 
 ###  Публикация: 1516625   (52064)
 
-Tenorshare 4uKey for Android 2.2.2.4 [Multi<3>Ru]
+Tenorshare 4uKey for Android 2.2.2.4 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4900,7 +5166,7 @@ magnet:?xt=urn:btih:C5E1D55EED55DBE9C7F6140B225931C61DF30147
 
 ###  Публикация: 1517031   (52053)
 
-MInstAll Enter-Soft Free v14.0 09.12.2021 [Multi<3>Ru]
+MInstAll Enter-Soft Free v14.0 09.12.2021 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4928,7 +5194,7 @@ magnet:?xt=urn:btih:B1FC9070B3C4A633BF80617FC963E3AEF5DE192C
 
 ###  Публикация: 1676841   (50239)
 
-Microsoft .NET 6.0.25 Runtime [Ru<3>En]
+Microsoft .NET 6.0.25 Runtime [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4955,7 +5221,7 @@ magnet:?xt=urn:btih:ED26B76C999266D936E42594E5DC627003A600BA
 
 ###  Публикация: 1676844   (50231)
 
-Microsoft .NET 8.0.0 Runtime [Ru<3>En]
+Microsoft .NET 8.0.0 Runtime [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -4982,11 +5248,11 @@ magnet:?xt=urn:btih:62175C48C02D5D03150946EC79CE710B64F0239D
 
 ###  Публикация: 1676965   (50117)
 
-QuarkXPress 2024 20.0.57094 (x64) Portable by 7997 [Multi<3>Ru]
+QuarkXPress 2024 20.0.57094 (x64) Portable by 7997 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1676965.jpg" />
@@ -5008,11 +5274,11 @@ magnet:?xt=urn:btih:E0B47AD16191B5CB2FA708CDE297E43B93679E65
 
 ###  Публикация: 1518008   (49362)
 
-COMSS Boot USB 2021-12 [Ru<3>En]
+COMSS Boot USB 2021-12 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1518008.jpg" />
@@ -5040,7 +5306,7 @@ Altair EDEM Professional 2023.0 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1678148.jpg" />
@@ -5066,7 +5332,7 @@ CADlogic Draft IT 5.0.15 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1680167.jpg" />
@@ -5090,11 +5356,11 @@ magnet:?xt=urn:btih:77741A3C02FFDD4AC2348BC15636AD20F39B2E4D
 
 ###  Публикация: 1434667   (46060)
 
-Simple Bootable Flash Drive by StartSoft Presentation 27-2020 [Ru<3>En]
+Simple Bootable Flash Drive by StartSoft Presentation 27-2020 [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1434667.jpg" />
@@ -5120,7 +5386,7 @@ LEX LIVE 10 RC FIX 23 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1598639.jpg" />
@@ -5143,7 +5409,7 @@ magnet:?xt=urn:btih:B250AC747C3FAE024C55AE5E56593F18AACAF01B
 
 ###  Публикация: 1684143   (43544)
 
-NVIDIA GeForce Desktop Game Ready 546.33 WHQL + DCH [Multi<3>Ru]
+NVIDIA GeForce Desktop Game Ready 546.33 WHQL + DCH [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5169,7 +5435,7 @@ magnet:?xt=urn:btih:FD3BF82A1013A3F086031E75E4A5952DA3A75260
 
 ###  Публикация: 1684464   (43234)
 
-MEmu 9.0.9 [Multi<3>Ru]
+MEmu 9.0.9 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5196,7 +5462,7 @@ magnet:?xt=urn:btih:F4C82AEC47282A945B87F61E6ED04AA6DC8F17AA
 
 ###  Публикация: 1684617   (42950)
 
-Microsoft Visual Studio 2022 Enterprise 17.8.3 (Offline Cache) [Ru<3>En]
+Microsoft Visual Studio 2022 Enterprise 17.8.3 (Offline Cache) [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5300,7 +5566,7 @@ magnet:?xt=urn:btih:95D1E6F13BC59A93EEB8ADA98BF0586BCABE078C
 
 ###  Публикация: 1685762   (42089)
 
-CudaText 1.205.5.2 Portable + addons [Ru<3>En]
+CudaText 1.205.5.2 Portable + addons [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5327,7 +5593,7 @@ magnet:?xt=urn:btih:ACAC4DCB50B3E8A561FA87E17E4D05BB4A0AD8A5
 
 ###  Публикация: 1600652   (40896)
 
-Sublime Text 3.2.2 Build 3211 RePack by DeLtA [Multi<3>Ru]
+Sublime Text 3.2.2 Build 3211 RePack by DeLtA [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5353,7 +5619,7 @@ magnet:?xt=urn:btih:8FD2C90381E9987BAC650B7DC68AA273275CDACF
 
 ###  Публикация: 1601299   (40643)
 
-SMath Studio Desktop 1.0.8348 [Multi<3>Ru]
+SMath Studio Desktop 1.0.8348 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5379,7 +5645,7 @@ magnet:?xt=urn:btih:2FE8628EF54DA0D397C226D737C6D7905287B1BD
 
 ###  Публикация: 1685721   (40199)
 
-Snappy Driver Installer Origin R759 | Драйверпаки 23.12.0 [Multi<3>Ru]
+Snappy Driver Installer Origin R759 | Драйверпаки 23.12.0 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5458,7 +5724,7 @@ magnet:?xt=urn:btih:000698918D35DB5538ACAD5E73E587347F197F21
 
 ###  Публикация: 1684529   (39737)
 
-Microsoft Visual Studio 2022 Enterprise 17.8.2 (Offline Cache) [Ru<3>En]
+Microsoft Visual Studio 2022 Enterprise 17.8.2 (Offline Cache) [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5484,7 +5750,7 @@ magnet:?xt=urn:btih:E1CBB802208FE532F0931B5F1BB3BA956219D174
 
 ###  Публикация: 1684265   (39618)
 
-Microsoft Visual Studio 2022 Enterprise 17.8.0 (Offline Cache) [Ru<3>En]
+Microsoft Visual Studio 2022 Enterprise 17.8.0 (Offline Cache) [Ru En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5510,7 +5776,7 @@ magnet:?xt=urn:btih:6D6589279626B36DFB581F84126017F952344223
 
 ###  Публикация: 1682194   (38485)
 
-NVIDIA GeForce Desktop Game Ready 546.29 WHQL + DCH [Multi<3>Ru]
+NVIDIA GeForce Desktop Game Ready 546.29 WHQL + DCH [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5563,7 +5829,7 @@ magnet:?xt=urn:btih:5DDB2F491F0F31F40DE105EF07C76D3F534016C7
 
 ###  Публикация: 1681073   (37872)
 
-Araxis Merge Pro 2023.5954 [En<3>Ru]
+Araxis Merge Pro 2023.5954 [En Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5576,7 +5842,7 @@ Araxis Merge Pro 2023.5954 [En<3>Ru]
 
 ###  Подробнее
 
-Araxis Merge - Самая популярная программа для сравнения исходного кода, которая просто незаменима для программистов в IT компаниях в работе над большим проектом с участием десятков<3>сотен разработчиков: визуально показывает разницу в файлах и позволяет быстро и удобно синхронизировать их содержимое. Таким образом вы можете видеть какой код был добавлен, удалён или (   Читать дальше...   )Язык интерфейса: Английский, Русский
+Araxis Merge - Самая популярная программа для сравнения исходного кода, которая просто незаменима для программистов в IT компаниях в работе над большим проектом с участием десятков сотен разработчиков: визуально показывает разницу в файлах и позволяет быстро и удобно синхронизировать их содержимое. Таким образом вы можете видеть какой код был добавлен, удалён или (   Читать дальше...   )Язык интерфейса: Английский, Русский
 
 ## Скачать торент
 ```bash
@@ -5589,7 +5855,7 @@ magnet:?xt=urn:btih:8CBE551FF40FA0EAF45013DD8269A3068170B571
 
 ###  Публикация: 1681079   (37791)
 
-SamDrivers 23.12 LAN [Multi<3>Ru]
+SamDrivers 23.12 LAN [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5602,7 +5868,7 @@ SamDrivers 23.12 LAN [Multi<3>Ru]
 
 ###  Подробнее
 
-Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi<3>WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus <3> Drivers Installer Assistant 8.02.20 <3> Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus   Drivers Installer Assistant 8.02.20   Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -5642,7 +5908,7 @@ magnet:?xt=urn:btih:A6EAF1AF372FA384CEA3A9341665FC6641CB5C3B
 
 ###  Публикация: 1680840   (37611)
 
-WinToUSB Free <3> Pro <3> Enterprise <3> Technician 8.4 RePack (& Portable) by Dodakaedr [Ru<3>E
+WinToUSB Free   Pro   Enterprise   Technician 8.4 RePack (& Portable) by Dodakaedr [Ru E
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5655,7 +5921,7 @@ WinToUSB Free <3> Pro <3> Enterprise <3> Technician 8.4 RePack (& Portable) by D
 
 ###  Подробнее
 
-WinToUSB — лучший Windows To Go (WTG) Creator, который позволяет вам устанавливать и запускать полнофункциональную Windows на внешнем жестком диске, USB-накопителе или диске Thunderbolt. Это так просто и эффективно: всего за 3 шага и несколько минут вы можете создать свой первый портативный Windows 11<3>10<3>8<3>7 или Windows Server прямо из файла ISO, WIM, ESD, SWM, VHD, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+WinToUSB — лучший Windows To Go (WTG) Creator, который позволяет вам устанавливать и запускать полнофункциональную Windows на внешнем жестком диске, USB-накопителе или диске Thunderbolt. Это так просто и эффективно: всего за 3 шага и несколько минут вы можете создать свой первый портативный Windows 11 10 8 7 или Windows Server прямо из файла ISO, WIM, ESD, SWM, VHD, (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -5668,7 +5934,7 @@ magnet:?xt=urn:btih:1423F7A7AD7E38E060D5D7DA9604E0C0925AD3F3
 
 ###  Публикация: 1680756   (37547)
 
-WinToUSB Technician 8.4 (x64) Portable by FC Portables [Multi<3>Ru]
+WinToUSB Technician 8.4 (x64) Portable by FC Portables [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5681,7 +5947,7 @@ WinToUSB Technician 8.4 (x64) Portable by FC Portables [Multi<3>Ru]
 
 ###  Подробнее
 
-WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD<3>DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский и другие
+WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -5698,7 +5964,7 @@ Antenna Magus 2024.1 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1680490.jpg" />
@@ -5724,7 +5990,7 @@ CST Studio Suite 2024.01 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1680457.jpg" />
@@ -5750,7 +6016,7 @@ Altair HW FEKO 2023.0 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1680317.jpg" />
@@ -5824,7 +6090,7 @@ magnet:?xt=urn:btih:93B0DF58E4D4404B19C159843EF39DCBB9E13BE1
 
 ###  Публикация: 1677165   (35883)
 
-Microsoft .Net Framework 14.11.23 RePack by xetrin [Multi<3>Ru]
+Microsoft .Net Framework 14.11.23 RePack by xetrin [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5850,7 +6116,7 @@ magnet:?xt=urn:btih:A9C04DA528F9121D6D456FBEAA3685687BA8355B
 
 ###  Публикация: 1675860   (35401)
 
-MCS Drivers Disk 23.9.20.2100 [Multi<3>Ru]
+MCS Drivers Disk 23.9.20.2100 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5903,7 +6169,7 @@ magnet:?xt=urn:btih:119372EA3CE57C689AC556DFA5D7A7EFF14DA2D3
 
 ###  Публикация: 1673758   (34297)
 
-WinToHDD 6.2 Technician RePack (& Portable) by elchupacabra [Multi<3>Ru]
+WinToHDD 6.2 Technician RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5916,7 +6182,7 @@ WinToHDD 6.2 Technician RePack (& Portable) by elchupacabra [Multi<3>Ru]
 
 ###  Подробнее
 
-WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10<3>8.1<3>8<3>7 без использования CD<3>DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
+WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10 8.1 8 7 без использования CD DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -5929,7 +6195,7 @@ magnet:?xt=urn:btih:9B34463F6005F4E0B5327468C2CC483D141C830D
 
 ###  Публикация: 1673151   (34070)
 
-SamDrivers 23.11 LAN [Multi<3>Ru]
+SamDrivers 23.11 LAN [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5942,7 +6208,7 @@ SamDrivers 23.11 LAN [Multi<3>Ru]
 
 ###  Подробнее
 
-Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi<3>WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus <3> Drivers Installer Assistant 8.02.20 <3> Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus   Drivers Installer Assistant 8.02.20   Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -5955,7 +6221,7 @@ magnet:?xt=urn:btih:4FADE3D0DFB10A33C133EEA9022D9B955E1E8A65
 
 ###  Публикация: 1672990   (34000)
 
-PageEdit 2.0.2 (x64) [Multi<3>Ru]
+PageEdit 2.0.2 (x64) [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -5983,7 +6249,7 @@ magnet:?xt=urn:btih:5305A0A916F383AF9BD77FB19279001D811F6630
 
 ###  Публикация: 1673000   (33993)
 
-Sigil 2.0.2 [Multi<3>Ru]
+Sigil 2.0.2 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -6009,7 +6275,7 @@ magnet:?xt=urn:btih:75001553BCCAACEC72DF56336C81CE7C0CC3F054
 
 ###  Публикация: 1672120   (33560)
 
-AMD<3>Xilinx Vivado ML Edition + Vitis Core Development Kit 2023.2 [En]
+AMD Xilinx Vivado ML Edition + Vitis Core Development Kit 2023.2 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -6088,7 +6354,7 @@ magnet:?xt=urn:btih:33DE95B065B09ABE0A305BEE4049A8610C7AB9C8
 
 ###  Публикация: 1671792   (33170)
 
-Ultimaker Cura 5.5.0 [Multi<3>Ru]
+Ultimaker Cura 5.5.0 [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -6127,7 +6393,7 @@ WPI x86-x64 by OVGorskiy® 10.2023 mini [Ru]
 
 ###  Подробнее
 
-Небольшой пакет программ с <2>тихой<2> установкой, помещенных в оболочку установщика программ Windows Post-Install Wizard (WPI). Программы разделены на категории и весь процесс установки и регистрации проходит полностью в автоматическом режиме. Вам стоит только выбрать необходимые программы и запустить установку. Все программы в сборке, имеют краткое описание. (   Читать дальше...   )Язык интерфейса: Русский
+Небольшой пакет программ с  тихой  установкой, помещенных в оболочку установщика программ Windows Post-Install Wizard (WPI). Программы разделены на категории и весь процесс установки и регистрации проходит полностью в автоматическом режиме. Вам стоит только выбрать необходимые программы и запустить установку. Все программы в сборке, имеют краткое описание. (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -6140,7 +6406,7 @@ magnet:?xt=urn:btih:AEFDFE0790823888D9BFC2A8BB8FE387D4111E7D
 
 ###  Публикация: 1671555   (33008)
 
-WinToHDD 6.2 Technician Portable by FC Portables [Multi<3>Ru]
+WinToHDD 6.2 Technician Portable by FC Portables [Multi Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
@@ -6153,7 +6419,7 @@ WinToHDD 6.2 Technician Portable by FC Portables [Multi<3>Ru]
 
 ###  Подробнее
 
-WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10<3>8.1<3>8<3>7 без использования CD<3>DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
+WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10 8.1 8 7 без использования CD DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -6803,7 +7069,7 @@ KiCad 7.0.8 [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1665580.jpg" />
@@ -7508,7 +7774,7 @@ TwinBoot (Реинкарнация) BIOS/UEFI 27.08.2023 [Ru/En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1655882.jpg" />
@@ -7773,7 +8039,7 @@ KiCad 7.0.7 [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1653423.jpg" />
@@ -7903,7 +8169,7 @@ Mentor Graphics ModelSim 2020.4 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1653195.jpg" />
@@ -7982,7 +8248,7 @@ Keysight Advanced Design System 2024 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1653083.jpg" />
@@ -8244,7 +8510,7 @@ Autodesk ObjectARX for AutoCAD + Wizards 2013-2024 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1648125.jpg" />
@@ -8348,7 +8614,7 @@ SolidWorks 2023 SP3.0 Premium RePack by xetrin [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1648314.jpg" />
@@ -8616,7 +8882,7 @@ Siemens Simcenter FloEFD 2021.2.1 Build 5446 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1647517.jpg" />
@@ -8668,7 +8934,7 @@ Siemens HyperLynx VX2.10 Build 19246144 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1647474.jpg" />
@@ -8748,7 +9014,7 @@ ProfiCAD 12.2.5 [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1647182.jpg" />
@@ -8774,7 +9040,7 @@ Autodesk DWG TrueView 2024 (x64) [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1647003.jpg" />
@@ -8934,7 +9200,7 @@ ZWCAD MFG 2024 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1646321.jpg" />
@@ -9015,7 +9281,7 @@ DipTrace 4.3.0.5 + 3D Models [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645847.jpg" />
@@ -9093,7 +9359,7 @@ Infolytica MagNet 7.4.1.4 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1644809.jpg" />
@@ -9225,7 +9491,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2023.07.05 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1644111.jpg" />
@@ -9489,7 +9755,7 @@ Plexim Plecs 4.7.4 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1641545.jpg" />
@@ -9516,7 +9782,7 @@ Altair PSIM 2022.3.0 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1641526.jpg" />
@@ -9542,7 +9808,7 @@ Jinn'sLiveUSB 11.1 - флешка с Windows 7, 8.1, 10 и 11 [Ru/En] [Авто�
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1640918.jpg" />
@@ -9703,7 +9969,7 @@ ZWCAD 2024 SP0 Professional [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1639883.jpg" />
@@ -9886,7 +10152,7 @@ Windows 11 PE x64 by Xemom1 (02.06.23) [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1637165.jpg" />
@@ -10047,7 +10313,7 @@ Windows 11 PE x64 by Xemom1 (29.05.23) [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1636491.jpg" />
@@ -10258,7 +10524,7 @@ Trimble Tekla Structures 2023 SP3 [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1633653.jpg" />
@@ -10310,7 +10576,7 @@ VectorWorks Design Suite 2023 SP4 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1633479.jpg" />
@@ -10545,7 +10811,7 @@ Windows 10 PE (x64) by Ratiborus v.6.2023 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1631280.jpg" />
@@ -10701,7 +10967,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2023.05.01 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1630638.jpg" />
@@ -10727,7 +10993,7 @@ SolidWorks 2023 SP2.1 Premium RePack by xetrin [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1630576.jpg" />
@@ -10963,7 +11229,7 @@ Jinn'sLiveUSB 11 - флешка с Windows 7, 8.1, 10 и 11 [Ru/En] [Автор�
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1628441.jpg" />
@@ -11145,7 +11411,7 @@ KiCad 7.0.2 [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1627077.jpg" />
@@ -11302,7 +11568,7 @@ Altair Flow Simulator 2022.3.0 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1626062.jpg" />
@@ -11779,7 +12045,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2023.04.06 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1624648.jpg" />
@@ -11831,7 +12097,7 @@ OrCAD Capture PSpice Lite 17.2 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1624321.jpg" />
@@ -11857,7 +12123,7 @@ Altium Designer 23.3.1 Build 30 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1624210.jpg" />
@@ -11883,7 +12149,7 @@ SIMetrix/SIMPLIS 8.40 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1624126.jpg" />
@@ -11989,7 +12255,7 @@ Micro-Cap 12.2.0.5 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1622999.jpg" />
@@ -12041,7 +12307,7 @@ Altair PSIM 2022.2.0 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1622776.jpg" />
@@ -12067,7 +12333,7 @@ Altium CircuitStudio 1.1.0 build 44421 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1622706.jpg" />
@@ -12171,7 +12437,7 @@ Pulsonix 10.5 build 7883 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1622276.jpg" />
@@ -12302,7 +12568,7 @@ Altair SimSolid 2022.2.1 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1621928.jpg" />
@@ -12356,7 +12622,7 @@ Altair Compose 2022.2.0 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1621800.jpg" />
@@ -12382,7 +12648,7 @@ Altair Activate 2022.2.1 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1621717.jpg" />
@@ -12488,7 +12754,7 @@ LeoCAD 23.03 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1620672.jpg" />
@@ -12806,7 +13072,7 @@ WinPE 11 Sergei Strelec x64 2023.03.14 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1619043.jpg" />
@@ -12832,7 +13098,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2023.03.14 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1619033.jpg" />
@@ -12858,7 +13124,7 @@ KiCad 7.0.1 [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1618700.jpg" />
@@ -12910,7 +13176,7 @@ NHV-BOOT-2023-V1415-EXTREME [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1618066.jpg" />
@@ -13071,7 +13337,7 @@ Anhdv Boot 2023 Premium v23.4 x86-x64 (03.03.2023) [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1616801.jpg" />
@@ -13097,7 +13363,7 @@ Windows 10 PE (x86/x64) by Ratiborus v.4.2023 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1616739.jpg" />
@@ -13123,7 +13389,7 @@ COMSOL Multiphysics 6.1 build 282 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1616713.jpg" />
@@ -13229,7 +13495,7 @@ Zuken CADSTAR 16.0 [En]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1616345.jpg" />
@@ -13307,7 +13573,7 @@ KiCad 7.0.0 [Multi/Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>САПР<3>ГИС
+>>САПР ГИС
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1615713.jpg" />
@@ -13333,7 +13599,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2023.02.26 [Ru]
 
 
 >>Софт и оболочки для специалистов, Прочее
->>LiveCD<3>DVD<3>Flash
+>>LiveCD DVD Flash
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1615651.jpg" />

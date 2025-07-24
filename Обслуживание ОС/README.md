@@ -1,4 +1,396 @@
 
+###  Публикация: 1805444   (756004)
+
+Driver Easy Pro 7.0.1.19430 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/" />
+</div>
+
+
+###  Подробнее
+
+Driver Easy Professional — профессиональная и в тоже время простая в использовании программа для вашего компьютера, которая предназначена для работы с драйверами системы — для поиска и загрузки последних версий драйверов. Просканировав вашу систему, программа найдет устаревшие драйвера, позволит вам скачать их обновленные версии и установить. Driver Easy может создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0977D048B4C1C2F1A91FB92C1B4572CBD1FB684B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1805455   (755996)
+
+Wise Care 365 Pro 7.2.7.706 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4538796D8F75CED1703F8D26E277940BF82821D4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1805480   (755980)
+
+Display Driver Uninstaller 18.1.2.0 + Portable [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/" />
+</div>
+
+
+###  Подробнее
+
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E57A3B5844DC72C0688C42CCDBD8280153092C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1804927   (755914)
+
+Glary Utilities Pro 6.28.0.32 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1804927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62C9115C37FC1BE93099C455C283627CC93FDE8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1804828   (755784)
+
+Bulk Crap Uninstaller 5.9.0 + Portable [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1804828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор программ, который позволит удалить без следов и остатков любое приложение на Вашем компьютере. Как известно, любая программа в процессе работы заполняет ПК некими данными: записи в реестре, созданные папки, файлы и т.д. Если Вы просто удаляете потом такое приложение, то некий мусор все равно остается в системе, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32D18E439CA87B9D4DC55F2269D83DF846CC57C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1804643   (755731)
+
+Wise Care 365 Pro 7.2.6.705 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1804643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E942732C1FBDB01B9761FEC734184051F62ED139
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1804560   (755602)
+
+TweakPower 2.075 + Portable [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1804560.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках. TweakPower (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162F3BA664E243E4F459784833470CDC2F4DDB8E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1804218   (755484)
+
+R-Wipe & Clean 20.0.2514 RePack (& Portable) by elchupacabra [Ru/En]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1804218.jpg" />
+</div>
+
+
+###  Подробнее
+
+R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F29F59378A46D82F9599BD9C663A65A5B42D507
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1804122   (755416)
+
+Auslogics Driver Updater 2.0.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1804122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Driver Updater – программа представляющая собой очень простой, удобный и в тоже время эффективный инструмент для обновления драйверов операционной системы Windows. Она просканирует ваш компьютер и после сканирования Вашего компьютера на присутствие драйверов ко всем устройствам, она составит список устройств которые требуют установки драйверов и предложит (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7589F2C7431451EF442ED70E4BA57B4590C3270D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1804189   (755355)
+
+Revo Registry Cleaner Pro 1.5.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1804189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revo Registry Cleaner Pro - это мощное и эффективное программное обеспечение для очистки и оптимизации реестра Windows. Программа разработана для удаления устаревших, поврежденных и ненужных записей реестра, которые могут замедлять работу системы, вызывать ошибки и снижать производительность компьютера. Благодаря интеллектуальному анализу и безопасным методам очистки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715FEAF14382E4B659273E5FDCC5B385F21988B2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1803928   (755337)
+
+Wise Disk Cleaner 11.2.4.844 + Portable [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1803928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43732DBE6BDFC8344CADBD6B2F82279E9078D7EF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1803832   (755240)
+
+CCleaner 6.37.11523 Free / Professional / Business / Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1803832.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3AEF6C0009F0D204A0BA30122831501A5E7A2A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1803594   (755176)
+
+Windows Manager 2.1.7.0 RePack by KpoJIuK [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1803594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексное решение для оптимизации, настройки, ремонта и очистки Windows 10/11.
+Windows Manager - это универсальная утилита для Microsoft Windows 10/11, включающая в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и ремонта Windows 10/11, помогающая ускорить работу системы, устранить системные ошибки, повысить стабильность и безопасность, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D792FB384DC7AADD253235D98387527E7381DCD7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1803168   (754941)
+
+Auslogics Windows Slimmer 5.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1803168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Windows Slimmer предлагает быстрый и простой способ сделать Windows компактнее и эффективнее. Уменьшите размер системы для экономии дискового пространства и оптимизации производительности.
+Windows Slimmer поможет вам в удалении ненужных компонентов Windows, деинсталляции приложений и оптимальной настройки параметров, чтобы снизить размер операционной системы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFF748247FCC61A8FCAF80D9E5E568BAF3F06DA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1802890   (754873)
+
+IObit Uninstaller Pro 14.4.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1802890.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367912B9BCD92C22DBA2319D78698C3C26A9FEC9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1802324   (754440)
 
 RAM Saver Professional 25.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -8,7 +400,7 @@ RAM Saver Professional 25.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1802324.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1802324.jpg" />
 </div>
 
 
@@ -34,7 +426,7 @@ PrivaZer Pro 4.0.107 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1801969.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801969.jpg" />
 </div>
 
 
@@ -60,7 +452,7 @@ Glary Utilities Pro 6.27.0.31 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1801376.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801376.jpg" />
 </div>
 
 
@@ -86,7 +478,7 @@ Glary Disk Cleaner 6.0.1.29 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1801375.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801375.jpg" />
 </div>
 
 
@@ -112,7 +504,7 @@ DISMTools 0.6.2.25052 (Update 1) + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1801400.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801400.jpg" />
 </div>
 
 
@@ -138,7 +530,7 @@ PrivaZer Pro 4.0.106 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1801231.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801231.jpg" />
 </div>
 
 
@@ -164,7 +556,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1800543.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800543.jpg" />
 </div>
 
 
@@ -190,7 +582,7 @@ Ashampoo Driver Updater 1.8.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1800545.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800545.jpg" />
 </div>
 
 
@@ -216,7 +608,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1800559.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800559.jpg" />
 </div>
 
 
@@ -242,7 +634,7 @@ IObit Driver Booster Pro 12.5.0.597  RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1800560.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800560.jpg" />
 </div>
 
 
@@ -268,7 +660,7 @@ IObit Driver Booster Pro 12.5.0.597 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1800542.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800542.jpg" />
 </div>
 
 
@@ -294,7 +686,7 @@ IObit Driver Booster Pro 12.5.0.597 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1800480.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800480.jpg" />
 </div>
 
 
@@ -320,7 +712,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1800477.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800477.jpg" />
 </div>
 
 
@@ -346,7 +738,7 @@ Revo Uninstaller Pro 5.4.0 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1800500.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800500.jpg" />
 </div>
 
 
@@ -16840,7 +17232,7 @@ magnet:?xt=urn:btih:3C07040D55E24C08D8B78C0857C64C85F1991D4E
 
 ###  Публикация: 1720179   (701899)
 
-Auslogics Driver Updater 1.26.0.1 RePack (& Portable) by Dodakaedr [Ru<3>En]
+Auslogics Driver Updater 1.26.0.1 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -16866,7 +17258,7 @@ magnet:?xt=urn:btih:275A29FF1E0DD2923157BDA32DD5ECCDBD6B0E78
 
 ###  Публикация: 1720185   (701894)
 
-Auslogics Duplicate File Finder 10.0.0.5 RePack (& Portable) by Dodakaedr [Ru<3>En]
+Auslogics Duplicate File Finder 10.0.0.5 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -16892,7 +17284,7 @@ magnet:?xt=urn:btih:226505B6F53B99E4839B28209DE693C339DB3B7E
 
 ###  Публикация: 1720186   (701893)
 
-Auslogics Registry Cleaner Pro 10.0.0.5 RePack (& Portable) by Dodakaedr [Ru<3>En]
+Auslogics Registry Cleaner Pro 10.0.0.5 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -16998,7 +17390,7 @@ magnet:?xt=urn:btih:C326F64D688BE1F0926FEFCF2942EBFCF40E60D9
 
 ###  Публикация: 1715535   (701603)
 
-WinTools.net Premium <3> Professional <3> Classic 24.3.1 RePack (& Portable) by Dodakaedr [Multi
+WinTools.net Premium   Professional   Classic 24.3.1 RePack (& Portable) by Dodakaedr [Multi
 
 
 >>Утилиты, Офис, Интернет
@@ -17050,7 +17442,7 @@ magnet:?xt=urn:btih:4FA0C62613E569CFA0D0D592CD61A7E8760A5B0F
 
 ###  Публикация: 1712542   (701520)
 
-Duplicate File Finder Pro 2402 [Multi<3>Ru]
+Duplicate File Finder Pro 2402 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17076,7 +17468,7 @@ magnet:?xt=urn:btih:C7833DFA194194005E08C659D73E980E100F8B64
 
 ###  Публикация: 1706450   (700879)
 
-Reg Organizer 9.41 + Portable [Multi<3>Ru]
+Reg Organizer 9.41 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17102,7 +17494,7 @@ magnet:?xt=urn:btih:B150DBB7A4D7376CF7CC2699EDBC70ABA94531E9
 
 ###  Публикация: 1706406   (700847)
 
-Ashampoo UnInstaller 14.00.12 RePack (& Portable) by Dodakaedr [Ru<3>En]
+Ashampoo UnInstaller 14.00.12 RePack (& Portable) by Dodakaedr [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -17128,7 +17520,7 @@ magnet:?xt=urn:btih:0379AF13C6D78B08A4F9A56B96CBFF44545AC32F
 
 ###  Публикация: 1706217   (700738)
 
-RegScanner 2.75 + Portable [Ru<3>En]
+RegScanner 2.75 + Portable [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -17167,7 +17559,7 @@ FastCopy Pro 5.7.2 [Multi]
 
 ###  Подробнее
 
-FastCopy - инструмент для быстрого копирования<3>удаления файлов и папок. Поддерживает юникод (unicode) символы и пути<3>имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
+FastCopy - инструмент для быстрого копирования удаления файлов и папок. Поддерживает юникод (unicode) символы и пути имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
 
 ## Скачать торент
 ```bash
@@ -17180,7 +17572,7 @@ magnet:?xt=urn:btih:FE97F7154A9C83DB901D7F27B5C57A0E4B1022A8
 
 ###  Публикация: 1706044   (700625)
 
-Ashampoo Driver Updater 1.6.1.0 RePack (& Portable) by TryRooM [Multi<3>Ru]
+Ashampoo Driver Updater 1.6.1.0 RePack (& Portable) by TryRooM [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17206,7 +17598,7 @@ magnet:?xt=urn:btih:935EFCEF77F87A398078D88E0FA9811E76D5C23C
 
 ###  Публикация: 1705731   (700437)
 
-Duplicate File Finder Pro 2401 [Multi<3>Ru]
+Duplicate File Finder Pro 2401 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17232,7 +17624,7 @@ magnet:?xt=urn:btih:5667B2917EA81FAE1C89A97982C151A48C0C3F67
 
 ###  Публикация: 1705158   (700175)
 
-IObit Uninstaller Free 13.4.0.2 [Multi<3>Ru]
+IObit Uninstaller Free 13.4.0.2 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17245,7 +17637,7 @@ IObit Uninstaller Free 13.4.0.2 [Multi<3>Ru]
 
 ###  Подробнее
 
-IObit Uninstaller представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями <2>Мощное сканирование<2> и <2>Принудительное удаление<2> (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+IObit Uninstaller представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями  Мощное сканирование  и  Принудительное удаление  (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -17258,7 +17650,7 @@ magnet:?xt=urn:btih:DEC180E3B6F27D270B3DCA984952C6A2C3C7B36A
 
 ###  Публикация: 1704972   (700083)
 
-IObit Uninstaller Pro 13.4.0.2 Portable by 7997 [Multi<3>Ru]
+IObit Uninstaller Pro 13.4.0.2 Portable by 7997 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17271,7 +17663,7 @@ IObit Uninstaller Pro 13.4.0.2 Portable by 7997 [Multi<3>Ru]
 
 ###  Подробнее
 
-IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями <2>Мощное сканирование<2> и <2>Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями  Мощное сканирование  и  Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -17284,7 +17676,7 @@ magnet:?xt=urn:btih:CD9BADD2EA24AB4D1EC3880ED174AFD0D3CE72EE
 
 ###  Публикация: 1704903   (700040)
 
-Windows 10 Manager 3.9.2 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Windows 10 Manager 3.9.2 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17310,7 +17702,7 @@ magnet:?xt=urn:btih:B45D840C8215953D895C1AA3D238F15FFDB89F7F
 
 ###  Публикация: 1704907   (700037)
 
-Ashampoo WinOptimizer 26.00.24 RePack (& Portable) by elchupacabra [Ru<3>En]
+Ashampoo WinOptimizer 26.00.24 RePack (& Portable) by elchupacabra [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -17336,7 +17728,7 @@ magnet:?xt=urn:btih:5AFC06A5A56BEB48F988D889448DB3229B14382C
 
 ###  Публикация: 1704899   (700025)
 
-IObit Uninstaller Pro 13.4.0.2 Portable by  FC Portables [Multi<3>Ru]
+IObit Uninstaller Pro 13.4.0.2 Portable by  FC Portables [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17349,7 +17741,7 @@ IObit Uninstaller Pro 13.4.0.2 Portable by  FC Portables [Multi<3>Ru]
 
 ###  Подробнее
 
-IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями <2>Мощное сканирование<2> и <2>Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями  Мощное сканирование  и  Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -17388,7 +17780,7 @@ magnet:?xt=urn:btih:D362F5FBCCE0C1A60AA90BA1C7B602E7849414DB
 
 ###  Публикация: 1704763   (699961)
 
-Ashampoo UnInstaller 14.00.12 RePack (& Portable) by elchupacabra [Ru<3>En]
+Ashampoo UnInstaller 14.00.12 RePack (& Portable) by elchupacabra [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -17414,7 +17806,7 @@ magnet:?xt=urn:btih:1C2DB9CBE15CF778B3F6F1C4D19DE976392D6102
 
 ###  Публикация: 1704718   (699943)
 
-Wise Program Uninstaller 3.1.9.263 + Portable [Multi<3>Ru]
+Wise Program Uninstaller 3.1.9.263 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17440,7 +17832,7 @@ magnet:?xt=urn:btih:1562EF6594B95D152F08253130E2F676A882D64E
 
 ###  Публикация: 1704732   (699939)
 
-Glary Utilities Pro 6.7.0.10 RePack (& Portable) by Dodakaedr [Multi<3>Ru]
+Glary Utilities Pro 6.7.0.10 RePack (& Portable) by Dodakaedr [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17466,7 +17858,7 @@ magnet:?xt=urn:btih:F01746DCCCBB1C2E1D113AFA82ADDA8F79E625EA
 
 ###  Публикация: 1704735   (699937)
 
-Glary Disk Cleaner 6.0.1.9 [Multi<3>Ru]
+Glary Disk Cleaner 6.0.1.9 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17492,7 +17884,7 @@ magnet:?xt=urn:btih:706150513AE740CA4F7EB9A7C24F4000153A100D
 
 ###  Публикация: 1704737   (699936)
 
-Glary Tracks Eraser 6.0.1.8 [Multi<3>Ru]
+Glary Tracks Eraser 6.0.1.8 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17518,7 +17910,7 @@ magnet:?xt=urn:btih:17DB73E7A25298A26C80E68F79974BDA2BF19F69
 
 ###  Публикация: 1704581   (699843)
 
-Microsoft PowerToys 0.79.0 [Ru<3>En]
+Microsoft PowerToys 0.79.0 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -17544,7 +17936,7 @@ magnet:?xt=urn:btih:D3C42CA665C585DBB4638301122C06EF78D93894
 
 ###  Публикация: 1704509   (699784)
 
-Smart Driver Manager Pro 7.1.1205 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Smart Driver Manager Pro 7.1.1205 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17570,7 +17962,7 @@ magnet:?xt=urn:btih:93A7C3DA206AEB4E8194019F3C2C936EE3A0E6CA
 
 ###  Публикация: 1704408   (699736)
 
-Windows 10 Manager 3.9.2 RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+Windows 10 Manager 3.9.2 RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17596,7 +17988,7 @@ magnet:?xt=urn:btih:373C544884CA9C22CFE6846D6F673B025E807555
 
 ###  Публикация: 1703802   (699424)
 
-Ashampoo UnInstaller 14.00.12 Portable by FC Portables [Multi<3>Ru]
+Ashampoo UnInstaller 14.00.12 Portable by FC Portables [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17622,7 +18014,7 @@ magnet:?xt=urn:btih:7434484E961083E5D8C40989AF0F11A67A3D9030
 
 ###  Публикация: 1703807   (699423)
 
-Ashampoo UnInstaller 14.00.12 Portable by 7997 [Multi<3>Ru]
+Ashampoo UnInstaller 14.00.12 Portable by 7997 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17648,7 +18040,7 @@ magnet:?xt=urn:btih:43F12C3B3F315FC7A28076BF36EE4A7F313A9266
 
 ###  Публикация: 1703814   (699418)
 
-Revo Uninstaller Pro 5.2.6 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Revo Uninstaller Pro 5.2.6 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17661,7 +18053,7 @@ Revo Uninstaller Pro 5.2.6 RePack (& Portable) by elchupacabra [Multi<3>Ru]
 
 ###  Подробнее
 
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный <2>режим охотника<2> предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный  режим охотника  предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -17674,7 +18066,7 @@ magnet:?xt=urn:btih:F4EE92835A1978E46312A1EDB908AA14496BA529
 
 ###  Публикация: 1703599   (699279)
 
-Windows 11 Manager 1.4.2 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Windows 11 Manager 1.4.2 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17700,7 +18092,7 @@ magnet:?xt=urn:btih:ED859CA3B4337915C316340EA5C078071273AAB2
 
 ###  Публикация: 1703527   (699252)
 
-Ashampoo WinOptimizer 26.0.0.24 Portable by 7997 [Multi<3>Ru]
+Ashampoo WinOptimizer 26.0.0.24 Portable by 7997 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17726,7 +18118,7 @@ magnet:?xt=urn:btih:2AD5ECF758BF484C183BE84A3D13F3EB46BD0D7D
 
 ###  Публикация: 1703446   (699220)
 
-IObit Driver Booster Pro 11.3.0.43 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+IObit Driver Booster Pro 11.3.0.43 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17752,7 +18144,7 @@ magnet:?xt=urn:btih:C347FB532DD26CC770DD187B3D11C6502455E889
 
 ###  Публикация: 1703443   (699210)
 
-Smart Driver Manager Pro 7.1.1205 RePack (& Portable) by TryRooM [Multi<3>Ru]
+Smart Driver Manager Pro 7.1.1205 RePack (& Portable) by TryRooM [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17778,7 +18170,7 @@ magnet:?xt=urn:btih:A35B74BDD473246755E6AD24E2F9016883C908B6
 
 ###  Публикация: 1703107   (699056)
 
-PrivaZer Pro 4.0.83 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+PrivaZer Pro 4.0.83 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17804,7 +18196,7 @@ magnet:?xt=urn:btih:30567BA9089445DE534122591A73BC65574275C3
 
 ###  Публикация: 1702936   (698940)
 
-Revo Uninstaller Pro 5.2.6 RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+Revo Uninstaller Pro 5.2.6 RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17817,7 +18209,7 @@ Revo Uninstaller Pro 5.2.6 RePack (& Portable) by KpoJIuK [Multi<3>Ru]
 
 ###  Подробнее
 
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный <2>режим охотника<2> предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный  режим охотника  предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -17843,7 +18235,7 @@ FastCopy Pro 5.7.1 [Multi]
 
 ###  Подробнее
 
-FastCopy - инструмент для быстрого копирования<3>удаления файлов и папок. Поддерживает юникод (unicode) символы и пути<3>имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
+FastCopy - инструмент для быстрого копирования удаления файлов и папок. Поддерживает юникод (unicode) символы и пути имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
 
 ## Скачать торент
 ```bash
@@ -17856,7 +18248,7 @@ magnet:?xt=urn:btih:50E64FBAD69EC8CE1A129D7369BA9D28D0250695
 
 ###  Публикация: 1702880   (698897)
 
-PrivaZer 4.0.83 Free + Portable [Multi<3>Ru]
+PrivaZer 4.0.83 Free + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17882,7 +18274,7 @@ magnet:?xt=urn:btih:BD4149CF0287E9D6BB2D9F049D49ADBBFD68941E
 
 ###  Публикация: 1702869   (698887)
 
-RAM Saver Professional 24.2 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+RAM Saver Professional 24.2 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17908,7 +18300,7 @@ magnet:?xt=urn:btih:391D6DB68ADD6F80C8F2DDE98E725E1D3498EA9F
 
 ###  Публикация: 1702861   (698879)
 
-Revo Uninstaller Pro 5.2.6 Portable by 7997 [Multi<3>Ru]
+Revo Uninstaller Pro 5.2.6 Portable by 7997 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17921,7 +18313,7 @@ Revo Uninstaller Pro 5.2.6 Portable by 7997 [Multi<3>Ru]
 
 ###  Подробнее
 
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный <2>режим охотника<2> предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный  режим охотника  предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -17934,7 +18326,7 @@ magnet:?xt=urn:btih:7941A82B6B4E8C446FA9D717D5EA9E4A796C59D8
 
 ###  Публикация: 1702837   (698860)
 
-RegCool 1.361 + Portable [Multi<3>Ru]
+RegCool 1.361 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17960,7 +18352,7 @@ magnet:?xt=urn:btih:5E63E99CE62F3B1BBA9B39987C8372EDC822DCAF
 
 ###  Публикация: 1702842   (698855)
 
-Hibernate Enable or Disable 1.4 Portable [Multi<3>Ru]
+Hibernate Enable or Disable 1.4 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -17986,7 +18378,7 @@ magnet:?xt=urn:btih:469FB6D53AF3C1F9149E1109BE28C960F7EE3606
 
 ###  Публикация: 1702825   (698843)
 
-Windows 10 Debloater 2.6.11 Portable [Multi<3>Ru]
+Windows 10 Debloater 2.6.11 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18012,7 +18404,7 @@ magnet:?xt=urn:btih:DE99B54B63F9B4524410BDB05D8D9ED214A94C2B
 
 ###  Публикация: 1702760   (698792)
 
-Revo Uninstaller Pro 5.2.6 Portable by FC Portables [Multi<3>Ru]
+Revo Uninstaller Pro 5.2.6 Portable by FC Portables [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18025,7 +18417,7 @@ Revo Uninstaller Pro 5.2.6 Portable by FC Portables [Multi<3>Ru]
 
 ###  Подробнее
 
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный <2>режим охотника<2> предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный  режим охотника  предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -18038,7 +18430,7 @@ magnet:?xt=urn:btih:1200611C0EF29FCC0A6F521278CC782815B6DC81
 
 ###  Публикация: 1702494   (698651)
 
-Reg Organizer 9.40 (24.02.2024) RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+Reg Organizer 9.40 (24.02.2024) RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18064,7 +18456,7 @@ magnet:?xt=urn:btih:1F908ACA47357A329934467C54ADFA45E584DF74
 
 ###  Публикация: 1702196   (698512)
 
-Display Driver Uninstaller 18.0.7.3 + Portable [Multi<3>Ru]
+Display Driver Uninstaller 18.0.7.3 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18077,7 +18469,7 @@ Display Driver Uninstaller 18.0.7.3 + Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD <3> NVIDIA <3> Intel и драйверы звуковой карты Realtek <3> Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD   NVIDIA   Intel и драйверы звуковой карты Realtek   Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -18090,7 +18482,7 @@ magnet:?xt=urn:btih:90DD826283318DF82B9A2D0E49256FB5E390330A
 
 ###  Публикация: 1701825   (698291)
 
-Windows 11 Debloater 2.0.6 Portable [Multi<3>Ru]
+Windows 11 Debloater 2.0.6 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18116,7 +18508,7 @@ magnet:?xt=urn:btih:AC919236770CA6FEC5EE97D56297B7BD1E2FD8DA
 
 ###  Публикация: 1701508   (698090)
 
-WinTools.net Premium 24.2.1 RePack (& portable) by KpoJIuK [Multi<3>Ru]
+WinTools.net Premium 24.2.1 RePack (& portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18155,7 +18547,7 @@ Winaero Tweaker 1.62.1 + Portable [En]
 
 ###  Подробнее
 
-Winaero Tweaker - системная утилита для настройки внешнего вида и дополнительной функциональности операционных систем семейства Windows, в том числе и <2>десятки<2> + 11. Программа позволяет изменять отображение расцветки тем Aero, метки (буквы) дисков, курсоры и указатели мышки, звуковые уведомления, ширину границ окон, меню, иконки, системные шрифты, автоматическое (   Читать дальше...   )Язык интерфейса: Английский
+Winaero Tweaker - системная утилита для настройки внешнего вида и дополнительной функциональности операционных систем семейства Windows, в том числе и  десятки  + 11. Программа позволяет изменять отображение расцветки тем Aero, метки (буквы) дисков, курсоры и указатели мышки, звуковые уведомления, ширину границ окон, меню, иконки, системные шрифты, автоматическое (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -18168,7 +18560,7 @@ magnet:?xt=urn:btih:DD0E9A8728CB3ECBE72F8B828F72875D76957B99
 
 ###  Публикация: 1700125   (697483)
 
-WinTools.net Premium 24.1.1 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+WinTools.net Premium 24.1.1 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18194,7 +18586,7 @@ magnet:?xt=urn:btih:957FECA6C235EEBD13E9D2708E483282BEB4B5A3
 
 ###  Публикация: 1699671   (697342)
 
-ReviverSoft PC Reviver 4.0.3.4 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+ReviverSoft PC Reviver 4.0.3.4 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18220,7 +18612,7 @@ magnet:?xt=urn:btih:D2ECC853884C7A786E7BB01D382649620915D26E
 
 ###  Публикация: 1698578   (697080)
 
-Windows 10 Manager 3.9.1 RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+Windows 10 Manager 3.9.1 RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18246,7 +18638,7 @@ magnet:?xt=urn:btih:2F5F8B6F2A0A1298C2F12710047BCC2610DEFAEE
 
 ###  Публикация: 1698168   (696864)
 
-Windows 10 Manager 3.9.1 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Windows 10 Manager 3.9.1 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18272,7 +18664,7 @@ magnet:?xt=urn:btih:34A227BD7418E79A818A237DCEAA869D28288073
 
 ###  Публикация: 1698140   (696863)
 
-Windows 11 Manager 1.4.1 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Windows 11 Manager 1.4.1 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18298,7 +18690,7 @@ magnet:?xt=urn:btih:AF3787CA4CB35B8613100E032C5D4CD8304B60D3
 
 ###  Публикация: 1698144   (696862)
 
-Reg Organizer 9.40 (07.02.2024) RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Reg Organizer 9.40 (07.02.2024) RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18350,7 +18742,7 @@ magnet:?xt=urn:btih:27A9B3FE68E905FDCEB3AF0CE935BD47827028D4
 
 ###  Публикация: 1697609   (696710)
 
-ReviverSoft PC Reviver 4.0.2.12 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+ReviverSoft PC Reviver 4.0.2.12 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18376,7 +18768,7 @@ magnet:?xt=urn:btih:B479CB5BD129D1D03E7377E6B3C37F0195896C7A
 
 ###  Публикация: 1697605   (696709)
 
-ReviverSoft Driver Reviver 5.43.2.2 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+ReviverSoft Driver Reviver 5.43.2.2 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18402,7 +18794,7 @@ magnet:?xt=urn:btih:2C05672997994F0ED9B04D2A6E38F95AF2B87BB8
 
 ###  Публикация: 1697579   (696707)
 
-Wise Duplicate Finder Pro 2.1.1.61 RePack & (Portable) by elchupacabra [Multi<3>Ru]
+Wise Duplicate Finder Pro 2.1.1.61 RePack & (Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18430,7 +18822,7 @@ magnet:?xt=urn:btih:AEF50EF371D39DD89B86E366D49181A1A856E71B
 
 ###  Публикация: 1697250   (696556)
 
-Windows 10 Manager 3.9.1 Portable by FC Portables [Multi<3>Ru]
+Windows 10 Manager 3.9.1 Portable by FC Portables [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18456,7 +18848,7 @@ magnet:?xt=urn:btih:DF84D09E3313E5CBE283F0DCCDD9C7691D37BDF6
 
 ###  Публикация: 1697270   (696554)
 
-Reg Organizer 9.40 + Portable [Multi<3>Ru]
+Reg Organizer 9.40 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18482,7 +18874,7 @@ magnet:?xt=urn:btih:F369AC7B8148BCB40E29A1E4596FC2407A590B42
 
 ###  Публикация: 1697234   (696524)
 
-Reg Organizer 9.40 Portable by FC Portables [Multi<3>Ru]
+Reg Organizer 9.40 Portable by FC Portables [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18534,7 +18926,7 @@ magnet:?xt=urn:btih:18B61E6E50C464C21786FC352CE3BCABB594DD25
 
 ###  Публикация: 1696968   (696390)
 
-WinContig 5.0.2.1 Portable [Multi<3>Ru]
+WinContig 5.0.2.1 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18560,7 +18952,7 @@ magnet:?xt=urn:btih:B12D0A4EF7F1D2546BB67BA656FB0DA3034DB3FD
 
 ###  Публикация: 1696041   (695978)
 
-W10Privacy 5.1.0.0 + Portable [Multi<3>Ru]
+W10Privacy 5.1.0.0 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18573,7 +18965,7 @@ W10Privacy 5.1.0.0 + Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-W10Privacy - программа для изменения настроек системы Windows 10 и минимизации сбора данных пользователя. Предлагает серьезный набор защиты данных и настроек конфиденциальности, главное не ошибиться в выборе. Программа четко отображает доступные для изменения параметры, разделенные на 12 разделов, в которых вы самостоятельно выбираете настройки, которые следует включить<3>отключить.Язык интерфейса: Русский, Английский, другие
+W10Privacy - программа для изменения настроек системы Windows 10 и минимизации сбора данных пользователя. Предлагает серьезный набор защиты данных и настроек конфиденциальности, главное не ошибиться в выборе. Программа четко отображает доступные для изменения параметры, разделенные на 12 разделов, в которых вы самостоятельно выбираете настройки, которые следует включить отключить.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -18586,7 +18978,7 @@ magnet:?xt=urn:btih:0E5559DC60635AC65F5A295F5040A8DC15D62D03
 
 ###  Публикация: 1695973   (695963)
 
-PrivaZer 4.0.82 Free + Portable [Multi<3>Ru]
+PrivaZer 4.0.82 Free + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18612,7 +19004,7 @@ magnet:?xt=urn:btih:AA9CF378AE84402C62B063D1CF23B4576509CDB4
 
 ###  Публикация: 1695810   (695852)
 
-WinTools.net Premium 24.1.1 (29.01.2024) RePack (& portable) by KpoJIuK [Multi<3>Ru]
+WinTools.net Premium 24.1.1 (29.01.2024) RePack (& portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18638,7 +19030,7 @@ magnet:?xt=urn:btih:16308B878080D86389D7E7CC75B6471E86242ECD
 
 ###  Публикация: 1695678   (695816)
 
-Windows 10 Debloater 2.6.7 Portable [Multi<3>Ru]
+Windows 10 Debloater 2.6.7 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18690,7 +19082,7 @@ magnet:?xt=urn:btih:3CEFC5187F14CB6F37D44B632B14DF5BFC655EFE
 
 ###  Публикация: 1695560   (695758)
 
-TweakPower 2.050 + Portable [Multi<3>Ru]
+TweakPower 2.050 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18716,7 +19108,7 @@ magnet:?xt=urn:btih:6B981FE2C8793EC752F981A9E1D78FFEA8611BED
 
 ###  Публикация: 1695138   (695518)
 
-XtraTools Professional 24.1.1 [Multi<3>Ru]
+XtraTools Professional 24.1.1 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18742,7 +19134,7 @@ magnet:?xt=urn:btih:C9C26F8142F7D2C8F38CBED129D8BCFA638F8BC1
 
 ###  Публикация: 1694800   (695331)
 
-Windows 11 Debloater 2.0.2 Portable [Multi<3>Ru]
+Windows 11 Debloater 2.0.2 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18872,7 +19264,7 @@ magnet:?xt=urn:btih:7370393F21BF24DB8049256EA653B2D9AC34288B
 
 ###  Публикация: 1693891   (694836)
 
-HDCleaner 2.063 + Portable [Multi<3>Ru]
+HDCleaner 2.063 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18950,7 +19342,7 @@ magnet:?xt=urn:btih:A9D79A97C88D9F08756103CCC05D65CDD2B2509E
 
 ###  Публикация: 1693209   (694445)
 
-Wise Duplicate Finder Pro 2.1.1.61 [Multi<3>Ru]
+Wise Duplicate Finder Pro 2.1.1.61 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -18977,7 +19369,7 @@ magnet:?xt=urn:btih:70BBDF0AFE8BEFE143DE594345E7F6CC6D8F6586
 
 ###  Публикация: 1692713   (694216)
 
-IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19003,7 +19395,7 @@ magnet:?xt=urn:btih:52492B4BA64B12E133E8EB12A2D487BFAA3FEFE4
 
 ###  Публикация: 1692628   (694157)
 
-CCleaner 6.20.10897 Free <3> Professional <3> Business <3> Technician Edition RePack (& Portable<4
+CCleaner 6.20.10897 Free   Professional   Business   Technician Edition RePack (& Portable<4
 
 
 >>Утилиты, Офис, Интернет
@@ -19029,7 +19421,7 @@ magnet:?xt=urn:btih:B35A758A2B27543618445C122F5AB03A703A7013
 
 ###  Публикация: 1692614   (694144)
 
-Glary Disk Cleaner 6.0.1.4 [Multi<3>Ru]
+Glary Disk Cleaner 6.0.1.4 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19068,7 +19460,7 @@ FastCopy Pro 5.5.0 [Multi]
 
 ###  Подробнее
 
-FastCopy - инструмент для быстрого копирования<3>удаления файлов и папок. Поддерживает юникод (unicode) символы и пути<3>имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
+FastCopy - инструмент для быстрого копирования удаления файлов и папок. Поддерживает юникод (unicode) символы и пути имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
 
 ## Скачать торент
 ```bash
@@ -19081,7 +19473,7 @@ magnet:?xt=urn:btih:517DC585AED881D95502B99A53A120AF625F800F
 
 ###  Публикация: 1692461   (694032)
 
-Process Lasso Pro 12.4.7.20 [Multi<3>Ru]
+Process Lasso Pro 12.4.7.20 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19133,7 +19525,7 @@ magnet:?xt=urn:btih:3691FFE37572C6906CCCACADDAB7C172E30B5FC8
 
 ###  Публикация: 1692400   (693992)
 
-IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by TryRooM [Multi<3>Ru]
+IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by TryRooM [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19159,7 +19551,7 @@ magnet:?xt=urn:btih:4DDD61F99E5BE15F8D67C53845DF62BE43EDB0AA
 
 ###  Публикация: 1692283   (693894)
 
-IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by Dodakaedr [Multi<3>Ru]
+IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by Dodakaedr [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19185,7 +19577,7 @@ magnet:?xt=urn:btih:64A6AED253B9C1BA02A951ACFCEC3587DB037CF7
 
 ###  Публикация: 1692244   (693869)
 
-IObit Driver Booster Pro 11.2.0.46 Portable by 7997 [Multi<3>Ru]
+IObit Driver Booster Pro 11.2.0.46 Portable by 7997 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19211,7 +19603,7 @@ magnet:?xt=urn:btih:51511DAFA914E8FAC5959053E02523FF6406E9CB
 
 ###  Публикация: 1692181   (693817)
 
-IObit Driver Booster Pro 11.2.0.46 Portable by FC Portables [Multi<3>Ru]
+IObit Driver Booster Pro 11.2.0.46 Portable by FC Portables [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19291,7 +19683,7 @@ Driver Cleaner – это программа, предназначенная д�
 
 ###  Публикация: 1691617   (685004)
 
-Display Driver Uninstaller 18.0.7.1 + Portable [Multi<3>Ru]
+Display Driver Uninstaller 18.0.7.1 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19304,7 +19696,7 @@ Display Driver Uninstaller 18.0.7.1 + Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD <3> NVIDIA <3> Intel и драйверы звуковой карты Realtek <3> Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD   NVIDIA   Intel и драйверы звуковой карты Realtek   Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -19317,7 +19709,7 @@ magnet:?xt=urn:btih:8D30716F35F1466943EBA33E74A38E82B791236E
 
 ###  Публикация: 1691695   (685003)
 
-Windows 10 Debloater 2.6.5 Portable [Multi<3>Ru]
+Windows 10 Debloater 2.6.5 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19359,7 +19751,7 @@ Windows 7 System Properties Logo Changer 0.6 [Eng]
 System Properties Logo Changer – утилита, позволяющая заменить стандартный логотип Windows в свойствах системы на собственное изображение, из разряда «мелочь, а приятно». При необходимости всегда можно восстановить стандартный логотип.
 
 Установка:
- 1. Распаковать архив. Открыть программу от имени Администратора. (ПКМ и выбрать пункт <2>Запуск от имени Администратора<2>)(   Читать дальше...   )Язык интерфейса: Eng
+ 1. Распаковать архив. Открыть программу от имени Администратора. (ПКМ и выбрать пункт  Запуск от имени Администратора )(   Читать дальше...   )Язык интерфейса: Eng
 
 ## Скачать торент
 ```bash
@@ -19398,7 +19790,7 @@ magnet:?xt=urn:btih:BBA27A54768ED5504D62F217CF01B08B7FF8DE23
 
 ###  Публикация: 1691539   (680323)
 
-Windows 11 Debloater 2.0.1 Portable [Multi<3>Ru]
+Windows 11 Debloater 2.0.1 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19424,7 +19816,7 @@ magnet:?xt=urn:btih:D5F8A5C5AA313866E6EBF31E8D31A5167C1AEF66
 
 ###  Публикация: 1691488   (679470)
 
-Windows 11 Debloater 2.0.0 Portable [Multi<3>Ru]
+Windows 11 Debloater 2.0.0 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19517,7 +19909,7 @@ WinHelper 1.4.0 Portable [Русский]
 
 Winhelper - выручит если вы столкнетесь с проблемой заражения компьютера различными вирусами, в этом случае данная программа поможет вам с легкостью восстановить и максимально стабилизировать основные функции операционной системы windows xp vista 7 и даже больше это программа разблокиратор с функциями блокирования которая поможет вам разблокировать такие функции как диспетчер задач редактор реестра командную строку и т п и запустить их в случае необходимости.
 
-Программа запускается в режиме <2>Поверх всех окон<2> что позволяет запустить поверх различных баннеров, как известно на сегодняшний день вирусы не только блокируют редактор реестра, но и полностью удаляют regedit.exe что не позволяет избавится от вируса из автозапуска. В этом поможет вкладка <2>Восстановление<2> в которой вы найдете такие функции как <2>Восстановить редактор реестра<2>, <2>Восстановить оболочку explorer.exe<2> и др. Так же в программе предусмотренна вкладка <2>Автозагрузка<2> которая отображает все загружаемые (   Читать дальше...   )Название программы: WinHelperЯзык интерфейса: Русский
+Программа запускается в режиме  Поверх всех окон  что позволяет запустить поверх различных баннеров, как известно на сегодняшний день вирусы не только блокируют редактор реестра, но и полностью удаляют regedit.exe что не позволяет избавится от вируса из автозапуска. В этом поможет вкладка  Восстановление  в которой вы найдете такие функции как  Восстановить редактор реестра ,  Восстановить оболочку explorer.exe  и др. Так же в программе предусмотренна вкладка  Автозагрузка  которая отображает все загружаемые (   Читать дальше...   )Название программы: WinHelperЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -19636,7 +20028,7 @@ magnet:?xt=urn:btih:CC2B5DCBC5FAD4BA5B4AB20206D5403131AAF2F8
 
 ###  Публикация: 765424   (659160)
 
-Toolwiz Care 3.1.0.5500 [Multi<3>Ru]
+Toolwiz Care 3.1.0.5500 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19716,7 +20108,7 @@ magnet:?xt=urn:btih:9D7220ECED08F22821EC2F5D72F3F149EDEBE01E
 
 ###  Публикация: 768047   (656485)
 
-Easy Duplicate Finder 4.5.0.269 [Multi<3>Ru]
+Easy Duplicate Finder 4.5.0.269 [Multi Ru]
 
 
 >>След.
@@ -19768,7 +20160,7 @@ magnet:?xt=urn:btih:59EAA75F73662880E5A8FFD38C64D3BC47A927D0
 
 ###  Публикация: 1691266   (652411)
 
-Soft Organizer Pro 9.43 [Multi<3>Ru]
+Soft Organizer Pro 9.43 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19794,7 +20186,7 @@ magnet:?xt=urn:btih:19F0EABAE2724CFA7ACF4E5420D5A998B7972DDD
 
 ###  Публикация: 774757   (652068)
 
-Gtopala SIW 2014 4.7.0130d Pro Edition Portable by PortableXapps [Multi<3>Ru]
+Gtopala SIW 2014 4.7.0130d Pro Edition Portable by PortableXapps [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -19807,7 +20199,7 @@ Gtopala SIW 2014 4.7.0130d Pro Edition Portable by PortableXapps [Multi<3>Ru]
 
 ###  Подробнее
 
-SIW (System Info For Windows) - системная программа для отображения детальной информации об аппаратной, сетевой и программной части вашей системы. Программа позволяет собирать детальную информацию о всех ваших системных настройках и параметрах и отображает эту информацию чрезвычайно понятным пользователю способом. По своим возможностям данная утилита аналогична популярным программам подобного рода, но в отличии от них обладает совершенно простым интерфейсом без излишеств, а также имеет бесплатную версию для некоммерческого использования. Программа отображает информацию об операционно системе, обновлениях, системных папках и файлах, установленных программах, запущенных процессах в детальном виде, предоставляя список всех используемых файлов выбранного процесса, драйверах и службах, установленном оборудовании, включая информацию о материнской плате, процессоре, BIOS<1>е и т.д. По выданным данным вы сможете создать файл отчета в форматах CSV, HTML, TXT или XML. Интерфейс программы переведен на множество языков, включая (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+SIW (System Info For Windows) - системная программа для отображения детальной информации об аппаратной, сетевой и программной части вашей системы. Программа позволяет собирать детальную информацию о всех ваших системных настройках и параметрах и отображает эту информацию чрезвычайно понятным пользователю способом. По своим возможностям данная утилита аналогична популярным программам подобного рода, но в отличии от них обладает совершенно простым интерфейсом без излишеств, а также имеет бесплатную версию для некоммерческого использования. Программа отображает информацию об операционно системе, обновлениях, системных папках и файлах, установленных программах, запущенных процессах в детальном виде, предоставляя список всех используемых файлов выбранного процесса, драйверах и службах, установленном оборудовании, включая информацию о материнской плате, процессоре, BIOS е и т.д. По выданным данным вы сможете создать файл отчета в форматах CSV, HTML, TXT или XML. Интерфейс программы переведен на множество языков, включая (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
@@ -19846,7 +20238,7 @@ magnet:?xt=urn:btih:2690635F18C2B4F62703F248EEE5BD9CC55473D4
 
 ###  Публикация: 1691241   (650109)
 
-Windows 10 Manager 3.9.0 RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+Windows 10 Manager 3.9.0 RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -20037,7 +20429,7 @@ magnet:?xt=urn:btih:A7A6AEE80B876131FCE2C47BEC1CC356BA29ADBC
 
 ###  Публикация: 615212   (632586)
 
-PasswordsPro 3.1.2.2 Portable [English<3>Русский]
+PasswordsPro 3.1.2.2 Portable [English Русский]
 
 
 >>Утилиты, Офис, Интернет
@@ -20051,7 +20443,7 @@ PasswordsPro 3.1.2.2 Portable [English<3>Русский]
 ###  Подробнее
 
 PasswordsPro – профессиональная портативная программа для восстановления паролей к хэшам. Это единственная в мире программа, которая поддерживает более 180 типов хэшей! Программа имеет открытый API, который позволяет легко дополнить программу любым алгоритмом хэширования. Она имеет удобный интерфейс, не требует установки, использует несколько видов атак и содержит множество настроек, позволяющих гибко и эффективно восстанавливать забытые пароли.
-Также программа поддерживает плагины, с помощью которых можно существенно расширить ее возможности, и в составе программы уже имеется более 10 готовых плагинов с различными полезными функциями по работе с хэшами, паролями и словарями. Программа имеет удобный интерфейс, не требует установки, а также содержит множество настроек.Название программы: PasswordsProЯзык интерфейса: English<3>Русский
+Также программа поддерживает плагины, с помощью которых можно существенно расширить ее возможности, и в составе программы уже имеется более 10 готовых плагинов с различными полезными функциями по работе с хэшами, паролями и словарями. Программа имеет удобный интерфейс, не требует установки, а также содержит множество настроек.Название программы: PasswordsProЯзык интерфейса: English Русский
 
 ## Скачать торент
 ```bash
@@ -20170,7 +20562,7 @@ RegDoctor - программа предназначена для исправл�
 
 ###  Публикация: 1691065   (620370)
 
-Windows 10 Manager 3.9.0 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Windows 10 Manager 3.9.0 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -20196,7 +20588,7 @@ magnet:?xt=urn:btih:4ED07922A94BCA37DB9BB08BCBFE1FB9E2049258
 
 ###  Публикация: 1691098   (620369)
 
-Registry Finder 2.58.1 + Portable [Multi<3>Ru]
+Registry Finder 2.58.1 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -20209,7 +20601,7 @@ Registry Finder 2.58.1 + Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-Registry Finder - простая в использовании утилита для поиска в реестре Windows нужной информации. Операция поиска выполняется эффективно и быстро. Результаты поиска отображаются в отдельном окне в виде списка, в котором легко ориентироваться. Вы можете перейти к любому найденному элементу в окне реестра или отредактировать <3> удалить элементы прямо в окне результатов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Registry Finder - простая в использовании утилита для поиска в реестре Windows нужной информации. Операция поиска выполняется эффективно и быстро. Результаты поиска отображаются в отдельном окне в виде списка, в котором легко ориентироваться. Вы можете перейти к любому найденному элементу в окне реестра или отредактировать   удалить элементы прямо в окне результатов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -20248,7 +20640,7 @@ magnet:?xt=urn:btih:6E611B1B3EDB0DE851AC425F5027C2B15031369D
 
 ###  Публикация: 807550   (616850)
 
-TuneUp Utilities 2014 14.0.1000.340 RePack (& Portable) by KpoJIuK [Ru<3>En]
+TuneUp Utilities 2014 14.0.1000.340 RePack (& Portable) by KpoJIuK [Ru En]
 
 
 >>След.
@@ -20263,7 +20655,7 @@ TuneUp Utilities 2014 14.0.1000.340 RePack (& Portable) by KpoJIuK [Ru<3>En]
 
 TuneUp Utilities 2014 - обновленный набор всевозможных утилит для настройки вашей системы. TuneUp Utilities позволит вам очищать диски от различного мусора, удалять из системного реестра неверные записи, управлять автозагрузкой, оптимизировать оперативную память, навсегда удалять файлы при помощи инструмента ”TuneUp Shredder” (он не позволит восстановить файлы даже с помощью специальных программ), изменять внешний вид Windows, а также многое другое. Все утилиты собраны в единую графическую оболочку. Данный пакет содержит в себе важные функции для конфигурации, оптимизации системы, обслуживания и очистки в современном графическом интерфейсе.
 
-(   Читать дальше...   )Язык интерфейса: Русский <3> Английский
+(   Читать дальше...   )Язык интерфейса: Русский   Английский
 
 ## Скачать торент
 ```bash
@@ -20276,7 +20668,7 @@ magnet:?xt=urn:btih:9F0BC3707FB397FC5621D6A22CD244447B8CA579
 
 ###  Публикация: 525782   (615470)
 
-COMODO KillSwitch 2.5.242177.201 [Rus<3>Eng] <3> Рortable by Xroot
+COMODO KillSwitch 2.5.242177.201 [Rus Eng]   Рortable by Xroot
 
 
 >>След.
@@ -20289,7 +20681,7 @@ COMODO KillSwitch 2.5.242177.201 [Rus<3>Eng] <3> Рortable by Xroot
 
 ###  Подробнее
 
-Comodo Killswitch - продвинутый инструмент мониторинга системы, который позволяет пользователям идентифицировать, отслеживать и пресекать любые небезопасные процессы, запущенные на их системе. KillSwitch создан на базе программы Process Hacker, но в него добавлены некоторые важные функции, такие как он-лайн проверка процессов, уничтожение руткитов и другой замаскированной заразы.Название программы: COMODO KillSwitchЯзык интерфейса: Rus<3>Eng
+Comodo Killswitch - продвинутый инструмент мониторинга системы, который позволяет пользователям идентифицировать, отслеживать и пресекать любые небезопасные процессы, запущенные на их системе. KillSwitch создан на базе программы Process Hacker, но в него добавлены некоторые важные функции, такие как он-лайн проверка процессов, уничтожение руткитов и другой замаскированной заразы.Название программы: COMODO KillSwitchЯзык интерфейса: Rus Eng
 
 ## Скачать торент
 ```bash
@@ -20328,7 +20720,7 @@ Registry Mechanic - программа, предназначенная для о
 
 ###  Публикация: 529587   (611916)
 
-WinTuning 7 2.05.1 RePack (& portable) by KpoJIuK [Русский<3>Английский]
+WinTuning 7 2.05.1 RePack (& portable) by KpoJIuK [Русский Английский]
 
 
 >>Утилиты, Офис, Интернет
@@ -20343,7 +20735,7 @@ WinTuning 7 2.05.1 RePack (& portable) by KpoJIuK [Русский<3>Англий
 
 Программа WinTuning 7 предназначена для настройки и оптимизации Windows 7, улучшения её безопасности, удаления файлов-мусора с жесткого диска, уменьшения времени запуска компьютера и используемых программ. Позволяет настраивать загрузку и завершение работы компьютера, ядро системы, ускорять Интернет-соединение, редактировать скрытые настройки основных элементов Windows 7: рабочий стол, контекстные меню, проводник, панель задач, меню пуск и т.д. Для всех настроек есть текстовые подсказки, а для некоторых также отображается картинка, позволяющая просмотреть включенную настройку в действии.
 
-(   Читать дальше...   )Название программы: WinTuning 7Язык интерфейса: Русский<3>Английский
+(   Читать дальше...   )Название программы: WinTuning 7Язык интерфейса: Русский Английский
 
 ## Скачать торент
 ```bash
@@ -20356,7 +20748,7 @@ WinTuning 7 2.05.1 RePack (& portable) by KpoJIuK [Русский<3>Англий
 
 ###  Публикация: 812148   (610213)
 
-Elcomsoft Advanced PDF Password Recovery 5.06 Professional Edition [Multi<3>Ru]
+Elcomsoft Advanced PDF Password Recovery 5.06 Professional Edition [Multi Ru]
 
 
 >>След.
@@ -20408,7 +20800,7 @@ WinTuning 7 2.06.1 [Русский   Английский]
 
 ###  Публикация: 1691064   (608528)
 
-Duplicate File Detective 7.2.74.0 (x64) Professional <3> Enterprise <3> Site Edition [En]
+Duplicate File Detective 7.2.74.0 (x64) Professional   Enterprise   Site Edition [En]
 
 
 >>Утилиты, Офис, Интернет
@@ -20460,7 +20852,7 @@ Driver Checker - легкий в использовании инструмент
 
 ###  Публикация: 1691037   (604024)
 
-Microsoft PowerToys 0.77.0 [Ru<3>En]
+Microsoft PowerToys 0.77.0 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -20642,7 +21034,7 @@ magnet:?xt=urn:btih:ED6F870B0E03D7D41970A3BA12F43BECB8D36389
 
 ###  Публикация: 1690981   (585237)
 
-TeraCopy 3.17.0 [Multi<3>Ru]
+TeraCopy 3.17.0 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -20668,7 +21060,7 @@ magnet:?xt=urn:btih:C4D1A5462FF274DF84BEA5AB51E4EFDC629BF51B
 
 ###  Публикация: 667666   (582644)
 
-WinTuning 8 1.2 [Русский<3>English]
+WinTuning 8 1.2 [Русский English]
 
 
 >>Утилиты, Офис, Интернет
@@ -20682,7 +21074,7 @@ WinTuning 8 1.2 [Русский<3>English]
 ###  Подробнее
 
 Программа WinTuning 8 предназначена для настройки и оптимизации Windows 8, проверки обновления установленных программ, получения доступа к более чем 80 открытым и скрытым утилитам Windows 8, настройки параметров загрузки компьютера, удаления файлов-мусора с жесткого диска, получения информации о системе, диагностики ОС и устранения неполадок и многое другое.
-Программа позволяет настраивать параметры загрузки<3>завершение работы компьютера, оборудования, ускорять работу Интернет-соединения, редактировать скрытые настройки основных элементов Windows 8: рабочий стол, контекстные меню, проводник, панель задач, меню пуск, окна. В программу встроены утилиты для быстрого переименования файлов по маске, проверки дисков, автоматического выключения компьютера через заданный промежуток времени, редактирования экрана выбора ОС, удаления ненужных программ и файлов-мусора, мониторинга памяти и буфера обмена, получения информации о системе, проверки обновления установленных программ и получение доступа к многочисленным встроенным (   Читать дальше...   )Язык интерфейса: Русский<3>English
+Программа позволяет настраивать параметры загрузки завершение работы компьютера, оборудования, ускорять работу Интернет-соединения, редактировать скрытые настройки основных элементов Windows 8: рабочий стол, контекстные меню, проводник, панель задач, меню пуск, окна. В программу встроены утилиты для быстрого переименования файлов по маске, проверки дисков, автоматического выключения компьютера через заданный промежуток времени, редактирования экрана выбора ОС, удаления ненужных программ и файлов-мусора, мониторинга памяти и буфера обмена, получения информации о системе, проверки обновления установленных программ и получение доступа к многочисленным встроенным (   Читать дальше...   )Язык интерфейса: Русский English
 
 ## Скачать торент
 ```bash
@@ -20708,7 +21100,7 @@ USB Flash Drives Control 4.0.0.0 [En]
 
 ###  Подробнее
 
-Утилита для управления USB-накопителями, используемыми в системе. После установки иконка программы будет находиться в трее, при нажатии на нее появляется меню с опциями управления подключенных устройств: можно включать<3>отключать выбранные USB-устройства, запрещать запуск исполняемых файлов на флешках (в Windows 7), а также включать режим <2>только для чтения<2>.Язык интерфейса: Английский
+Утилита для управления USB-накопителями, используемыми в системе. После установки иконка программы будет находиться в трее, при нажатии на нее появляется меню с опциями управления подключенных устройств: можно включать отключать выбранные USB-устройства, запрещать запуск исполняемых файлов на флешках (в Windows 7), а также включать режим  только для чтения .Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -20747,7 +21139,7 @@ magnet:?xt=urn:btih:287207A1BB10C4C93167C90525CD2F834BB28B6B
 
 ###  Публикация: 993536   (574851)
 
-Duplicate File Remover 3.8.30 Build 0 Portable by punsh [Multi<3>Ru]
+Duplicate File Remover 3.8.30 Build 0 Portable by punsh [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -20760,7 +21152,7 @@ Duplicate File Remover 3.8.30 Build 0 Portable by punsh [Multi<3>Ru]
 
 ###  Подробнее
 
-Duplicate File Remover - мощное приложение для поиска и обработки дубликатов файлов на вашем компьютере. Утилита основана на алгоритме детального побайтного (<1>Byte by Byte<1>) анализа файлов, который подразумевает абсолютную точность при сравнении. Вы можете обнаружить копии любого формата, будь то текстовые документы, аудиофайлы, изображения или видео. Для файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+Duplicate File Remover - мощное приложение для поиска и обработки дубликатов файлов на вашем компьютере. Утилита основана на алгоритме детального побайтного ( Byte by Byte ) анализа файлов, который подразумевает абсолютную точность при сравнении. Вы можете обнаружить копии любого формата, будь то текстовые документы, аудиофайлы, изображения или видео. Для файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
@@ -20799,7 +21191,7 @@ magnet:?xt=urn:btih:0378D391D6798538E2A10FB590B7F3389397B4F8
 
 ###  Публикация: 1690891   (574274)
 
-Windows 10 Debloater 2.6.4 Portable [Multi<3>Ru]
+Windows 10 Debloater 2.6.4 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -20879,7 +21271,7 @@ Elcomsoft Proactive System Password Recovery 6.51.267.0 RePack by AlekseyPopovv 
 
 ###  Публикация: 681536   (570294)
 
-Rapid Environment Editor 8.0 build 904 + portable [Multi<3>Ru]
+Rapid Environment Editor 8.0 build 904 + portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -20905,7 +21297,7 @@ Rapid Environment Editor (RapidEE) предназначен для редакт�
 
 ###  Публикация: 1002167   (566578)
 
-Vit Registry Fix Pro 12.7 + Portable [Multi<3>Ru]
+Vit Registry Fix Pro 12.7 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -20931,7 +21323,7 @@ magnet:?xt=urn:btih:7887AEC59D63A5F69247B0EF47AAD64C3E91A0C5
 
 ###  Публикация: 1003163   (565950)
 
-Vit Registry Fix Pro 12.7 RePack (& Portable) by TryRooM [Multi<3>Ru]
+Vit Registry Fix Pro 12.7 RePack (& Portable) by TryRooM [Multi Ru]
 
 
 >>След.
@@ -20957,7 +21349,7 @@ magnet:?xt=urn:btih:F8983F163563CDDEFBC93AD4470222E1C8936004
 
 ###  Публикация: 1003767   (565390)
 
-Carambis Cleaner 1.3.3.5315 [Multi<3>Ru]
+Carambis Cleaner 1.3.3.5315 [Multi Ru]
 
 
 >>След.
@@ -20983,7 +21375,7 @@ magnet:?xt=urn:btih:33E48AFA51F417621D64BE28D32393317C49BD58
 
 ###  Публикация: 689753   (561921)
 
-BlueScreenView 1.52 + Portable [Ru<3>En]
+BlueScreenView 1.52 + Portable [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -20996,7 +21388,7 @@ BlueScreenView 1.52 + Portable [Ru<3>En]
 
 ###  Подробнее
 
-BlueScreenView сканирует все имеющиеся файлы аварийных дампов памяти и отображает сведения обо всех BSOD в сводной таблице. Для каждого BSOD отображаются: имя файла дампа, дата<3>время BSOD, базовые сведения, выводимые на экран во время сбоя (код ошибки и 4 параметра), также информация о драйвере<3>модуле, вызвавшем сбой. Для любого из BSOD можно посмотреть данные о загруженных драйверах в нижней панели окна программы. BlueScreenView помечает в списке те драйверы, которые были найдены в стеке минидампа, что позволяет легко найти драйвер, вызвавший сбой.
+BlueScreenView сканирует все имеющиеся файлы аварийных дампов памяти и отображает сведения обо всех BSOD в сводной таблице. Для каждого BSOD отображаются: имя файла дампа, дата время BSOD, базовые сведения, выводимые на экран во время сбоя (код ошибки и 4 параметра), также информация о драйвере модуле, вызвавшем сбой. Для любого из BSOD можно посмотреть данные о загруженных драйверах в нижней панели окна программы. BlueScreenView помечает в списке те драйверы, которые были найдены в стеке минидампа, что позволяет легко найти драйвер, вызвавший сбой.
 
 (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
@@ -21011,7 +21403,7 @@ magnet:?xt=urn:btih:66DA82FCFD6ACB6730F1A6F234B94A4C765504B4
 
 ###  Публикация: 1010000   (560081)
 
-System Explorer 7.1.0.5359 Portable by PortableApps [Multi<3>Ru]
+System Explorer 7.1.0.5359 Portable by PortableApps [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21089,7 +21481,7 @@ magnet:?xt=urn:btih:A3212AF93766DA4B6277AC2367661FE264AC76C9
 
 ###  Публикация: 856467   (546635)
 
-Driver Genius Professional 12.0.0.1332 [Multi<3>Ru]
+Driver Genius Professional 12.0.0.1332 [Multi Ru]
 
 
 >>След.
@@ -21117,7 +21509,7 @@ magnet:?xt=urn:btih:13D2CA857FAB2DBC79DDA0EF89CB588B4211FB9C
 
 ###  Публикация: 856491   (546625)
 
-Driver Genius Professional 12.0.0.1332 Portable by punsh [Multi<3>Ru]
+Driver Genius Professional 12.0.0.1332 Portable by punsh [Multi Ru]
 
 
 >>След.
@@ -21143,7 +21535,7 @@ magnet:?xt=urn:btih:41574C8460EB4C7EC6147EA9FF2DC05215A771E7
 
 ###  Публикация: 1025392   (546233)
 
-Unknown Device Identifier 9.0.1 [Multi<3>Ru]
+Unknown Device Identifier 9.0.1 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21195,7 +21587,7 @@ magnet:?xt=urn:btih:40AB35F9F0C10B7651EAAA5347906009567F1EC6
 
 ###  Публикация: 1090153   (533959)
 
-Actual Window Minimizer 8.10 RePack by tolyan76 [Multi<3>Ru]
+Actual Window Minimizer 8.10 RePack by tolyan76 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21221,7 +21613,7 @@ magnet:?xt=urn:btih:C89348878644214F15C333B525C4E5F2E1A2CA7C
 
 ###  Публикация: 711085   (532900)
 
-Driver Fusion Premium 1.7.0 RePack (& Portable) by Trovel [Multi<3>Ru]
+Driver Fusion Premium 1.7.0 RePack (& Portable) by Trovel [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21299,7 +21691,7 @@ magnet:?xt=urn:btih:C66F00C4637531205C59A24BBD19395CDB1D983C
 
 ###  Публикация: 1197131   (524998)
 
-WinZip System Utilities Suite 3.2.0.16 Portable by speedzodiac [Multi<3>Ru]
+WinZip System Utilities Suite 3.2.0.16 Portable by speedzodiac [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21351,7 +21743,7 @@ magnet:?xt=urn:btih:AD9FA1FFE08D939D5B4E1E7FB3CA6B79F45B133A
 
 ###  Публикация: 1094466   (523433)
 
-Registry Trash Keys Finder 3.9.4.0 Full RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+Registry Trash Keys Finder 3.9.4.0 Full RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21403,7 +21795,7 @@ magnet:?xt=urn:btih:C6D6C24ABDDA74BA9360B256BE16CF25B69F9775
 
 ###  Публикация: 1033288   (522815)
 
-Smarty Uninstaller 4.5.1 Portable by PortableAppC [Multi<3>Ru]
+Smarty Uninstaller 4.5.1 Portable by PortableAppC [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21429,7 +21821,7 @@ magnet:?xt=urn:btih:6429D627FB851DA2312339C4271FCA6869ED74BE
 
 ###  Публикация: 864538   (522640)
 
-Avira System Speedup 1.6.1.86 [Multi<3>Ru]
+Avira System Speedup 1.6.1.86 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21455,7 +21847,7 @@ magnet:?xt=urn:btih:D2BCEA9145221C30AD34E45EBA7DA0CA3EF7061A
 
 ###  Публикация: 1094806   (522243)
 
-Windows 7 Manager 5.1.9.2 RePack (& portable) by Pilot [Ru<3>En]
+Windows 7 Manager 5.1.9.2 RePack (& portable) by Pilot [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -21533,7 +21925,7 @@ magnet:?xt=urn:btih:9399A334B35B617572B76F5695FABB8D994FD9FF
 
 ###  Публикация: 1097076   (517828)
 
-Registry Winner 7.0.12.15 [Multi<3>Ru]
+Registry Winner 7.0.12.15 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21586,7 +21978,7 @@ magnet:?xt=urn:btih:0AA051334DD5A33BB393CD2223C992F7507D1486
 
 ###  Публикация: 1199982   (516600)
 
-WinZip System Utilities Suite 3.3.3.6 Final [Multi<3>Ru]
+WinZip System Utilities Suite 3.3.3.6 Final [Multi Ru]
 
 
 >>След.
@@ -21690,7 +22082,7 @@ magnet:?xt=urn:btih:6AF9684C64F794B043C07137F699321FA2CDF23E
 
 ###  Публикация: 1202026   (510832)
 
-Easy Duplicate Finder 5.10.0.992 Portable by speedzodiac [Multi<3>Ru]
+Easy Duplicate Finder 5.10.0.992 Portable by speedzodiac [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21716,7 +22108,7 @@ magnet:?xt=urn:btih:5CD06FA6126A86C5862DE6267F5028A284AEB8BD
 
 ###  Публикация: 870850   (508094)
 
-PhoneClean Pro 3.6.0 [Multi<3>Ru]
+PhoneClean Pro 3.6.0 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21742,7 +22134,7 @@ magnet:?xt=urn:btih:1EE5D8B7EEDD2D4BC9FE7CD1AD34964997C1D879
 
 ###  Публикация: 1040872   (506219)
 
-DLL Suite 9.0.0.2380 Portable by FCPortables [Multi<3>Ru]
+DLL Suite 9.0.0.2380 Portable by FCPortables [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21768,7 +22160,7 @@ magnet:?xt=urn:btih:F52AC0EB3A5BE043C0E2FD5561F43B44A08C2AC4
 
 ###  Публикация: 1103026   (504972)
 
-Ace Utilities 6.3.0.292 RePack (& Portable) by elchupacabra [Ru<3>En]
+Ace Utilities 6.3.0.292 RePack (& Portable) by elchupacabra [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -21794,7 +22186,7 @@ magnet:?xt=urn:btih:799FF48DF7E2045AB72E1A8A7429404EF8CC5A92
 
 ###  Публикация: 1105647   (501695)
 
-Zentimo xStorage Manager 1.10.1.1259 RePack by elchupacabra [Ru<3>En]
+Zentimo xStorage Manager 1.10.1.1259 RePack by elchupacabra [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -21807,7 +22199,7 @@ Zentimo xStorage Manager 1.10.1.1259 RePack by elchupacabra [Ru<3>En]
 
 ###  Подробнее
 
-Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами. Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь (   Читать дальше...   )Язык интерфейса: Русский <3> Английский
+Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами. Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь (   Читать дальше...   )Язык интерфейса: Русский   Английский
 
 ## Скачать торент
 ```bash
@@ -21820,7 +22212,7 @@ magnet:?xt=urn:btih:F06B4DBACA6A6346BEE9E88A2663CEB2EA46B214
 
 ###  Публикация: 1106288   (500538)
 
-DLL Suite 9.0.0.14 [Multi<3>Ru]
+DLL Suite 9.0.0.14 [Multi Ru]
 
 
 >>След.
@@ -21846,7 +22238,7 @@ magnet:?xt=urn:btih:C3206CA154D9B19D7E857FA58875C697F75E6B2D
 
 ###  Публикация: 1107826   (498783)
 
-Auslogics Registry Cleaner 6.1.2.0 [Multi<3>Ru]
+Auslogics Registry Cleaner 6.1.2.0 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21872,7 +22264,7 @@ magnet:?xt=urn:btih:ED83B3DCBC25F985BFC51D1815DCC72561A980C4
 
 ###  Публикация: 1110267   (495829)
 
-Windows 7 Manager 5.1.9.2 RePack (& portable) by KpoJIuK (02.03.2017) [Ru<3>En]
+Windows 7 Manager 5.1.9.2 RePack (& portable) by KpoJIuK (02.03.2017) [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -21898,7 +22290,7 @@ magnet:?xt=urn:btih:88B8D934652425C3296F10831E10C7616218AECB
 
 ###  Публикация: 889710   (494796)
 
-JetClean Pro 1.5.0.0.2 [Multi<3>Ru]
+JetClean Pro 1.5.0.0.2 [Multi Ru]
 
 
 >>След.
@@ -21911,7 +22303,7 @@ JetClean Pro 1.5.0.0.2 [Multi<3>Ru]
 
 ###  Подробнее
 
-JetClean - простая в использовании, но достаточно мощная программа для удаления системного <2>мусора<2>, оптимизации и улучшения производительности ПК. С ее помощью можно исправить ошибки реестра, удалить все скопившиеся временные данные, неиспользуемые ярлыки, следы пребывания в Сети, файлы, оставшихся после деинсталляции приложений, а также избавиться от (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+JetClean - простая в использовании, но достаточно мощная программа для удаления системного  мусора , оптимизации и улучшения производительности ПК. С ее помощью можно исправить ошибки реестра, удалить все скопившиеся временные данные, неиспользуемые ярлыки, следы пребывания в Сети, файлы, оставшихся после деинсталляции приложений, а также избавиться от (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
 
 ## Скачать торент
 ```bash
@@ -21924,7 +22316,7 @@ magnet:?xt=urn:btih:A9084E46FC192F36F544C73AA693D30610DFAEAC
 
 ###  Публикация: 1111920   (493519)
 
-Soft4Boost Secure Eraser 4.4.1.539 [Multi<3>Ru]
+Soft4Boost Secure Eraser 4.4.1.539 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -21950,7 +22342,7 @@ magnet:?xt=urn:btih:B9E19B660F9B7296441B9B69294DE68B4A7B3D7F
 
 ###  Публикация: 1212271   (491755)
 
-Duplicate File Detective 6.1.67 Enterprise [En<3>Ua]
+Duplicate File Detective 6.1.67 Enterprise [En Ua]
 
 
 >>Утилиты, Офис, Интернет
@@ -21976,7 +22368,7 @@ magnet:?xt=urn:btih:C2FCF0399C3E4C8C9CBC6239B5B88599C01724CC
 
 ###  Публикация: 1690605   (491052)
 
-Process Lasso Pro 12.4.6.10 [Multi<3>Ru]
+Process Lasso Pro 12.4.6.10 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22002,7 +22394,7 @@ magnet:?xt=urn:btih:4ABC0FB4E58CF0AE4D3F09EA7A82167A5EEE33FE
 
 ###  Публикация: 1115067   (488963)
 
-TweakBit PCSpeedUp 1.8.1.4 RePack by tolyan76 [Multi<3>Ru]
+TweakBit PCSpeedUp 1.8.1.4 RePack by tolyan76 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22028,7 +22420,7 @@ magnet:?xt=urn:btih:415FABE8413D57BF317028C9593EA9C42769172F
 
 ###  Публикация: 1114984   (488932)
 
-TweakBit Driver Updater 1.8.1.4 RePack by tolyan76 [Multi<3>Ru]
+TweakBit Driver Updater 1.8.1.4 RePack by tolyan76 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22054,7 +22446,7 @@ magnet:?xt=urn:btih:1E69A2367459AE19E47EA45C8192BF1AFAEEC902
 
 ###  Публикация: 898003   (485629)
 
-Uniblue SpeedUpMyPC 2015 6.0.9.2 [Multi<3>Ru]
+Uniblue SpeedUpMyPC 2015 6.0.9.2 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22080,7 +22472,7 @@ magnet:?xt=urn:btih:592413B9E84452895C200252AC9BA8D358B31DE4
 
 ###  Публикация: 1217056   (483643)
 
-Raxco PerfectRegistry 2.0.0.3127  [Multi<3>Ru]
+Raxco PerfectRegistry 2.0.0.3127  [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22106,7 +22498,7 @@ magnet:?xt=urn:btih:D582A91163C2CBC1EEC8D1080C25DF166AACE59B
 
 ###  Публикация: 1274847   (482883)
 
-Passcape Windows Password Recovery Advanced 11.6.1.1095 [Multi<3>Ru]
+Passcape Windows Password Recovery Advanced 11.6.1.1095 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22132,7 +22524,7 @@ magnet:?xt=urn:btih:618008E055FF0C54730AE6F600D5D1DC909E233F
 
 ###  Публикация: 1119511   (481632)
 
-Cacheman 10.10.0.5 Portable by punsh [Multi<3>Ru]
+Cacheman 10.10.0.5 Portable by punsh [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22158,7 +22550,7 @@ magnet:?xt=urn:btih:A4FCCAC44F8A95EB4FCF8C5DB4C5B3D862859F14
 
 ###  Публикация: 1277171   (478465)
 
-Bitsum ParkControl PRO 1.3.1.6 [Multi<3>Ru]
+Bitsum ParkControl PRO 1.3.1.6 [Multi Ru]
 
 
 >>След.
@@ -22210,7 +22602,7 @@ magnet:?xt=urn:btih:1C8A6DC78EEF3612327D943CABCB71C779D898B8
 
 ###  Публикация: 1220965   (474527)
 
-DevID Agent 4.47 [Ru<3>En]
+DevID Agent 4.47 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -22236,7 +22628,7 @@ magnet:?xt=urn:btih:A1350325B04F598E0D57F650B314725E2296C9B4
 
 ###  Публикация: 903908   (473584)
 
-SunsetScreen 1.20 + Portable [Ru<3>En]
+SunsetScreen 1.20 + Portable [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -22262,7 +22654,7 @@ magnet:?xt=urn:btih:16BA52317F2ADC7D985001713308D66E295573B5
 
 ###  Публикация: 1279235   (472935)
 
-WinTools.net Premium 19.0 [Multi<3>Ru]
+WinTools.net Premium 19.0 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22421,7 +22813,7 @@ magnet:?xt=urn:btih:1081142FAB24B3FBE376EEEE01DC1E5CDF1D30AA
 
 ###  Публикация: 1690357   (467169)
 
-TweakTimeSaver 1.0.1 [Ru<3>En]
+TweakTimeSaver 1.0.1 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -22474,7 +22866,7 @@ magnet:?xt=urn:btih:91AB792BE874C1C9461240D67F2B75FBA90927A5
 
 ###  Публикация: 1283643   (459927)
 
-Advanced Archive Password Recovery Enterprise Edition 4.54.110 [Multi<3>Ru]
+Advanced Archive Password Recovery Enterprise Edition 4.54.110 [Multi Ru]
 
 
 >>След.
@@ -22501,7 +22893,7 @@ magnet:?xt=urn:btih:5168EF3CBB9DA1A09BF88D469459489A9E963F9D
 
 ###  Публикация: 1224598   (455900)
 
-xStarter Web Pilot 1.9.3.84 [Ru<3>En]
+xStarter Web Pilot 1.9.3.84 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -22514,7 +22906,7 @@ xStarter Web Pilot 1.9.3.84 [Ru<3>En]
 
 ###  Подробнее
 
-Замена стандартному планировщику задач Windows.Пригодиться тем у кого версия Windows Home<3>Single Language.Автоматизация рутинных действий.xStarter автоматизирует выполнение повседневных задач по планировщику или событиям системы.С помощью xStarter Web Pilot вы сможете:Выполнять файловые операции.Использовать расширенный планировщик задач.Обеспечивать сохранность (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Замена стандартному планировщику задач Windows.Пригодиться тем у кого версия Windows Home Single Language.Автоматизация рутинных действий.xStarter автоматизирует выполнение повседневных задач по планировщику или событиям системы.С помощью xStarter Web Pilot вы сможете:Выполнять файловые операции.Использовать расширенный планировщик задач.Обеспечивать сохранность (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -22527,7 +22919,7 @@ magnet:?xt=urn:btih:ACFDD36F56308D848A929144E7EF0231F41F7BE5
 
 ###  Публикация: 1128802   (451575)
 
-Driver Magician 5.0 Final [Multi<3>Ru]
+Driver Magician 5.0 Final [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22553,7 +22945,7 @@ magnet:?xt=urn:btih:7863AE1AB6C07994A7954DF384C108B90D03A1F3
 
 ###  Публикация: 1129063   (451470)
 
-Driver Magician 5.0 Final Portable by punsh [Multi<3>Ru]
+Driver Magician 5.0 Final Portable by punsh [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22606,7 +22998,7 @@ Registry Repair Wizard - программа для очистки реестра
 
 ###  Публикация: 917901   (439857)
 
-TuneUp Utilities 2014 14.0.1000.353 [Ru<3>En]
+TuneUp Utilities 2014 14.0.1000.353 [Ru En]
 
 
 >>След.
@@ -22632,7 +23024,7 @@ magnet:?xt=urn:btih:FC5476F6C0C013E2B294F4BBF7215D537453A6BF
 
 ###  Публикация: 1231010   (433718)
 
-TweakBit Driver Updater 2.0.0.10 Portable by punsh [Multi<3>Ru]
+TweakBit Driver Updater 2.0.0.10 Portable by punsh [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22658,7 +23050,7 @@ magnet:?xt=urn:btih:7E58E75CD329FE87AF681511B6D8C63A271E12B2
 
 ###  Публикация: 1135927   (429000)
 
-TeraCopy Pro 3.12 Final + Portable [Multi<3>Ru]
+TeraCopy Pro 3.12 Final + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22684,7 +23076,7 @@ magnet:?xt=urn:btih:5DED43EBC8DEE691142C31E749CF9C32A529BBE4
 
 ###  Публикация: 921315   (428579)
 
-Advanced System Optimizer 3.9.3636.16647 Final + Portable [Multi<3>Ru]
+Advanced System Optimizer 3.9.3636.16647 Final + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22697,7 +23089,7 @@ Advanced System Optimizer 3.9.3636.16647 Final + Portable [Multi<3>Ru]
 
 ###  Подробнее
 
-Advanced System Optimizer - это обновлённая версия многофункционального пакета для оптимальной настройки и оптимизации вашей операционной системы Windows — программа позволит любым пользователям изменять скрытые от глаза параметры ОС, очищать жесткий диск от <2>приватной<2> информации, проводить резервное копирование системных файлов, а также исправлять ошибки (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+Advanced System Optimizer - это обновлённая версия многофункционального пакета для оптимальной настройки и оптимизации вашей операционной системы Windows — программа позволит любым пользователям изменять скрытые от глаза параметры ОС, очищать жесткий диск от  приватной  информации, проводить резервное копирование системных файлов, а также исправлять ошибки (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
 
 ## Скачать торент
 ```bash
@@ -22710,7 +23102,7 @@ magnet:?xt=urn:btih:F4F002C76E7834133878060E48D81305CE793E3F
 
 ###  Публикация: 835375   (426783)
 
-Daphne 2.04 + Portable [Multi<3>Ru]
+Daphne 2.04 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22736,7 +23128,7 @@ magnet:?xt=urn:btih:DA51222529E7AF51C0A8989C5E2CDD4B82306831
 
 ###  Публикация: 836673   (422012)
 
-Ashampoo Core Tuner 2.0.1 DC 29.10.2014 [Multi<3>Ru]
+Ashampoo Core Tuner 2.0.1 DC 29.10.2014 [Multi Ru]
 
 
 >>След.
@@ -22762,7 +23154,7 @@ magnet:?xt=urn:btih:6C525BF1E45CC8ADA0D7C595AFCBEEB785FCA286
 
 ###  Публикация: 1690364   (422001)
 
-Privacy Eraser Free 6.2.2 Build 4820 + Portable [Multi<3>Ru]
+Privacy Eraser Free 6.2.2 Build 4820 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22789,7 +23181,7 @@ magnet:?xt=urn:btih:5D4C4F9BF0910824AAD2096CF025F4C82E8FEF27
 
 ###  Публикация: 841134   (412739)
 
-Eusing Free Registry Defrag 2.3 [Multi<3>Ru]
+Eusing Free Registry Defrag 2.3 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22815,7 +23207,7 @@ magnet:?xt=urn:btih:54407CE6A5C32071FB861C658223B1C1079AE1F1
 
 ###  Публикация: 929332   (411430)
 
-System Explorer 7.0.0.5356 + Portable [Multi<3>Ru]
+System Explorer 7.0.0.5356 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22841,7 +23233,7 @@ magnet:?xt=urn:btih:8345AAD2A60B55C40FFD1FC89BAA198EDA51DA4B
 
 ###  Публикация: 842909   (408866)
 
-Advanced System Optimizer 3.9.1000.16036 RePack by FanIT [Multi<3>Ru]
+Advanced System Optimizer 3.9.1000.16036 RePack by FanIT [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22867,7 +23259,7 @@ magnet:?xt=urn:btih:7C00EF75FE06AA8EC420A2B22E077F60D4008093
 
 ###  Публикация: 931798   (404587)
 
-3DP Net 15.08 [Multi<3>Ru]
+3DP Net 15.08 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22893,7 +23285,7 @@ magnet:?xt=urn:btih:B9AF7BE8244CF05E594FE74F8D5CEFE113955A36
 
 ###  Публикация: 733904   (398476)
 
-ScanMyReg 2.1 [Multi<3>Ru]
+ScanMyReg 2.1 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22908,7 +23300,7 @@ ScanMyReg 2.1 [Multi<3>Ru]
 
 ScanMyReg - это самая удобная и простая в использовании программа для оптимизации реестра. Программа сканирует реестр Windows и находит некорректную или устаревшую информацию. Исправляя эти ошибки в реестре и удаляя некорректные ключи реестра вы поможете вашей системе работать быстрее и стабильнее.
 
-Программа также дефрагментирует реестр, что помогает системе работать четко и гладко. Функция резервного копирования<3>восстановления поможет вам создать резервную копию всего реестра, чтобы вы могли вернуть состояние реестра к прежнему статусу, в случае возникновения ошибок в системе.Язык интерфейса: Русский, английский и др.
+Программа также дефрагментирует реестр, что помогает системе работать четко и гладко. Функция резервного копирования восстановления поможет вам создать резервную копию всего реестра, чтобы вы могли вернуть состояние реестра к прежнему статусу, в случае возникновения ошибок в системе.Язык интерфейса: Русский, английский и др.
 
 ## Скачать торент
 ```bash
@@ -22921,7 +23313,7 @@ magnet:?xt=urn:btih:0F1180EFB09333115DB0BAC96C2BE02DAE1E4E9C
 
 ###  Публикация: 1150787   (389189)
 
-TeraCopy Pro 3.2 RePack (& Portable) by elchupacabra [Ru<3>En]
+TeraCopy Pro 3.2 RePack (& Portable) by elchupacabra [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -22947,7 +23339,7 @@ magnet:?xt=urn:btih:D541BF4FF4816C855C13CEBDA155D0F8D93E0605
 
 ###  Публикация: 847835   (388485)
 
-Multi Password Recovery 1.2.9 DC 19.11.2014 RePack (& portable) by KpoJIuK [Multi<3>Ru]
+Multi Password Recovery 1.2.9 DC 19.11.2014 RePack (& portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22973,7 +23365,7 @@ magnet:?xt=urn:btih:751C09F1EC35071C2F07A5058C626259663EA247
 
 ###  Публикация: 1151239   (388220)
 
-RAM Saver Professional 17.7 [Multi<3>Ru]
+RAM Saver Professional 17.7 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -22999,7 +23391,7 @@ magnet:?xt=urn:btih:FC5BD013847DAEC299B67CFD117118D72EEDB70A
 
 ###  Публикация: 1151386   (387071)
 
-WinTuning 1.4 RePack by KpoJIuK [Ru<3>En]
+WinTuning 1.4 RePack by KpoJIuK [Ru En]
 
 
 >>След.
@@ -23012,7 +23404,7 @@ WinTuning 1.4 RePack by KpoJIuK [Ru<3>En]
 
 ###  Подробнее
 
-WinTuning - это программа на русском языке для оптимизации, настройки и обслуживания операционных систем Microsoft Windows 10 <3>8.1 <3>8 <3>7. Это первая программа подобного рода с самым удобным интерфейсом - он простой и интуитивно понятный. Программа предназначена для увеличения уровня безопасности и конфиденциальности, проверки обновлений установленных на компьютере (   Читать дальше...   )Язык интерфейса: Русский <3> Английский
+WinTuning - это программа на русском языке для оптимизации, настройки и обслуживания операционных систем Microsoft Windows 10  8.1  8  7. Это первая программа подобного рода с самым удобным интерфейсом - он простой и интуитивно понятный. Программа предназначена для увеличения уровня безопасности и конфиденциальности, проверки обновлений установленных на компьютере (   Читать дальше...   )Язык интерфейса: Русский   Английский
 
 ## Скачать торент
 ```bash
@@ -23052,7 +23444,7 @@ magnet:?xt=urn:btih:FCB5A2096159526AA16D07A3A2CB6C97EB84516C
 
 ###  Публикация: 1048670   (383407)
 
-Easy Service Optimizer 1.2 Portable [Multi<3>Ru]
+Easy Service Optimizer 1.2 Portable [Multi Ru]
 
 
 >>След.
@@ -23092,7 +23484,7 @@ FlashBoot 2.3a + Portable [En]
 
 ###  Подробнее
 
-FlashBoot - утилита для создания загрузочного USB Flash диска. Кроме USB-носителей, поддерживаются другие типы устройств. Позволяет производить форматирование и копирование файлов системы. Поддерживаются различные операционные системы: Windows 8<3>7<3>Vista, Windows XP, SysLinux, диски GRUB4DOS, Linux kernel и т.д. Вы можете создать чистую загрузочную USB-флэшку с минимальным (   Читать дальше...   )Язык интерфейса: Английский
+FlashBoot - утилита для создания загрузочного USB Flash диска. Кроме USB-носителей, поддерживаются другие типы устройств. Позволяет производить форматирование и копирование файлов системы. Поддерживаются различные операционные системы: Windows 8 7 Vista, Windows XP, SysLinux, диски GRUB4DOS, Linux kernel и т.д. Вы можете создать чистую загрузочную USB-флэшку с минимальным (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -23131,7 +23523,7 @@ magnet:?xt=urn:btih:2DBD09D4E5EB1C24E2B496B95B45B19AA1FEF3F1
 
 ###  Публикация: 1152837   (381003)
 
-LockHunter 3.2.3.126 [Ru<3>En]
+LockHunter 3.2.3.126 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -23157,7 +23549,7 @@ magnet:?xt=urn:btih:ABB4779345F7B354493FA0DD355AE075671083DA
 
 ###  Публикация: 594052   (380160)
 
-Duplicate File Remover 3.4.1257 Build 34 [Multi <3> Русский]
+Duplicate File Remover 3.4.1257 Build 34 [Multi   Русский]
 
 
 >>Утилиты, Офис, Интернет
@@ -23170,7 +23562,7 @@ Duplicate File Remover 3.4.1257 Build 34 [Multi <3> Русский]
 
 ###  Подробнее
 
-Duplicate File Remover – мощная утилита для поиска и обработки дубликатов файлов на вашем компьютере. В программу заложен алгоритм детального побайтного (‘Byte by Byte’) анализа файлов, который подразумевает 100% точность при сравнении. С помощью Duplicate File Remover вы можете разыскать копии любого формата, будь то текстовые документы, аудио-файлы, фотографии или видео. Для мультимедиа файлов (таких как mp3, ogg, wma) в программе работает поддержка анализа тэгов: ‘Artist’, ‘Album’, ‘Title’ и ‘Comment’. Также поиск поддерживает и сводку файла: заголовок, тему, категорию и автора. Что делать с обнаруженными копиями – решать вам. С помощью Duplicate File Remover вы можете удалить дубликаты, скопировать их или перенести в другое место.Название программы: Duplicate File RemoverЯзык интерфейса: Multi <3> Русский
+Duplicate File Remover – мощная утилита для поиска и обработки дубликатов файлов на вашем компьютере. В программу заложен алгоритм детального побайтного (‘Byte by Byte’) анализа файлов, который подразумевает 100% точность при сравнении. С помощью Duplicate File Remover вы можете разыскать копии любого формата, будь то текстовые документы, аудио-файлы, фотографии или видео. Для мультимедиа файлов (таких как mp3, ogg, wma) в программе работает поддержка анализа тэгов: ‘Artist’, ‘Album’, ‘Title’ и ‘Comment’. Также поиск поддерживает и сводку файла: заголовок, тему, категорию и автора. Что делать с обнаруженными копиями – решать вам. С помощью Duplicate File Remover вы можете удалить дубликаты, скопировать их или перенести в другое место.Название программы: Duplicate File RemoverЯзык интерфейса: Multi   Русский
 
 ## Скачать торент
 ```bash
@@ -23183,7 +23575,7 @@ Duplicate File Remover – мощная утилита для поиска и о
 
 ###  Публикация: 1240562   (378600)
 
-Symantec Norton Utilities  16.0.3.44 [Multi<3>Ru]
+Symantec Norton Utilities  16.0.3.44 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23209,7 +23601,7 @@ magnet:?xt=urn:btih:E4F4D04CC8A4A7EBDE9097F4F8109DC4B49EF479
 
 ###  Публикация: 739683   (377700)
 
-Windows 8 Manager 2.0.1 RePack (& portable) by KpoJIuK [Ru<3>En]
+Windows 8 Manager 2.0.1 RePack (& portable) by KpoJIuK [Ru En]
 
 
 >>След.
@@ -23224,7 +23616,7 @@ Windows 8 Manager 2.0.1 RePack (& portable) by KpoJIuK [Ru<3>En]
 
 Windows 8 Manager - программа-оптимизатор все в одном, полное решение для отличной оптимизации, продуманной настройки и качественной очистки операционных систем Windows 8. Программа включает более 30 утилит которые улучшают и ускоряют работу системы, повышают её стабильность, устойчивость и безопасность. Windows 8 Manager позволяет получить доступ к нескольким сотням скрытых опций для настройки системы, выдает подробную информацию обо всех компонентах компьютера и о запущенных процессах, помогает Вам персонализировать вашу копию Windows.
 
-(   Читать дальше...   )Язык интерфейса: Русский <3> Английский
+(   Читать дальше...   )Язык интерфейса: Русский   Английский
 
 ## Скачать торент
 ```bash
@@ -23250,7 +23642,7 @@ Windows 8 Manager 2.2.8 [En]
 
 ###  Подробнее
 
-Программа для настройки и оптимизации операционной системы Windows 8 <3> 8.1. Cодержит около 30 разнообразных утилит, которые позволяют получить доступ к нескольким сотням скрытых опций для настройки системы, ускорения ее работы, повышения стабильности и безопасности. Кроме этого доступно множество операций, связанных с настройкой внешнего вида системы.Язык интерфейса: Английский
+Программа для настройки и оптимизации операционной системы Windows 8   8.1. Cодержит около 30 разнообразных утилит, которые позволяют получить доступ к нескольким сотням скрытых опций для настройки системы, ускорения ее работы, повышения стабильности и безопасности. Кроме этого доступно множество операций, связанных с настройкой внешнего вида системы.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -23276,7 +23668,7 @@ FlashBoot 2.3f Full [En]
 
 ###  Подробнее
 
-FlashBoot - утилита для создания загрузочного USB Flash диска. Кроме USB-носителей, поддерживаются другие типы устройств. Позволяет производить форматирование и копирование файлов системы. Поддерживаются различные операционные системы: Windows 8<3>7<3>Vista, Windows XP, SysLinux, диски GRUB4DOS, Linux kernel и т.д. Вы можете создать чистую загрузочную USB-флэшку с минимальным (   Читать дальше...   )Язык интерфейса: Английский
+FlashBoot - утилита для создания загрузочного USB Flash диска. Кроме USB-носителей, поддерживаются другие типы устройств. Позволяет производить форматирование и копирование файлов системы. Поддерживаются различные операционные системы: Windows 8 7 Vista, Windows XP, SysLinux, диски GRUB4DOS, Linux kernel и т.д. Вы можете создать чистую загрузочную USB-флэшку с минимальным (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -23289,7 +23681,7 @@ magnet:?xt=urn:btih:64AE8D1FDB426D663972E6DD6EF1938EB12B15AD
 
 ###  Публикация: 1155264   (371887)
 
-Cacheman 10.20.0.0  RePack (& Portable) by elchupacabra  [Multi<3>Ru]
+Cacheman 10.20.0.0  RePack (& Portable) by elchupacabra  [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23315,7 +23707,7 @@ magnet:?xt=urn:btih:BE090FE977716907A7B6AD409DCA456E0D4C8972
 
 ###  Публикация: 1156283   (369729)
 
-Driver Magician 5.0 RePack by вовава [Ru<3>En]
+Driver Magician 5.0 RePack by вовава [Ru En]
 
 
 >>След.
@@ -23341,7 +23733,7 @@ magnet:?xt=urn:btih:86CF71A5A9F6932233AE0C80019B2FEB1871D21E
 
 ###  Публикация: 944063   (364330)
 
-BlueScreenView 1.55 [Ru<3>En]
+BlueScreenView 1.55 [Ru En]
 
 
 >>След.
@@ -23354,7 +23746,7 @@ BlueScreenView 1.55 [Ru<3>En]
 
 ###  Подробнее
 
-BlueScreenView сканирует все minidump файлы, созданные в результате падения системы Windows во время <2>синего экрана смерти<2> (BSOD), а также отображает информацию обо всех падениях в одной таблице. Для каждого падения системы BlueScreenView выводит имя minidump файла, дату<3>время падения, основную информацию о падении, отображаемую на синем экране (код проверки (   Читать дальше...   )Язык интерфейса: Русский, Английский
+BlueScreenView сканирует все minidump файлы, созданные в результате падения системы Windows во время  синего экрана смерти  (BSOD), а также отображает информацию обо всех падениях в одной таблице. Для каждого падения системы BlueScreenView выводит имя minidump файла, дату время падения, основную информацию о падении, отображаемую на синем экране (код проверки (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -23367,7 +23759,7 @@ magnet:?xt=urn:btih:006842387E99129417E3ACE9150E5750B73EFE6F
 
 ###  Публикация: 1246011   (362300)
 
-Registry First Aid Platinum 11.2.0 Build 2542 [Multi<3>Ru]
+Registry First Aid Platinum 11.2.0 Build 2542 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23406,7 +23798,7 @@ Duplicate File Remover 3.7.25 Build 0 Portable by Valx [Ru]
 
 ###  Подробнее
 
-Duplicate File Remover - мощное приложение для поиска и обработки дубликатов файлов на вашем компьютере. Утилита основана на алгоритме детального побайтного (<1>Byte by Byte<1>) анализа файлов, который подразумевает абсолютную точность при сравнении.  Вы можете обнаружить копии любого формата, будь то текстовые документы, аудиофайлы, изображения или видео. Для файлов (   Читать дальше...   )Язык интерфейса: Русский
+Duplicate File Remover - мощное приложение для поиска и обработки дубликатов файлов на вашем компьютере. Утилита основана на алгоритме детального побайтного ( Byte by Byte ) анализа файлов, который подразумевает абсолютную точность при сравнении.  Вы можете обнаружить копии любого формата, будь то текстовые документы, аудиофайлы, изображения или видео. Для файлов (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -23419,7 +23811,7 @@ magnet:?xt=urn:btih:35E0699A5B3B57686F9CCE2A763D93C68449B7BD
 
 ###  Публикация: 1141027   (360147)
 
-Auto Power-on & Shut-down 2.84 [Multi<3>Ru]
+Auto Power-on & Shut-down 2.84 [Multi Ru]
 
 
 >>След.
@@ -23432,7 +23824,7 @@ Auto Power-on & Shut-down 2.84 [Multi<3>Ru]
 
 ###  Подробнее
 
-Auto Power-on & Shut-down - программа для автоматического включения<3>выключения компьютера, без захода в BIOS. Программа позволяет выставить правило <2>включить машину<2>, на определенные дни недели и время (c точностью до секунды). Сразу после включения, программа может запретить доступ к машине или через определенное время его заблокировать, поддерживает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Auto Power-on & Shut-down - программа для автоматического включения выключения компьютера, без захода в BIOS. Программа позволяет выставить правило  включить машину , на определенные дни недели и время (c точностью до секунды). Сразу после включения, программа может запретить доступ к машине или через определенное время его заблокировать, поддерживает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -23471,7 +23863,7 @@ magnet:?xt=urn:btih:B7A86B7BECF3BEE55B2FBDE74BC8CFFBD8406A84
 
 ###  Публикация: 1247778   (356396)
 
-Unchecky 1.2 [Ru<3>En]
+Unchecky 1.2 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -23484,7 +23876,7 @@ Unchecky 1.2 [Ru<3>En]
 
 ###  Подробнее
 
-Unchecky - полезная утилита, которая автоматически снимает галочки или предупреждает об установке нежелательного рекламного ПО и тулбаров при установке необходимых программЯзык интерфейса: русский <3> английский
+Unchecky - полезная утилита, которая автоматически снимает галочки или предупреждает об установке нежелательного рекламного ПО и тулбаров при установке необходимых программЯзык интерфейса: русский   английский
 
 ## Скачать торент
 ```bash
@@ -23497,7 +23889,7 @@ magnet:?xt=urn:btih:11CA1D207057E01460AB5DAFE752ECD7C83C3BEA
 
 ###  Публикация: 1163783   (350859)
 
-Wise Duplicate Finder PRO 1.2.1.23 RePack (& Portable) by ZVSRus [Ru<3>En]
+Wise Duplicate Finder PRO 1.2.1.23 RePack (& Portable) by ZVSRus [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -23525,7 +23917,7 @@ magnet:?xt=urn:btih:BB3E43257B3A888B6C5F0E4ABFF4E1E050F6727B
 
 ###  Публикация: 1249969   (349762)
 
-Auslogics Driver Updater 1.15.0.0 Portable by punsh [Multi<3>Ru]
+Auslogics Driver Updater 1.15.0.0 Portable by punsh [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23551,7 +23943,7 @@ magnet:?xt=urn:btih:2AB40F1747925198DF9CAAAD4C2DCB4C8D7A6726
 
 ###  Публикация: 1690168   (341209)
 
-Optimizer 16.4 Portable [Multi<3>Ru]
+Optimizer 16.4 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23577,7 +23969,7 @@ magnet:?xt=urn:btih:D38C590D2E7AE543409C3CCE45476CB65ACF05C2
 
 ###  Публикация: 1690171   (341208)
 
-XtraTools Professional 24.0.0 [Multi<3>Ru]
+XtraTools Professional 24.0.0 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23603,7 +23995,7 @@ magnet:?xt=urn:btih:24D9936B49584AED6995DA1CCDC90C4CE0095A7A
 
 ###  Публикация: 954842   (340794)
 
-Delete Duplicate Files 6.5.0.1 [En<3>Ru]
+Delete Duplicate Files 6.5.0.1 [En Ru]
 
 
 >>След.
@@ -23629,7 +24021,7 @@ magnet:?xt=urn:btih:9983774C54F455E29D22E2A90AC567AF8714DE23
 
 ###  Публикация: 1071217   (340085)
 
-DLL Care 9.0.0.0 [Multi<3>Ru]
+DLL Care 9.0.0.0 [Multi Ru]
 
 
 >>След.
@@ -23642,7 +24034,7 @@ DLL Care 9.0.0.0 [Multi<3>Ru]
 
 ###  Подробнее
 
-DLL Care позволяет поддерживать в актуальном состоянии весь набор необходимых динамических библиотек DLL в системах Windows. Благодаря встроенному инструментарию, приложение может автоматически скачивать из сети интернет и устанавливать в систему отсутствующие и поврежденные файлы библиотек. DLL Care дает возможность исправить <2>ошибки отсутствующих .dll<2>, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+DLL Care позволяет поддерживать в актуальном состоянии весь набор необходимых динамических библиотек DLL в системах Windows. Благодаря встроенному инструментарию, приложение может автоматически скачивать из сети интернет и устанавливать в систему отсутствующие и поврежденные файлы библиотек. DLL Care дает возможность исправить  ошибки отсутствующих .dll , (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -23681,7 +24073,7 @@ magnet:?xt=urn:btih:F8D59E7D5AE74787F39E95ED5EB1F488C77CADB0
 
 ###  Публикация: 1077105   (328546)
 
-Duplicate File Remover 3.8.30 Build 0 RePack (& Portable) by Trovel [Ru<3>En]
+Duplicate File Remover 3.8.30 Build 0 RePack (& Portable) by Trovel [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -23694,7 +24086,7 @@ Duplicate File Remover 3.8.30 Build 0 RePack (& Portable) by Trovel [Ru<3>En]
 
 ###  Подробнее
 
-Duplicate File Remover - мощное приложение для поиска и обработки дубликатов файлов на вашем компьютере. Утилита основана на алгоритме детального побайтного (<1>Byte by Byte<1>) анализа файлов, который подразумевает абсолютную точность при сравнении.  Вы можете обнаружить копии любого формата, будь то текстовые документы, аудиофайлы, изображения или видео. Для файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Duplicate File Remover - мощное приложение для поиска и обработки дубликатов файлов на вашем компьютере. Утилита основана на алгоритме детального побайтного ( Byte by Byte ) анализа файлов, который подразумевает абсолютную точность при сравнении.  Вы можете обнаружить копии любого формата, будь то текстовые документы, аудиофайлы, изображения или видео. Для файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -23733,7 +24125,7 @@ magnet:?xt=urn:btih:D66C647CB88F90561B71FAB3C44B805E82D55F15
 
 ###  Публикация: 1080120   (323660)
 
-jv16 PowerTools 2017 4.1.0.1631 [Multi<3>Ru]
+jv16 PowerTools 2017 4.1.0.1631 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23772,7 +24164,7 @@ FastCopy Pro 5.4.3 [Multi]
 
 ###  Подробнее
 
-FastCopy - инструмент для быстрого копирования<3>удаления файлов и папок. Поддерживает юникод (unicode) символы и пути<3>имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: английский, китайский, японский
+FastCopy - инструмент для быстрого копирования удаления файлов и папок. Поддерживает юникод (unicode) символы и пути имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: английский, китайский, японский
 
 ## Скачать торент
 ```bash
@@ -23785,7 +24177,7 @@ magnet:?xt=urn:btih:A30426A4F9713960FBA9F166F1FA4D1CE2CDDA73
 
 ###  Публикация: 1264702   (321401)
 
-Passcape Wireless Password Recovery Professional Edition 3.5.2.347 [Multi<3>Ru]
+Passcape Wireless Password Recovery Professional Edition 3.5.2.347 [Multi Ru]
 
 
 >>След.
@@ -23798,7 +24190,7 @@ Passcape Wireless Password Recovery Professional Edition 3.5.2.347 [Multi<3>Ru]
 
 ###  Подробнее
 
-Wireless Password Recovery - утилита для анализа безопасности беспроводных сетей и восстановления паролей WPA<3>WPA2. Wireless Password Recovery является единственным программным решением, применяющим самые современные технологии восстановления паролей, разработанные программистами нашей компании.
+Wireless Password Recovery - утилита для анализа безопасности беспроводных сетей и восстановления паролей WPA WPA2. Wireless Password Recovery является единственным программным решением, применяющим самые современные технологии восстановления паролей, разработанные программистами нашей компании.
 
 Новые стандарты защиты беспроводных сетей WPA И WPA2, в случае их правильной (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
 
@@ -23839,7 +24231,7 @@ magnet:?xt=urn:btih:4EA94664A5057812CACF609140DAED2209F7D87C
 
 ###  Публикация: 1267395   (316169)
 
-Auslogics Driver Updater 1.18.0.0 RePack by tolyan76 [Multi<3>Ru]
+Auslogics Driver Updater 1.18.0.0 RePack by tolyan76 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23865,7 +24257,7 @@ magnet:?xt=urn:btih:0D775E07AAB038BE4B0CE1DF86985DDBDAA54526
 
 ###  Публикация: 1267468   (316167)
 
-Driver Talent Pro 7.1.14.42 RePack by tolyan76 [Multi<3>Ru]
+Driver Talent Pro 7.1.14.42 RePack by tolyan76 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23891,7 +24283,7 @@ magnet:?xt=urn:btih:7FBBDD91F71ED5C0D5E9FB79399A0B134C1AE815
 
 ###  Публикация: 1186307   (316106)
 
-Razer Cortex 8.4.17.561 [Multi<3>Ru]
+Razer Cortex 8.4.17.561 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23904,7 +24296,7 @@ Razer Cortex 8.4.17.561 [Multi<3>Ru]
 
 ###  Подробнее
 
-Razer Cortex (PC Game Booster) - решение <2>все-в-одном<2> с набором инструментов, позволяющих взять под свой контроль игровой процесс. Приложение позволяет записывать и обмениваться игровым процессом в социальных сетях (Facebook и YouTube), и даже делать резервную копию сохранений игр в облако. Razer Cortex также предоставляет информацию о лучших игровых акциях (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+Razer Cortex (PC Game Booster) - решение  все-в-одном  с набором инструментов, позволяющих взять под свой контроль игровой процесс. Приложение позволяет записывать и обмениваться игровым процессом в социальных сетях (Facebook и YouTube), и даже делать резервную копию сохранений игр в облако. Razer Cortex также предоставляет информацию о лучших игровых акциях (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
@@ -23971,7 +24363,7 @@ magnet:?xt=urn:btih:849746703752148C9A7E3411C00DD56DAF185342
 
 ###  Публикация: 1081303   (310746)
 
-Intel Driver Update Utility 2.6.2.3 [Multi<3>Ru]
+Intel Driver Update Utility 2.6.2.3 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -23997,7 +24389,7 @@ magnet:?xt=urn:btih:4032CC00858EB076F650CB55DA8334DBD5D971B3
 
 ###  Публикация: 1270297   (310523)
 
-WinUtilities Professional Edition 15.45 [Multi<3>Ru]
+WinUtilities Professional Edition 15.45 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24050,7 +24442,7 @@ magnet:?xt=urn:btih:72CCB333E502533CC063AB80E55750F637327745
 
 ###  Публикация: 965334   (310041)
 
-Task Killer 2.30 Portable by killer000 [Ru<3>En]
+Task Killer 2.30 Portable by killer000 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -24103,7 +24495,7 @@ magnet:?xt=urn:btih:F8A657FB19A46487D23236A482664AB722FB83E1
 
 ###  Публикация: 1190540   (307195)
 
-Auslogics Disk Defrag Professional 4.8.2.0 [Multi<3>Ru]
+Auslogics Disk Defrag Professional 4.8.2.0 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24116,7 +24508,7 @@ Auslogics Disk Defrag Professional 4.8.2.0 [Multi<3>Ru]
 
 ###  Подробнее
 
-Auslogics Disk Defrag Professional - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16<3>32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
+Auslogics Disk Defrag Professional - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16 32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -24156,7 +24548,7 @@ magnet:?xt=urn:btih:DE1C6877EFF8145A9DCC310F8C512508DC2B89D7
 
 ###  Публикация: 1083067   (305862)
 
-Uniblue DriverScanner 2017 4.1.0.0 [Multi<3>Ru]
+Uniblue DriverScanner 2017 4.1.0.0 [Multi Ru]
 
 
 >>След.
@@ -24182,7 +24574,7 @@ magnet:?xt=urn:btih:CF50EF5CADEDBAA25FD79BAA5D96FC315FB0805D
 
 ###  Публикация: 966612   (305853)
 
-Startup Delayer 3.0 Build 366 Standard [Multi<3>Ru]
+Startup Delayer 3.0 Build 366 Standard [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24208,7 +24600,7 @@ magnet:?xt=urn:btih:1EE20699E38D95E673B77138D016ECF96C7C438B
 
 ###  Публикация: 1689802   (302810)
 
-Wise Program Uninstaller 3.1.7.261 + Portable [Multi<3>Ru]
+Wise Program Uninstaller 3.1.7.261 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24234,7 +24626,7 @@ magnet:?xt=urn:btih:89135C2792FFBD7D55A3796E150973D087FF5D89
 
 ###  Публикация: 1689766   (302793)
 
-Windows 11 Manager 1.4.0 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Windows 11 Manager 1.4.0 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24260,7 +24652,7 @@ magnet:?xt=urn:btih:0A09101017F2BB1AE89A01BE2010DA5F3FB6E6BC
 
 ###  Публикация: 1293025   (302643)
 
-Advanced Uninstaller PRO 12.25 [Multi<3>Ru]
+Advanced Uninstaller PRO 12.25 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24273,7 +24665,7 @@ Advanced Uninstaller PRO 12.25 [Multi<3>Ru]
 
 ###  Подробнее
 
-Advanced Uninstaller PRO 12 - быстро и полностью деинсталирует программы, используя простой и понятный интерфейс. Отслеживает все изменения, выполняемые на компьютере в процессе установки программного обеспечения, и таким образом, при деинсталяции она устраняет все внесенные изменения, что позволяет <2>избавиться<2> от установленных приложений без оставшихся (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+Advanced Uninstaller PRO 12 - быстро и полностью деинсталирует программы, используя простой и понятный интерфейс. Отслеживает все изменения, выполняемые на компьютере в процессе установки программного обеспечения, и таким образом, при деинсталяции она устраняет все внесенные изменения, что позволяет  избавиться  от установленных приложений без оставшихся (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
@@ -24286,7 +24678,7 @@ magnet:?xt=urn:btih:6789CC53F4E53A08B8A5EC186C928ABB0B512656
 
 ###  Публикация: 1174918   (301489)
 
-TeraCopy Pro 3.26.0 Final RePack (& portable) by KpoJIuK  [Multi<3>Ru]
+TeraCopy Pro 3.26.0 Final RePack (& portable) by KpoJIuK  [Multi Ru]
 
 
 >>След.
@@ -24312,7 +24704,7 @@ magnet:?xt=urn:btih:B14F7C80405E930F450A24E1A445576778228589
 
 ###  Публикация: 1294563   (298088)
 
-Registry First Aid Platinum 11.3.0 Build 2585 RePack (& portable) by elchupacabra [Multi<3>Ru]
+Registry First Aid Platinum 11.3.0 Build 2585 RePack (& portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24338,7 +24730,7 @@ magnet:?xt=urn:btih:E6832AFF0E10D947089E2DE0DD822C34894B108C
 
 ###  Публикация: 1285362   (297830)
 
-Advanced Office Password Recovery Pro 6.34 Build 1889 [Multi<3>Ru]
+Advanced Office Password Recovery Pro 6.34 Build 1889 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24364,7 +24756,7 @@ magnet:?xt=urn:btih:DD715447181B123C58F254673ECD89069364DE8A
 
 ###  Публикация: 1295132   (296147)
 
-WinASO Registry Optimizer 5.7.0 RePack (& Portable) by elchupacabra [Ru<3>En]
+WinASO Registry Optimizer 5.7.0 RePack (& Portable) by elchupacabra [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -24468,7 +24860,7 @@ magnet:?xt=urn:btih:5262AABA4226CA9EB6CF7BECBC197B7A8A0524DC
 
 ###  Публикация: 1689661   (283671)
 
-RegCool 1.353 + Portable [Multi<3>Ru]
+RegCool 1.353 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24494,7 +24886,7 @@ magnet:?xt=urn:btih:FDF20DBF6D407F5905CA37470F3659D5ED5FCAF6
 
 ###  Публикация: 1138467   (279605)
 
-Zentimo xStorage Manager 2.0.4.1265 [Multi<3>Ru]
+Zentimo xStorage Manager 2.0.4.1265 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24520,7 +24912,7 @@ magnet:?xt=urn:btih:97C980E27CC8DA381D26C2C7EEF1714613D4CADA
 
 ###  Публикация: 1689599   (278943)
 
-PrivaZer Pro 4.0.81 RePack (& Portable) by Dodakaedr  [Multi<3>Ru]
+PrivaZer Pro 4.0.81 RePack (& Portable) by Dodakaedr  [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24573,7 +24965,7 @@ magnet:?xt=urn:btih:DB8DAC1AE8E025E23B919168BE91943EA5A2AB33
 
 ###  Публикация: 1273094   (272572)
 
-Driver Easy Pro 5.6.8.35406 [Multi<3>Ru]
+Driver Easy Pro 5.6.8.35406 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24625,7 +25017,7 @@ magnet:?xt=urn:btih:79B4C56C20DDD391B0FD3492FB5356392871CD36
 
 ###  Публикация: 1689536   (271157)
 
-PrivaZer 4.0.81 Free + Portable [Multi<3>Ru]
+PrivaZer 4.0.81 Free + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24664,7 +25056,7 @@ InControl 1.0.2 Portable [En]
 
 ###  Подробнее
 
-InControl контролирует систему автоматического обновления<3>апгрейда Windows и предотвращает автоматическое обновление вашей версии Windows. Microsoft любит подгонять обновления функций для своей ОС и все настойчивее просит пользователей наконец-то бесплатно перейти на Windows 11. Однако, поскольку это не всегда желательно, вы можете предотвратить обновление с помощью (   Читать дальше...   )Язык интерфейса: Английский
+InControl контролирует систему автоматического обновления апгрейда Windows и предотвращает автоматическое обновление вашей версии Windows. Microsoft любит подгонять обновления функций для своей ОС и все настойчивее просит пользователей наконец-то бесплатно перейти на Windows 11. Однако, поскольку это не всегда желательно, вы можете предотвратить обновление с помощью (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -24677,7 +25069,7 @@ magnet:?xt=urn:btih:908B8BD680D04FF9E1CF35709381C16ABD46709F
 
 ###  Публикация: 1688266   (270359)
 
-AutoSettingsPS 0.5.9 [Multi<3>Ru]
+AutoSettingsPS 0.5.9 [Multi Ru]
 
 
 >>След.
@@ -24703,7 +25095,7 @@ magnet:?xt=urn:btih:208F3E2F693E0CFA9D437E3FD8EB894483AF5B1F
 
 ###  Публикация: 1688181   (270248)
 
-Duplicate Cleaner Pro 5.21.2 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Duplicate Cleaner Pro 5.21.2 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24729,7 +25121,7 @@ magnet:?xt=urn:btih:E041705387FFFEEA700B124A82D486C283DBE8E5
 
 ###  Публикация: 1687359   (270168)
 
-Duplicate Cleaner Pro 5.21.2 RePack (& Portable) by TryRooM [Ru<3>En]
+Duplicate Cleaner Pro 5.21.2 RePack (& Portable) by TryRooM [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -24755,7 +25147,7 @@ magnet:?xt=urn:btih:9281EDD42F978C9D675C33524A4426F004F92956
 
 ###  Публикация: 1687366   (270165)
 
-Smart Driver Manager Pro 7.1.1140 RePack (& Portable) by TryRooM [Multi<3>Ru]
+Smart Driver Manager Pro 7.1.1140 RePack (& Portable) by TryRooM [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24781,7 +25173,7 @@ magnet:?xt=urn:btih:DE9E037021913F19905CCF654285F924514568F6
 
 ###  Публикация: 1309084   (261891)
 
-AVG TuneUp 19.1 Build 1098 [Multi<3>Ru]
+AVG TuneUp 19.1 Build 1098 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24859,7 +25251,7 @@ magnet:?xt=urn:btih:2667723BCF37EC2B02F9048CBDF2827F28929891
 
 ###  Публикация: 1316987   (256411)
 
-Blank And Secure 5.31 Portable [Multi<3>Ru]
+Blank And Secure 5.31 Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24911,7 +25303,7 @@ magnet:?xt=urn:btih:18634163B64285D66B9050F99022E3C9973509CF
 
 ###  Публикация: 1319642   (254791)
 
-Actual Window Manager 8.14.1 [Multi<3>Ru]
+Actual Window Manager 8.14.1 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24937,7 +25329,7 @@ magnet:?xt=urn:btih:D9D349499ACEE3098293E20075E425691012DDBB
 
 ###  Публикация: 1687836   (252626)
 
-Total Uninstall 7.5.0 Professional RePack (& Portable) by KpoJIuK [Multi<3>Ru]
+Total Uninstall 7.5.0 Professional RePack (& Portable) by KpoJIuK [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24963,7 +25355,7 @@ magnet:?xt=urn:btih:7BE5DF0B203C9791FA9EB492D027F9FCF4C26ACB
 
 ###  Публикация: 1687824   (252624)
 
-Ashampoo UnInstaller 14.00.11 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Ashampoo UnInstaller 14.00.11 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -24989,7 +25381,7 @@ magnet:?xt=urn:btih:FE013924DD79985C57F4D8B1962B524C0959A1A8
 
 ###  Публикация: 1687820   (252623)
 
-Ashampoo WinOptimizer 26.00.22 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Ashampoo WinOptimizer 26.00.22 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25041,7 +25433,7 @@ magnet:?xt=urn:btih:1DF7EADEFC4270FEBAB1C0F3ABCAE10157BFD687
 
 ###  Публикация: 1331953   (246620)
 
-Duplicate & Same Files Searcher 5.2.2 + Portable [Multi<3>Ru]
+Duplicate & Same Files Searcher 5.2.2 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25067,7 +25459,7 @@ magnet:?xt=urn:btih:98DE88E7BDB276F44C94694DA89DC2B85259F6BC
 
 ###  Публикация: 1335372   (244233)
 
-Actual Multiple Monitors 8.14.2 [Multi<3>Ru]
+Actual Multiple Monitors 8.14.2 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25093,7 +25485,7 @@ magnet:?xt=urn:btih:019FB39E645CD1C922E9D31A35B7CC585D273958
 
 ###  Публикация: 1351871   (242121)
 
-OneSafe PC Cleaner Pro 7.0.5.77 [Multi<3>Ru]
+OneSafe PC Cleaner Pro 7.0.5.77 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25119,7 +25511,7 @@ magnet:?xt=urn:btih:4EE99D9C94407E72A5E0DD1CB15243223CD41A90
 
 ###  Публикация: 1357268   (238692)
 
-ReviverSoft PC Reviver 3.9.0.22 [Multi<3>Ru]
+ReviverSoft PC Reviver 3.9.0.22 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25145,7 +25537,7 @@ magnet:?xt=urn:btih:73256C7A28CB71EB6176E74AACCE4968CF3B096C
 
 ###  Публикация: 1361002   (236162)
 
-Soft4Boost PC Win Booster Free 11.0.3.685 [Multi<3>Ru]
+Soft4Boost PC Win Booster Free 11.0.3.685 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25171,7 +25563,7 @@ magnet:?xt=urn:btih:AC9E1A85B11C140EE39194DC04ED9F389F51937F
 
 ###  Публикация: 1361473   (235800)
 
-Duplicate Photo Finder Plus 10.0.30.0 [Multi<3>Ru]
+Duplicate Photo Finder Plus 10.0.30.0 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25198,7 +25590,7 @@ magnet:?xt=urn:btih:CB5E989B32A0C2B60A2F158F402723E674D4E6DF
 
 ###  Публикация: 1362649   (234943)
 
-PassFab for PDF 8.2.0.7 [Multi<3>Ru]
+PassFab for PDF 8.2.0.7 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25211,7 +25603,7 @@ PassFab for PDF 8.2.0.7 [Multi<3>Ru]
 
 ###  Подробнее
 
-PassFab for PDF - простая в использовании программа, которая позволяет вам легко расшифровывать и получать доступ к защищенным паролем файлам PDF. PassFab for PDF может быстро искать пароль пользователя <3> открыть ваш зашифрованный PDF-файл и мгновенно восстанавливать пароли PDF-документы, созданные во всех версиях PDF-файлов.Язык интерфейса: Русский, английский и другие
+PassFab for PDF - простая в использовании программа, которая позволяет вам легко расшифровывать и получать доступ к защищенным паролем файлам PDF. PassFab for PDF может быстро искать пароль пользователя   открыть ваш зашифрованный PDF-файл и мгновенно восстанавливать пароли PDF-документы, созданные во всех версиях PDF-файлов.Язык интерфейса: Русский, английский и другие
 
 ## Скачать торент
 ```bash
@@ -25224,7 +25616,7 @@ magnet:?xt=urn:btih:99A9C0AF0002D4D305064E297AE21A6DC5991A18
 
 ###  Публикация: 1362563   (234942)
 
-PassFab for Office 8.4.0.6 [Multi<3>Ru]
+PassFab for Office 8.4.0.6 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25250,7 +25642,7 @@ magnet:?xt=urn:btih:19AB8925CFC3A4FF1B32D8D812D3D5BA0150C8EF
 
 ###  Публикация: 1362423   (234941)
 
-Easy Duplicate Finder 5.28.0.1100 RePack (& Portable) by elchupacabra [Multi<3>Ru]
+Easy Duplicate Finder 5.28.0.1100 RePack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25276,7 +25668,7 @@ magnet:?xt=urn:btih:5B5306541B0351E669760066A6B3C478B219BA22
 
 ###  Публикация: 1362644   (234918)
 
-PassFab for ZIP 8.2.0.5 [Multi<3>Ru]
+PassFab for ZIP 8.2.0.5 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25302,7 +25694,7 @@ magnet:?xt=urn:btih:78ABF2CE0CBAE4526AF8589D29ED817526FADC36
 
 ###  Публикация: 1362631   (234883)
 
-PassFab for RAR 9.4.1.0 [Multi<3>Ru]
+PassFab for RAR 9.4.1.0 [Multi Ru]
 
 
 >>След.
@@ -25315,7 +25707,7 @@ PassFab for RAR 9.4.1.0 [Multi<3>Ru]
 
 ###  Подробнее
 
-PassFab for RAR предназначено для разблокирования защищенных паролем файлов, созданных архиватором RAR <3> WinRAR. Разблокируйте любой защищенный паролем RAR-архив независимо от того, какой алгоритм сжатия и шифрования использовался.Язык интерфейса: Русский, английский и другие
+PassFab for RAR предназначено для разблокирования защищенных паролем файлов, созданных архиватором RAR   WinRAR. Разблокируйте любой защищенный паролем RAR-архив независимо от того, какой алгоритм сжатия и шифрования использовался.Язык интерфейса: Русский, английский и другие
 
 ## Скачать торент
 ```bash
@@ -25328,7 +25720,7 @@ magnet:?xt=urn:btih:29F87F83C3C99DDA27FF74EFB1C2E3391C19914B
 
 ###  Публикация: 1363059   (234643)
 
-TweakBit Driver Updater 2.2.4.54019 RePack (& Portable) by TryRooM [Multi<3>Ru]
+TweakBit Driver Updater 2.2.4.54019 RePack (& Portable) by TryRooM [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25341,7 +25733,7 @@ TweakBit Driver Updater 2.2.4.54019 RePack (& Portable) by TryRooM [Multi<3>Ru]
 
 ###  Подробнее
 
-TweakBit Driver Updater - программа для обнаружения и обновления устаревших драйверов на Вашем компьютере. Вы будете получать последние версии установленных драйверов для стабильной работы системы. TweakBit Driver Updater сканирует компьютер на наличие устаревших или отсутствующих драйверов и позволяет загрузить и установить последние версии драйверов легко в один (   Читать дальше...   )Язык интерфейса: Multi<3>Русский от Dodakaedr
+TweakBit Driver Updater - программа для обнаружения и обновления устаревших драйверов на Вашем компьютере. Вы будете получать последние версии установленных драйверов для стабильной работы системы. TweakBit Driver Updater сканирует компьютер на наличие устаревших или отсутствующих драйверов и позволяет загрузить и установить последние версии драйверов легко в один (   Читать дальше...   )Язык интерфейса: Multi Русский от Dodakaedr
 
 ## Скачать торент
 ```bash
@@ -25380,7 +25772,7 @@ magnet:?xt=urn:btih:A1289A4443510E4D3E161DB1FAA4B614E6A895F9
 
 ###  Публикация: 1365048   (233238)
 
-Auslogics Registry Cleaner 8.4.0.2 Repack (& Portable) by elchupacabra [Multi<3>Ru]
+Auslogics Registry Cleaner 8.4.0.2 Repack (& Portable) by elchupacabra [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25409,7 +25801,7 @@ magnet:?xt=urn:btih:E6C8C646594D398FE86E4726D193ADCFC6B90218
 
 ###  Публикация: 1365424   (233043)
 
-Files Inspector 1.40 [Ru<3>En]
+Files Inspector 1.40 [Ru En]
 
 
 >>Утилиты, Офис, Интернет
@@ -25461,7 +25853,7 @@ magnet:?xt=urn:btih:E2C3D9369D32020D0931B824D062963349CE0E57
 
 ###  Публикация: 1371420   (226029)
 
-IObit Software Updater Pro 2.5.0.3005 [Multi<3>Ru]
+IObit Software Updater Pro 2.5.0.3005 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25488,7 +25880,7 @@ magnet:?xt=urn:btih:9F15DC1F562EFA2F3F7235862840BA1221C47F93
 
 ###  Публикация: 1371602   (225487)
 
-WinZip Driver Updater 5.33.3.2 [Multi<3>Ru]
+WinZip Driver Updater 5.33.3.2 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25514,7 +25906,7 @@ magnet:?xt=urn:btih:E9AB214C95C0E70C28D22CF7E851A45D9BA09FDE
 
 ###  Публикация: 1341483   (225327)
 
-Windows 10 Manager 3.1.8 Final + Portable [Multi<3>Ru]
+Windows 10 Manager 3.1.8 Final + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25540,7 +25932,7 @@ magnet:?xt=urn:btih:6E31D4951706A89B3BEAFF85FD3C75895556C1A9
 
 ###  Публикация: 1348652   (217950)
 
-Password Recovery Bundle 2019 Enterprise Edition 5.2 RePack (& Portable) by elchupacabra [Ru<3>E
+Password Recovery Bundle 2019 Enterprise Edition 5.2 RePack (& Portable) by elchupacabra [Ru E
 
 
 >>Утилиты, Офис, Интернет
@@ -25592,7 +25984,7 @@ magnet:?xt=urn:btih:D4FF05C37BE078637DE2EE95BA3437F2AF00746C
 
 ###  Публикация: 1401542   (217374)
 
-Alternate File Shredder 2.560 [Multi<3>Ru]
+Alternate File Shredder 2.560 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25618,7 +26010,7 @@ magnet:?xt=urn:btih:405CEBD96303132C29719E65721B34D6DDBD2467
 
 ###  Публикация: 1687191   (217160)
 
-HDCleaner 2.062 + Portable [Multi<3>Ru]
+HDCleaner 2.062 + Portable [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25671,7 +26063,7 @@ magnet:?xt=urn:btih:F6543ACC412CB238045E26E076D1D229D529B30F
 
 ###  Публикация: 1440093   (214483)
 
-Windows Privacy Dashboard (WPD) 1.4.1765 [Multi<3>Ru]
+Windows Privacy Dashboard (WPD) 1.4.1765 [Multi Ru]
 
 
 >>Утилиты, Офис, Интернет
@@ -25742,402 +26134,6 @@ IObit Software Updater позволяет выполнить обновлени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:303BC9C700958F6980C81969ED5B80571B73BEAB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1687102   (210285)
-
-Optimizer 16.3 Portable [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1687102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Optimizer - утилита расширенной настройки, которая поможет вам восстановить конфиденциальность и повысить безопасность.
-Optimizer рекомендуется использовать после свежей, чистой установки Windows для достижения максимальной конфиденциальности и безопасности.
-В зависимости от версии Windows, Optimizer также позволяет выполнять некоторые специфические настройки.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B1B1F51DCF1727D79B3FB34CAFDE22A83B2898
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1687091   (208382)
-
-TweakPower 2.048 + Portable [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1687091.jpg" />
-</div>
-
-
-###  Подробнее
-
-TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках. TweakPower (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96AF7FDFC2D5545E67CE6D71677AE5154C7F92C4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1448996   (208153)
-
-Actual Window Manager 8.14.5 [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1448996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Actual Window Manager - технологически продвинутый программный пакет, состоящий из более чем 50 инновационных инструментов для организации Рабочего Стола Windows, повышающий удобство использования и производительность работы с любыми приложениями Windows. С помощью Actual Window Manager вы сможете организовать рабочую среду для удобного, быстрого и эффективного выполнения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868683740D06B8B0443A925AA738317F238A8BD5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1449591   (207770)
-
-TeraCopy Pro 3.6.0.4 RePack (& portable) by KpoJIuK [Multi<3>Ru]
-
-
->>След.
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1449591.jpg" />
-</div>
-
-
-###  Подробнее
-
-TeraCopy Pro – утилита улучшает процесс копирования файлов, по заверению разработчика делает она это (копирование) на порядок быстрее за счет использования дополнительного буфера. При этом процесс копирования может быть поставлен на паузу и затем возобновлен. Так же присутствует функция контроля копирования, в случае невозможности чтения файла можно повторить попытку, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9066C15D21AC4E673BC3376C52F58F2081E44F6B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1452251   (206033)
-
-CCleaner 5.77.8521 Professional Edition [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1452251.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAC5794CDDF0B823ECAE6332134571475019D30
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1464246   (197519)
-
-Extended GodMode 1.0.2.13 Portable [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1464246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Extended GodMode - это утилита, которая обеспечивает быстрый и легкий доступ к настройкам на уровне системы. Это программное обеспечение основано на функциональности GodMode операционной системы Windows и дополняет их возможности несколькими способами.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3703B7C7BCA6646E3DD7503E7FECFA2947E6D56F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1466141   (196286)
-
-LockHunter 3.4.2.145 RePack (& Portable) by elchupacabra [Ru En]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1466141.jpg" />
-</div>
-
-
-###  Подробнее
-
-LockHunter - бесплатная утилита для удаления файлов, которые, по непонятным вам причинам, блокируются какими-то другими приложениями. Для удобства LockHunter интегрируется в контекстное меню Проводника Windows. Бывают ситуации, когда системой выдается сообщение, что файл удалить невозможно, так как он используется иным приложением. Это случается по разным причинам, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B098BD161F23F204C47AA68924271872C0D72D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1377994   (193557)
-
-SysTweak Regclean Pro 8.5.81.1136 [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1377994.jpg" />
-</div>
-
-
-###  Подробнее
-
-SysTweak Regclean Pro - универсальная программа для исправления притормаживания вашего компьютера, устранения различных ошибок реестра и улучшения быстродействия компьютера. Программу для очистки реестра желательно регулярно использовать для поиска и очистки устаревших и недействительных записей реестра Windows. Расширенный механизм поиска RegClean Pro обнаружит (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05CA4665164A5BC76A50454641A6F65414D7B48E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1470442   (190447)
-
-Wise Registry Cleaner Pro 10.3.4.693 (акция Comss) [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1470442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9388F0F9EEF9838CF94EAE22C1B2D29F214D7DA0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1384645   (183184)
-
-Wise Duplicate Finder Pro 1.3.6.44 RePack (& Portable) by TryRooM [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1384645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Duplicate Finder – узкоспециализированная программа, которая предназначается для поиска и удаления дубликатов на вашем ПК.
-Wise Duplicate Finder помогает найти и удалить дубликаты файлов, таким образом, высвободив свободное место. Пользователю после установки программы остаётся лишь в настройках задать нужные параметры и начать сканировать компьютер.
-Давайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF0066E5C40CC89E366014B2B3A3FEBCC385A8F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1475054   (182256)
-
-Restore Point Creator 7.1 Build 2 + Portable  [En]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1475054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Restore Point Creator бесплатная программа для упрощения создания точек восстановления системы. Точка восстановления - это копия реестра и всех критически важных файлов на какой-то момент времени. Используя программу можно больше не ходить через десяток окон и меню windows, а просто закрепить ярлык программы в удобном месте и создавать точки восстановления двумя (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4163C7341C9CA1A7229D672189C34C0735F5C2B7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1385082   (181813)
-
-Advanced Driver Updater 4.5.1086.17940 RePack (& Portable) by TryRooM [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1385082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Driver Updater - программа для автоматической загрузки и установки драйверов. Сканирует систему на наличие устаревших драйверов, выбирает подходящие для вашей ОС и предлагает их обновить. Имеет доступ к огромной базе данных драйверов устройств всех современных производителей: Realtek, ATI, MSI, NVidia и др. Есть возможность создания резервных копий обновляемых (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10FDDF65D548A459081A8DF9FCEBDAB78F33265
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1526260   (176185)
-
-ElcomSoft Distributed Password Recovery 4.43.1565 [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1526260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elcomsoft Distributed Password Recovery – высокопроизводительное решение для восстановления паролей к различным типам файлов. Программа построена по принципу <2>клиент-сервер<2> и позволяет задействовать для перебора паролей все имеющиеся компьютеры.Язык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CD885D0C27F4C1C749B7DBA84544D16D72AE0C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1389431   (173757)
-
-Paragon Backup & Recovery 17.9.3 CE [En]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1389431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon Backup & Recovery 17 Community Edition - бесплатное решение для резервного копирования системы Windows, отдельных разделов или файлов на локальных, съемных и сетевых носителях, с гибкими и быстрыми вариантами восстановления данных.
-
-Часть функций программы доступна только в Demo режиме!Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8536DE5B8131843CA2280EEBED83FB826C82AA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1527771   (173616)
-
-Vit Registry Fix Pro 14.6.0 RePack (& Portable) by elchupacabra [Multi<3>Ru]
-
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1527771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vit Registry Fix Professional edition - мощная программа для очистки реестра от ошибок и устаревших данных. Программа обладает мощным автоматическим средством сканирования и удаления ошибок самых разных типов. Vit Registry Fix может находить более 50 вариантов разновидностей ошибок в реестре.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA6AB6218D58D96D3F697AD8AD0F9218A565544
 ```
 
 #Mybot  @nnmclub_mybot

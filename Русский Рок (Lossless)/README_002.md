@@ -1,4 +1,91 @@
 
+###  Публикация: 1678231   (48387)
+
+тринадцать карат - еще одна ночь (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1678231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. еще одна ночь [00:02:25]
+02. запутанный мир [00:02:22]
+03. останови меня [00:02:10]
+04. 00:13 [00:00:40](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488FEE7484B78FDB6ECB41A2538CA2EA6FE0051F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1678350   (48386)
+
+Sot-75 - Мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1678350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Под мелом [00:05:29]
+02. Только о тебе [00:03:29]
+03. Жду тебя [00:03:28]
+04. О весне [00:03:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EAD67BB5326074F04B2369200E0DCFBCA6F7AD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1678659   (48226)
+
+Powder Burns - ... На Горячей Земле (2023) [FLAC|Lossless|WEB-DL|tracks] <Death-Metal, Oldschool
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1678659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Неравный Бой [00:03:21]
+02. Архитектор [00:03:59]
+03. Лагерь Смерти [00:04:00]
+04. Черный Тюльпан [00:04:38](   Читать дальше...   )Жанр: Death-Metal, OldschoolПродолжительность: 00:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150C43ACBE7510C74E4A60E284FD6D98E9E6B3C0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1678767   (48216)
 
 СЛОТ - Инстинкт выживания (2022) Live in Moscow, Explict Edition, M2BA [FLAC|Lossless|WEB-DL|tra
@@ -946,7 +1033,7 @@ Dramaturg - Darkness (2022) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 ###  Подробнее
 
 01 Swamp 6:04
-02 You Can<1>t Get Away From Yourself 5:53
+02 You Can t Get Away From Yourself 5:53
 03 One On One 5:02
 04 Werewolf 4:35(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:41:04
 
@@ -2280,7 +2367,7 @@ Moongates Guardian - Broken Sword (2022) Compilation [FLAC|Lossless|image + .cue
 ###  Подробнее
 
 01 Winter Without A Spring 6:32
-02 For Those About To Rock (AC<3>DC cover) 5:38
+02 For Those About To Rock (AC DC cover) 5:38
 03 Broken Sword 5:02
 04 Tulkas 2:06(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:52:44
 
@@ -2950,7 +3037,7 @@ magnet:?xt=urn:btih:A74DF75794F2B1320BC2DA1212017219359EFE62
 02. Пустые диалоги [00:02:52]
 03. Утонуть [00:02:38]
 04. Иначе быть не могло [00:02:58](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:29
-https:<3><3>deezer.com<3>album<3>510946991
+https:  deezer.com album 510946991
 
 ## Скачать торент
 ```bash
@@ -3355,7 +3442,7 @@ magnet:?xt=urn:btih:F00251A0BB7125508F950C7E83016D13A32D9BAE
 
 01. Сколько стоит меланхолия? [00:01:29]
 02. Хаос [00:03:33]
-03. 12<3>60 [00:03:32]
+03. 12 60 [00:03:32]
 04. Сердце справа [00:04:01](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:28:53
 
 ## Скачать торент
@@ -3397,7 +3484,7 @@ magnet:?xt=urn:btih:36FDEC732ABC75DB6A64698D9421F23A7382BEC6
 
 ###  Публикация: 1681230   (37885)
 
-Billy<1>s Band - В шляпе (2023) [WavPack|Lossless|image + .cue] <Rock, Jazz, Blues>
+Billy s Band - В шляпе (2023) [WavPack|Lossless|image + .cue] <Rock, Jazz, Blues>
 
 
 >>Rock, Alternative, Punk, Metal
@@ -3445,7 +3532,7 @@ DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Indust
 01. Transistor (Intro) [00:02:46]
 02. Aurora [00:04:14]
 03. Path [00:02:17]
-04. Moon [00:04:21](   Читать дальше...   )Жанр: Power Metal <3> Instrumental <3> Electro-Industrial <3> Melodic Death Metal <3> Sid Metal <3> Folk MetalПродолжительность: 01:41:12
+04. Moon [00:04:21](   Читать дальше...   )Жанр: Power Metal   Instrumental   Electro-Industrial   Melodic Death Metal   Sid Metal   Folk MetalПродолжительность: 01:41:12
 
 ## Скачать торент
 ```bash
@@ -3790,13 +3877,13 @@ magnet:?xt=urn:btih:344FC7B8756F835F4A789BB3508F66721E6ACC1A
 
 ###  Подробнее
 
-01 Ирландская полечка - O<1>Sullivans Fancy 00:05:20
+01 Ирландская полечка - O Sullivans Fancy 00:05:20
 02 Интродукция (Ленивая Мэгги) - Intro (Drowsy Maggie) 00:03:33:
 03 Принцесса - Princess 00:04:06
 04 Дорогая просыпается - My Darling Asleep 00:03:18
 05 Москва-Дублин - Moscow-Dublin 00:02:34
-06 Отец Флин (Пчелы в вереске) - Father O<1>Flynn (The Bees In The Heather) 00:04:17
-07 Сон Кэролана - O<1>Carolans Dream 00:07:14
+06 Отец Флин (Пчелы в вереске) - Father O Flynn (The Bees In The Heather) 00:04:17
+07 Сон Кэролана - O Carolans Dream 00:07:14
 08 Утренняя жига - The Morning Jig 00:02:49
 09 10 пенсов - 10 Pens 00:02:59
 10 Кольца Брендена - Brendan Rings 00:04:26(   Читать дальше...)Жанр: RockПродолжительность: 00:46:55
@@ -3854,9 +3941,9 @@ The Lust - Black Dahlia Poem (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 
 ###  Подробнее
 
-01. Day When I<1>m Gone
+01. Day When I m Gone
 02. Haunting
-03. No One<1>s Around
+03. No One s Around
 04. You Got Me(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:16:06
 
 ## Скачать торент
@@ -4115,8 +4202,8 @@ magnet:?xt=urn:btih:0D893D2082F7517C46D1DACAA3DA045816C36916
 
 ###  Подробнее
 
-01. Коктейль <2>Дракон<2>
-02. Бар <2>Под дулом револьвера<2>
+01. Коктейль  Дракон 
+02. Бар  Под дулом револьвера 
 03. Грибы-мухоморы
 04. ЗПХ(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:16
 

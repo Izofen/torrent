@@ -1,4 +1,2293 @@
 
+###  Публикация: 1646857   (21708)
+
+Zardonic - Superstars (2023) [FLAC|24/48|WEB-DL|tracks] <Industrial Rock, Drum & Bass, Electronic Ro
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1646857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring The Rukus [00:04:24]
+02. Rock And Roll Tonight [00:05:20]
+03. Neon Rain [00:03:30]
+04. Follow Me [00:03:32](   Читать дальше...   )Жанр: Industrial Rock, Drum & Bass, Electronic RockПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8513D1240E91FFD4E694B25EE4F7B75FF3350CCE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1647037   (21707)
+
+My Dying Bride - Studio Albums (20 releases) (1991-2020) hand made [restored, declipped] [FLAC |16/4
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1647037.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Dying Bride — дэт-дум-метал-группа из Англии, основанная в 1990 году.1991 - Symphonaire Infernus Et Spera Empyrium (EP)
+1992 - As The Flower Withers
+1992 - The Thrash Of Naked Limbs (EP)
+1993 - Turn Loose The SwansЖанр: Doom/Death MetalПродолжительность: 19:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847D0567323FD06FB4B96585F1D0A986E59A12B8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1646462   (21706)
+
+Rage - Studio Albums (29 releases) (1985-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1646462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rage — метал-группа из Германии, основанная в 1983 году.1985 - Prayers Of Steel (as Avanger)
+1986 - Reign Of Fear
+1987 - Execution Guaranteed
+1988 - Perfect ManЖанр: Heavy/Speed/Power MetalПродолжительность: 32:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F8F4A0D8AA6D67F8BFADFECFA8C06F34A7D503
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1647969   (21705)
+
+Blur - The Ballad Of Darren (2023) [FLAC|24/44.1|WEB-DL|tracks] <Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1647969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Ballad [00:03:36]
+02 St. Charles Square [00:03:55]
+03 Barbaric [00:04:08]
+04 Russian Strings [00:03:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED73D504EDD2860C365F6CA94BB8DD6F2B38093
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1409499   (21427)
+
+Sinead O'Connor - I Do Not Want What I Haven't Got (1990/1993) Reissue, Unofficial Release [FLAC 2.0
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1409499.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Feel So Different
+A2 Three Babies
+A3 The Emperor's New Clothes
+A4 Black Boys On Mopeds(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Pop RockПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4683C0CCB354E4FACD74B1C635CD638EF8B49EB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1646491   (20676)
+
+Dernesch, Kollo, Wiener Philharmoniker, Georg Solti - Wagner: Tannhäuser (1971) 2018, Remastered [FL
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1646491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Richard Wagner (1813 - 1883): Tannhäuser, WWV 70 - Paris version / Act 1:
+1  Overture . . . "Naht euch dem Strande"
+2  "Geliebter, sag', wo weilt dein Sinn?"
+3  "Dir töne Lob! Die Wunder sei'n gepriesen"(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 03:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D40AC8A30904CA38ED24CCFB0BFDD52568FFE01
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1646603   (19902)
+
+Coolio - Gangsta's Paradise (1995) 25th Anniversary - Remastered [FLAC 24/96/192|Lossless|WEB-DL|tra
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1646603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's How It Is (Skit) (1:01)
+02. Geto Highlites (5:01)
+03. Gangsta's Paradise (4:01)
+04. Too Hot (3:40)(   Читать дальше...   )Жанр: Hip Hop, Gangsta, RapПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15789D7BD0A1E0FE0A8FA760E8821A3089586627
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645674   (19477)
+
+VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Country, Soul>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1645674.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Hot Chocolate - You Sexy Thing
+A2 Silver Convention - Save Me
+A3 Chequers - Rock On Brother
+A4 Drifters - Hello Happiness(   Читать дальше...   )Жанр: Pop Rock, Glam, Country, SoulПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BBC4E9ACA3EF0514DC61B52F614085D892AE85
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645475   (19401)
+
+VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-Rip] <Funk, Pop Rock,
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645475.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Manuel & The Music Of The Mountains - The Windmills Of Your Mind
+A2 Cliff Richard - Spanish Harlem
+A3 Bobbie Gentry - Ode To Billy Joe
+A4 Roger Whittaker - Dirty Old Town(   Читать дальше...   )Жанр: Funk, Country, Pop Rock, Easy ListeningПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD8D4E54EAE979C637F7A47C69564A37CD4CC0F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645437   (19326)
+
+Fish - 13th Star (2007) Deluxe Digital 2023 Remix, 7Hz Productions [FLAC|24/44.1|WEB-DL|tracks] <Pro
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Line (5:57)
+02. Square Go (4:58)
+03. Miles De Besos (4:48)
+04. Zoe 25 (5:11)(   Читать дальше...   )Жанр: Progressive-rockПродолжительность: 01:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F8668831ECD86D901B4019A589BE655B18489F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645298   (19322)
+
+The Flaming Lips - Zaireeka (1997) 4CD Deluxe, Warner Records Inc., 2023 [FLAC|24/44.1|WEB-DL|tracks
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okay I'll Admit That I Really Don't Understand [00:02:51]
+02. Riding to Work in the Year 2025 (Your Invisible Now) [00:06:56]
+03. Thirty-Five Thousand Feet of Despair [00:04:58]
+04. A Machine in India [00:10:23](   Читать дальше...   )Жанр: Alternative-rock, psychedelic, experimental-rockПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED4B8C24436DBC44A593EF74B88BD7183D5CD2F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645355   (19321)
+
+Nita Strauss - The Call of the Void (2023) [FLAC|24/48|WEB-DL|tracks] <Heavy Metal, Modern Metal>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Storm (4:31)
+02. The Wolf You Feed (3:52)
+03. Digital Bullets (3:58)
+04. Through The Noise (3:20)(   Читать дальше...   )Жанр: Heavy Metal, Modern MetalПродолжительность: 01:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19EE3754305DB7AE2C29E198BE22EF678B72C9C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645431   (19320)
+
+Wham! - The Singles: Echoes from the Edge of Heaven (2023) Expanded Edition [FLAC|24/44.1|WEB-DL|tra
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wham Rap! (Enjoy What You Do?) (3:32)
+02. Wham Rap! (Enjoy What You Do?) (Club Mix) (4:20)
+03. Wham Rap! (Enjoy What You Do?) (Social Mix) (6:45)
+04. Wham Rap! (Enjoy What You Do?) (Unsocial Mix) (6:38)(   Читать дальше...   )Жанр: Pop, dance-popПродолжительность: 02:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3148E8E4AB6CDFA1A520484C3BB45734B5511BAC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645217   (19319)
+
+Katatonia - Studio Albums (13 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|t
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1645217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Katatonia — шведская группа, основанная в 1991 году в Стокгольме Йонасом Ренксе и Андерсом Нюстрёмом. Раннее творчество коллектива принято характеризовать как дэт-дум-метал, а сама группа, наряду с My Dying Bride, Anathema и Paradise Lost, считается лидером этого жанра.1993 - Dance Of December Souls
+1996 - Brave Murder Day
+1998 - Discouraged Ones
+1999 - Tonight's DecisionЖанр: Doom/Death Metal; Gothic/Progressive RockПродолжительность: 14:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C484DD37B26F5F06B982CB204938193505EB5ACE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645229   (19318)
+
+A Life Divided - Down The Spiral Of A Soul (2023) [FLAC|24/44.1|WEB-DL|tracks] <Electro-Rock, Gothic
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Man Standing (3:46)
+02. Best Time (4:14)
+03. Life Goes On (3:58)
+04. True Religion (4:36)(   Читать дальше...   )Жанр: Electro-Rock, Gothic-Rock, Alternative-MetalПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F4063CDCF284BC27576E7C8F371FB7055A4CC1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1613838   (19317)
+
+Bloodbound - Studio Albums (10 releases) (2005-2021) hand made [restored, declipped] [FLAC 2.0|44/16
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1613838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodbound — шведская метал-группа, сочетающая в себе как традиционный по стилю пауэр-метал, с присущей ему динамикой, мелодикой и сменами ритмов, так и не менее традиционный хеви-метал с мощным акцентированным вокалом, героическими текстами и сольными партиями гитаристов.2005 - Nosferatu
+2007 - Book Of The Dead
+2009 - Tabula Rasa
+2011 - Unholy CrossЖанр: Heavy/Power MetalПродолжительность: 08:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9B50B56DEB4A690E67CDD03026A7F0B104D125
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645041   (19038)
+
+Kikimora - For A Broken Dime (2023) [FLAC|24/48|WEB-DL|tracks] <Hard-Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bound For Destruction (6:21)
+02. Spell Of Love (5:23)
+03. Fear And Greed (5:21)
+04. Edge Of Freedom (5:50)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7FDA11E7AC2DE1313CBDE808F06C221979CF56
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645152   (19037)
+
+Winterage - Nekyia (2023) [FLAC|24/44,1|WEB-DL|tracks] <Symphonic-Power-Metal>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apertio ad Profundum (2:32)
+02. Simurgh the Firebird (5:24)
+03. The Cult of Hecate (5:33)
+04. Numen (4:55)(   Читать дальше...   )Жанр: Symphonic-Power-MetalПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0B8B71B28C89FD8BB226AB235AA54332700A89
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645051   (18972)
+
+Nita Strauss - The Call of the Void (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental Heavy M
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Storm (4:31)
+02. The Wolf You Feed (3:52)
+03. Digital Bullets (3:58)
+04. Through The Noise (3:20)(   Читать дальше...   )Жанр: Instrumental Heavy Metal, Modern MetalПродолжительность: 01:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733A5AB64E57E0D5D31A380444A38A408ECF1FD4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645052   (18970)
+
+BluScenes: Gallery Musee (2012) [DTS-ES 6.1 CD-DA|24/44.1|image+.cue|BD-Video] <Lounge, Relax>
+
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scene 01  00:54:41
+02.  Scene 02  00:33:27Саундтрек видового фильма, представляющего музейные полотна художников-импрессионистов.
+О том, как послушать. Обладатели ресиверов, оборудованных декодером DTS-ES, смогут (в добавление к обычному 5.1 набору раздельных каналов) услышать и так называемый задний центральный (Back Center) канал. Должен сказать, что музыкаЖанр: RelaxПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A09D37DE45CB6B4F0904491A8E2692D5EB91CA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1644853   (18884)
+
+Donna Summer - Another Place and Time (1989) Deluxe, 2023, Driven By The Music [FLAC|24/44.1|WEB-DL|
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1644853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Wanna Get Hurt (3:28)
+02. When Love Takes over You (4:13)
+03. This Time I Know It's for Real (3:39)
+04. The Only One (3:55)(   Читать дальше...   )Жанр: Disco, Eurodance, EuropopПродолжительность: 01:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE56B7FBD7DD6E4B4B87EE9BBF04BF75240FDA5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1644350   (18746)
+
+XO Armor - Nublar (2023) [FLAC|24/44.1|WEB-DL|tracks] <Nu Metalcore, Rapcore, Alternative Metal>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1644350.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dilopho
+2. Rex
+3. Pangea
+4. Mosa(   Читать дальше...   )Жанр: Nu Metalcore / Rapcore / Alternative MetalПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D523B70B9ACC2902C836C6DA6D94A2D94B389FCC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1644684   (18744)
+
+Валерия - Звёздная Коллекция (2001) Compilation, Unofficial Release [FLAC|24/48|image + .cue|Tape-Ri
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1644684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Не Обманывай
+02. Не Обижай Меня
+03. Рига-Москва(   Читать дальше...   )Жанр: Europop, Euro House, Pop RockПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F207E6629AC8C46C0C88C5F6B30D40BCA9CBD6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1644077   (18736)
+
+Carpenter Brut - Leather Terror (2022) [FLAC|24/44.1|WEB-DL|tracks] <Darksynth, Synthwave, Horror>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1644077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Title [2:09]
+02. Straight Outta Hell [3:22]
+03. The Widow Maker (feat. GUNSHIP) [3:56]
+04. Imaginary Fire (feat. Greg Puciato) [4:22](   Читать дальше...   )Жанр: Darksynth, Synthwave, HorrorПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D12588EF6A32FA4A0F5E401D845561450B9AA2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1644084   (18735)
+
+Greg Puciato - 1 Album, 3 Singles (2021-2022) [FLAC|24/48, 96|WEB-DL|tracks] <Mathcore, Grunge, Slud
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1644084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Now You've Really Done It (Single)
+2022 - 11/11/22: Los Angeles (LP)
+2022 - Lowered (feat. Reba Meyers) (Single)(   Читать дальше...   )Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 4 CD, 01:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11476ED20EADD7504C3EF2D1970EEDD9A017E2E7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1644335   (18734)
+
+Михаил Ткаченко - Covers 3 (2022-2023) [FLAC|24/192|WEB-DL|tracks] <Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1644335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гражданская Оборона - Каравелла
+02. Гражданская Оборона - Лето прошло
+03. Гражданская Оборона - Мёртвые
+04. Гражданская Оборона - Мёртвый сезон(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5118F4C3EBD6BBDE0E2181C752E88308A2F5CC50
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1644307   (18704)
+
+Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Electronic,
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1644307.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		I'm Your Baby Tonight	5:00
+A2		My Name Is Not Susan	4:38
+A3		All The Man That I Need	4:09
+A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1643972   (18564)
+
+Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, Reissue, Gatefold 180
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1643972.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:38:54
+
+A1 Atomic
+(A. Maratrat, G. L'Her)(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 03:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1643719   (18428)
+
+ZZ Top - Degüello (1979) Remastered, 2013, Rhino - Warner Records [FLAC 2.0|24/192|WEB-DL|tracks] <H
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1643719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Thank You [00:03:25]
+02. She Loves My Automobile [00:02:23]
+03. I'm Bad, I'm Nationwide [00:04:52]
+04. A Fool for Your Stockings [00:04:16](   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4C0C08BF8BD5023EA4033F99FBA3F02CBE2667
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 123461   (18379)
+
+Hooverphonic - No More Sweet Music (2005) [DTS-CD from DVD-Video] <lounge>
+
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_123461.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You Love Me to Death 04:00
+2. We All Float 03:38
+3. Music Box 03:48
+4. You Hurt Me 03:33(   Читать дальше...   )Жанр: Trip-Hop, Pop, LoungeПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8884442270D059C4F9621A04DE415576F39F0D72
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1643848   (18375)
+
+Olivia Dean - Messy (2023) [FLAC 24/96|WEB-DL|tracks] <R&B>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1643848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UFO (2:34)
+02. Dive (3:21)
+03. Ladies Room (3:40)
+04. No Man (2:59)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6B9C7140176FD5DB5B52ECD943588690BF58B1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1643702   (18272)
+
+Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DST64 5.1, 2.0|image(iso)|SACD-R] <demos/sampl
+
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1643702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thérèse Juel - Tiden bara går (R. Rönning)
+02. Stockholm Guitar Quartet - Invention No. 14 (J.S. Bach)
+03. Tomas Örnberg's Blue Five - Buddy Bolden Blus (Morton)
+04. Knoa - Unca's Flight (M. Lingedal)(   Читать дальше...   )Жанр: Jazz, Blues, Classical, Folk, World, & CountryПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3A1BBCC1C3EDA527A9C6DFB92BA2F6707BB187
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1643593   (18221)
+
+Creedence Clearwater Revival - Chronicle: The 20 Greatest Hits (1976) Remastered, 2023, Craft Record
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1643593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Susie Q. (Single Edit) (4:39)
+02. I Put A Spell On You (4:32)
+03. Proud Mary (3:10)
+04. Bad Moon Rising (2:23)(   Читать дальше...   )Жанр: Rock, Americana, Swamp-RockПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D7EB4D987671333C84A03E44EB21228458D2F2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1643588   (18220)
+
+The Hu - Rumble of Thunder (2022) Deluxe, Reissue, 2023, Better Noise Music [FLAC 2.0|24/96|WEB-DL|t
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1643588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Mongol (3:45)
+02. YUT Hövende (5:34)
+03. Triangle (4:12)
+04. Teach Me (3:59)(   Читать дальше...   )Жанр: Mongolian-folk-metalПродолжительность: 01:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117D0B6BB718BBD55F1DFD36914A274198A1E100
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1643515   (18218)
+
+The Guess Who - Plein D'Amour (2023) [FLAC 2.0|24/44.1|WEB-DL|tracks] <Hard Rock, Classic Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1643515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The King [00:05:34]
+02. Across the Line [00:04:54]
+03. People Around Me [00:04:07]
+04. Headline [00:04:08](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89608DF30134DBBD8097E78ABD9AC892B2038287
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1643401   (18103)
+
+Rise to the Sky - 3 Albums (2022-2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Atmospheric Doom Metal, Mel
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1643401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - Every Day, A Funeral
+2022 - Stay With Me When You're Gone
+2023 - Two Years of GriefЖанр: Atmospheric Doom Metal, Melodic DeathПродолжительность: 3 CD, 02:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2CC9C3611D302CD97D5AA890A223E7F2330FBB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1643464   (18102)
+
+Presto Ballet - Studio Albums (6 releases) (2005-2018) hand made [restored, declipped] [FLAC |16/44.
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1643464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Presto Ballet — прогрессив-рок-группа, основанная гитаристом Metal Church Курдтом Вандерхофом.2005 - Peace Among The Ruins
+2008 - The Lost Art of Time Travel
+2011 - Invisible Places
+2012 - Relic of the Modern World(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 05:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A6E9A8F9E2B3623EB50A2D988D4F33686E3769
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1643482   (18101)
+
+Bards of Antiquity - The Paladin (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive Rock, Crossover
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1643482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking Daydream [00:05:53]
+02. March [00:04:12]
+03. Omen [00:03:33]
+04. Hero's Fall [00:06:51](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71507CCF5CC880DFEF557D613F6C9B5A9F2C4C39
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1642795   (17813)
+
+Deserted Fear - Studio Albums (5 releases) (2012-2022) hand made [restored, declipped] [FLAC 2.0|44/
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1642795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deserted Fear - Death metal группа из Германии, основана в 2008 году.2012 - My Empire
+2014 - Kingdom of Worms
+2017 - Dead Shores Rising
+2019 - Drowned By HumanityЖанр: Death MetalПродолжительность: 03:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FF70A2C40CED1D5570CD3716D3A12E352EB26A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1642322   (17784)
+
+The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] [FL
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1642322.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Sins of Thy Beloved — музыкальный коллектив из Норвегии, исполняющий свою музыку в направлении симфонического готик/дум-метала. Название группы переводится как «Грехи твоей возлюбленной/Грехи твоего возлюбленного». По словам участников коллектива они выбрали именно это название, так как оно наиболее полно отображает музыку, концепцию и лирику группы (лирика песен (   Читать дальше...   )1997 - All Alone (EP)
+1998 - Lake of Sorrow
+2002 - Perpetual DesolutionЖанр: Symphonic Gothic/Doom MetalПродолжительность: 02:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2850E838857667DD3914CFAE98763A28F7998B54
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1642386   (17783)
+
+Леонид Агутин - Летний Дождь (1998) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Latin, Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1642386.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Не Унывай!
+A2 Летний Дождь
+A3 Полночи
+A4 Танцевали Пары(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1642533   (17782)
+
+Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [restored, declipped] [FL
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1642533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eternal Tears of Sorrow — финская группа, исполняющая музыку в стиле симфонический дэт-метал.1997 - Sinner's Serenade
+1998 - Vilda Mannu
+2000 - Chaotic Beauty
+2001 - A Virgin And A WhoreЖанр: Melodic/Symphonic Death MetalПродолжительность: 05:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3403DFFCB7EA8524DBBFA88A9533326A3A4F224C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1642122   (17517)
+
+Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] [FLAC 2.0|44/16|trac
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1642122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mnemic — датская метал-группа, образованная в Ольборге в 1998 году.2003 - Mechanical Spin Phenomena
+2004 - The Audio Injected Soul
+2007 - Passenger
+2010 - Sons Of The SystemЖанр: Industrial/Groove/Progressive Metal, DjentПродолжительность: 04:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1642113   (17516)
+
+A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1642113.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stay On These Roads 4:44
+A2 The Blood That Moves The Body 4:05
+A3 Touchy 4:31
+A4 This Alone Is Love 5:13(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6868FBE367A08BB0303738B18AB784F6863B85
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1642059   (17515)
+
+Shylmagoghnar - Studio Albums (2 releases) (2014-2018) hand made [restored, declipped] [FLAC 2.0|44/
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1642059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shylmagoghnar - Progressive/Atmospheric Black Metal from the Netherlands.2014 - Emergence
+2018 - TransienceЖанр: Progressive/Melodic Death/Black MetalПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EDE2ADFF40E23FD47BD10A0BF2980A2F7CC28D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1642095   (17445)
+
+Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD64 2.0|1bit/2822,4kHz
+
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1642095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A New Day Yesterday
+02 - Jeffrey Goes To Leicester Square
+03 - Bourée
+04 - Back To The Family(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD111939237D4A3676690FF964DDE0C2703CD1B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1641923   (17391)
+
+Coheed And Cambria - Studio Albums (10 releases) (2002-2022) hand made [restored, declipped] [FLAC 2
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1641923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coheed And Cambria — американская прогрессив рок (нью-прог) команда со всех уголков штата Нью-Йорк, США. Группа образовалась в 1995 году, под именем Beautiful Loser, с 1996 года стали называться Shabutie, с 2001 года называются Coheed And Cambria. Пишут композиции по мотивам историй, написанных фронтменом группы Клаудио Санчесом, и с 2006 года издающихся в виде комиксов.2002 - The Second Stage Turbine Blade
+2003 - In Keeping Secrets Of Silent Earth: 3
+2005 - Good Apollo, I'm Burning Star IV, Volume One: From Fear Through the Eyes of Madness
+2007 - Good Apollo, I'm Burning Star IV, Volume Two: No World for TomorrowЖанр: Progressive RockПродолжительность: 10:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B6EEC06A607CDA93E54B304FCC5AC4109D1C3B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1641932   (17339)
+
+Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-DA|44.1/24|image+.cu
+
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1641932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice	6:00
+02. We Stand Alone	5:33
+03. Rage In Eden	 4:13
+04. I Remember (Death In The Afternoon)	4:57(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6BAE678A51A99362CFFD2FFAE15D09F116E8D8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1641848   (17304)
+
+Kiss – Creatures Of The Night (1982) 40th Anniversary 2022 remaster [DTS-ES Discrete 6.1 CD-DA|44.1/
+
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1641848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну вот, и еще одно юбилейное издание "властителей музыкальных дум" 80-х вышло. На этот раз, KISS. Что тут сказать? В те годы довольно прохладно к ним относился. Для меня рулили Пёпл, Хип. Но услышав Династию, мнение изменил.
+Для моих ровесников - Ночные Твари - в многоканале!))
+Про желательность наличия заднего центра не забываем01. Creatures Of The Night
+02. Saint And Sinner
+03. Keep Me Comin’
+04. Rock And Roll Hell(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695242D560B937D657DE3853DCA81FF126D29FE2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1556221   (17198)
+
+Bad Wolves - Studio Albums (3 releases) (2018 - 2021) hand made [restored, declipped] [FLAC 2.0|44/1
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1556221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bad Wolves — американская супер-группа, играющая в стиле грув-метал. Группа образована в 2017 году и стала наиболее известна исполнением кавер-версии хита The Cranberries 1994 года «Zombie». По мнению самих участников, их стиль, это рок при пониженном строе гитар с элементами джента.2018 - Disobey
+2019 - N.A.T.I.O.N.
+2021 - Dear MonstersЖанр: Groove Metal, DjentПродолжительность: 03:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1940DC961F4520CF37A15C83B104C05A2B0577E0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1641536   (17197)
+
+Septic Flesh - Studio Albums (11 releases) (1994-2022) hand made [restored, declipped] [FLAC 2.0|44/
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1641536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Septic Flesh — метал-группа из Греции. Коллектив сочетает в своём звучании такие жанры как дэт-метал, симфоник-метал и дум-метал.1994 - Mystic Places of Dawn
+1995 - Esoptron
+1997 - Ophidian Wheel
+1998 - A Fallen TempleЖанр: Atmospheric/Symphonic Death MetalПродолжительность: 11:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CE9A2369A4B89EE43A4D376883108523CF5183
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1641554   (17195)
+
+Outlanders (Tarja Turunen feat. Torsten Stenzel) - Outlanders (2023) [FLAC 2.0|44/24|WEB-DL|tracks]
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1641554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outlanders (feat. Walter Giardino)
+02. Closer To The Sky (feat. Trevor Rabin)
+03. The Cruellest Goodbye (feat. Al Di Meola)
+04. World In My Eyes (feat. Vernon Reid)(   Читать дальше...   )Жанр: Progressive-Rock, Pop-Rock, DowntempoПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919997E5C7355AE8D77F31933B025E5804C46C40
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1641447   (17062)
+
+А. Журбин, Ю. Димитрин - Орфей и Эвридика. Зонг-опера в 2х частях (1980) Box Set, 2LPs [FLAC 2.0|192
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1641447.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Орфей полюбил Эвридику…
+A2 Первый дуэт Орфея и Эвридики и песня Орфея («Когда поет Орфей»)
+A3 Хор вестников («Близится, близится…»)
+A4 Сцена прощания(   Читать дальше...   )Жанр: Rock-Opera, ModernПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFF4AC77BF50A3704E82B84B4F0FB9D6C5FCD82
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1558264   (16970)
+
+Godsmack - Studio Albums (8 releases) (1998 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1558264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Godsmack — американская рок-группа, образованная в 1995 году в городе Лоуренс (Массачусетс). В состав группы входят вокалист и гитарист Салли Эрна, гитарист Тони Ромбола, бас-гитарист Робби Меррилл и барабанщик Шеннон Ларкин.1998 - Godsmack
+2000 - Awake
+2003 - Faceless
+2006 - IVЖанр: Post-grunge, hard rock, nu metalПродолжительность: 06:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B3994868E7F1E9F62E7F28CDDB815ADE6EF540
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1551410   (16969)
+
+Pop Evil - Studio Albums (7 releases) (2009-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tr
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1551410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pop Evil — американская рок-группа, основанная в 2001 году в Северном Маскегоне, штат Мичиган, Ли Какати. Корни группы уходят в TenFive, группу, созданную в конце 1990-х Какати и гитаристом Джейсоном Ридом.2009 - Lipstick On The Mirror
+2011 - War Of Angels
+2013 - Onyx
+2015 - UpЖанр: Alternative metal, post-grungeПродолжительность: 05:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C6FEFDFA9CD95983079AEC1AB8F26CACA0DED0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1640972   (16849)
+
+Поют Екатерина Шаврина и Михаил Котляр (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1640972.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Соловьи поют, заливаются
+А2 Река моя
+А3 Подари мне признание
+А4 Женщины(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559084019D1B11B1F3B6B9DE1AF515BF7D240B68
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1640709   (16712)
+
+Entombed / Entombed A.D. - Studio Albums (16 releases) (1990-2019) hand made [restored, declipped] [
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1640709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Entombed — шведская дэт-метал-группа, сформированная в 1987. Группа является пионерами скандинавского дэт-метала.1990 - Left Hand Path
+1991 - Clandestine
+1993 - Wolverine Blues
+1997 - DCLXVI: To Ride, Shoot Straight And Speak The Truth!Жанр: Death Metal / Death 'n' RollПродолжительность: 12:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202CA229E76592ACD22373D03DC113A984759380
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1549494   (16711)
+
+Saxon - Дискография (32 releases) (1979 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|trac
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1549494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saxon — английская рок-группа, одна из ярких представителей новой волны британского хэви-метал. Существует с 1977 года. Группа считается классикой метала и оказавшей большое влияние на другие группы в этом жанре, такие как Metallica, Mötley Crüe, Pantera, Sodom.1979 - Saxon
+1980-1 - Wheels of Steel
+1980-2 - Strong Arm of the Law
+1981 - Denim and LeatherЖанр: Heavy Metal, Hard RockПродолжительность: 35:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703142BCF944203EEDE2848D6602CFEA4E818BB1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1640518   (16533)
+
+Alice Cooper - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1640518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Poison
+02. Hey Stupid
+03. Feed My Frankenstein(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1639252   (15868)
+
+Decisive Pink - Ticket to Fame (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1639252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haffmilch Holiday (4:16)
+02. What Where (3:59)
+03. Ode to Boy (5:24)
+04. Destiny (5:59)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6221F8666527C36FC439974BF1072E18850B1D92
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1639126   (15769)
+
+Milky Chance - Living In A Haze (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1639126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living In A Haze (2:53)
+02. Golden (3:02)
+03. Purple Tiger (2:44)
+04. Colorado (2:54)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8531FF6C82AB743D7DA5D29843C7D16F9A98B3F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1639079   (15745)
+
+Squid - O Monolith (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1639079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing (In A Dream) (4:29)
+02. Devil’s Den (3:05)
+03. Siphon Song (5:58)
+04. Undergrowth (6:36)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686596E0ACE17C53ED078DCC7767F32C9AFCB0CB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1639009   (15697)
+
+Janis Joplin - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1639009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half Moon
+02. Me And Bobby McGee
+03. Piece Of My Heart
+04. Move Over(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1638653   (15535)
+
+Christine and the Queens - PARANOIA, ANGELS, TRUE LOVE (2023) [FLAC 24/176.4|Lossless|WEB-DL|tracks]
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1638653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (1:24)
+02. Tears can be so soft (5:12)
+03. Marvin descending (4:07)
+04. A day in the water (4:02)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: CD1 - 00:34:52
+CD2 - 00:29:28
+CD3 - 00:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0080218F8E32B18A1BBD178E12219F787B09BF5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1638374   (15479)
+
+Sweet - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|M
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1638374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Set Me Free
+02. Keep It In
+03. Give The Lady Some Respect(   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBB3609798A7AC5A9202CBF01CA363336DD64D5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1638474   (15478)
+
+Revocation - Studio Albums (9 releases) (2008-2022) hand made [restored, declipped] [FLAC 2.0|44/16|
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1638474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revocation — американская метал-группа из Бостона, штат Массачусетс, в состав которой входят гитарист и вокалист Дэйв Дэвидсон, басист Бретт Бамбергер и барабанщик Эш Пирсон.2008 - Empire Of The Obscene
+2009 - Existence Is Futile
+2011 - Chaos Of Forms
+2012 - Teratogenesis (EP)Жанр: Technical Death/Thrash MetalПродолжительность: 07:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4351694F81A107F42A1972168CAEE21F9894DC86
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1638519   (15476)
+
+Extreme - Six (2023) [FLAC 2.0|96/24|WEB-DL|tracks] <Hard Rock, Heavy Metal, Funk Metal>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1638519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise (4:35)
+02. #Rebel (4:23)
+03. Banshee (3:35)
+04. Other Side Of The Rainbow (4:12)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Funk MetalПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E596F0E1D1A82DBA012B29ADCF174FA62AA9E445
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1638392   (15400)
+
+Rival Sons - DARKFIGHTER (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1638392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirrors (5:02)
+02. Nobody Wants to Die (3:42)
+03. Bird in the Hand (4:28)
+04. Bright Light (4:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E4C21DA86EBCBDC556B27BC511470BF76A6577
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1637709   (15370)
+
+Hot Unkle T - Stay In A Club (2023) [FLAC 2.0|44.1/24|image +.cue|WEB-DL] <Nu Disco, Funky House>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1637709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dannie Mercury – Another One Bites The Dust (Nu Disco Extended mix) (04:43)
+02. Richard Grey, Pink Panda – Lets Dance (03:19)
+03. GhostMastera, The GrooveBand – An Easy Lover (04:18)
+04. Nari, Steve Tosi – Stayin Da Club (04:21)(   Читать дальше...   )Жанр: Nu Disco, Funky HouseПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AC4174002AD38C361432FF31940E5DBC1DF2A7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1638278   (15369)
+
+Freedom Call - Studio Albums (11 releases) (1999-2019) hand made [restored, declipped] [FLAC 2.0|44/
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1638278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freedom Call — немецкая пауэр-метал группа, основанная в 1998 году.1999 - Stairway To Fairyland
+1999 - Taragon (EP)
+2001 - Crystal Empire
+2002 - EternityЖанр: Power MetalПродолжительность: 10:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4684C933BC24FC2669B5387FBCDDF27A2F114E20
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1638236   (15358)
+
+Speakers Corner Quartet - Further Out Than The Edge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <El
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1638236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Grounds (3:10)
+02. Acute Truth (3:41)
+03. fix (2:40)
+04. Wavelet (3:26)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFFB14CCF8F704030A0E71ACCA12F08B2813EAF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1638190   (15342)
+
+Rufus Wainwright - Folkocracy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1638190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone (feat. Madison Cunningham) (3:14)
+02. Heading for Home (feat. John Legend) (4:22)
+03. Twelve-Thirty (Young Girls Are Coming To The Canyon)Жанр: FolkПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2F82C6BF42E5D99F2A191A15105FAF505231DB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1637784   (15283)
+
+10СС - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1637784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Dreadlock Holiday
+02. Take This Woman
+03. Nothing Can Move Me(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4042834B66FA71CC492D07143A6B8B3141220A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1637929   (15282)
+
+Alestorm - Studio Albums (7 releases) (2008-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tr
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1637929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alestorm — фолк/пауэр-метал-группа из города Перт (Шотландия). Песни Alestorm посвящены пиратам, и свою музыку они называют «Настоящий шотландский пиратский метал» (англ. True scottish pirate metal).2008 - Captain Morgan's Revenge
+2009 - Black Sails at Midnight
+2011 - Back Through Time
+2014 - Sunset On The Golden AgeЖанр: Folk/Power MetalПродолжительность: 06:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A06EEC7B3581756793255AD7E98E734E48A57C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1637597   (15218)
+
+Kamelot - Studio Albums (13 releases) (1995-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tr
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1637597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kamelot — американская метал-группа, играющая симфонический пауэр-метал с примесями других жанров. Группа создана в 1991 году Томасом Янгбладом и Ричардом Ворнером и получила название в честь мифического города Камелот с намеренной ошибкой (K вместо C). Несмотря на своё североамериканское происхождение, Kamelot отличается типично «европейским» звучанием.1995 - Eternity
+1996 - Dominion
+1998 - Siege Perilous
+1999 - The Fourth LegacyЖанр: Progressive/Melodic Power MetalПродолжительность: 12:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE69A9BEEEB94701C29DBF33F90012064A792938
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1637717   (15217)
+
+Praying Mantis - Studio Albums (13 releases) (1981-2022) hand made [restored, declipped] [FLAC 2.0|4
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1637717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Praying Mantis (с англ. — «Богомол») — британская рок-группа. Начинала как одна из групп «NWOBHM». Со временем группа стала играть мелодичный хард-рок, ориентируемый на массовую аудиторию — AOR.1981 - Time Tells No Lies
+1991 - Predator In Disguise
+1993 - A Cry For The New World
+1993 - Only The Children CryЖанр: NWOBHM, AORПродолжительность: 11:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E72C63D8DD9BB6389AB66408205CB0010D3DE6E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1637681   (15203)
+
+WITCH - Zango (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1637681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By The Time You Realize (4:36)
+02. Waile (5:15)
+03. Nshingilile (feat. Keith Kabwe of Amanaz) (3:05)
+04. Streets Of Lusaka (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F946CD97B53F8C990CA3B8E4AC21F034846A7B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1637676   (15202)
+
+Foo Fighters - But Here We Are (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1637676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rescued (4:19)
+02. Under You (3:39)
+03. Hearing Voices (3:49)
+04. But Here We Are (4:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BCEA6BC2A63F19C98F241F5158288C9521E429
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1637585   (15135)
+
+Демонстрационный диск DTS 5.1 CD-Audio #17 (2023) [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Pop/
+
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1637585.jpg" />
+</div>
+
+
+###  Подробнее
+
+При подготовке релиза использовал материал, взятый с Audio-DVD, выпущенного в 2012 году и подготовленного для владельцев некоторых моделей Mercedes-Benz. Этот сборник многоканальных треков был составлен лауреатами премии "Grammy" - Гербертом Уолтлом (mediaHYPERIUM) и Лесли Энн Джонс (Skywalker Sound). Вместе они создали сборник поп-музыки с объемным звуком, (   Читать дальше...   )01. Seal - Amazing (3:30)
+02. Foreigner - Cold As Ice (3:21)
+03. Lady Gaga - Poker Face (3:59)
+04. James Blunt - You're Beautiful (3:32)(   Читать дальше...   )Продолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10AC29BA6AC245DD454F5F898D28218D695011E4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1637232   (15022)
 
 Creedence Clearwater Revival - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC

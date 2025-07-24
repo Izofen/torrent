@@ -1,11 +1,167 @@
 
-###  Публикация: 553707   (78180)
+###  Публикация: 1582555   (82589)
 
-Comanche 4 <3> Команч 4 (2001) [Ru] (1.14) Repack Pilotus
+Supreme Ruler 2020 (2008) [Multi] (2.0.0.1 dlc) License GOG [Gold Edition]
 
 
 >>Win Старые Игры
->>Simulation (Flight<3>Space)
+>>Strategy (RTS TBS Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1582555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Supreme Ruler 2020. Курс доллара обвалился за одну ночь, и это событие эхом отозвалось во всем мире. Из-за экономического кризиса обстановка в мире накалилась до предела. Начался распад мировой экономики. Повсюду разгораются военные конфликты, и воцаряется анархия. Миру нужен новый лидер.Тип издания: LicenseРазработчик: Battlegoat StudiosЖанр: Стратегия, В реальном времени, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F00163D2A5161B763538758FBB434CFF9550093
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1582808   (81684)
+
+Styrateg   Западная граница (2006) [Ru] (1.0) License
+
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS TBS Wargame)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1582808.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой пошаговой стратегии вам необходимо помочь храброму рыцарю очистить родное королевство от бесчисленных армий демонов, монстров и другой сказочной нежити. Скорее выбирайте одного из трех персонажей (у каждого из которых свои неповторимые боевые характеристики) и вперед, к славным битвам!Тип издания: LicenseРазработчик: Rake in GrassЖанр: Пошаговая стратегияЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB12AE2131432E108EC332661E0BC06834005905
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1505769   (81029)
+
+Just Cause 2 (2010) [Ru Multi] (1.0.0.2) License GOG [Complete Edition]
+
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1505769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в полное адреналина свободное приключение. В качестве агента Рико Родригеза, вашей целью будет найти и убить вашего друга и наставника, который исчез на островном рае Панау. Здесь, на Панау, вы должны вызвать максимум хаоса на земле, воде и в воздухе, чтобы изменить баланс сил. Используя сочетание из уникального крюка-кошки и парашюта, вы сможете выполнять (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche StudiosЖанр: Экшн, От третьего лица, Open WorldЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C797D21227E1F3DBD07A5CCAE04CAA1EC62A81
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645744   (79153)
+
+Hotel Giant 2 (2008) [Ru Multi] (1.0.0.1) License GOG
+
+
+>>Win Старые Игры
+>>Strategy (Manage Busin)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1645744.jpg" />
+</div>
+
+
+###  Подробнее
+
+После своего международного успеха гостиничный гигант вернулся и стал больше, чем когда-либо. В Hotel Giant 2 вы создадите отель своей мечты и будете управлять престижными объектами по всему миру. Ваша цель - привлечь как можно больше гостей и убедиться, что они остаются довольны на протяжении всего своего пребывания.Тип издания: LicenseРазработчик: Enlight Software Limited, PerspectXЖанр: Стратегия, Симулятор, МенеджментЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A6311DD9C1B9382CFC2485F180C9BD88CF1AA9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1421876   (78753)
+
+Tale of Imerion (2002) [Multi] (1.0.3) License
+
+
+>>Win Старые Игры
+>>Strategy (RTS TBS Grand)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1421876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в землях под названием Unauen - классическом фэнтезийно-средневековом мире с магией и четырьмя разумными расами (людьми, эльфами, гномами и орками), каждая из которых не слишком любит остальные и стремится завоевать как можно больше территорий. Однажды в этот мир, и так раздираемый войнами, приходит армия Тёмного Лорда - но последнее вовсе (   Читать дальше...   )Тип издания: LicenseРазработчик: Master CreatingЖанр: Turn-Based StrategyЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D045925FFB408E2503F8CCFB2E8781FBB03F676
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1423051   (78347)
+
+Obscure II (Obscure: The Aftermath) (2008) [Ru] (1.215294 dlc) Repack Other s
+
+
+>>Win Старые Игры
+>>Adventure Quest
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1423051.jpg" />
+</div>
+
+
+###  Подробнее
+
+ObsCure II является продолжением ObsCure, в котором игроков ждет новая хоррор-история с ужасными чудовищами, стрельбой и раскрытием мистических тайн. Прошло два года после событий первой части. Те ученики, которые выжили после ужасных событий, поступили в соседний колледж и пытаются вернуться к нормальной жизни. Но и там им не будет покоя. Вскоре нашим героям предстоит (   Читать дальше...   )Тип издания: RepackРазработчик: Hydravision EntertainmentЖанр: Adventure (Horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03CFB60162959F1FF613CE64010A4859778FADF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 553707   (78180)
+
+Comanche 4   Команч 4 (2001) [Ru] (1.14) Repack Pilotus
+
+
+>>Win Старые Игры
+>>Simulation (Flight Space)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_553707.jpg" />
@@ -83,7 +239,7 @@ The Blackwell Convergence (2009) [En] (3.0) License GOG
 
 
 >>Win Старые Игры
->>Adventure<3>Quest
+>>Adventure Quest
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1635730.jpg" />
@@ -213,7 +369,7 @@ SimCity (1993) [En] (1.0) Repack R.G. Games [Enhanced]
 
 
 >>Win Старые Игры
->>Strategy (Manage<3>Busin)
+>>Strategy (Manage Busin)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1650231.jpg" />
@@ -265,7 +421,7 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 
 
 >>Win Старые Игры
->>Strategy (Manage<3>Busin)
+>>Strategy (Manage Busin)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1650194.jpg" />
@@ -417,11 +573,11 @@ magnet:?xt=urn:btih:FB81A68CA1E73611B287D5CB6C58D6912E4EA392
 
 ###  Публикация: 1424236   (72390)
 
-Shannara <3> Шанара (1995) [Ru<3>En] (1.0) Unofficial
+Shannara   Шанара (1995) [Ru En] (1.0) Unofficial
 
 
 >>Win Старые Игры
->>Adventure<3>Quest
+>>Adventure Quest
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1424236.jpg" />
@@ -473,7 +629,7 @@ magnet:?xt=urn:btih:A4022E81ABE0CF97B81C479D721FCEABDD10D1BE
 
 
 >>Win Старые Игры
->>Adventure<3>Quest
+>>Adventure Quest
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1318574.jpg" />
@@ -499,7 +655,7 @@ Diablo: Hellfire - The Hell 2 (2019) [En] (1.2504) Mod
 
 
 >>Win Старые Игры
->>AddOn<3>DLC<3>Mod для Игр
+>>AddOn DLC Mod для Игр
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1588540.jpg" />
@@ -677,7 +833,7 @@ magnet:?xt=urn:btih:DA175059B9FC5D3C3B46DD5026DE7CD67ACEB1BA
 
 ###  Публикация: 1590698   (64549)
 
-Icewind Dale 2 (2002) [Ru<3>Multi] (2.1.0.13<3>dlc) License GOG [Complete]
+Icewind Dale 2 (2002) [Ru Multi] (2.1.0.13 dlc) License GOG [Complete]
 
 
 >>Win Старые Игры
@@ -755,7 +911,7 @@ magnet:?xt=urn:btih:60B85BB90555D888AF8D5B55D56203889611E838
 
 ###  Публикация: 1513027   (62866)
 
-Delta Force: Black Hawk Down <3> Delta Force: Операция <2>Черный Ястреб<2> (2003) [Ru] (1.2.2<
+Delta Force: Black Hawk Down   Delta Force: Операция  Черный Ястреб  (2003) [Ru] (1.2.2<
 
 
 >>Win Старые Игры
@@ -1093,7 +1249,7 @@ magnet:?xt=urn:btih:51B5A854D496F6C884FFD324C86CBDDA5B156917
 
 ###  Публикация: 1515417   (56713)
 
-Harry Potter and the Chamber of Secrets <3> Гарри Поттер и Тайная комната (2002) [Ru<3>En] (1.
+Harry Potter and the Chamber of Secrets   Гарри Поттер и Тайная комната (2002) [Ru En] (1.
 
 
 >>Win Старые Игры
@@ -1353,7 +1509,7 @@ magnet:?xt=urn:btih:415C23DA4CE236E04E3E1EAE96B9D42E18E2222B
 
 ###  Публикация: 1683560   (44149)
 
-Need for Speed: Carbon (2006) [Ru<3>En] (1.4) Repack Decepticon [Collector<1>s Edition]
+Need for Speed: Carbon (2006) [Ru En] (1.4) Repack Decepticon [Collector s Edition]
 
 
 >>Win Старые Игры
@@ -1535,11 +1691,11 @@ magnet:?xt=urn:btih:EB35DAB4CE4CCFF5CBCB07200E44ADE08A439C74
 
 ###  Публикация: 1684809   (40368)
 
-Jazz Jackrabbit 2 - Holiday Hare 2023 (1998-2023) [Multi] (5.12+<3>0.95) Repack<3>Mod Roger_
+Jazz Jackrabbit 2 - Holiday Hare 2023 (1998-2023) [Multi] (5.12+ 0.95) Repack Mod Roger_
 
 
 >>Win Старые Игры
->>AddOn<3>DLC<3>Mod для Игр
+>>AddOn DLC Mod для Игр
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1684809.jpg" />
@@ -1548,7 +1704,7 @@ Jazz Jackrabbit 2 - Holiday Hare 2023 (1998-2023) [Multi] (5.12+<3>0.95) Repack<
 
 ###  Подробнее
 
-Holiday Hare 2023 - это своего рода дань уважения классической игре Jazz Jackrabbit 2, а также традиции ее разработчиков приурочивать новые издания игры к рождественским праздникам - Holiday Hare <1>98 и Christmas Chronicles.Тип издания: Repack<3>ModЖанр: Arcade, PlatformerЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Голландский, Испанский и другие
+Holiday Hare 2023 - это своего рода дань уважения классической игре Jazz Jackrabbit 2, а также традиции ее разработчиков приурочивать новые издания игры к рождественским праздникам - Holiday Hare  98 и Christmas Chronicles.Тип издания: Repack ModЖанр: Arcade, PlatformerЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Голландский, Испанский и другие
 
 ## Скачать торент
 ```bash
@@ -1639,7 +1795,7 @@ magnet:?xt=urn:btih:2DC07E7106EA1E8CC8FB5D6C2AFE7B618B514898
 
 ###  Публикация: 1684564   (39786)
 
-Need For Speed: Porsche Unleashed (2000) [Ru<3>En] (3.5) Repack Decepticon
+Need For Speed: Porsche Unleashed (2000) [Ru En] (3.5) Repack Decepticon
 
 
 >>Win Старые Игры
@@ -1665,7 +1821,7 @@ magnet:?xt=urn:btih:59033D3B40561934DA9D8FADDFE6D045AE9E0667
 
 ###  Публикация: 1683663   (39304)
 
-Need for Speed: Underground (2003) [Ru<3>En] (1.4.0) Repack Decepticon
+Need for Speed: Underground (2003) [Ru En] (1.4.0) Repack Decepticon
 
 
 >>Win Старые Игры
@@ -1691,11 +1847,11 @@ magnet:?xt=urn:btih:134573A483695EADE7333650A4E21FF8D0651651
 
 ###  Публикация: 1680249   (37180)
 
-STAR WARS Empire at War (2006) [Ru<3>En] (1.120<3>1.121<3>dlc) Repack dixen18 [Gold Pack]
+STAR WARS Empire at War (2006) [Ru En] (1.120 1.121 dlc) Repack dixen18 [Gold Pack]
 
 
 >>Win Старые Игры
->>Strategy (RTS<3>TBS<3>Grand)
+>>Strategy (RTS TBS Grand)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1680249.jpg" />
@@ -2138,7 +2294,7 @@ Star General (1996) [Multi] (1.1) License GOG
 
 
 >>Win Старые Игры
->>Strategy (Manage<3>Busin)
+>>Strategy (Manage Busin)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1649812.jpg" />
@@ -2242,7 +2398,7 @@ The Blackwell Unbound (2007) [En] (3.0) License GOG
 
 
 >>Win Старые Игры
->>Adventure<3>Quest
+>>Adventure Quest
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1635727.jpg" />
@@ -2294,7 +2450,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (1.2 SVM no_launcher) License GOG
 
 
 >>Win Старые Игры
->>Adventure<3>Quest
+>>Adventure Quest
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1159585.jpg" />
@@ -2320,7 +2476,7 @@ Myst (1999) [En] (1.0) License GOG [Masterpiece Edition]
 
 
 >>Win Старые Игры
->>Adventure<3>Quest
+>>Adventure Quest
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1233784.jpg" />
@@ -2346,7 +2502,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 
 
 >>Win Старые Игры
->>Adventure<3>Quest
+>>Adventure Quest
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1647838.jpg" />
@@ -2372,7 +2528,7 @@ HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
 
 
 >>Win Старые Игры
->>Simulation (Flight<3>Space)
+>>Simulation (Flight Space)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1647310.jpg" />
@@ -2398,7 +2554,7 @@ Fleet Defender: The F-14 Tomcat Simulation (1994) [En] (2.0) License GOG
 
 
 >>Win Старые Игры
->>Simulation (Flight<3>Space)
+>>Simulation (Flight Space)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1646907.jpg" />
@@ -2424,7 +2580,7 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 
 
 >>Win Старые Игры
->>Simulation (Flight<3>Space)
+>>Simulation (Flight Space)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1053276.jpg" />
@@ -2476,7 +2632,7 @@ Strike Commander (1993) [En] (1.0) License GOG
 
 
 >>Win Старые Игры
->>Simulation (Flight<3>Space)
+>>Simulation (Flight Space)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1646525.jpg" />
@@ -2528,7 +2684,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 
 
 >>Win Старые Игры
->>Strategy (Manage<3>Busin)
+>>Strategy (Manage Busin)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1111313.jpg" />
@@ -2580,7 +2736,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 
 
 >>Win Старые Игры
->>Strategy (Manage<3>Busin)
+>>Strategy (Manage Busin)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1645131.jpg" />
@@ -2606,7 +2762,7 @@ The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) L
 
 
 >>Win Старые Игры
->>Strategy Tactical (RTS<3>TBS<3>Wargame)
+>>Strategy Tactical (RTS TBS Wargame)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1645155.jpg" />
@@ -2632,7 +2788,7 @@ Dirty Swamp / Грязное Болото (2022) [Ru/De] (3.0.18) Mod
 
 
 >>Win Старые Игры
->>AddOn<3>DLC<3>Mod для Игр
+>>AddOn DLC Mod для Игр
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1644002.jpg" />
@@ -2710,7 +2866,7 @@ Aus dem Leben eines Diebes / Из жизни вора (2012) [Ru/De] (1.1) Mod
 
 
 >>Win Старые Игры
->>AddOn<3>DLC<3>Mod для Игр
+>>AddOn DLC Mod для Игр
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1643152.jpg" />
@@ -2788,7 +2944,7 @@ Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
 
 
 >>Win Старые Игры
->>Strategy Tactical (RTS<3>TBS<3>Wargame)
+>>Strategy Tactical (RTS TBS Wargame)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1642178.jpg" />
@@ -2814,7 +2970,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 
 
 >>Win Старые Игры
->>Adventure<3>Quest
+>>Adventure Quest
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_540069.jpg" />
@@ -2866,7 +3022,7 @@ Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) Lic
 
 
 >>Win Старые Игры
->>Strategy Tactical (RTS<3>TBS<3>Wargame)
+>>Strategy Tactical (RTS TBS Wargame)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1640334.jpg" />
@@ -2996,7 +3152,7 @@ The Blackwell Legacy (2006) [En] (2.4a) License GOG
 
 
 >>Win Старые Игры
->>Adventure<3>Quest
+>>Adventure Quest
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1634894.jpg" />
@@ -3230,7 +3386,7 @@ Star Wars TIE Fighter (1994) [En] (1.0/dlc) License GOG [Special Edition]
 
 
 >>Win Старые Игры
->>Simulation (Flight<3>Space)
+>>Simulation (Flight Space)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1626326.jpg" />
@@ -3308,7 +3464,7 @@ Half-Life RTX (2023) [En] (1.0.5a) Mod
 
 
 >>Win Старые Игры
->>AddOn<3>DLC<3>Mod для Игр
+>>AddOn DLC Mod для Игр
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1621947.jpg" />
@@ -3412,7 +3568,7 @@ Dungeon Keeper (1997) [Multi] (10.1/dlc) License GOG [Gold]
 
 
 >>Win Старые Игры
->>Strategy (Manage<3>Busin)
+>>Strategy (Manage Busin)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1620195.jpg" />
@@ -3464,7 +3620,7 @@ Baldur's Gate Trilogy + Neverwinter Nights (2022) [Ru] (1.0) Repack/Mod AGKanevc
 
 
 >>Win Старые Игры
->>AddOn<3>DLC<3>Mod для Игр
+>>AddOn DLC Mod для Игр
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1618784.jpg" />
@@ -3620,7 +3776,7 @@ Gary Grigsby's War in the West (2014) [En] (1.02.59/dlc) License GOG
 
 
 >>Win Старые Игры
->>Strategy Tactical (RTS<3>TBS<3>Wargame)
+>>Strategy Tactical (RTS TBS Wargame)
 
 <div id="header" align="center">
   <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1616355.jpg" />

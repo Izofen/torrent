@@ -1,4 +1,56 @@
 
+###  Публикация: 1788222   (755938)
+
+Rising Lords (2020) [Multi] (1.2.1) License GOG
+
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1788222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rising Lords представляет смесь стратегии с карточной игрой в средневековом сеттинге. Бои реализованы с помощью пошаговой механики. Игрок собирает рабов и использует их в своих личных целях. Как в любой экономической стратегии, в основе геймплея лежит сбор ресурсов и налогов. Игрок волен устанавливать размер пошлины в зависимости от платежеспособности юнитов. Требуется (   Читать дальше...   )Тип издания: LicenseРазработчик: ArgonwoodЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Польский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB46FADA0CA85BAC702560C979483C39CE55FD29
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1804532   (755624)
+
+Oddsparks: An Automation Adventure (2024) [Multi] (s30683/dlc) License GOG
+
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1804532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oddsparks: An Automation Adventure – это стратегия в режиме реального времени с элементами автоматизации, которая подойдет как знатокам, так и новичкам жанра. Исследуйте удивительный волшебный мир, разгадывайте тайны прошлого, стройте мастерские и ищите приключения во главе банды смешных и милых Спарков! Oddsparks – это отличный способ познакомиться с играми в жанре (   Читать дальше...   )Тип издания: LicenseРазработчик: Massive MiniteamЖанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA379FAF61F1F8CE3B1B388B4E97892888565BD0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1728673   (752569)
 
 Empires of the Undergrowth (2017) [Ru/Multi] (20250324) Scene SKIDROW
@@ -2627,7 +2679,7 @@ magnet:?xt=urn:btih:A74583D018B14A3D63FBEDA2A4BAD67194491A74
 
 ###  Публикация: 1713498   (701722)
 
-Factory Town (2021) [Ru<3>Multi] (2.1.8) License GOG
+Factory Town (2021) [Ru Multi] (2.1.8) License GOG
 
 
 >>Win Игры
@@ -2653,7 +2705,7 @@ magnet:?xt=urn:btih:844EB3CFB357CD66E8973A5B6A1A2AEAE4E7BEC5
 
 ###  Публикация: 1705417   (700272)
 
-Disco Simulator (2024) [Ru<3>Multi] (1.0) Repack FitGirl
+Disco Simulator (2024) [Ru Multi] (1.0) Repack FitGirl
 
 
 >>Win Игры
@@ -2679,7 +2731,7 @@ magnet:?xt=urn:btih:0A5FA5497CF9652F3F48CEE1ABC78D20D6BD3723
 
 ###  Публикация: 1704117   (699561)
 
-Intra (2024) [Ru<3>Multi] (1.0) Repack FitGirl
+Intra (2024) [Ru Multi] (1.0) Repack FitGirl
 
 
 >>Win Игры
@@ -2731,7 +2783,7 @@ magnet:?xt=urn:btih:ABCA108A9059AABFAE343E46B94A70A5F0B597F6
 
 ###  Публикация: 1700718   (698288)
 
-Combat Mission: Final Blitzkrieg (2024) [Multi] (2.11<3>dlc) Repack FitGirl [Complete]
+Combat Mission: Final Blitzkrieg (2024) [Multi] (2.11 dlc) Repack FitGirl [Complete]
 
 
 >>Win Игры
@@ -2757,7 +2809,7 @@ magnet:?xt=urn:btih:2456674495F3BDDE56DCD73F002C5A36DAAB4175
 
 ###  Публикация: 1698671   (697105)
 
-Dungeons 4 (2023) [Ru<3>Multi] (1.3<3>dlc) Scene Tenoke [Deluxe Edition]
+Dungeons 4 (2023) [Ru Multi] (1.3 dlc) Scene Tenoke [Deluxe Edition]
 
 
 >>Win Игры
@@ -2874,7 +2926,7 @@ The Guild 2: Renaissance [En] (RePack) 2010 | Ultra
 
 ###  Подробнее
 
-Тип издания: RePackРазработчик: Runeforge Games StudioЖанр: Add-on (Standalone) <3> Strategy (Manage<3>Busin. <3> Real-time) <3> 3DЯзык интерфейса: 
+Тип издания: RePackРазработчик: Runeforge Games StudioЖанр: Add-on (Standalone)   Strategy (Manage Busin.   Real-time)   3DЯзык интерфейса:
 
 ## Скачать торент
 ```bash
@@ -2913,7 +2965,7 @@ Cultures:The Discovery of Vinland   Деревня Викингов [Ru] (P) 200
 
 ###  Публикация: 1089087   (538567)
 
-Railroad Tycoon 2 (1998) [En] (1.55<3>dlc) License GOG [Platinum Edition]
+Railroad Tycoon 2 (1998) [En] (1.55 dlc) License GOG [Platinum Edition]
 
 
 >>Win Старые Игры
@@ -2939,7 +2991,7 @@ magnet:?xt=urn:btih:A95CD27FE212DD28BBD3BD4241FF7E66DBDA8633
 
 ###  Публикация: 1089179   (538552)
 
-Sid Meier<1>s Railroads! (2006) [Multi] (1.100) License GOG
+Sid Meier s Railroads! (2006) [Multi] (1.100) License GOG
 
 
 >>След.
@@ -3047,7 +3099,7 @@ magnet:?xt=urn:btih:1E4592BF7BFADC41928C2CACC046FADF271AAE5D
 
 ###  Публикация: 721634   (450776)
 
-Football Manager 2014 (2013) [Ru<3>Multi] (14.1.2.44833) License RELOADED
+Football Manager 2014 (2013) [Ru Multi] (14.1.2.44833) License RELOADED
 
 
 >>Win Игры
@@ -3062,7 +3114,7 @@ Football Manager 2014 (2013) [Ru<3>Multi] (14.1.2.44833) License RELOADED
 
 Несмотря ни на что, играйте везде и всегда Football Manager 14 станет первой игрой серии, доступной владельцам Linux.
 
-Кроме того, игроки смогут использовать облачное хранилище, позволяющее им продолжать карьеру менеджера на любом компьютере в любом конце света. Также FM14 будет связан с системой Steam Workshop, а это значит, что менеджеры смогут легко создавать и публиковать связанные с игрой материалы, такие как наборы снимков<3>эмблем, новые и измененные соревнования, а также уникальные испытания - в этом им поможет новый Редактор испытаний.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Sports InteractiveЖанр: Strategy, Manage-busin, Turn-based, Sport, SoccerЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+Кроме того, игроки смогут использовать облачное хранилище, позволяющее им продолжать карьеру менеджера на любом компьютере в любом конце света. Также FM14 будет связан с системой Steam Workshop, а это значит, что менеджеры смогут легко создавать и публиковать связанные с игрой материалы, такие как наборы снимков эмблем, новые и измененные соревнования, а также уникальные испытания - в этом им поможет новый Редактор испытаний.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Sports InteractiveЖанр: Strategy, Manage-busin, Turn-based, Sport, SoccerЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -3103,7 +3155,7 @@ magnet:?xt=urn:btih:0CF2647C87890FED8C31E3723DAB98A471F4F2EF
 
 ###  Публикация: 718341   (449535)
 
-Football Manager 2014 (2013) [Ru<3>En] (14.1.3) Repack Let<1>sРlay
+Football Manager 2014 (2013) [Ru En] (14.1.3) Repack Let sРlay
 
 
 >>Win Игры
@@ -3118,7 +3170,7 @@ Football Manager 2014 (2013) [Ru<3>En] (14.1.3) Repack Let<1>sРlay
 
 Несмотря ни на что, играйте везде и всегда Football Manager 14 станет первой игрой серии, доступной владельцам Linux.
 
-Кроме того, игроки смогут использовать облачное хранилище, позволяющее им продолжать карьеру менеджера на любом компьютере в любом конце света. Также FM14 будет связан с системой Steam Workshop, а это значит, что менеджеры смогут легко создавать и публиковать связанные с игрой материалы, такие как наборы снимков<3>эмблем, новые и измененные соревнования, а также уникальные испытания - в этом им поможет новый Редактор испытаний.Тип издания: RepackРазработчик: Sports InteractiveЖанр: Strategy, Manage-busin, Turn-based, Sport, SoccerЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+Кроме того, игроки смогут использовать облачное хранилище, позволяющее им продолжать карьеру менеджера на любом компьютере в любом конце света. Также FM14 будет связан с системой Steam Workshop, а это значит, что менеджеры смогут легко создавать и публиковать связанные с игрой материалы, такие как наборы снимков эмблем, новые и измененные соревнования, а также уникальные испытания - в этом им поможет новый Редактор испытаний.Тип издания: RepackРазработчик: Sports InteractiveЖанр: Strategy, Manage-busin, Turn-based, Sport, SoccerЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
@@ -3188,7 +3240,7 @@ magnet:?xt=urn:btih:DE08FC7DE5516C9B677660F4300091113B8F14EF
 
 ###  Публикация: 1221243   (440326)
 
-Lobotomy Corporation | Monster Management Simulation (2018) [Ru<3>Multi] (1.0.2.10a<3>dlc) L
+Lobotomy Corporation | Monster Management Simulation (2018) [Ru Multi] (1.0.2.10a dlc) L
 
 
 >>Win Игры
@@ -3214,7 +3266,7 @@ magnet:?xt=urn:btih:67D8A729A01BBF1F39A9EFEBD88421DBF01C79A0
 
 ###  Публикация: 1135869   (428888)
 
-Cities: Skylines (2015) [Ru<3>Multi] (1.7.0-f5<3>dlc) SteamRip R.G. Origins [Deluxe Edition]
+Cities: Skylines (2015) [Ru Multi] (1.7.0-f5 dlc) SteamRip R.G. Origins [Deluxe Edition]
 
 
 >>Win Игры
@@ -3292,7 +3344,7 @@ magnet:?xt=urn:btih:7AE6831866638D62B0D780B3219126D8237C0539
 
 ###  Публикация: 587630   (403219)
 
-Sid Meier<1>s Railroads! (RePack<3>1.1) [Ru<3>En] 2006 | R.G. ILITA
+Sid Meier s Railroads! (RePack 1.1) [Ru En] 2006 | R.G. ILITA
 
 
 >>Win Игры
@@ -3306,7 +3358,7 @@ Sid Meier<1>s Railroads! (RePack<3>1.1) [Ru<3>En] 2006 | R.G. ILITA
 ###  Подробнее
 
 Сбылась моя мечта: я вернулся к игре, созданной на заре моей карьеры, к игре, которой наслаждались поклонники стратегических игр, симуляторов и паровозиков по всему миру.
-Я уверен, что воссозданный оригинал непременно разожжет вашу страсть к железным дорогам и подарит вам игру на долгие-долгие годы.Тип издания: RePackЖанр: Strategy (Manage<3>Busin. <3> Real-time) <3> 3DЯзык озвучки: -<3>-Язык интерфейса: Русский <3> Английский
+Я уверен, что воссозданный оригинал непременно разожжет вашу страсть к железным дорогам и подарит вам игру на долгие-долгие годы.Тип издания: RePackЖанр: Strategy (Manage Busin.   Real-time)   3DЯзык озвучки: - -Язык интерфейса: Русский   Английский
 
 ## Скачать торент
 ```bash
@@ -3319,7 +3371,7 @@ magnet:?xt=urn:btih:71F93B1DA705CC364AE360DD73F210F515ABF685
 
 ###  Публикация: 587173   (398068)
 
-Transport giant <3> Транспортный олигарх + Новый континент [Ru] (RePack) 2004 | haladar
+Transport giant   Транспортный олигарх + Новый континент [Ru] (RePack) 2004 | haladar
 
 
 >>След.
@@ -3345,7 +3397,7 @@ magnet:?xt=urn:btih:6F1EC6FF107F74BE9C6E6C309CA3EF2EB04173A3
 
 ###  Публикация: 1148697   (397846)
 
-Mob Rule Classic <3> Street Wars: Constructor Undergroud (1999) [En] (2.0) License GOG
+Mob Rule Classic   Street Wars: Constructor Undergroud (1999) [En] (2.0) License GOG
 
 
 >>Win Старые Игры
@@ -3397,7 +3449,7 @@ magnet:?xt=urn:btih:5CB0FF5A80CDF80B28403C9FD7570D575F2110A3
 
 ###  Публикация: 530290   (389534)
 
-Cities in Motion Collection <3> Транспортная империя [En<3>Multi5] (Steam-Rip<3>12 DLC) 2011 l R
+Cities in Motion Collection   Транспортная империя [En Multi5] (Steam-Rip 12 DLC) 2011 l R
 
 
 >>След.
@@ -3424,7 +3476,7 @@ Cities in Motion Collection <3> Транспортная империя [En<3>Mu
 
 ###  Публикация: 1238242   (389519)
 
-Crypt of the NecroDancer (2015) [Ru<3>Multi] (2.59<3>dlc) License PROPHET [ULTIMATE PACK]
+Crypt of the NecroDancer (2015) [Ru Multi] (2.59 dlc) License PROPHET [ULTIMATE PACK]
 
 
 >>Win Игры
@@ -3450,7 +3502,7 @@ magnet:?xt=urn:btih:1C2A8A04665B9D00038574B12ACA09AC4E7EB640
 
 ###  Публикация: 1151934   (385134)
 
-RollerCoaster Tycoon World (2016) [Ru<3>Multi] (1.0<3>upd4<3>dlc) Repack Other s [Deluxe Edi
+RollerCoaster Tycoon World (2016) [Ru Multi] (1.0 upd4 dlc) Repack Other s [Deluxe Edi
 
 
 >>Win Игры
@@ -3463,7 +3515,7 @@ RollerCoaster Tycoon World (2016) [Ru<3>Multi] (1.0<3>upd4<3>dlc) Repack Other s
 
 ###  Подробнее
 
-RollerCoaster Tycoon World™ - это современное воплощение легендарной серии. Следующее поколение симулятора парка развлечений и строительства содержит как уже полюбившиеся поклонникам игры функции, так и массу новинок - потрясающую 3-мерную графику, передающую захватывающий восторг от поездки на <2>американских горках<2> и каруселях; требовательную публику; (   Читать дальше...   )Тип издания: RepackРазработчик: Nvizzio CreationsЖанр: Strategy, Simulator, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+RollerCoaster Tycoon World™ - это современное воплощение легендарной серии. Следующее поколение симулятора парка развлечений и строительства содержит как уже полюбившиеся поклонникам игры функции, так и массу новинок - потрясающую 3-мерную графику, передающую захватывающий восторг от поездки на  американских горках  и каруселях; требовательную публику; (   Читать дальше...   )Тип издания: RepackРазработчик: Nvizzio CreationsЖанр: Strategy, Simulator, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
@@ -3528,7 +3580,7 @@ magnet:?xt=urn:btih:E8FFA9B9C35AE99A18CDBE2533CA3E143D81CB8A
 
 ###  Публикация: 611941   (378686)
 
-Omerta: City of Gangsters (2013) [Ru<3>Multi] (1.07<3>5dlc) Repack R.G. Catalyst
+Omerta: City of Gangsters (2013) [Ru Multi] (1.07 5dlc) Repack R.G. Catalyst
 
 
 >>Win Игры
@@ -3555,7 +3607,7 @@ magnet:?xt=urn:btih:A0D0DEB5F9D944864D96647C69E4217806AE014B
 
 ###  Публикация: 1153226   (378130)
 
-Aven Colony (2017) [Ru<3>Multi] (1.0) Repack Covfefe
+Aven Colony (2017) [Ru Multi] (1.0) Repack Covfefe
 
 
 >>Win Старые Игры
@@ -3581,7 +3633,7 @@ magnet:?xt=urn:btih:FC5D68DE696B3B6AABF55B6B954E7E4D3AECF2F8
 
 ###  Публикация: 1013668   (376419)
 
-Blood Bowl 2 (2015) [Ru<3>Multi] (2.3.17.1<3>dlc) License CODEX
+Blood Bowl 2 (2015) [Ru Multi] (2.3.17.1 dlc) License CODEX
 
 
 >>Win Игры
@@ -3633,7 +3685,7 @@ magnet:?xt=urn:btih:E1699FD02506FE2EA9499985872122465C159CC8
 
 ###  Публикация: 1050717   (374403)
 
-Project Highrise (2016) [Ru<3>Multi] (1.6.1<3>dlc) License GOG
+Project Highrise (2016) [Ru Multi] (1.6.1 dlc) License GOG
 
 
 >>След.
@@ -3646,7 +3698,7 @@ Project Highrise (2016) [Ru<3>Multi] (1.6.1<3>dlc) License GOG
 
 ###  Подробнее
 
-Project Highrise - является игрой в жанре <2>симулятор строительства<2>. В игре игроку предстоит овладеть навыками архитектора и строить самые огромные небоскребы, благодаря которым вы украсите целые города! Сам небоскреб состоит не просто из стекла и стали, но и с огромной и сложной экосистемой. Задача игрока управлять системой и жителями, бесперебойно и эффективно.Тип издания: LicenseРазработчик: SomaSimЖанр: Стратегия, Строительство, МенеджментЯзык озвучки: СимплишЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+Project Highrise - является игрой в жанре  симулятор строительства . В игре игроку предстоит овладеть навыками архитектора и строить самые огромные небоскребы, благодаря которым вы украсите целые города! Сам небоскреб состоит не просто из стекла и стали, но и с огромной и сложной экосистемой. Задача игрока управлять системой и жителями, бесперебойно и эффективно.Тип издания: LicenseРазработчик: SomaSimЖанр: Стратегия, Строительство, МенеджментЯзык озвучки: СимплишЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
 
 ## Скачать торент
 ```bash
@@ -3711,7 +3763,7 @@ magnet:?xt=urn:btih:DAEF5E1C26F5AC2D5EE8595C0C10AC3BFEE3F770
 
 ###  Публикация: 1456491   (52083)
 
-Mr. Prepper (2021) [Ru<3>Multi] (1.31j<3>dlc) Repack Other s [Anniversary Edition]
+Mr. Prepper (2021) [Ru Multi] (1.31j dlc) Repack Other s [Anniversary Edition]
 
 
 >>След.
@@ -3763,7 +3815,7 @@ magnet:?xt=urn:btih:CC971473F7CC4E1593DBE144C8F31C46CE3AAECE
 
 ###  Публикация: 1678975   (47958)
 
-Knights of Honor II: Sovereign (2022) [Ru<3>Multi] (2.0) Repack dixen18
+Knights of Honor II: Sovereign (2022) [Ru Multi] (2.0) Repack dixen18
 
 
 >>Win Игры
@@ -3815,7 +3867,7 @@ magnet:?xt=urn:btih:789E0C1C6DB850EEB7A47387DA308E1E412D7EBB
 
 ###  Публикация: 1682648   (38779)
 
-SGS We The People (2023) [Ru<3>Multi] (23.10.18) Scene Tenoke
+SGS We The People (2023) [Ru Multi] (23.10.18) Scene Tenoke
 
 
 >>Win Игры
@@ -3841,7 +3893,7 @@ magnet:?xt=urn:btih:CC0653BD8CE48757F05E43D377FCF54A899B3030
 
 ###  Публикация: 1681706   (38295)
 
-SteamWorld Build (2023) [Ru<3>Multi] (1.0.1) License GOG
+SteamWorld Build (2023) [Ru Multi] (1.0.1) License GOG
 
 
 >>Win Игры
@@ -3893,7 +3945,7 @@ magnet:?xt=urn:btih:3E1A512C1A3D70375F00E302769A0E32BF17A043
 
 ###  Публикация: 1668844   (35440)
 
-RAILGRADE (2023) [Ru<3>Multi] (4.8.43.1) License GOG
+RAILGRADE (2023) [Ru Multi] (4.8.43.1) License GOG
 
 
 >>Win Игры
@@ -3971,7 +4023,7 @@ magnet:?xt=urn:btih:7160030BE0F99A5F205BFD29F7073D8B7D7AC36D
 
 ###  Публикация: 1667532   (32379)
 
-Wargroove 2 (2023) [Ru<3>Multi] (1.2.3) Scene Tenoke
+Wargroove 2 (2023) [Ru Multi] (1.2.3) Scene Tenoke
 
 
 >>Win Игры
