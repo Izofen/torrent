@@ -1,4 +1,83 @@
 
+###  Публикация: 1807087   (756828)
+
+GRID Legends: Deluxe Edition v1.1.4RC7 [Ru/Multi]
+
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1807087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высокооктановый автоспорт. Беспощадное соперничество. Зашкаливающий уровень адреналина.
+Разработанная Codemasters игра GRID Legends представляет собой уникальное сочетание аркадных гонок и реалистичного симулятора управления, которое оставляет конкурентов далеко позади.Тип издания: PaidРелиз состоялся: 06.02.2025Разработчик: Feral InteractiveПоддерживаемая ОС: Android 12+ (Только для AArch64, arm64-v8a)Жанр: ГонкиЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5113B263249C416F41587F68672BE424EC91ACF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1806521   (756629)
+
+Tricky Words / Хитрое слово: слова из букв v10.0.1 Mod by vadj [Ru/Multi]
+
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1806521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые кроссворды доступны прямо сейчас. Наслаждайтесь лучшей словесной головоломкой! Составь слова из букв бесплатно. Игру Хитрые слова любят более миллиона пользователей по всему миру! Найди все и собери, после этого у вас будет линия слова! Реши интересные головоломки поиск слов и филворды! Развивайте мозг и повышайте свой IQ!Тип издания: ModРелиз состоялся: 13.07.2025Разработчик: WiseApp | Brain GameПоддерживаемая ОС: Android 5.0+Жанр: ГоловоломкаЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8180E46015B74816F08A2FB2D7CA4A015361B4E4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1805553   (756162)
+
+BubbleGame v1.1 [En]
+
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1805553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не просто игра — это медитация в движении. Лопай волшебные мыльные пузыри в мягком, плавном ритме, сопровождаемом тёплой музыкой и сияющим фэнтезийным фоном. Игра создана с заботой — без спешки, без давления, просто удовольствие. Подходит для всех возрастов. Идеально, чтобы расслабиться после дня, перезагрузиться или просто улыбнуться.Тип издания: FreeРелиз состоялся: 05.07.2025Разработчик: Станислав ВорохПоддерживаемая ОС: Android 5.0+Жанр: КазуальнаяЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D61D6198927F6502D6C7AE4D6C21F46F16E01F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1801738   (754327)
 
 Jigsawscapes® - Пазлы v4.0.2 Mod by vadj [Ru/Multi]
@@ -8,7 +87,7 @@ Jigsawscapes® - Пазлы v4.0.2 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801738.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1801738.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ Reanimation inc / Скорая Помощь Inc v72 Mod by vadj [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1801564.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1801564.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ magnet:?xt=urn:btih:220AF9A95EB0FAF431D8A5A27F47AF8025ABC2D3
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/W:/Picture/picture_010/save_picture_1800447.jpg" />
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1800447.jpg" />
 </div>
 
 
@@ -9187,32 +9266,6 @@ Angry Birds Rio – это еще одна история о сердитых п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11C0789CE3CE602A7156D28A5C77B8AC50AAC5B5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1171837   (330938)
-
-Don t Starve: Shipwrecked 0.10 [RU Multi]
-
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200" />
-</div>
-
-
-###  Подробнее
-
-Don t Starve: Shipwrecked — вторая часть инди-игры Don t Starve. В новой части вы будете играть уже знакомым персонажем, которого зовут Уилсон. После кораблекрушения Уилсон оказывается на тропическом архипелаге, где его ждут сумасшедшие приключения. Ему придется научиться выживать в незнакомой местности с незнакомыми растениями и существами, порой, угрожающие его (   Читать дальше...   )Релиз состоялся: 27 09 2017Разработчик: Klei EntertainmentПоддерживаемая ОС: Android 5.0+Жанр: Adventure, SandboxЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BDE68300C921BBB894E9202EF22DF4AC69057B4
 ```
 
 #Mybot  @nnmclub_mybot

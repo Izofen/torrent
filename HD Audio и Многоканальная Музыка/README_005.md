@@ -1,4 +1,644 @@
 
+###  Публикация: 133323   (167976)
+
+Nirvana - Nevermind (1991) (Upmix) [DTS] <Grunge>
+
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_133323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smells Like Teen Spirit  (5:01)
+02. In Bloom  (4:15)
+03. Come As You Are  (3:39)
+04. Breed  (3:04)(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60201231EA8A30CB4FAD83A9A57208DDB26F67D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 845272   (167558)
+
+Hot Hits (Cover versions of chart songs from 1971) - Round 8 (1971) [FLAC 2.0|24 96 (Vin
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_845272.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Surrender
+Written-By – Ashford, Simpson
+A2	Johnny Reggae
+Written-By – King(   Читать дальше...   )Жанр: Pop Pop-RockПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC9027B91C933B2C64119D6F9EFA7CA4F28A8C6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 143236   (167544)
+
+Scotch - Evolution (1985) (Upmix) [DTS] <Italodisco>
+
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_143236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primitive Man  (4:17)
+02. Take Me Up (3:31)
+03. Man In The Man (4:05)
+04. Born To Kill (5:46)(   Читать дальше...   )Жанр: ItalodiscoПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4003BE3077F7ABFEC026CD26E0E940E1BC7670C8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 955597   (167516)
+
+VA - Мельница: Песни И. Николаева (1988) [FLAC 2.0 24 96|image+.cue (Vinyl-Rip)]<Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_955597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игорь Николаев	Незнакомка · A Stranger	4:15
+02. Александр Кальянов	Старый Друг · Old Friend	6:54
+03. Алла Пугачева	Любимчик Пашка · Pashka Pet	3:17
+04. Игорь Скляр	Понедельник · Monday	2:51(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06220FFA057ABCADE08BD23862E9BB4D72D0C3FC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1686908   (167418)
+
+Eagle - Come Under Nancy s Tent (1970) Remastered, 2023, Janus Records [FLAC 24 96|Lossless|
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1686908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pack Up (00:03:52)
+02 - Come In, It s All For Free (00:02:55)
+03 - Brown Hair (00:03:28)
+04 - Dance On Little Beauty (00:02:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD25F85FBD24463DB3CD1E8E3EB830CA39AF2B8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1000214   (167411)
+
+Aes Dana - 24Bits Collection - 11 Releases (2014-2021) Ultimae Records [FLAC|24 44.1|tracks|WE
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1000214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Period 01 _ Foreword (06:16)
+ 02. Period 02 _ Transverse Axis (06:25)
+ 03. Period 03 _ A Bluetiful Day (07:46)
+ 04. Period 04 _ Somewhen (08:50)(   Читать дальше...   )Тип издания: WebЖанр: Psybient, Ambient, Downtempo, IDM, Progressive Trance •Продолжительность: 11:00:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC8F55C148042F0A7B0DD59DDB384888985D633
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1686907   (167397)
+
+Neil Levin - Cosmic Blues (2023) [FLAC 24 44.1|Lossless|WEB-DL|tracks] <Blues>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1686907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Worthwhile (4:04)
+02. Gone Away Prelude (0:19)
+03. Gone Away (2:45)
+04. Roses On The Grave (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3949B28361FFC4C98E7C6C278DAF658E5146000
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1686903   (167396)
+
+Assemblage - Album (1970) Remastered, 2023, Janus Records [FLAC 24 96|Lossless|WEB-DL|tracks]
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1686903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Satisfaction (00:05:31)
+02 - It s Not Easy (00:06:35)
+03 - Dirty Gurty (00:04:40)
+04 - Drink Deep (00:05:19)(   Читать дальше...   )Жанр: Psychedelic Rock, FunkПродолжительность: 00:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C511A8DBF38A06F0E8E97CC40E5F8E319CBDDBE6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 129302   (167065)
+
+Kraftwerk - Minimum-Maximum (2005) 2CD, Upmix [DTS 5.1|44.1 24|tracks|CD-Audio] <Synthpop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_129302.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Minimum-Maximum» (англ. «Минимум-Максимум») — первый и единственный официальный концертный альбом германской электронной группы Kraftwerk. Альбом, записанный в разных городах мира, вышел на двух компакт-дисках и сопровождался отдельно изданным одноимённым DVD.
+На альбоме представлены выборочные записи с концертов, данных в рамках международного турне, проходившего (   Читать дальше...   )01-02. Meine Damen Und Herren   The Man Machine (8:28)
+03. Planet Der Visionen (4:38)
+04. Tour De France 03 (10:39)
+05. Vitamin (6:39)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 02:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63BAC0D161521B7143664E800ED1F8D9C74F08A9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 883954   (166977)
+
+VA - Антология советского киношлягера - Любимые песни из кинофильмов (Человек с бульвара Капуцинов
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_883954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Синема - А. Миронов (из к ф   Человек с бульвара Капуцинов  )
+02. Волшебный луч - Л. Долина (из к ф   Человек с бульвара Капуцинов  )
+03. Всё прекрасно - Л. Долина (из к ф   Человек с бульвара Капуцинов  )
+04. Далека дорога твоя - М. Боярский (из к ф   Человек с бульвара Капуцинов  )(   Читать дальше...   )Жанр: Soundtrack PopПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A80D841D90B62676494D323C24E9D01F0E180ED
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 866856   (166964)
+
+Various Artists - Любимые песни из фильмов   Movie Songs (1998) [FLAC 2.0 (image+.cue)|16<
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_866856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Will Go On -  Титаник 
+02. Tomorrow Never Dies -  Завтра не умрёт никогда 
+03. Girl, You,ll Be A Woman Soon -  Криминальное чтиво 
+04. Streets Of Philadelphia -  Филадельфия (   Читать дальше...   )Жанр: Soundtrack Sound-AlikeПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECD299A21D9D284D6A4D25CAE019DE1A40EE08F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 884259   (166963)
+
+VA - Антология советского киношлягера - Любимые песни из кинофильмов (Чародеи и др.) (1996)
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_884259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воспоминание - оркестр п у Ю. Силантьева (к ф   О любви  )
+02. Люблю тебя - В. Леонтьев (к ф   Не ходите , девки, замуж  )
+03. Прощай - А. Градский (к ф   С любимыми не расставайтесь  )
+04. Песня о волшебной розе - А. Тукиш (т ф   Не покидай  )(   Читать дальше...   )Жанр: Soundtrack PopПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6881EDEECF700FAE0757541ADEB71CC10A32071
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1482665   (166788)
+
+VA - Genome (2021) Point Source Electronic Arts [FLAC 2.0|48 24|tracks|WEB-DL] <IDM, Glitch, A
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1482665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Testube - Suction Pore (03:43)
+ 02. tokee - Happiness (04:29)
+ 03. proswell - support local dsp (05:29)
+ 04. Sytrjv - Hack Scribble (02:17)(   Читать дальше...   )Жанр: IDM, Glitch, Abstract, ExperimentalПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6A39640AE41ABE99F11CF495D87E9E08A70C97
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1482680   (166782)
+
+Eluvium - For Thousands Of Miles (2021) [FLAC 2.0|48 24|tracks|WEB-DL] <Ambient, Drone>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1482680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open (06:53)
+ 02. Currents (07:08)
+ 03. Movements (04:13)
+ 04. Small Positives (05:28)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247A035CDC591A7D47D8AD15805E7357240C42F3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1482671   (166781)
+
+Inkipak - Inkipak (2021) Mighty Force [FLAC 2.0|44.1 24|tracks|WEB-DL] <IDM, Breaks, Electro,
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1482671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eight Thirty Seven (08:34)
+ 02. Fragment (06:48)
+ 03. Unobtainable (06:00)
+ 04. Live In Hope (05:39)(   Читать дальше...   )Жанр: IDM, Breaks, Electro, AcidПродолжительность: 01:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1AB91C5FA33BE5F527161CFE25663F35F210E5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1482674   (166758)
+
+Chase Dobson - perpetual motion (2021) c.db.sn [FLAC 2.0|48 24|tracks|WEB-DL] <Dub Techno, Tec
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1482674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. inertia (07:11)
+ 02. momentum (06:11)
+ 03. repetition_motion (05:55)
+ 04. ad infinitum (07:52)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F25A8F7343CB697268669980A6DD519D832EF0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1482166   (166750)
+
+Marek Grechuta - Spiewajace Obrazy (1981) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop, Classi
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1482166.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Kawiarnia W Nocy - Van Gogh • Patrz, Juz Wszyscy Poszli •
+A2 Niedzielne Popoludnie Na Wyspie Grande Jatte - Seurat • Cisza Oddechu Trawy •
+A3 Akrobatka Na Pilce - Picasso • Szary Golab Na Ramieniu •
+A4 Parasole - Renoir • Miec Taki Deszcz, Gdy Swieci Slonce •(   Читать дальше...   )Жанр: Pop, Classical, FolkПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4D0CE590E00471E879B4B3D206BB35A28D8810
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1482683   (166749)
+
+Fractal - A Unique Hybrid (2021) Aliens Production [FLAC 2.0|44.1 24|tracks|WEB-DL] <IDM, Ambi
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1482683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modernity (02:26)
+ 02. Red Shadow (04:55)
+ 03. Plan B (05:03)
+ 04. A Unique Hybrid (05:15)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, AbstractПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263492B53F42724241442CA7296E6C37CB25DC61
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1482685   (166747)
+
+Fractal - Human Error (2021) Aliens Production [FLAC 2.0|44.1 24|tracks|WEB-DL] <IDM, Ambient,
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1482685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Collision (02:14)
+ 02. Bio - Security (03:53)
+ 03. Vox 7bq (04:55)
+ 04. Nostromo (04:41)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, TechnoПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2078D57643853F8971DEC507FB6736B4F9812AFB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1393652   (166509)
+
+Simone  Kopmajer - My Wonderland (2020) [FLAC|24 48|Lossless|WEB-DL|tracks] <Vocal Jazz, Bossa
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1393652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Wonderland
+02. Voce E Eu (You and I)
+03. Something New
+04. A Man and a Woman(   Читать дальше...   )Жанр: Vocal Jazz, Bossa NovaПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32DA02E6BA0120DE45C922F101EAE7561D31EE8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1482784   (166268)
+
+Rudolf Dasek - Dialogues (1979) [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Free Jazz, Contemporar
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1482784.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Enchanted Mill
+A2 If You Wish
+A3 Return
+A4 He s Coming(   Читать дальше...   )Жанр: Free Jazz, Contemporary JazzПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A8860950B8B00202F9E8DCB7B0A1BF801CC830
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1531363   (165229)
+
+Mudvayne - Studio Albums (5 releases) (2000 - 2009) hand made [restored, declipped] [FLAC 2.
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1531363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mudvayne — американская ню-метал-группа из Пеория (штат Иллинойс), образовавшаяся в 1996 году.
+Музыкальный коллектив известен своим нестандартным подходом к структуре песен и особым визуальным стилем.2000 - L.D. 50
+2002 - The End of All Things to Come
+2005 - Lost And Found
+2008 - The New Game(   Читать дальше...   )Жанр: Nu Progressive Alternative MetalПродолжительность: 04:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15988A681858B2419594CD33AE9736AE52DFC8F6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1531686   (165222)
 
 Slash feat. Myles Kennedy and The Conspirators - 4 (2022) [FLAC 2.0|96 24|tracks|WEB-DL] <Hard
@@ -28277,638 +28917,6 @@ Epica - Abyss of Time (single, 2020) [FLAC 2.0|48 24|WEB-DL|tracks] <Symphonic G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:632F88CF5FE8D700A3A52A2A4ACDBC3A630A6D03
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1415399   (94499)
-
-Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44 24|tracks|WEB-DL
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1415399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DB8C43649B8E8FC708AEB152763C3EAD698447
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1630232   (94447)
-
-Stream of Passion - Studio Albums (5 releases) (2005-2014) hand made [restored, declipped] [
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1630232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stream of Passion — мексикано-нидерландская симфоник- готик-метал-группа, образованная в 2005 году Арьеном Антони Люкассеном и Марселой Бовио.2005 - Embrace the Storm
-2006 - Out in the Real World (EP)
-2009 - The Flame Within
-2011 - Darker DaysЖанр: Progressive Symphonic MetalПродолжительность: 04:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32D97DBEB6C81168B9B3BDE39813A4408ACD96F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1415368   (94431)
-
-Hans Zimmer - Eclipse (OST from Dune) [Trailer Version] (2020) [FLAC 2.0|44 24|tracks|WEB-
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1415368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACD0C952F9C66B6FB0A4E3676215C5755CACF2C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1630226   (94398)
-
-Gorillaz - Cracker Island (2023) [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip Hop, Rock, Pop>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1630226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cracker Island (3:33)
- 02. Oil (3:50)
- 03. The Tired Influencer (3:31)
- 04. Tarantula (3:32)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC458EC151F24CA9F2FCC5F22DBF416BD57AF0BB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1630201   (94397)
-
-Красные Маки - Если Не Расстанемся... (1980) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1630201.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Встречай Меня
-А2 Если Не Расстанемся
-А3 Скажет Девчонка
-А4 Давай Попробуем Вернуть(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6CDF7484CFC3EF2251AAEFB65F308B95B16B3D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1630238   (94372)
-
-Dee D. Jackson - Cosmic Curves (1978) [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Electronic, Pop
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1630238.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Automatic Lover 4:08
-A2 Red Flight 4:10
-A3 Galaxy Of Love 4:48
-A4 Meteor Man 4:47(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C57E8EC626A14CA1AD3EF1767C7F9A56EA7A12
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1630460   (94215)
-
-Outlanders - A Peaceful Place (Return to the Oasis) (2023) [FLAC 2.0|44.1 24|tracks|WEB-DL
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1630460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Peaceful Place (Return to the Oasis) (7:59)
-02. Echoes (7:36)
-03. We Own This Sky (9:30)Жанр: Electronic, Downtempo, DanceПродолжительность: 00:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65B3EBD11A6FD1456BE71FFB54661F01F3C1EED
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1630590   (94189)
-
-Manfred Mann s Earth Band - Ансамбль Мэнфреда Мэнна (1980) [FLAC 2.0|192 24|image +.cue|Viny
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1630590.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Круги · Circles
-A2 Тонущий На Суше · Drowning On Dry Land · Рыбный Суп · Fish Soup
-A3 Институт В Чикаго · Chicago Institute
-A4 Калифорния · California(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F279370E9CF47C9306638DA9D8875246BF9FF0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1415747   (94139)
-
-Fatih Tuter - Beehive (2020) Shimmering Moods Records [FLAC 2.0|44.1 24|tracks|WEB-DL] <Ambien
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1415747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds And Sunrise On Langeoogerstr. (08:22)
- 02. Appreciation (07:32)
- 03. Winterwald (07:44)
- 04. In Your Hometown, Before You Were Born (feat. Ryckyboy) (07:14)(   Читать дальше...   )Жанр: Ambient, Field Recording, Techno AmbientПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DA6AF69B18A454561CCCEB18BFB80BDB5CBDDE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1630835   (94052)
-
-Jessie Ware - That! Feels Good! (2023) [FLAC 2.0|48 24|WEB-DL|tracks] <Pop, Indie Pop, Electro
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1630835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That! Feels Good!
-02. Free Yourself
-03. Pearls
-04. Hello Love(   Читать дальше...   )Жанр: Pop, Indie Pop, ElectronicПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120F91E21376D462D3C0AD825D2B80C1AE87F52E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1415217   (94039)
-
-Antony Kalugin - Marshmallow Moondust (2020) [FLAC 2.0|48 24|tracks|WEB-DL] <Progressive Rock,
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1415217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marshmallow (20:20)
-02. Moondust (20:20)
-03. Marshmallow Medley (7:20)
-04. Moondust Medley (7:20)Жанр: Progressive Rock, InstrumentalПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C604E5976E96C21DAC5D3B3116AD99B449ECC590
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1577444   (93954)
-
-Emigrate (Rammstein, Richard Kruspe) - Studio Albums (4 releases) (2007 - 2021) hand mad
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1577444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emigrate — сайд-проект, основанный Рихардом Круспе, сооснователем группы Rammstein и её гитаристом. Проект появился в 2005 году во время творческого перерыва Rammstein после выпуска пятого альбома Rosenrot.2007 - Emigrate
-2014 - Silent So Long
-2018 - Million Degrees
-2021 - The Persistence Of MemoryЖанр: Industrial MetalПродолжительность: 02:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D8805CFB71D7A56BF46607287FCFBCAE293341
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1415819   (93588)
-
-Л. Субраманиам L. Subramaniam - Время Должно Измениться Time Must Be   Changed (1990) Record
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1415819.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Мисс Мелодия = Miss Melodia
-A2 Следи За Своими Шагами = Follow Your Steps
-A3 Время Должно Измениться = Time Must Be Changed
-B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1631497   (93276)
-
-ВИА Экспресс - Экспресс 2 (Венгрия) (1978) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Pop Ro
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1631497.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Всегда мало времени
-A2 Наш вечер
-A3 Мы были друзьями
-A4 Ты ушла из моей жизни(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6922EF5C5E57799B1CF2C132CE43015CD11E02AA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1416156   (93220)
-
-Julio Botti Trio - Tango Blues (2018) El Cirko Sello Digital [FLAC 2.0|88.2 24|tracks|WEB-DL]
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1416156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Botti, играющий на саксофоне, кларнете и флейте, родился в Bell Ville (Cordoba, Аргентина).
-В 2007 году он записывает диск «South American Roots» с участием перкуссиониста и барабанщика Quintino Cinalli (Esperanza Spalding) и пианиста Leo Genovese (Esperanza Spalding). Этот проект привлекает внимание маэстро Pablo Ziegler (пианист покойного легендарного Astor Piazzolla). (   Читать дальше...   )01. Upper West (04:21)
-02. Vitutti (03:36)
-03. Influence Milonga (03:25)
-04. Tango Blues (03:32)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C798C156EDE66A29A4C7DA502B02CE260FD01AD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1632161   (92772)
-
-VA - Эстрадная Орбита (1974) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Rock, Funk, Pop>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1632161.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Шейла – Волшебники
-A2 Элвис Пресли – Беззаботный
-A3 Мак Кэйти Киссун – Я Нашла Его
-A4 Ринго Вилли Кэт – Ты Слишком Красива(   Читать дальше...   )Жанр: Rock, Funk, PopПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1632297   (92771)
-
-Diana Krall - The Girl In The Other Room (2004) [DTS 5.1 CD-DA|44.1 24|image+.cue|SACD] <Jazz>
-
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1632297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop This World 4:11
-02. The Girl In The Other Room 4:05
-03. Temptation 4:29
-04. Almost Blue 4:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C5CFE74BAD67E1F1D25454ED4E6D18678BD044
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1416428   (92341)
-
-Santana - Santana III (1971) [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Latin>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1416428.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Batuka
-A2 No One To Depend On
-A3 Taboo
-A4 Toussaint L Overture(   Читать дальше...   )Жанр: Psychedelic Rock, LatinПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AE9BFE323CA7F40FB23B1DE856B28C914BD70E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1416380   (92295)
-
-Terminator-Rex - Mantidae (2020) [FLAC 2.0|44 24|tracks|WEB-DL] <Synthwave, New Retrowave, Ele
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1416380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Input [00:03:30]
-02. 96138 [00:03:56]
-03. Thunder Girl [00:04:32]
-04. The Source [00:05:16](   Читать дальше...   )Жанр: Synthwave, New Retrowave, ElectronicПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EB6786543F9F4D1448A5DB3F393662D0988560
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1632846   (92196)
-
-Симф. Орк. Лен. Гос. Филармонии, дир. Е. Мравинский - Beethoven - Symphony No. 5 in C minor, Op. 67<
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1632846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Л. Бетховен
-A1 1 Ч. – Allegro Con Brio
-A2 2 Ч. – Andante Con Moto
-B1 3 Ч. – Scherzo. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE52C4596224ADEFDA85FDA277877F012F97E21
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1578636   (91396)
-
-Three Days Grace - Studio Albums (7 releases) (2003 - 2022) hand made [restored, declipped]
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1578636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Three Days Grace — канадская рок-группа, исполняющая альтернативный метал и постгранж. Была сформирована под названием Groundswell в Норвуде, Онтарио, Канада в 1992 году. В 1997 году коллектив в составе гитариста и вокалиста Адама Гонтье, барабанщика Нила Сандерсона и басиста Брэда Уолста сменил название на нынешнее.2003 - Three Days Grace
-2006 - One-X
-2009 - Life Starts Now
-2012 - Transit Of VenusЖанр: Post-grunge, Nu MetalПродолжительность: 05:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826D0A8382781CBEEE9714083EEEADF9C4CA77C7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1578638   (91246)
-
-Pink Floyd - Animals (2018 Remix) (1977) Reissue, 2022, Analogue Productions  [DSD64(DST64
-
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1578638.jpg" />
-</div>
-
-
-###  Подробнее
-
-The time for the SACD release all Pink Floyd fans have coveted — Animals in 5.1 surround and stereo — is here. Another classic Pink Floyd title receives the multichannel reissue treatment and Acoustic Sounds and Analogue Productions is here to proudly handle exclusive distribution of this monumental disc. The SACD also of course includes a stunning stereo mix. And (   Читать дальше...   )01. Pigs On The Wing 1
-02. Dogs
-03. Pigs (Three Different Ones)
-04. Sheep(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:41:51   00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE5A4B63836A7330C3941B589213734828811E6
 ```
 
 #Mybot  @nnmclub_mybot

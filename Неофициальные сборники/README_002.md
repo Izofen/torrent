@@ -1,4 +1,351 @@
 
+###  Публикация: 602589   (643497)
+
+VA - Русская музыка о любви (2013) [MP3|320 кб с]<Pop>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_602589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лера Кондра - Без Тебя
+02. Татьяна Чубарова - Белые Вьюги
+03. Земфира - Блюз
+04. Кристина Межинская - Буду Жить
+05. Чичерина - В лунном сиянии
+06. Найк Борзов - Верхом На Звезде
+07. Тайм-Аут - Дым
+08. Наутилус Помпилиус - Дыхание
+09. Афродита - Желаю Счастья
+10. K-Rim - Забытая История(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323650230888E0EAFBCEB648856704ADC9F033C3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 785261   (643459)
+
+St1m - Избранные композиции (2004-2014) [MP3|128-320 кб с]<Rap Hip-hop>
+
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Достучаться до небес
+02. Изо всей силы
+03. Хочу знать
+04. Шанс
+05. Завтра может не наступить никогда
+06. Час Пик (feat. Денис Гладкий (In2Nation)
+07. Будущее наступило (Produced by Alexander Dedov & MalBeatz)Жанр: Rap, Hip-hopПродолжительность: 04:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDCDC973217A574F70003FBE9D6630E305F6333
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 385633   (643348)
+
+VA - Vocal Trance Collection Vol.69 (2011) [MP3|320 kbps]<Trance, Vocal Trance>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Tayle feat. Hannah Ray - Memory Of Me (Estiva Remix)
+02. Allure feat. JES - Show Me The Way (Original Mix)
+03. Pedro Del Mar feat. Emma Lock - Guilty (Pedro Del Mar s ProgTrance Mix)
+04. Latham and Quano - Point of Impact (Oliver V. Lost His Faith Remix)
+05. Noel Sanger vs. Soul In The Machine - Mad World (Chase Costello Remix)
+06. Spark7 feat. Simon Latham - You Wanted More (Johan Curtain Remix)
+07. Frank Dueffel & Aura - Life (Original Vocal Mix)
+08. Physical Phase feat. Loreen Chimenti - Donne Moi Ton Corps (Vincent Licata Remix)
+09. Dennis Sheperd feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
+10. Andy Duguid feat. Julie Thompson - Falling (Original Mix)Жанр: Trance, Vocal TranceПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F16439F2A4B4A0D7AE20C06D8DE90E36A3928E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 785605   (643336)
+
+VA - Clubsolute 2014.03 (2014) [MP3|320 кб с]<House, Club, Dance>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit feat. Jess Glynne - Rather Be (The Magician Remix) [04:35]
+02. Martin Garrix & Jay Hardway - Wizard (Radio Edit) [03:23]
+03. Calvin Harris & Alesso feat. Hurts - Under Control [03:05]
+04. Faul & Wad AD vs. PNAU - Changes (Radio Mix) [03:21]
+05. Michael Mind Project - Show Me Love (Official Festival Mix Edit) [03:29]
+06. Hardwell - Everybody Is in the Place (Radio Edit) [02:52]
+07. Dimitri Vegas & Like Mike feat. Boostedkids - G.I.P.S.Y. (Radio Edit) [03:42]
+08. Cascada - Blink (Video Edit) [03:52]
+09. Mike Candys - Carnaval (Original Mix) [04:21]
+10. Armin van Buuren - Ping Pong (Radio Edit) [02:59](   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B85E4AF5CEC3C296934E6F648AE7DE09BAA62F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 385600   (643310)
+
+VA - Diventa Island Guide (Midnight Chill Guide) (2011) [MP3|320 kbps]<Downtempo, Lounge, Ch
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. The Diventa Project - Ebb & Flow (Lazy Hammock Mix)
+02. Newton - Silent Movie
+03. Luis Hermandez - Hold Me In Your Arms
+04. Michael E - Ofelias World
+05. Minus Blue - Pale September
+06. Sunburn In Cyprus - In The Sunshine
+07. Ingo Herrmann - Walking Away
+08. Life Audience - Woken Dream
+09. Pianochocolate - Evening Shadow
+10. Source - Free Overture(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544751A6B530334F5A032AF99D732E8F8FF89CDB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 385307   (643307)
+
+VA - Главный сборник Радио Шансон 3 (2011) [MP3|128 kbps]<Шансон>
+
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_385307.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Бутырка - Воздушный шарик
+002. Олег Гаврилюк - Офицерская честь
+003. Михаил Круг - Ты позвонила
+004. Рок-острова - Ты меня, мама, прости
+005. Леонид Телешев - Вокзал
+006. Сергей Наговицын - До свидания, кореша
+007. Юрий Белоусов - Похоронка
+008. Олег Газманов - Детство моё
+009. Александр Кузнецов и Александр Дюмин - 20 дней
+010. Олег Зеленов - Таксист(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 12:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F4422EDB1BE01ECF216E745B35AFDD73537AD0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 784099   (643298)
+
+VA - Проза жизни 4 (2014) [MP3|256 кб с]<Шансон>
+
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Вестов - Живи одна
+002. Пятилетка - Шереметьево
+003. Владимир Двинской - Ночной разговор
+004. Валерий Козьмин - Ангел без рая
+005. Сергей Гвоздика - Неизбежность
+006. Владимир Северский - Грусть
+007. Марсель Давлетов - Первая любовь
+008. Альберт Алексахин - Далеко
+009. Михаил Михайлов - Сердце пополам
+010. Артур Руденко - Ещё вчера я жил без тебя(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CA7F2CF07ADC29B8F81482B92E8C1FC51D8A7D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 785617   (643297)
+
+VA - Dark Dubstep Vol.1 (2014) [MP3|224 кб с]<Dark Dubstep>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+[05:45] 01. Skream - Snarled
+[06:02] 02. Proxima - Formal Junction
+[05:41] 03. Mishva - Civilization
+[05:34] 04. Nourma - Evil
+[06:17] 05. Sinister Souls - Caution
+[06:43] 06. Mobthrow - Deathstep
+[05:30] 07. Broke Dj S - Personal (Riskotheque And Marchmellow Remix)
+[05:39] 08. Seven - Stormz Over Mars
+[05:22] 09. Matta Chewie Dubtek 3Rdeye Safire - Fade
+[04:44] 10. Triage, Riskotheque - JaneЖанр: Dark DubstepПродолжительность: 04:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4466407C0610FDDE37774DD1090425893F1EE142
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 785567   (643238)
+
+VA - Today I Sing The Blues (2014) [MP3|320 кб с]<Blues, Blues Rock, Jazz, Funk Blues>
+
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_785567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobo Jenkins - Tell Me Who
+02. Carl Verheyen - Revival Downs (Live)
+03. Robert Cray - A Memo
+04. Michael Katon - She s All Mine
+05. Tony Galla - A.S.A.P
+06. Robben Ford - Fair Child
+07. The Sly Fox - I m Tired Of Beggin 
+08. Jimmy Reed - Baby What You Want Me To Do
+09. Dave Hole - Keep Your Motor Running (Live)
+10. Omar & The Howlers - Don t You Know (Live)(   Читать дальше...   )Жанр: Blues, Blues Rock, Jazz, Funk BluesПродолжительность: 06:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF86C773B978A1A2B5560BD7CC46E623D8DE00B9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 384989   (643232)
+
+VA - Стас Михайлов и все звезды шансона 10 (2011) [MP3|128 kbps]<Шансон>
+
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_384989.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Стас Михайлов - Русь
+002. Олег Алябин - Лучик света
+003. Олег Алябин - На качелях
+004. Никита Добрый - Не плачь
+005. Борис Шварцман - Ушедшая в ночь
+006. Владимир Тычинин - Клен
+007. Мафик - Тигренок
+008. Олег Алябин - Я вернулся
+009. Рада Рай - Последняя любовь
+010. Стас Михайлов - Ты моя(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 12:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F212CD598D922B6F36147F4BF1B1C74C94EF9C5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 785428   (643219)
 
 VA - Rock n Roll Children (2014) [MP3|192-224 кб с]<Classic Rock, Hard Rock>
@@ -34131,351 +34478,6 @@ VA - Latest And Greatest Great British Artists (2012) 3CD BoxSet[MP3|320 кб с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA616CB96A2D155877ED4C534019DDFA8356E62B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 539157   (604815)
-
-VA - Территория Зарубежных Новинок (2012) [MP3|256 kbps]<Pop,Dance>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_539157.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Don Omar - Zumba
-002. David Argunetta feat. Andrew Mastilias - Indigo
-003. Marlon Roudette - Anti hero (Brave New World)
-004. Selena Gomez &amp; the Scene - Hit the Lights
-005. Richard Durand feat. Hadley - Run To You
-006. Lady Gaga - You And I (10 Kings Radio Edit)
-007. Madonna feat. LMFAO &amp; Nicki Minaj - Give Me All Your Luvin 
-008. Shakira - La Quiero A Morir (Je Laime A Mourir)
-009. Daddy Yankee feat. Don Omar - Lovumba (Official Remix)
-010. David Guetta feat. Nicki Minaj - Turn Me On (Extended Mix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8EDC4746A4008289BB3E6601F60E35C0093DE8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 538950   (604807)
-
-VA - Абсолютный Хит. Зарубежный (2012) [MP3|256 кб с]<Dance, Pop>
-
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_538950.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elix - Musik ist meine therapie (Radio mix)
-002. Chris Parker - Rock n roll revolution
-003. Klaas Feat. Carlprit - Do What You Do (Bodybangers Remix Edit)
-004. Serge Devant feat. Coyle Girelli - On your own
-005. Pitbull feat. Ne-Yo & Afrojack & Nayer - Give me everything
-006. Ivan Gough & Feenixpawl feat. Georgi Kay - In my mind (Radio mix)
-007. Kazaky - Dance for change
-008. Stacccato & Rainy - Move Your Body 2112 (Raindropz! Remix)
-009. Belinda feat. Pitbull - I Love You Te Quiero
-010. Chuckie feat. Gregor Salto - What happens in Vegas(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1085F1CAF353110D7615D08F908E6171095356
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 539137   (604798)
-
-VA - Горячие Новинки Love Radio: Праздничный Карнавал 50+50 (2012) [MP3|256 kbps]<Pop>
-
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_539137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 неАнгелы - Твоя (DJ Sergey Fisun remix)
-02 Bel Suono feat. DJ Magic Finger - Te Quiero (Vocal Mix)
-03 DJ Tarantino &amp; Katrin Moro - Я Буду Помнить
-04 Avicii feat. Salem Al Fakir - Silhouettes (Radio Edit)
-05 Ella feat. DJ Michelangelo - Где Ты
-06 DJ Ed Harris feat. LX-Club - The Holy Grail (Radio Edit)
-07 Наталия Гулькина - Delete (ABS-digital remix)
-08 Medina - Forever
-09 Ксения Малинка - Моя Любовь
-10 Azuro feat. Elly - Je Ne Sais Pas (R.I.O. Video Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E65B84313418EB5C9198615CCEB4E90A1525B4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 539284   (604638)
-
-VA - Mega Bass Vol.2 (2012) [MP3|320 кб с]<Hip Hop, Rap>
-
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_539284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.8-ball & MJG - Don t Make Me Kill(BASSBOOSTED)
-02.Aura Dione Feat. Rock Mafia - Friends(BASSBOOSTED)
-03.Bassnectar - Boombox (Datsik Remix)(BASSBOOSTED by_Hewitt)
-04.Bob Marley & The Wailers - Three Little Birds(BASSBOOSTED by_Hewitt)
-05.Bone Crusher - Stomp By The A Town (Feat. Cotton)(BASSBOOSTED by_Hewitt)Жанр: Hip Hop, RapПродолжительность: 02:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74EA4A37AD551C13537885C0A41F45EC6B171908
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 539394   (604570)
-
-VA - Clubland Eurodance 4CD (2012) [MP3|320 кб с]<Dance, Pop>
-
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_539394.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1(One) Продолжительность 01:05:45
-01. Mr. Saxobeat - Alexandra Stan
-02. On The Floor - Jennifer Lopez
-03. Moves Like Jagger - Maroon 5
-04. Molly - Cedric Gervais
-05. L  Asereje (The Ketchup Song) - Ketchup (Las)
-06. From Paris To Berlin - Infernal
-07. Falling Stars - Sunset Strippers
-08. Lola s Theme - Shapeshifters (The)
-09. Children - Robert Miles(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 04:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1689E68C71DC983D7A04D06360C4DAD93F93BA1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 540060   (604495)
-
-VA - Сборник медленных хитов Vol.11 (2012) [MP3|320 кб с]<Pop, Rock, Blues>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_540060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Red Blooded Women
-02. Natasha St-Pier - Je Te Souhaite
-03. Chris De Burgh - Love Of The Heart Divine
-04. Tony Joe White - Cold Fingers
-05. Patricia Kaas - Je Te Dis Vous
-06. Alanis Morissette - Hands Clean
-07. Jai - I Love You(Human)
-08. Despina Vandi - Ime Ego
-09. Anggun - Je Partirai
-10. Eros Ramazzotti - L Uomo Che Guardava Le Nuvole(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 06:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5314AED9A880E6D3B6300E2B8E0360082DC49A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 539454   (604494)
-
-VA - Хит Шансона хитов Vol.2 (2012) [MP3|256 кб с]<Шансон>
-
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_539454.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Елена Кантер - Пью за любовь
-002. М. Круг и В. Цыганова - Дорога дальняя
-003. О. Лифановский - Я Тебя Больше Не Жду
-004. М. Баталов - Вор
-005. Борис Гулярин - Сонька Золотая ручка
-006. С. Джанни - Я От Тебя Вдали
-007. Михаил Шуфутинский - Анжелина
-008. Назар - Люба-Любаша
-009. А. Новиков - Это Было У Моря
-010. А. Климнюк - Удачи тебе браток(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D11AA9703CACFCD26A84505F1713D943530F6E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 540103   (604423)
-
-VA - Лучшие Рок - Дуэты (vol.2) (2012) [MP3|320 кб с]<Hard Rock, Heavy Metal, Power Metal,
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_540103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doro Feat. Onkel Tom Angelripper - Merry Metal Xmas
- 02. Slash - Crucify The Dead (feat. Ozzy Osbourne)
- 03. Serj Tankian - Goodbye - Gate 21 - Featuring The FCC And Tom Morello
- 04. Scorpions feat. Amandine Bourgeois - Still Loving You - Je t aime encore
- 05. Doro& Krypteria - Victoria
- 06. Gamma Ray (feat. Michael Kiske and Hansi Kürsch) - Land Of The Free
- 07. Linkin Park - Enjoy The Silence (Feat. Depeche Mode)
- 08. Lordi (feat. Udo Dirkschneider) - They Only Come Out At Night
- 09. U.D.O.&Ария - Штиль
- 10. Halford (feat. Bruce Dickinson) - The One You Love To HateЖанр: Hard Rock, Heavy Metal, Power Metal, InstrumentalПродолжительность: 03:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1796776FBB038403CE262B251AE394A2CDA66AA0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 540094   (604421)
-
-VA - Русский рок - Баллады (vol. 2) (2012) [MP3|320 кб с]<Rock, Hard Rock, Heavy Metal>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_540094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   Михей и Джуманджи   и С. Галанин - Мы дети большого города
- 02. Сергей Маврин - Утоли мои печали
- 03. Гран-КуражЪ - Дождь
- 04. F.P.G. - Легенда
- 05. Ольви - Осенняя песня
- 06. Deform - Торжество жертвы
- 07. Артефакт - Сердце ночи
- 08. ЛегЕндА - Забудь про свет
- 09. Маленькие Трагедии - Эммануэль
- 10. Райский Ад - СтеныЖанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC92BB977E03599E62C0205F097DC7DD2CCFA6F6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 540085   (604409)
-
-VA - Лучшие Русские Рок - Дуэты (2012) [MP3|295-320 кб с]<Rock, Hard Rock, Heavy Metal>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_540085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Евгения Рыбакова - Ты Для Меня (feat. Кукрыниксы)
- 02. Би-2 - Блюз (Feat Настя Полева)
- 03. Борис Гребенщиков И Александр Васильев - Песня Звездочетa
- 04. Кипелов & Серьга - Чужой
- 05. СЛОТ и Артур Беркут - Улица Роз
- 06. Смысловые галлюцинации & Чичерина - Этот мир
- 07. БИ-2 feat. Чичерина, feat. Симфонический оркестр МВД России - Падает снег (Новый год)
- 08. Серьга и Константин Кинчев - Любовь
- 09. Кукрыниксы и Хелависа - Падение
- 10. Алиса & Агата Кристи, Аквариум, Алиса, Борзыкин, Бутусов, ДДТ, КиШ, Крематорий,(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0EB8043B3D28863472823BB8A5A41EC5DFB3CB5
 ```
 
 #Mybot  @nnmclub_mybot

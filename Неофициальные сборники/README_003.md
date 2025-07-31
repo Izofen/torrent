@@ -1,4 +1,349 @@
 
+###  Публикация: 539157   (604815)
+
+VA - Территория Зарубежных Новинок (2012) [MP3|256 kbps]<Pop,Dance>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_539157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Omar - Zumba
+002. David Argunetta feat. Andrew Mastilias - Indigo
+003. Marlon Roudette - Anti hero (Brave New World)
+004. Selena Gomez &amp; the Scene - Hit the Lights
+005. Richard Durand feat. Hadley - Run To You
+006. Lady Gaga - You And I (10 Kings Radio Edit)
+007. Madonna feat. LMFAO &amp; Nicki Minaj - Give Me All Your Luvin 
+008. Shakira - La Quiero A Morir (Je Laime A Mourir)
+009. Daddy Yankee feat. Don Omar - Lovumba (Official Remix)
+010. David Guetta feat. Nicki Minaj - Turn Me On (Extended Mix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8EDC4746A4008289BB3E6601F60E35C0093DE8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 538950   (604807)
+
+VA - Абсолютный Хит. Зарубежный (2012) [MP3|256 кб с]<Dance, Pop>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_538950.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elix - Musik ist meine therapie (Radio mix)
+002. Chris Parker - Rock n roll revolution
+003. Klaas Feat. Carlprit - Do What You Do (Bodybangers Remix Edit)
+004. Serge Devant feat. Coyle Girelli - On your own
+005. Pitbull feat. Ne-Yo & Afrojack & Nayer - Give me everything
+006. Ivan Gough & Feenixpawl feat. Georgi Kay - In my mind (Radio mix)
+007. Kazaky - Dance for change
+008. Stacccato & Rainy - Move Your Body 2112 (Raindropz! Remix)
+009. Belinda feat. Pitbull - I Love You Te Quiero
+010. Chuckie feat. Gregor Salto - What happens in Vegas(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1085F1CAF353110D7615D08F908E6171095356
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 539137   (604798)
+
+VA - Горячие Новинки Love Radio: Праздничный Карнавал 50+50 (2012) [MP3|256 kbps]<Pop>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_539137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 неАнгелы - Твоя (DJ Sergey Fisun remix)
+02 Bel Suono feat. DJ Magic Finger - Te Quiero (Vocal Mix)
+03 DJ Tarantino &amp; Katrin Moro - Я Буду Помнить
+04 Avicii feat. Salem Al Fakir - Silhouettes (Radio Edit)
+05 Ella feat. DJ Michelangelo - Где Ты
+06 DJ Ed Harris feat. LX-Club - The Holy Grail (Radio Edit)
+07 Наталия Гулькина - Delete (ABS-digital remix)
+08 Medina - Forever
+09 Ксения Малинка - Моя Любовь
+10 Azuro feat. Elly - Je Ne Sais Pas (R.I.O. Video Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E65B84313418EB5C9198615CCEB4E90A1525B4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 539284   (604638)
+
+VA - Mega Bass Vol.2 (2012) [MP3|320 кб с]<Hip Hop, Rap>
+
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_539284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.8-ball & MJG - Don t Make Me Kill(BASSBOOSTED)
+02.Aura Dione Feat. Rock Mafia - Friends(BASSBOOSTED)
+03.Bassnectar - Boombox (Datsik Remix)(BASSBOOSTED by_Hewitt)
+04.Bob Marley & The Wailers - Three Little Birds(BASSBOOSTED by_Hewitt)
+05.Bone Crusher - Stomp By The A Town (Feat. Cotton)(BASSBOOSTED by_Hewitt)Жанр: Hip Hop, RapПродолжительность: 02:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EA4A37AD551C13537885C0A41F45EC6B171908
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 539394   (604570)
+
+VA - Clubland Eurodance 4CD (2012) [MP3|320 кб с]<Dance, Pop>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_539394.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1(One) Продолжительность 01:05:45
+01. Mr. Saxobeat - Alexandra Stan
+02. On The Floor - Jennifer Lopez
+03. Moves Like Jagger - Maroon 5
+04. Molly - Cedric Gervais
+05. L  Asereje (The Ketchup Song) - Ketchup (Las)
+06. From Paris To Berlin - Infernal
+07. Falling Stars - Sunset Strippers
+08. Lola s Theme - Shapeshifters (The)
+09. Children - Robert Miles(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 04:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1689E68C71DC983D7A04D06360C4DAD93F93BA1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 540060   (604495)
+
+VA - Сборник медленных хитов Vol.11 (2012) [MP3|320 кб с]<Pop, Rock, Blues>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_540060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Red Blooded Women
+02. Natasha St-Pier - Je Te Souhaite
+03. Chris De Burgh - Love Of The Heart Divine
+04. Tony Joe White - Cold Fingers
+05. Patricia Kaas - Je Te Dis Vous
+06. Alanis Morissette - Hands Clean
+07. Jai - I Love You(Human)
+08. Despina Vandi - Ime Ego
+09. Anggun - Je Partirai
+10. Eros Ramazzotti - L Uomo Che Guardava Le Nuvole(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 06:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5314AED9A880E6D3B6300E2B8E0360082DC49A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 539454   (604494)
+
+VA - Хит Шансона хитов Vol.2 (2012) [MP3|256 кб с]<Шансон>
+
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_539454.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Елена Кантер - Пью за любовь
+002. М. Круг и В. Цыганова - Дорога дальняя
+003. О. Лифановский - Я Тебя Больше Не Жду
+004. М. Баталов - Вор
+005. Борис Гулярин - Сонька Золотая ручка
+006. С. Джанни - Я От Тебя Вдали
+007. Михаил Шуфутинский - Анжелина
+008. Назар - Люба-Любаша
+009. А. Новиков - Это Было У Моря
+010. А. Климнюк - Удачи тебе браток(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D11AA9703CACFCD26A84505F1713D943530F6E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 540103   (604423)
+
+VA - Лучшие Рок - Дуэты (vol.2) (2012) [MP3|320 кб с]<Hard Rock, Heavy Metal, Power Metal,
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_540103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doro Feat. Onkel Tom Angelripper - Merry Metal Xmas
+ 02. Slash - Crucify The Dead (feat. Ozzy Osbourne)
+ 03. Serj Tankian - Goodbye - Gate 21 - Featuring The FCC And Tom Morello
+ 04. Scorpions feat. Amandine Bourgeois - Still Loving You - Je t aime encore
+ 05. Doro& Krypteria - Victoria
+ 06. Gamma Ray (feat. Michael Kiske and Hansi Kürsch) - Land Of The Free
+ 07. Linkin Park - Enjoy The Silence (Feat. Depeche Mode)
+ 08. Lordi (feat. Udo Dirkschneider) - They Only Come Out At Night
+ 09. U.D.O.&Ария - Штиль
+ 10. Halford (feat. Bruce Dickinson) - The One You Love To HateЖанр: Hard Rock, Heavy Metal, Power Metal, InstrumentalПродолжительность: 03:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1796776FBB038403CE262B251AE394A2CDA66AA0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 540094   (604421)
+
+VA - Русский рок - Баллады (vol. 2) (2012) [MP3|320 кб с]<Rock, Hard Rock, Heavy Metal>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_540094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Михей и Джуманджи   и С. Галанин - Мы дети большого города
+ 02. Сергей Маврин - Утоли мои печали
+ 03. Гран-КуражЪ - Дождь
+ 04. F.P.G. - Легенда
+ 05. Ольви - Осенняя песня
+ 06. Deform - Торжество жертвы
+ 07. Артефакт - Сердце ночи
+ 08. ЛегЕндА - Забудь про свет
+ 09. Маленькие Трагедии - Эммануэль
+ 10. Райский Ад - СтеныЖанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC92BB977E03599E62C0205F097DC7DD2CCFA6F6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 540085   (604409)
+
+VA - Лучшие Русские Рок - Дуэты (2012) [MP3|295-320 кб с]<Rock, Hard Rock, Heavy Metal>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_540085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Евгения Рыбакова - Ты Для Меня (feat. Кукрыниксы)
+ 02. Би-2 - Блюз (Feat Настя Полева)
+ 03. Борис Гребенщиков И Александр Васильев - Песня Звездочетa
+ 04. Кипелов & Серьга - Чужой
+ 05. СЛОТ и Артур Беркут - Улица Роз
+ 06. Смысловые галлюцинации & Чичерина - Этот мир
+ 07. БИ-2 feat. Чичерина, feat. Симфонический оркестр МВД России - Падает снег (Новый год)
+ 08. Серьга и Константин Кинчев - Любовь
+ 09. Кукрыниксы и Хелависа - Падение
+ 10. Алиса & Агата Кристи, Аквариум, Алиса, Борзыкин, Бутусов, ДДТ, КиШ, Крематорий,(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EB8043B3D28863472823BB8A5A41EC5DFB3CB5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 540332   (604359)
 
 VA - Ночная хитовая дискотека (2012) [MP3|256 кб с]<Pop>
@@ -31164,314 +31509,6 @@ VA - SAX - Forever Instrumental (2000) [MP3|320 кб с]<Instrumental, Saxophone
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5403B79A57FCF39F169F97118A426AA4DCFB886
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 677412   (572924)
-
-Gil Ventura & Fausto Papetti - Sax & Sax ...all the Best! (2012) [MP3|320 кб с]<Instrumental,
-
-
->>Неофициальные сборники
->>Instrumental New Age Meditative Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. New York, New York - Gil Ventura
-02. Memory - Fausto Papetti & Papetti Project
-03. The Captain of Her Heart - Gil Ventura
-04. And I Love Her - Fausto Papetti & Papetti Project
-05. Isn t She Lovely - Gil Ventura
-06. Brivido felino - Fausto Papetti & Papetti Project
-07. What a Wonderful World - Gil Ventura
-08. My Way - Fausto Papetti & Papetti Project
-09. Love Is in the Air - Gil Ventura
-10. Parole parole - Gil Ventura(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109F8B4A976BF97E6FC976AC42D4E5D7E5445F65
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 996332   (572911)
-
-VA - Праздничный душевный Шансон (2016) [MP3|256 кб с] <Shanson>
-
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_996332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сборная Союза - Аленушка
-02. Альберт Ибраев - Любите Жизнь
-03. Ирина Круг - День В Котором Нет Тебя
-04. Игорь Добролевский - Не Зови(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56686BAE3718CBF45E36156452B371BFDBE606AF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 996143   (572877)
-
-VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 кб с] <Pop>
-
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_996143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheryl Cole - I Dont Care
-02. Александр Балыков - Лето (DJ Nejtrino & Kirill Clash Extended Remix)
-03. Olly Murs - Tomorrow
-04. Major Lazer Feat. Ariana Grande - All My Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091D40AF5E5F3FC11C8E71CE77CEE0224B5512C9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 996267   (572856)
-
-VA - Smooth Jazz Vocal Grooves (2016) [MP3|320 кб с] <Smooth Jazz, Jazz>
-
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_996267.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nicholas Cole - So Good 4:16
-2. Lin Rountree - Givin  You Love 4:02
-3. James Vargas - Say You Will 5:34
-4. Nicholas Cole - When I Think of You 4:16(   Читать дальше...   )Жанр: Smooth Jazz, JazzПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3EDBD8D099668849FBC1884CD1BB03BE5D1C80D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 996015   (572752)
-
-VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160-320 кб с] <pop>
-
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_996015.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nicky Romero & Nile Rodgers – Future Funk
-2. Леонид Агутин – Отец
-3. Brazzaville – The Oceans of Ganymede
-4. Потап и Настя – Умамы(   Читать дальше...   )Жанр: popПродолжительность: 03:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6E55360538C5C2B6278B24BAC98BB3B8742B6D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 677981   (572714)
-
-VA - Проза Жизни (2013) [MP3|256 кб с]<Шансон>
-
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Владимир Пахновский - Запах Ее Волос
-02. Вера Снежная - Миша
-03. Валерий Курас - Песенка
-04. Дмитрий Хмелев и Джелем - Цыганочка
-05. Александр Маршал - Беззаботный
-06. Сергей Трофимов - Далеко далёко
-07. Михаил Бублик - Артобстрел
-08. Леонид Портной - Кто Тебя Создал Такую
-09. Александр Новиков - Шара-Бара
-10. Сергей Куприк - Рука тяжелая, прохладная(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD6D0EB3EDB6EF9D20DB690716D13ED8F423CE2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 676919   (572710)
-
-VA - Курортный Хит 50 50 (2013) [MP3|256 кб с]<Pop, Dance>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Марсель feat. Artik - Моя любовь
-02. Paul Panait Feat. Rhem - I Got Power (Radio Edit)
-03. Влад Соколовский - Новый День
-04. Morandi - Everytime We Touch (Radio Edit)
-05. Вельвеt - Без меня (New version)
-06. The Saturdays feat. Flo Rida - Higher
-07. Тимур Родригез - Я верю в твою любовь
-08. Justin Bieber feat. Ludacris - All Around The World
-09. Митя Фомин feat. DJ Леонид Руденко - Восточный Экспресс
-10. Modana feat. Carlprit - Your Biggest Fan (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A38E115292AC278B567BFCC08F63EE13DAFDDD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 678184   (572680)
-
-VA - Ministry of Sound - Superstar DJs (3cds) (2013) [MP3|320 кб с]<Dance>
-
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia (Ft. John Martin) - Don t You Worry Child (03:33)
-02. Deadmau5 - Ghosts N Stuff (03:09)
-03. Avicii & Nicky Romero - I Could Be The One (Nicktim Radio Edit) (03:28)
-04. Calvin Harris (Ft. Florence Welch) - Sweet NothingЖанр: DanceПродолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08543152D7C7C221D476AFC8F87D42C89B5610CF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 996496   (572621)
-
-Андрей Вох - Чё дают? (1987) [MP3|320 кб с] <Шансон, Авторская и Военная песня (сборники)>
-
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_996496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление
-02. Письмо проститутки в журнал Огонек (Не ради шутки)
-03. Старый дом
-04. Банда самосовцев(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C52CFB49F0A252A615595F413C6476B192D34EF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 996492   (572617)
-
-VA - Lounge Lux Smiel: Italian Set 80-90s (2016) [MP3|320 кб с] <Disco, Pop, Dance>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_996492.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adriano Celentano - Il Tuo Bacio E  Come Un Rock
-002. Camaleonti - L Ora Dell Amore
-003. Cugini Di Campagna - Anima Mia
-004. Bobby Solo - Una Lacrima Sul Viso(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 05:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EA3F7C4547054C26BE5DE7C59DC91C644F57FB
 ```
 
 #Mybot  @nnmclub_mybot

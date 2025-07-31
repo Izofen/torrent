@@ -1,4 +1,294 @@
 
+###  Публикация: 1808261   (757410)
+
+VA - Trance In Motion Vol.389 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1808261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driftmoon - Ode To Autumn (Extended Mix)
+02. Angelus - Hocus Pocus (Extended Mix)
+03. Alternate High - Elements Of Nature (Extended Mix)
+04. Matt Robertson - Remember (Extended)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB282D5EFC87413E16DF3CF2395B751364D62548
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1808775   (757366)
+
+Joe Lynn Turner - Voice Of Rock - Compilation (1977-2025) [MP3|320 Kbps] <Hard rock, Art rock, Glam metal>
+
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1808775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Your Heart (& Vitalij Kuprij) (Revenge | 2007)
+02. Hellraiser (Bat Head Soup-A Tribute To Ozzy | 2000)
+03. Down & Dirty (& Akira Kajiyama) (Fire Without Flame | 2006)
+04. Mirror Mirror (& Def Leppard & Icarus Witch) (Songs For The Lost | 2007)(   Читать дальше...   )Жанр: Hard rock, Art rock, Glam metalПродолжительность: 20:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E22E419685EA118E6BE8F90D5FFA6AA0C94C070
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1808464   (757325)
+
+VA - The Voice Of Jazz: Vocal Essence (2024) [MP3|320 Kbps] <Jazz>
+
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1808464.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Samara Joy - Warm In December (04:14)
+002. Anduze - Bad Side (03:18)
+003. Fred Hersch & Esperanza Spalding - But Not For Me (09:32)
+004. Kassa Overall & Theo Croker - Make My Way Back Home (03:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 07:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82CF745DE2A68B3014D91E711DBF68D4E4E69C1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1808567   (757286)
+
+VA - Compilation Part 176 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1808567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hamidshax - Love
+02 - Muvi - Encore
+03 - Jumanov - Passed
+04 - Jam Music - Monodrive(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942DA00FB431AF3046B547C35B1D350DCBD61D4A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1808610   (757267)
+
+VA - Compilation Part 177 Electronic (2025) [MP3|320 Kbps] <Electronic, Easy listening. Vocal>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1808610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dova Music, Unavarage Gang - Rooked Smile
+02 - Limora - Flower
+03 - Jambeats - Jamais Sans Toi
+04 - Umar Keyn - My Love From the Past(   Читать дальше...   )Жанр: Electronic, Easy listening. VocalПродолжительность: 01:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16406855CA226C088A53CA9460F83F5FC70351F0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1808641   (757247)
+
+VA - Music News For Forum vol.118 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1808641.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DASHI - Маэстро (02:32)
+ 002. 4К - Велком (02:59)
+ 003. Aaron - Einszweidreivier (02:19)
+ 004. Ada Petcu - Pot Mai Mult (02:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5370250C4093867B2BC0D8950C89D407EAAD4D93
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1808647   (757244)
+
+Tomoyasu Hotei - Compilation (1988-2025) [MP3|320 Kbps] <Rock, Miscellaneous>
+
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1808647.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Battle Without Honor Or Humanity (OST Shin Jinginaki Tatakai | 2000)
+002. Doberman (Doberman | 2003)
+003. Frozen Memories (Electric Samurai | 2004)
+004. Medusa (New Beginnings | 2014)(   Читать дальше...   )Жанр: Rock, MiscellaneousПродолжительность: 08:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9048FCEF53FC8CA084FB119EF3049B4BE4D8C70C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1808108   (757097)
+
+VA - National Pop Dance Music Vol.114 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1808108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Karol G - Si Antes Te Hubiera Conocido (03:16)
+ 002. Keshi - Kiss Me Right (02:42)
+ 003. Dr. Yaro - Minimum Ca (02:30)
+ 004. Ava Max - Lost Your Faith (03:14)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 13:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1AEDA909FC5E3AF7E4CE4A9DA80B1519733F50
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1808102   (757095)
+
+VA - Top 100 Mega Hits Rock 2025 (2025) [MP3|320 Kbps] <Rock>
+
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1808102.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Rise Against - Savior(04:02)
+002 Sum 41 - Fat Lip(02:58)
+003 Jimmy Eat World - The Middle(02:46)
+004 blink-182 - First Date(02:52)(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45AF66C7609386E3AC7D3BF02F1683B439109C3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1808110   (757049)
+
+VA - The Groove of Life ((2025) [MP3|320 Kbps] <Blues, Rock, Folk>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1808110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beth Hart - Drunk On Valentine(05:23)
+002. Grant Sabin - Luisa(03:52)
+003. Whiskey Nips - Mamma Just Got Married(04:30)
+004. The Smoothies - We Can Change The Past(03:33)(   Читать дальше...   )Жанр: Blues, Rock, FolkПродолжительность: 09:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F21F8EE06EB8D7BA44BF6E8FED5BDD9F8026333
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1807766   (757011)
 
 VA - Assorted Compilation Part 12 (2025) [MP3|320 Kbps] <Electronic, Easy listening>
@@ -28980,354 +29270,6 @@ VA - Romantic New Year Night. Music for Tet-a-Tet (2013) [MP3|320 кб с]<Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B9CC6DF59BA9099BC9CC06F60E2A532ADE13F09
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 741067   (682947)
-
-VA - Italo Disco. Mega Retro Party 2014 (2013) [MP3|320 кб с]<Italo Disco, Dance>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-001. Lee Marrow - Mr. Fantasy
-002. Broken Dreams - Broken Dreams (12   Version)
-003. Cliff Turner - I Need Your Love
-004. Lucia - Marinero (Swedish Re-Edit)
-005. Mike Mareen - Agent Of Liberty
-006. Rocky M - Fly With Me To Wonderland (Maxi Version)
-007. Banda Aca - Barbarella
-008. Italove - L Amour (Flashback Remix)
-009. Airplay - For Your Love (Maxi Version)
-010. Savage - Good Bye (Extended Version)(   Читать дальше...   )Жанр: Italo Disco, DanceПродолжительность: 19:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5953083FDBC916A1FFBC8EB25151DE78C9D9FA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 741952   (682748)
-
-VA - Sexy Trance #62 (2014) [MP3|320 кб с]<Trance, Vocal Trance, Uplifting Trance>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-001. Markus Schulz feat. Ana Diaz - Nothing Without Me
-002. Paul Oakenfold feat. J Hart - Surrender (Maison & Dragen Remix)
-003. Neev Kennedy - A Bridge (DNS Project Remix)
-004. Noah Neiman vs. Tangle & Mateusz - Another Life (Original Mix)
-005. Playme - Peace & Serenity (Original Mix)
-006. Matt Lange - Bad Year Blimp (Original Mix)
-007. Marsbeing & MalYar - Walking To The Stars (Chris Domingo Remix)
-008. Mike Saint-Jules - Flash Bomb (Marc Simz vs. Aerofoil Remix)
-009. Morvan - When We Fly (Gelardi & Kenneth Cruz Pure Mix)
-010. Perfect Vision & Demy Yorth - Baikal (M.D.K Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 03:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE70E007812BF630329B06ED846E57DC5B06D9D2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 735459   (682603)
-
-VA - Hard-Rock Attack vol.1-6 (2013) [MP3|320 кб с]<Hard Rock, Alternative, Metal Heavy>
-
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_735459.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hollywood Burnouts - Ghost (4:27)
-2. AFI - 17 Crimes (2:57)
-3. Five Grams of Perfection - Maybe (4:06)
-4. Electronomicon - New Beginning Day (3:35)
-5. Five Grams of Perfection - Choice (3:35)
-6. Niva - Never Too Late (3:35)
-7. Hollywood Burnouts - Ain t That a Bitch (4:25)
-8. Running Wild - Desert Rose (5:13)
-9. Ghost Avenue - Ghost Avenue (4:19)
-10. Crashdïet - Black Rose (4:30)(   Читать дальше...   )Жанр: Hard Rock, Alternative, Metal HeavyПродолжительность: 24:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8D51E7CC43DE693F64FDFA0F7C451ED51D9467
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 741677   (682572)
-
-Ленинград - Поп и Балда (2014) неофициальная сборка [MP3|32-320 кб с]<SKA Rock>
-
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_741677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Родная
-02. Финский залив
-03. Мы играли
-04. Белуга
-05. Парголово
-06. Батл Красного
-07. Sensation
-08. Сумка
-09. Хорошо там, где мы есть (160 kbps)
-10. Плачу(   Читать дальше...   )Жанр: SKA RockПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E576E71F848E7F0FBD6AE196895D4E134A881F23
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 742199   (682517)
-
-Andrey Malinov - Ocean Of Emotion (Chillout & Ambient mix) (2014) [MP3|320 кб с]<Chillout,
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Big World presents Swen G - Morning Light Coffee Shop Remix
-02. Chicane - Overture Original Mix
-03. Crisopa - Su os de Babirusa
-04. Florian Fai - For These Days
-05. Gregory Esayan - Starman Original Mix
-06. John Dahlback - Everywhere D.O.N.S. vs. Tranquillo chill mix
-07. Juventa - Attained Dreams Original Mix
-08. Koda - The Last Stand Stray Theories Remix09. Our Stolen Theory - Warmest Day Original Mix
-10. Project Blue Sun - Besame Planet Chill Mix
-11. TyDi - How Much Longer - Original Mix(   Читать дальше...   )Жанр: Chillout, AmbientПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9326D9AC9CA8B513399B261C42B6B55F82CEA3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 742308   (682476)
-
-VA - Italo Disco Masters (2014) [MP3|320 кб с]<Italo Disco>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Poppury - Italo Disco Masters
-02. Sweet Connection - Dirty Job (Maxi version)
-03. Magic System D.J. - Love Me Again
-04. Vanello & Steven Kimber - S.O.S. For Love (Maxi Version)
-05. George Aaron - Heaven (Original Mix)
-06. Dyva - Stay With Me Tonight (Short Version)
-07. On T.V. - Holiday Love Affair
-08. Tobias Bernstrup - 27 (Laser Mix)
-09. Italove - L Amour (Flashback Remix)
-10. Galaxy Hunter - Best In My Life(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 03:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144B256E92DE4AE97C48661425B2456197670C5A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 742349   (682462)
-
-VA - Dancing In Space (2013) [MP3|320 кб с]<Spacesynth, Italo Disco, Synthwave>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Ernesto - Waterfall
-02. Cyber Space - Die Zeit
-03. Karl Olivas - Follow Me (Radio Edit)
-04. Eurosynth - Inspire
-05. Retronic Voice - Bessinia
-06. Synth Dimension - Flying Up Circles
-07. Mr.Kitty - L.E.S Artistes (Cover)
-08. Roman Ivanov - Pulse-80 Cold Ocean Waves (Ivanov Edit)
-09. Cj Rise - We Got Space
-10. Dj KramniK - Oldscool(   Читать дальше...   )Жанр: Spacesynth, Italo Disco, SynthwaveПродолжительность: 03:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503389F68EE28775614C2082C7EAD1CCB4F08294
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 742637   (682262)
-
-VA - Лучшие треки Радио Юность (ЮFM) (2013) [MP3|320 кб с]<Trance, House, Progressive Hous
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond feat. Zoe Johnston  -  Alchemy (Above & Beyond Club Edit)
-02. Afrojack & Spree Wilson  -  The Spark (Tiesto vs. Twoloud Remix)
-03. Alesso & Calvin Harris feat. Theo Hutchcraft  -  Under Control
-04. Alex Gaudino feat. Nicole Scherzinger  -  Missing You (Radio Edit)
-05. Aly & Fila ft. Chris Jones  -  Running Out Of Time
-06. Andy Duguid ft. Audrey  -  Is This Moment
-07. Antillas & Dankann  -  Evolution (Album Version)
-08. Armin van Buuren  -  Who s Afraid Of 138?! (Jordan Suckley Radio Edit)
-09. Armin van Buuren Feat. Richard Bedford  -  Love Never Came (Original Mix)
-10. Armin van Buuren ft. Fiora  -  Waiting For The NightЖанр: Trance, House, Progressive House, Drum&Bass, DubstepПродолжительность: 07:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4246E3578610133DFFFF78F4E5B10149CE616D3F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 223225   (682220)
-
-VA - Drum and Bass Collection 13 (2010) [MP3|320 kbps]<Drum and Bass>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-1. 17th BOULEVARD - Sorry 04:45
-2. Adam F & Horx feat. Redman Shut - The Lights Off (Adam F & Sigma Remix) 04:16
-3. Aeph & Maize - Rebirth 06:26
-4. Apex - Entrapment 06:06
-5. Basement Jaxx - Twerk feat. Yo Majesty (Sub Focus Remix) 04:51
-6. B-Soul & Sintax - The Beginend 05:57
-7. BYOB - My Best Shoes (Qemists Mix) 05:20
-8. Callide Another - Rhythm Journey 05:53(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 04:38:52
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 743033   (682099)
-
-Neon Sky - Сollection (2008-2011) [MP3|192 - 320 кб с]<Electronic-Rock, Electronic, Hybrid>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01.Everything
-02.Adrenaline (demo version)
-03.Afternoon in the sun (Blue Stahli Remix)
-04.And all this will remain
-05.Brilliant Sky 2.0
-06.Dawn In Mars
-07.DeifsitaS reveN
-08.Doomsnight Institution (Sybreed Doomsday Party remix)
-09.Everything (Drev Remix)
-10.Everything (Remastered Bonus Track)(   Читать дальше...   )Жанр: Electronic-Rock, Electronic, HybridПродолжительность: 02:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB5748526795BCD47B8BCA9C1C7DD2E9ED9D4EC
 ```
 
 #Mybot  @nnmclub_mybot

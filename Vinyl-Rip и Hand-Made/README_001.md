@@ -1,4 +1,109 @@
 
+###  Публикация: 703640   (549922)
+
+Bad Boys Blue ‎- House Of Silence (1991) Germany [FLAC 2.0 24 192|image (Vinyl-Rip)]<Synth
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+House Of Silence (с англ. Дом тишины) - седьмой альбом немецкой евродиско-группы Bad Boys Blue, вышедший в 1991 году. House Of Silence содержит один из главных хитов группы - «House Of Silence». В композициях «Dancing With The Bad Boys» и «Tell It Everybody» рэп-партии в исполнении Эндрю Томаса. Высшая позиция - в чартах в Финляндии, 5 место.A1.  House Of Silence  :: 03:58
+A2.  Under The Boardwalk  :: 03:34
+A3.  Train At Midnight  :: 03:31
+A4.  Baby Blue  :: 03:47
+A5.  Dancing With The Bad Boys  :: 04:19
+B1.  Deep In My Emotion  :: 03:48
+B2.  Tell It Everybody  :: 03:20
+B3.  Gimme Back My Love  :: 04:01
+B4.  When Our Love Was Young  :: 03:46
+B5.  House Of Silence (Haunted House Mix)  :: 04:13Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD667399AB68077A4D01FC759CAADD5B8074F05
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 703987   (549610)
+
+Bad Boys Blue - The Fifth (1989) Germany [FLAC 2.0 24 192|image (Vinyl-Rip)]<Synth-pop, Eu
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Пятый, юбилейный альбом  The Fifth  полностью оправдал все те авансы, что были выданы группе после выхода в 1988-м  My Blue World , став в итоге его своеобразным логическим продолжением. И если музыкальная стилистика новой долгоиграющей пластинки кёльнской троицы каких-то особых сюрпризов нам не преподнесла, то вот состав группы всё же претерпел некоторые изменения. Вместо покинувшего коллектив в 1988 году амбициозного ямайца Тревора Тэйлора, решившего отныне целиком сконцентрироваться только лишь на своей любимой музыке рэгги, новым участником трио становится уроженец небольшого английского городка Grimsby - Тревор Баннистер (Trevor Bannister).A1.  Lady In Black  :: 03:48
+A2.  Someone To Love  :: 03:06
+A3.  A Train To Nowhere  :: 03:55
+A4.  I m Not A Fool  :: 03:51
+A5.  No Regrets  :: 04:46
+B1.  Where Are You Now  :: 03:40
+B2.  Fly Away  :: 03:47
+B3.  Love Me Or Leave Me  :: 03:55
+B4.  Show Me The Way  :: 03:56
+B5.  A Train To Nowhere (Train Mix)  :: 04:00Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCB1082EB80A3DB03B19436B1D92C9F9A6F0B0B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 703946   (549576)
+
+Bad Boys Blue - Heartbeat (1986) Germany [FLAC 2.0 24 192|image (Vinyl-Rip)]<Synth-pop, Eu
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Heartbeat (с англ. Сердцебиение) - второй студийный альбом немецкой диско-группы Bad Boys Blue, вышедший в 1986 году. Heartbeat включает в себя два международных хита - «I Wanna Hear Your Heartbeat (Sunday Girl)» и «Kisses And Tears (My One And Only)». Oбе песни добрались соответственно до 22 и 14 места в Германии, а также 26 и 21 в Швейцарии. На альбоме, кроме типичных для группы песен, были два кавера: Love Really Hurts Without You  (оригинал - Billy Ocean) и  Baby I Love You  (оригинал - Phil Spector)A1.  I Wanna Hear Your Heartbeat (Sunday Girl)  :: 04:06
+A2.  Mon Amie  :: 04:41
+A3.  One Night In Heaven  :: 04:56
+A4.  Baby I Love You  :: 04:01
+A5.  Kisses And Tears (My One And Only)  :: 03:59
+B1.  Rainy Friday  :: 05:16
+B2.  Lady Blue  :: 04:28
+B3.  Love Really Hurts Without You  :: 03:49
+B4.  Blue Moon  :: 04:47
+B5.  Dance The Night Away  :: 04:19Жанр: Synth-pop, EurodanceФормат: Vinyl, LP, AlbumПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1544FD183576E0275A73D0449DD2B597142126EB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 703915   (549575)
 
 Bad Boys Blue - My Blue World (1988) Germany [FLAC 2.0 24 192|image (Vinyl-Rip)]<Synth-pop
@@ -29284,93 +29389,6 @@ A4 A Man I ll Never Be(   Читать дальше...   )Жанр: Prog Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A87CEE71C750B5A7E2BE0A764DDE2466524F633
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1553299   (132903)
-
-W.A.S.P. - Studio Albums (11 releases) (1995 - 2018) hand made [restored, declipped] [FLAC 2
-
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1553299.jpg" />
-</div>
-
-
-###  Подробнее
-
-W.A.S.P. — американская метал-группа, образованная в 1982 году и наряду с Mötley Crüe, Ratt, Quiet Riot сформировавшая лос-анджелесскую глэм-метал-сцену. Коллектив приобрёл скандальную известность в 1980-х гг. и по-прежнему сохраняет популярность, периодически выпуская альбомы и проводя гастрольные туры.1995 - Still Not Black Enough
-1997 - K.F.D.
-1999 - Helldorado
-2001 - Unholy TerrorЖанр: Heavy Metal Hard RockПродолжительность: 09:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B0963D86E4EF37F5CFC7E9571613D9E7F03E7F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1553929   (132565)
-
-Sodom - Studio Albums (11 releases) (1994 - 2020) hand made [restored, declipped] [FLAC 2.0|
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1553929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sodom — немецкая трэш-метал-группа из Гельзенкирхена, коллектив был образован в 1981 году. Sodom принадлежат к пионерам и одним из наиболее успешных классиков немецкой экстремальной метал-сцены наравне с Kreator, Destruction и Tankard. Эти четыре группы составляют так называемую «большую тевтонскую четверку трэш-метала». Манера игры музыкантов, в значительной степени (   Читать дальше...   )1994 - Get What You Deserve
-1995 - Masquerade In Blood
-1997 -  Til Death Do Us Unite
-1999 - Code Red(   Читать дальше...   )Жанр: Thrash metalПродолжительность: 08:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9962CE4782928A4381E96F2015D8923BB98B15F9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1554401   (132252)
-
-Def Leppard - Diamond Star Halos (2022) 2xLP [FLAC 2.0|192 24|tracks|Vinyl-Rip] <Classic Rock,
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1554401.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Take What You Want
-A2. Kick
-A3. Fire It Up
-A4. This Guitar(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF43303927AE49C36F90EDDB911E2110F73B111D
 ```
 
 #Mybot  @nnmclub_mybot

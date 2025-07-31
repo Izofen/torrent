@@ -1,4 +1,336 @@
 
+###  Публикация: 1271959   (303594)
+
+VA - Громкие новинки месяца Vol.19 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1271959.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lil  Wayne, Kid Ink, Saweetie - YUSO
+002. Lena Katina - Куришь
+003. Доминик Джокер, Екатерина Кокорина - Новый день и Новый год
+004. Grivina - Девочку несёт(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C793D0D3519955C9DB7B53A6BA24F6FA8CEE9946
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1271856   (303524)
+
+VA - Новогодняя сотка 2019 (2018) [MP3|320 Kbps] <Pop>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1271856.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #2Маши-Мама, Я Танцую
+002. 5sta Family-Так Бывает II
+003. A-Sen-Губы Любят
+004. Burito-Штрихи(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4828DD9F27BD8CF4AB8D3A182AAF052260F30FBE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854538   (303477)
+
+VA - Снежный Хит-Парад На Русском Радио (2014) [MP3|256 кб с]<Pop>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alloise - One Touch
+02. Мила Нитич - Кактус
+03. Филипп Киркоров - Иллюзия
+04. Макс Корж - Пламенный Свет
+05. Пицца - Вспомни О Нём
+06. Герои - Куплю Тебе Новый
+07. Фрукты - Москва-Варенье
+08. Виктория Дайнеко - R.E.D
+09. Simon Grey - Зая
+10. Клей Угрюмого - Жара(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7587262BE8A2A5F5D2238533C731B20405C772B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854543   (303475)
+
+VA - Новогодняя Магия Хитов 50 50 (2014) [MP3|256 кб с]<Pop>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arash - Che Konam
+02. Радослава - Мужское Эго
+03. Arash - On Est La
+04. Сурганова и Оркестр - Ночь
+05. Zaz - Champs Elysees
+06. Интонация (In2Nation) - Моё Солнце
+07. Cheryl Cole - Live Life Now
+08. Таша Фролова - Самыми Счастливыми
+09. Leighton Meester - Good For One Thing
+10. Потап И Настя - Манго(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156018D1BB84BCD38B259ACF2789741F252C5FF8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854458   (303442)
+
+VA - Дискотека 2015 Dance Club Vol. 133 (2014) [MP3|320 кб с]<Club, Electro, House, Pop,Dance,
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Favorite & Laura Grig - Last Christmas 2015 (Radio Edit)
+02. Claydee feat. Nikki Lee - Chiki Chiki (Extended Mix)
+03. KSHMR & DallasK feat. Luciana - Burn (Let Your Mind Go) (Extended Mix)
+04. DJ Nejtrino & DJ Yonce feat. Elia - Moscow Night
+05. MC Zali & DJ Half feat. Karina Kari - Новый Год
+06. Morandi feat. Inna - Summer In December
+07. Plazma - Lucky Rider
+08. Denis Kenzo & Kimberly Hale - Find The Light (Original Mix
+09. Davi - The Gates Of Babylon (Original Mix)
+10. Bodybangers (   Читать дальше...   )Жанр: Club, Electro, House, Pop,Dance, Trance, Deep HouseПродолжительность: 09:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B697B9E1980A4B5C0340945FA9B56C13DDB541B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854686   (303434)
+
+VA - Веселые новогодние праздничные песенки часть 5 (2014) [MP3|256 кб с]<Pop>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soprano Турецкого - Новый Год
+02. Лерика и Александр Ревва - Мир Танцует С Нами
+03. Azary & Cleo - Три Синих Овцы
+04. Оля Полякова - С Новым Годом!
+05. Анжелика Агурбаш - Здравствуй Новый Год
+06. Карамельки - Три белых коня
+07. Валерия - Новогодняя любовь
+08. Дюна - Новый год в бутылке
+09. Виктор Королев - С Новым Годом!
+10. Пьер Нарцисс & Алеся Боярских - Новый Год(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D9F126F9F8A5677F4D63CF3E972B79A043CE4E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854546   (303417)
+
+VA - Зайцев.Нет Декабрьский Тор 100 (2014) [MP3|256 кб с]<Pop, Hip-Hop, Rock, R&B>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta feat. Sam Martin - Dangerous
+02. Ost Up (Остап) - Про него
+03. Андрей Иванцов - Кружился снег
+04. Егор Крид - Самая Самая
+05. Quest Pistols - Санта Лючия
+06. Андрей Иванцов - Доченька
+07. Димас - Скажи мне детка да или нет (OST физрук)
+08. Ольга Маковецкая - Снег
+09. Iowa - Улыбайся
+10. David Argunetta feat. Sarkis Edwards - All About You(   Читать дальше...   )Жанр: Pop, Hip-Hop, Rock, R&BПродолжительность: 06:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA52C3D46A06FD041A3AF2441D3C005E175FCAA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854246   (303413)
+
+Rihanna - The Best Songs (2013) [MP3|320 кб с]<R n B, Pop>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love the way you lie (feat. Eminem)
+02. S&M
+03. What s my name (feat. Drake)
+04. Love the way you lie (Piano version)
+05. Only girl
+06. Fading
+07. Pon De Replay
+08. Here I Go Again
+09. You Don t Love Me (No, No, No)
+10. That La, La, La(   Читать дальше...   )Жанр: R n B, PopПродолжительность: 02:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC4B3C1B36C2B2B2E8F82725ED3D10A6E5D17EE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854345   (303390)
+
+VA - Музыка тишины Vol.1-2 (2014) [MP3|320 кб с]<Instrumental, New Age, Smooth Jazz>
+
+
+>>Неофициальные сборники
+>>Instrumental New Age Meditative Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lars Alsing — Spirit
+02. Al Conti — Song of Rig
+03. Euge Groove — Don t Let Me Be Lonely Tonight
+04. Nathalie Manser — La lune baila
+05. Silje Nergaard — My Lovin 
+06. Bogdan Ota — Glimpse of happiness
+07. Eric Del Mar — Isla Margherita
+08. Lars Alsing — Night Time Caravan
+09. Steve Orchard — Cast a Long Shadow
+10. Lee Jin Wook — May Bus(   Читать дальше...   )Жанр: Instrumental, New Age, Smooth JazzПродолжительность: 04:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D2D4CC264CBA9F6DF2B675533ADEE3A0710605
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1272202   (303305)
+
+VA - 80 s Hits Time Machine (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Rock>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1272202.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Bowie - Let s Dance (Nile Rodgers  String Version)
+002. Pet Shop Boys - Always On My Mind (2003 Remastered Version)
+003. Fleetwood Mac - Big Love (2017 Remaster)
+004. Metallica - Fight Fire With Fire(   Читать дальше...   )Жанр: Pop, RnB, Alternative, RockПродолжительность: 07:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6481C78AC91E967296A1EA976352C1E0BAD66BD1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1272158   (303264)
 
 VA - Хиты под водочку: Поворот на 360 (2005) [MP3|320 Kbps] <Шансон>
@@ -28774,296 +29106,6 @@ VA - Зимний топ 100. Версия 50 50 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:829BE64261C0760C530C50D1D900F44D1D926F37
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1087292   (274770)
-
-VA - Зимний драйв. Авто дискотека. Версия 50 50 (2016) [MP3|256 Kbps] <Pop>
-
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1087292.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Olly Murs - Grow Up 3:45
-002.Нюша - Тебя Любить 3:39
-003.Станислав Сорока - Иди За Мной 3:53
-004.Koven - Telling Me 4:53(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F9D737E8694D40DDC0D6E748F143BEC41AF31D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1087393   (274769)
-
-VA - Золотые застольные хиты от радио Шансон Часть №7 (2016) [MP3|256 Kbps] <Шансон>
-
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1087393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Вячеслав Анисимов - Я Буду С Тобой 3:16
-002.Орская Маргарита - Любимый Муж Мой 4:21
-003.Олег Карпович - Ты Не Одна 3:07
-004.Александр Келеберда - Горький Вкус Кампари 4:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA0164ACD02268E06EE62D6DF7F5DFAA008F9BD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1087425   (274767)
-
-VA - Эх, Разгуляй! Новогодний выпуск Шансона Выпуск № 6 (2016) [MP3|256 Kbps] <Шансон>
-
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1087425.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Олеся Атланова - Рандеву С Мечтой 3:49
-002.Андрей Широков - Мельдоний 3:34
-003.Владимир Курский - Колода 3:08
-004.Евгения Карельская - Как Я Люблю 3:36(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10787CEA574B1439C40F6C0612767B67B16B038B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1087468   (274766)
-
-VA - German Top 100 Single Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Dance>
-
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1087468.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Rag n Bone Man - Human 3:19
-002.Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) 4:11
-003.Mark Forster - Chore 3:28
-004.Disturbed - The Sound Of Silence 4:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BADDA6C87E98F7D4D36481169DF91E3CAD6A30
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1087312   (274759)
-
-VA - Зимние хиты экспресс. Зарубежная версия (2016) [MP3|256 Kbps] <Pop>
-
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1087312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
-002.Evelina - Ei Filtterii 3:08
-003.Mans Zelmerlow - Primal 3:32
-004.Alle Farben - Berlin 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92144285A93577DEEAA3D7985E01E23E5642D02
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1195011   (274735)
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 23) (Compiled by Виктор31RUS) (2017<
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1195011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Вахтанг Кикабидзе  -  Я пьян от любви  3:14
-02.  Людмила Зыкина  -  Калинка  3:31
-03.  Александра Стрельченко  -  Речные омуты  2:09
-04.  Людмила Сенчина  -  Всегда и снова  3:59(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1241D1AB214C60750640F5E555C21D3A1D4ADA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1194988   (274727)
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 22) (Compiled by Виктор31RUS) (2017<
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1194988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александра Стрельченко  -  Подари мне платок  3:48
-02.  Георг Отс  -  На Волге широкой  3:20
-03.  Валентин Будилин  -  Прости, Земля  3:21
-04.  Нина Бродская  -  Кто тебе сказал  3:33(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9847791A3552F36EC0D2D7EBCBE5B8A17EAC60F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1195037   (274725)
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 24) (Compiled by Виктор31RUS) (2017<
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1195037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александра Стрельченко  -  Ромашки спрятались  4:03
-02.  Людмила Зыкина  -  Милая мама  3:31
-03.  Валентина Дворянинова  -  Как тебе служится  3:11
-04.  Иосиф Кобзон  -  В лесу прифронтовом  4:30(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356B24100A106AD0CB3A5CC98E29778EB7C5A20F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1195104   (274723)
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 26) (Compiled by Виктор31RUS) (2017<
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1195104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александра Стрельченко  -  Эхо любви  3:39
-02.  Евгений Мартынов  -  Алёнушка  3:29
-03.  Мария Лукач  -  Я шаги твои слышу  2:46
-04.  Нина Бродская  -  С любовью встретиться  3:06(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E4A2D6AF0F7E0057B42BB926CA36DB2C73AA58
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1087113   (274698)
-
-VA - Acoustic Covers Rewind (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
-
->>Неофициальные сборники
->>Instrumental New Age Meditative Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1087113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Torn
-02. Portland UK - The Boxer
-03. Thom Cooper - God Only Knows
-04. Dean Dyson - Dancing in the Dark(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F55453F6DE63E57BDBE1BEED0E1A0BA04349B26
 ```
 
 #Mybot  @nnmclub_mybot
