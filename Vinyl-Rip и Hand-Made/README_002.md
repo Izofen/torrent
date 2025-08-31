@@ -1,4 +1,991 @@
 
+###  Публикация: 1166051   (135995)
+
+VA - Убойная Сила. Любимые песни из телесериалов (2002) [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1166051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01.   Любэ   - Позови меня тихо по имени
+02. Михаил Круг и Вика Цыганова - Приходите в мой дом
+03. Виктор Королёв - Непутёвая(   Читать дальше...   )Жанр: Pop, Chanson, SoundtrackПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1400E62F41648F4FAA2221D1A194DEE66AA2B4D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1171308   (135994)
+
+VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Electronic, Eurobeat>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1171308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Modern Talking - Win The Race
+02. Modjo - Chillin 
+03. Billy More - Come On And Do It(   Читать дальше...   )Жанр: Electronic, EurobeatПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13452A78F5566CADF54DF1ED2A537EA91F320E4E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1548728   (135839)
+
+Divine Heresy - Studio Albums (2007 - 2009) hand made [restored, declipped] [FLAC 2.0|44 16|tr
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1548728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Divine Heresy («Божественная Ересь») — американская дэт-метал группа, образованная в 2006 году в Лос-Анджелесе гитаристом Дино Касаресом.2007 - Bleed the Fifth
+2009 - Bringer of PlaguesЖанр: Technical Death Groove Metal, MetalcoreПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DD94B6ABAC19A038D3F7FDC05ECDCB0DCDE1BC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1548744   (135802)
+
+Gojira - Дискография (10 albums) (1997 - 2021) hand made [restored, declipped] [FLAC 2.0|44<
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1548744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gojira — французская метал-группа, основанная в 1996 году в Байонне. Вплоть до 2001 года была известна под названием Godzilla. В состав группы входят: вокалист и гитарист Джо Дюплантье, его брат-ударник Марио Дюплантье, гитарист Кристиан Андрю и бас-гитарист Жан-Мишель Лабади.2001 - Terra Incognita
+2003 - The Link
+2005 - From Mars to Sirius
+2008 - The Way of All FleshЖанр: Progressive Groove Death MetalПродолжительность: 10:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7846B12EC391B0D4288511141D4F30AEBC6805E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1548753   (135794)
+
+Amaranthe - Дискография (6 albums) (2011 - 2020) hand made [restored, declipped] [FLAC 2.0|4
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1548753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amaranthe — шведско-датская метал-группа, основанная в 2008 году Джейком Е. Лундбергом (Dreamland, Dream Evil) и Олафом Мёрком (Dragonland, Nightrage). Проект начал складываться, когда к группе присоединились вокалисты Элиз Рид и Энди Сульвестрём, а также ударник Мортен Лёве. После выхода первого демо-альбома состав коллектива пополнил басист Юхан Андреассен2011 - Amaranthe
+2013 - The Nexus
+2014 - Massive Addictive
+2016 - MaximalismЖанр: Melodic Modern Metal, Power MetalПродолжительность: 05:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFAD9DFA5F3B8410F3C1E4FCC3746757FFB0B0E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1549031   (135792)
+
+Threshold - Дискография (21 albums) (1993 - 2018) hand made [restored, declipped] [FLAC 2.0|
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1549031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Threshold — английская рок-группа, играющая в стиле «прогрессивный метал». Основана в 1988 году в городе Суррей (Англия). Одна из ведущих групп прогрессив-металла, которая существует уже более 30 лет.1993 - Wounded Land
+1994 - Psychedelicatessen
+1997 - Extinct Instinct
+1998 - CloneЖанр: Progressive MetalПродолжительность: 27:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D1000C462F49CB8B21B37DE2EF2347786E086B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1548750   (135759)
+
+Deep Purple - Studio Albums (12 releases) (1984 - 2021) hand made [restored, declipped] [FLA
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1548750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple — британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия, и считающаяся одной из самых заметных и влиятельных в хард-роке 1970-х годов. Музыкальные критики считают Deep Purple одними из основателей хард-рока и высоко оценивают их вклад в его развитие.1984 - Perfect Strangers
+1987 - The House of Blue Light
+1990 - Slaves and Masters
+1993 - The Battle Rages On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 11:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C0DB1AF2567AAF268F6BFAE2403189551F7578
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1210967   (135758)
+
+Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96 24|image+.cue|Vinyl-R
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1210967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я напишу письмо
+02. Играйте простую мелодию
+03. Однажды летним днем
+(И. Берлин)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1208498   (135751)
+
+Pooh - Viva (1980) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1208498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Io Sono Vvo
+02. Notte A Sorpresa
+03. Una Donna Normale
+04. Tutto Adesso(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A730619FFF3812F485F4D5A14B15BA9774ADA1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1208540   (135747)
+
+VA - Le Canzoni D Oggi (1987) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1208540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Bano & Romina Power – Sempre, Sempre
+02. Loretta Goggi – Io Nascero
+03. Adriano Celentano – Lunedi
+04. Marcella Bella – La Verita(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972872B0AA114045CC6429CD3E72B909A66CB422
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 848648   (135741)
+
+The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing (1972) [FLAC 2.0
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_848648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have Nagila
+02. Kalinka
+03. Wenn Ich Komm (Wooden Heart)
+04. Oh! Happy Day(   Читать дальше...   )Жанр: Jazz, Latin, Pop, ClassicalПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CFB31D2F76A796152E51685451FA51826BA5BE2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1208517   (135736)
+
+VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96 24|image+.cue|Vinyl-Rips] <Italo Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1208517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dori Ghezzi - Margherita on so la
+02. Stefano Sani - Complimenti
+03. Rosanna Fratello - …Se t’amo t’amo
+04. Adriano Celentano - Atmosfera(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2B6A4FF241262493C72047E6B61C7F9BBF6E93
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1208575   (135732)
+
+Raffaella Carra Рафаэлла Карра - Поёт Рафаэлла Карра (1980) [FLAC 2.0|96 24|image+.cue|Vinyl
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1208575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чак-Чак (Ciak) Malgioglio - Castellari
+02. Вернись Ко Мне (Torna Da Me) Belfiore - Boncompagni - Bracardi
+03. Несчастная Любовь (Povero Amore) Boncompagni - Bracardi
+04. На Словах (A Parole) Belfiore - Boncompagni - Bracardi(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6722F60B27957CA21FA8379CC569E108A153B068
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1197473   (135730)
+
+Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip]
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1197473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Очи чёрные
+02. Вот мчится тройка удалая
+03. Огонёк
+04. Вечерняя песня(   Читать дальше...   )Жанр: Jazz, DixielendПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36EB545F9F47FB3827664FB49B2429A3BE0DE0A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1208554   (135728)
+
+VA - San Remo  88 (1988) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Italo Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1208554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massimo Ranieri - Perdere l’amore
+02. Fiordaliso - Per Noi
+03. Toto Cutugno - Emozioni
+04. Marcella - Dopo La Tempesta(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1208010   (135727)
+
+Tom Jones Том Джонс - Лучшие песни из репертуара... (1981) [FLAC 2.0|96 24|image+.cue|Vinyl-
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1208010.jpg" />
+</div>
+
+
+###  Подробнее
+
+I сторона:
+01. Дочь тьмы - Daughter Of Darkness
+02. Если... - If
+03. Брат, одолжи десять центов - Brother Can You Spare A Dime(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD36A13677BAA06E0BDA2F5F8379532C236A6EE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1208569   (135725)
+
+VA - Superstars (1974) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1208569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Jones - Little Lonely One
+02. Gerry Dorsey - The Sentimental Joker
+03. Gilbert O Sullivan - I Wish I Could Cry
+04.   The Nocturnes   - Why (Am I Treated So Bad)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1548801   (135673)
+
+The Ray Conniff Singers - It s The Talk Of The Town (1959) 1971 [FLAC 2.0|192 24|image+.cue|
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1548801.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 It s The Talk Of The Town
+A2 You re An Old Smoothie
+A3 Buttons And Bows
+A4 Let s Put Out The Lights (And Go To Sleep)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D554410E59E11D75E351C627B965CC74770AC44A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1042634   (135594)
+
+Ray Conniff Рэй Коннифф - Смех Под Дождем (1976) [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Jaz
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1042634.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Смех Под Дождем (Laughter In The Rain)
+А2 Я Действительно Тебя Люблю (I Honestly Love You)
+A3 Закат (Sundown)
+A4 Ангелочек (Angie Baby)(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1655F0090854A45F02B4616BF73161E16B5AC5B0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1549435   (135470)
+
+Ray Conniff Рэй Коннифф - Голубая Рапсодия (1987) [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Ja
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1549435.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Страна Улыбок
+A2 Грезы Любви
+A3 Романс
+A4 Парафраза(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3EB617B322DEC6AFD9997B13D1BC7727A82D48
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1549733   (135270)
+
+Twisted Sister - Studio Albums (8 releases) (1982 - 2006) hand made [restored, declipped] [F
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1549733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twisted Sister — американская глэм-метал-группа из Нью-Йорка.
+Глэм рок и металл, рваные чулки, тонны макияжа и лак для волос, вот вам формула успеха по канонам шока и песенного бунта. Смешав экстравагантный имидж с традиционным хэви металлом, эти ребята из Нью-Йорка оставили свой кричащий след на молодом поколении 80-х. Да, и как можно забыть бас гитариста бьющего (   Читать дальше...   )1982 - Under The Blade
+1983 - You Can t Stop Rock  n  Roll
+1984 - Stay Hungry
+1985 - Come Out And PlayЖанр: Heavy Metal Hard RockПродолжительность: 07:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB7C0E85787712182A6D13CF60A8EE7B11EAAA9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1549888   (134973)
+
+Opeth - Дискография (19 albums) (1995 - 2019) hand made [restored, declipped] [FLAC 2.0|44<3
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1549888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opeth — метал-группа из Швеции. Для ранней музыки Opeth характерно тяжёлое дэт-металическое звучание с добавлением мелодичных партий акустической гитары, элементов джаза, блюза и прогрессивного рока 1970-х годов. Вокалист Микаэль Окерфельдт (швед. Mikael Åkerfeldt) использует как чистый вокал, так и гроулинг. Название группы взято из книги Уилбура Смита The (   Читать дальше...   )1995 - Orchid
+1996 - Morningrise
+1998 - My Arms, Your Hearse
+1999 - Still LifeЖанр: Progressive Death Metal, Progressive RockПродолжительность: 25:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77849C14990A67012EB6383067160B9F49AA1ED3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1549955   (134956)
+
+Mastodon - Дискография (15 albums) (2001 - 2021) hand made [restored, declipped] [FLAC 2.0|4
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1549955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mastodon — американская метал-группа из Атланты (США), в звучании которой соединились сладж, грув и прогрессив-метал с элементами стоунера. Основана в 2000 году барабанщиком Брэнном Дейлором и гитаристом Биллом Келлихером.2002 - Remission
+2004 - Leviathan
+2006 - Blood Mountain
+2009 - Crack the Skye(   Читать дальше...   )Жанр: Progressive Sludge MetalПродолжительность: 14:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FC2D182522D1529345B5F1C021AED4ACFDCCC4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1550208   (134928)
+
+Sting - Collection (8 Albums) (1985 - 2003) hand made [restored, declipped] [FLAC 2.0|44 1
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1550208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sting (настоящее имя — Го́рдон Мэ́ттью То́мас Са́мнер (англ. Gordon Matthew Thomas Sumner); род. 2 октября 1951, Уоллсенд  — британский музыкант-мультиинструменталист, певец и автор песен, актёр, общественный деятель и филантроп. Вокалист группы The Police в 1976—1984 годах. С 1984 года выступает сольно.1985 - The Dream Of The Blue Turtles
+1987 - ...Nothing Like The Sun
+1991 - The Soul Cages
+1993 - Ten Summoner s TalesЖанр: RockПродолжительность: 06:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C49FF41CA21DD68F1C1009453571DDA407F144
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1550415   (134827)
+
+Avenged Sevenfold - Дискография (9 albums) (2001 - 2017) hand made [restored, declipped] [FL
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1550415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avenged Sevenfold (с англ. «Отомщённый семикратно») — американская метал-группа из Хантингтон-Бич, образованная в 1999 году.
+На дебютном альбоме группы — Sounding the Seventh Trumpet преобладали панковые мотивы, а в качестве вокала часто использовался скриминг. Следующий альбом — Waking the Fallen был записан в стиле металкор, с элементами хеви-метала в отдельных (   Читать дальше...   )2001 - Sounding the Seventh Trumpet
+2003 - Waking the Fallen
+2005 - City of Evil
+2007 - Avenged Sevenfold(   Читать дальше...   )Жанр: Heavy (NWOAHM) Progressive MetalПродолжительность: 11:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850F3C93F14C8DA7786D05B525E74B7B1783A5F7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1551293   (134267)
+
+VA - Звезды Мехико (1969) (Л. Барашков, Т. Миансарова, А. Горохов, Э. Хиль) [FLAC 1.0|96 2
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1551293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лев Барашков - Звезды Мехико
+(А. Пахмутова – Н. Добронравов)
+02. Тамара Миансарова - Влюбленный Футболист
+(А. Двоскин – В. Малков)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6AFC1DEBE7D1E0B3CA6F28B0F3994563883DA0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1551487   (134078)
+
+VA - Белый Теплоход - Золотые шлягеры 70-х (2000) Compilation, Unofficial Release [FLAC 2.0|48<3
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1551487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Здравствуй Песня - Синяя песня
+02. Синяя Птица - Белый теплоход
+03. Пламя - На два дня(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F522A15013992F2B2A0DA733DB978CFAFA2D4E51
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1551641   (134005)
+
+Billy Talent - Studio Albums (7 releases) (1999 - 2022) hand made [restored, declipped] [FLA
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1551641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Billy Talent — канадская рок-группа. Была сформирована под названием Pezz в Онтарио в 1993 году. Состав группы: Бенджамин Ковалевич, Иэн Ди’Сэй, Джонатан Гэллант и Аарон Соловонюк.1999 - Watoosh! (as Pezz)
+2003 - Billy Talent
+2009 - Billy Talent II
+2009 - Billy Talent IIIЖанр: Punk RockПродолжительность: 05:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEB64DDC9870C87808846C58D77D278B15B4AB9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1551885   (133795)
+
+VA - Старая пластинка. Золотые хиты. Часть 1 (2003) Compilation, Unofficial Release [FLAC 2.0|48
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1551885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Весёлые ребята - Не волнуйтесь, тётя
+02. Валентина Легкоступова - Ягода-малина
+03. Вячеслав Добрынин - Синий туман(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6926DE4AF8A7112C89FA3E333004FEC1204A2A4A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1514793   (133631)
+
+Rammstein - Дискография (11 releases) (1995-2022) hand made [restored, declipped] [FLAC 2.0|
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1514793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein — немецкая метал-группа, образованная в январе 1994 года в Берлине.
+Основные черты творчества группы: специфический ритм, в котором выдержана большая часть композиций, и эпатирующие тексты песен. Особую известность группе принесли сценические выступления, часто сопровождаемые использованием пиротехники, получившие признание в музыкальной среде. Состав группы (   Читать дальше...   )1995 - Herzeleid
+1997 - Sehnsucht
+2001 - Mutter
+2004 - Reise, ReiseЖанр: Industrial Metal, Neue Deutsche HärteПродолжительность: 13:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8C2C31814466C9FA8E8FAE24EE07D0C46BBB9C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1552488   (133451)
+
+Exodus - Studio Albums (8 releases) (1992 - 2021) hand made [restored, declipped] [FLAC 2.0|
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1552488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exodus (с англ. — «Исход») — американская трэш-метал-группа, образованная в 1979 году в городе Ричмонд (Калифорния). Exodus — одни из основателей жанра.1992 - Force Of Habit
+2004 - Tempo Of The Damned
+2005 - Shovel Headed Kill Machine
+2007 - The Atrocity ExhibitionЖанр: Thrash MetalПродолжительность: 08:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6E95EA64944AAA9C3E232897D905990A6512ED
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 664625   (133377)
+
+Vangelis - Blade Runner (1994) [FLAC 2.0 24 96|image (Vinyl-Rip)]<Electronic, New Age>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_664625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (3:46)
+02. Blush Response (5:43)
+03. Wait For Me (5:31)
+04. Rachel s Song (4:34)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3824C5253A25DA16BF5F765E988682004A1948
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1552733   (133266)
+
+VA - Любимая моя (1997) Compilation, Unofficial [FLAC 2.0|48 24|image+.cue|MC-Rip] <Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1552733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Влад Сташевский - Сеньорита-Наташка
+(В. Матецкий - В. Хлебников)
+02. Елена Панурова - Наше счастье(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F356B17D9CB7E06C6DC63EDE7DE1D85BFAD498
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1552995   (133149)
+
+Boston - Don t Look Back (1978) Santa Maria Press [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Pro
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1552995.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Don t Look Back
+A2 The Journey
+A3 It s Easy
+A4 A Man I ll Never Be(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A87CEE71C750B5A7E2BE0A764DDE2466524F633
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1553299   (132903)
 
 W.A.S.P. - Studio Albums (11 releases) (1995 - 2018) hand made [restored, declipped] [FLAC 2
