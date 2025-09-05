@@ -1,4 +1,118 @@
 
+###  Публикация: 1719405   (702458)
+
+The Mayfield Four (MF4) - Studio Albums (2 releases) (1998-2001) hand made [restored, declipped] [FL
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1719405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mayfield Four (aka MF4) - рок-группа, образованная в Спокан, штат Вашингтон, в 1996 году. Группа официально распалась в 2002 году.1998 - Fallout
+2001 - Second SkinЖанр: Hard RockПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5395A9C980C1032B5665DBB2F937C8A958646F0E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1719441   (702457)
+
+Maria Chiara Argiro - Closer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Jazz, Cinemat
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1719441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light [00:02:51]
+02. Closer [00:03:23]
+03. Grow [00:02:45]
+04. September [00:03:37](   Читать дальше...   )Жанр: Electronic, Jazz, Cinematic, IndieПродолжительность: 00:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375AF16A4B80D944E465EADA5AE052AEA22F74BD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1719423   (702420)
+
+St. Vincent - All Born Screaming (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1719423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Is Near (4:09)
+02. Reckless (3:57)
+03. Broken Man (3:22)
+04. Flea (3:47)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86217182A0983AD7B5220C97AD33C0D7BB64187C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1719450   (702419)
+
+Inter Arma - New Heaven (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <doom metal, progressive metal, p
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1719450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Heaven [00:07:29]
+02. Violet Seizures [00:06:30]
+03. Desolation's Harp [00:04:30]
+04. Endless Grey [00:02:42](   Читать дальше...   )Жанр: doom metal, progressive metal, psychedelic, sludge metalПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136ED3F62507D26E20AF8280768B2647A8BB7489
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1719494   (702418)
 
 Big Star - #1 Record (1972) Remastered, 2024, Craft Recordings [FLAC 24/192|Lossless|WEB-DL|tracks]
@@ -30085,123 +30199,6 @@ A3 Good Days Have Gone(   Читать дальше...   )Жанр: Pop, FolkП�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE47DCD164DDA7F43736DEFB744B22B3844689A4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1108172   (498444)
-
-Ochre - Beyond the Outer Loop (2017) [FLAC|Lossless|WEB-DL-24Bit|tracks] <IDM, Techno, Ambient>
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1108172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anaphora (04:26)
- 02. Rowing to the Riverhead (03:21)
- 03. Adaptation (02:11)
- 04. Out of the Gyre (03:45)(   Читать дальше...   )Жанр: IDM, Techno, AmbientПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D32D1414C5C9093896C8048931AD5124A20AA5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1108388   (498419)
-
-Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Disco>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1108388.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЧЕРРОНЕ ЖАН-МАРК (Cerrone Jean Marc) (р. в 1952, Сен-Мишель, Франция), французский композитор, продюсер и барабанщик.
-     Хотя слушателю 1990-х годов это имя едва ли говорит о многом, два десятилетия назад, во времена диско-бума конца 70-х, он был одним из самых продуктивных и изобретательных творцов европейской танцевальной музыки: как композитор, продюсер и барабанщик (   Читать дальше...   )Альбомы:
-1976 - Love In C Minor
-1977 - Cerrone s Paradise
-1977 - Cerrone III - SupernatureЖанр: DiscoПродолжительность: 01:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1207999   (498156)
-
-Queen - The Game (1980) [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Rock>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1207999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play The Game (3:30)
-02. Dragon Attack (4:19)
-03. Another One Bites The Dust (3:34)
-04. Need Your Loving Tonight (2:49)(   Читать дальше...   )Производство: EMI Records - EMA 795Жанр: RockПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917FEFB453720A6BF0F4E87012394F4F45DA796B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1207147   (498115)
-
-Lindsey Stirling - Brave Enough (2016) [FLAC 2.0|192 24|image+cue|Vinyl-Rip] <Modern Classical
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1207147.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lost Girls
-2. Brave Enough
-3. The Arena
-4. The Phoenix(   Читать дальше...   )Жанр: Modern Classical, Dance-pop, DubstepПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9E73B1F759B061B09727E85848AA367F1C36DB
 ```
 
 #Mybot  @nnmclub_mybot

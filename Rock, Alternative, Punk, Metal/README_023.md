@@ -1,4 +1,265 @@
 
+###  Публикация: 1480075   (172009)
+
+Arabs in Aspic - 3 Albums (2021) [MP3|320 Kbps] <Heavy Progressive Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1480075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aspic Temple [00:00:57]
+02. Flying Norseman [00:04:12]
+03. Dive into My Eye [00:04:30]
+04. Mørket [00:04:30](   Читать дальше...   )Жанр: Heavy Progressive RockПродолжительность: 3CD, 01:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CDF1F33FF3B91CFCB0F0DFDC3D605962F460E9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1480285   (172005)
+
+Mogwai - As The Love Continues (2021) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Post Ro
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1480285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Bin My Friend, Tonight We Vacate Earth (5:09)
+02. Here We, Here We, Here We Go Forever (4:45)
+03. Dry Fantasy (5:10)
+04. Ritchie Sacramento (4:12)(   Читать дальше...   )Производство: Rock Action Records – ROCKACT140CDXЖанр: Post Rock, Alternative RockПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F992077BABA12EBDBC89F0AACC27EE019F8F88FD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1480090   (171999)
+
+Paul Gilbert - Werewolves Of Portland (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1480090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello North Dakota! 6:24
+02. My Goodness 3:32
+03. Werewolves of Portland 5:50
+04. Professorship at The Leningrad Conservatory 4:33(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9536E7BE1BE83E8387B92C5460D93AC77067E1EB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1528726   (171996)
+
+Би-2 - Я никому не верю (2022) EP [MP3|320 Kbps] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1528726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Би-2 - Я никому не верю
+2. Ploho - Я никому не верю
+3. Альянс - Я никому не верю
+4. BrainStorm - Broken(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CEE22F1D16B6F9F7C14982C4F282E93A40642B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1480122   (171951)
+
+Motorhead - No Sleep  Til Hammersmith (Live) (2021) 40th Anniversary Edition [MP3|320 Kbps
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1480122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ace of Spades (Live in England 1981) (40th Anniversary Master) [00:02:58]
+02 - Stay Clean (Live in England 1981) (40th Anniversary Master) [00:02:52]
+03 - Metropolis (Live in England 1981) (40th Anniversary Master) [00:03:24]
+04 - The Hammer (Live in England 1981) (40th Anniversary Master) [00:03:04](   Читать дальше...   )Жанр: Heavy Metal, Rock  N  Roll, RockПродолжительность: 04:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6851D65D4B8837ADA9E482D6A89D9F71145A13EB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1480119   (171861)
+
+Within Temptation - Shed My Skin (2021) [MP3|320 Kbps] <Symphonic Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1480119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shed My Skin (4:30)
+02. The Purge (4:16)
+03. Entertain You (3:31)
+04. Shed My Skin (Instrumental) (4:30)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F99789038412F1FB4DE7311F470D068329370A7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1390832   (171853)
+
+Protest The Hero - Palimpsest (2020) [MP3|320 Kbps] <Metalcore>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1390832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Migrant Mother (03:50)
+ 02. The Canary (04:28)
+ 03. From The Sky (06:15)
+ 04. Harborside (01:01)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4E421545C04793AAC0BD1084CC33B0A1A94EFA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1390678   (171850)
+
+Lori Lewis - Carmina Romanus (2020) [MP3|320 Kbps] <Symphonic Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1390678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sol Invictus (03:55)
+ 02. Mercury (04:12)
+ 03. Venus (03:20)
+ 04. Tellus (03:40)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754884ED75837F2CD7B3B92BAF1FCC27238C17D1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1390867   (171848)
+
+Quicksilver Messenger Service - Happy Trails (1969) Remastered, 1992, BGO Records [FLAC|Lossless
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1390867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Do You Love Suite, Who Do You Love (Part 1) (3:33)
+02. When You Love (5:15)
+03. Where You Love (6:07)
+04. How You Love (2:46)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Classic RockПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA0EF7BE8440966E68E307C7DC22B3331700121
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1390761   (171822)
 
 The Soft Machine - The Soft Machine (1968) Limited Edition, Reissue, 2013, ABC Records [FLAC|Los
@@ -28716,263 +28977,6 @@ Whitesnake - Starkers In Tokyo (1997) [FLAC|Lossless|image + .cue] <Acoustic, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D45C94ECA534927E5805C5986463F97709FB9EC2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1400526   (151766)
-
-Wildness - Wildness (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1400526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Inside My Head (03:54)
-02. Stranger (03:21)
-03. Shadowland (04:37)
-04. Alibi (05:09)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1285DAD2289A0EDCDEA359A41BB68996645768
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1400509   (151753)
-
-Thundermother - Heat Wave (2020) [MP3|320 Kbps] <Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1400509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud and Alive (03:56)
- 02. Dog from Hell (03:38)
- 03. Back In  76 (03:34)
- 04. Into the Mud (03:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6968B90D0E33FFC8965C83DD6FD19CD5A8E3FD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1400474   (151748)
-
-Капитанский ром - Блуждающий огонь (2020) EP [MP3|320 Kbps] <Horror Punk, Folk Punk>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1400474.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Блуждающий огонь
-2. Казнь пирата
-3. Исполнитель желанийЖанр: Horror Punk, Folk PunkПродолжительность: 00:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6033EE7717317BB81E7B55881D4C0034DDF9EF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1538092   (151741)
-
-VA - Free & Easy - 100 Soft Rock Deluxe (2022) [MP3|320 Kbps] <Rock, Soft Rock, Pop Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1538092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starship – Nothing s Gonna Stop Us Now (04:30)
-02. Fleetwood Mac – Dreams (2018 Remaster) (04:17)
-03. The Goo Goo Dolls – Iris (04:49)
-04. The Doobie Brothers – What a Fool Believes (03:39)(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 06:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42D4FA0F23C0DCA29B6BB5BEBF3751327BB18DA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1538324   (151736)
-
-VA - Soft Rock Love (2022) [MP3|320 Kbps] <Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1538324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Big Love (2018 Remaster) (3:42)
-02. Chris Rea - Your Warm and Tender Love (4:33)
-03. Coldplay - Everglow (4:42)
-04. Pretenders - I ll Stand By You (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4D4836396B12B27F4FAA5C19930E5C0E2BCBE7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1686827   (151704)
-
-Till The Dirt - Outside The Spiral (2023) [FLAC|Lossless|image + .cue] <Death Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1686827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starring Role [00:03:57]
-02. Outside The Spiral [00:03:58]
-03. Privilege [00:04:21]
-04. As it Seems [00:04:36](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E36A2CE5F06C3728C4153B96B809FF5E91583D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1400466   (151701)
-
-Kansas - The Absence of Presence (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1400466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Absence Of Presence (08:22)
-02. Throwing Mountains (06:21)
-03. Jets Overhead (05:17)
-04. Propulsion 1 (02:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7737EAED7A46723D9C1D424F0B9B3139A9C31714
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1538421   (151615)
-
-The Karma Effect - The Karma Effect (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1538421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steal Your Heart
-02. Doubt She s Coming Back
-03. Mercy
-04. Stand(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F42ED77E64D7150D33F9C9D23D64281B618B102
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 581475   (151612)
-
-The The    TheThe (Matt Johnson) - 13 альбомов (1981-2002) [MP3|160-320 кб с] <Post-Punk
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_581475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Post-Punk, Alternative, New WaveПродолжительность: 00:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0852A064C6714408B270C8BB8EBD9119823ED967
 ```
 
 #Mybot  @nnmclub_mybot

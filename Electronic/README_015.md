@@ -1,4 +1,120 @@
 
+###  Публикация: 1570069   (112274)
+
+Pet Shop Boys - Please (1986) [OGG|485 Kbps] <Synthpop>
+
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1570069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Divided By Zero	  3:34
+02. West End Girls            	  4:45
+03. Opportunities            	  3:43
+04. Love Comes Quickly 	  4:19(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C58F08D971C38244E3BCD0DE1073CA649F27B3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1570060   (112273)
+
+Pet Shop Boys - Actually (1987) [OGG|485 Kbps] <Synthpop>
+
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1570060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Chance     5:28
+02. What Have I Done To Deserve This? 	4:21
+03. Shopping                   3:37
+04. Rent                          5:07(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B406950785FEEAE28BF9F4B74B9F3D0C10259B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1408408   (112001)
+
+Lemongrass - Soulful (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1408408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whereever You Go
+02. Killing Me Softly
+03. Femme Fatale
+04. July Sky (feat. Jane Maximova)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22C36BDF162B1950E9F5A3CB8D8D5617DE7D4B9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1408386   (111988)
+
+VA - Ultra Step Pop Hits 2020 Fitness Session [MP3|320 Kbps] <Funky, Club House>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1408386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hellen - Mood Ring (Fitness Version 132 Bpm) (04:07)
+02. D Mixmasters - Never Seen The Rain (Fitness Version 132 Bpm) (03:52)
+03. Lawrence - Young And Alive (Fitness Version 132 Bpm) (03:52)
+04. Th Express - Underdog (Fitness Version 132 Bpm) (03:23)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA57291FA33DFCC98286891E932DA82F687CE826
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1408382   (111933)
 
 VA - Meditation Music for Inner Peace Vol.5 (Beautiful Ambient and Chillout Music) (2020) [M
@@ -28725,122 +28841,6 @@ VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A01A5330474CFDC8B1DA500C2A7CAE5B4F5988EB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1596145   (52190)
-
-VA - Meditative State: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downte
-
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1596145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow World - Undiscovered World (Original Mix) (3:43)
-02. Dellasollounge - Fantasy (Original Mix) (5:23)
-03. Matt Sour - Who Is Lore (5:01)
-04. La Estación Del Mar - Cantos Rodados (4:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFA82E5C598991A66218E77D33F8C654BB18627
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1432684   (51882)
-
-VA - Christmas by the Fire: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, D
-
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1432684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - A Night for Dreaming (04:32)
-02. Michael Е - After the Storm (05:57)
-03. La Estación Del Mar - A Sax in the City (03:28)
-04. Peter Pearson - Apres Sun (04:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374637F3C78C0FB918759682C6129E56DFADBCEF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1675399   (51866)
-
-Pet Shop Boys - Relentless (1993) Reissue, Remastered, 2023, Parlophone [FLAC|Lossless|image + .
-
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_1675399.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. My Head Is Spinning 6:33
-2. Forever In Love 6:18
-3. KDX 125 6:26
-4. We Came From Outer Space 5:23(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAFD1209FF2CF1287F3970D1B3155855CC3CE7C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1517475   (51853)
-
-David Gainsford - The Best Of Lounge: The Blue Lounge (2001) [FLAC|Lossless|tracks + .cue] <Down
-
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1517475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recline (1:34)
-02. Indicator On (5:41)
-03. Tangent (5:15)
-04. Gold Icon (6:35)(   Читать дальше...   )Жанр: Downtempo, Easy Listening, LoungeПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61603CD3A0E3638D7CFE772DFB75B2D2CB5AC1D
 ```
 
 #Mybot  @nnmclub_mybot

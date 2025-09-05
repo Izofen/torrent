@@ -1,4 +1,290 @@
 
+###  Публикация: 840543   (414833)
+
+Otherwise - True Love Never Dies (2012) [MP3|320 кб с]<Alternative  Heavy Metal  Hard Rock
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. I 00:36
+02. Die For You 03:11
+03. Lighthouse 04:16
+04. Scream Now 03:38
+05. Don t Be Afraid 03:48
+06. Vegas Girl 02:51
+07. II 00:49
+08. Silence Reigns 03:29
+09. I Don t Apologize (1000 Pictures) 04:02
+10. Crimson 03:57(   Читать дальше...   )Жанр: Alternative  Heavy Metal  Hard RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B50140B7F94DC17773BDD9169614C316F818345
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 582925   (414788)
+
+Seventh - Decide (2002) [MP3|128 кб с]<Alternative>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_582925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deliverance (4:59)
+02. Lifeless (4:30)
+03. Darken (4:25)
+04. Overdose (4:22)
+05. Dialated (4:13)
+06. I m Gonna Fly (4:03)
+07. Abnormal (4:02)
+08. Decide (3:55)
+09. Realize Me (3:34)
+10. Seventh - My Life (3:21)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347015522A9E7701F47B3D1836BE03678CC0C507
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 840736   (414776)
+
+Fifth Angel - Time Will Tell (1989) Reissue  2000, Collectables Records  [MP3|320 кб с]<Ha
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Группа Fifth Angel была основана в предместьях Сиэтла в конце 1983-го года благодаря стараниям гитариста Джеймса Бёрда (англ. James Byrd), вокалиста Теда Пайлота (англ. Ted Pilot) и барабанщика Кена Мэри (англ. Ken Mary). Изначальный состав был доукомплектован с приходом в группу Эда Арчера (англ. Ed Archer) в качестве ритм-гитариста и басиста Кенни Кэя (англ. Kenny Kay).01. Cathedral (04:08)
+02. Midnight Love (04:38)
+03. Seven Hours (04:51)
+04. Broken Dreams (04:56)
+05. Time Will Tell (04:24)
+06. Lights Out (04:05)
+07. Wait For Me (04:48)
+08. Angel Of Mercy (04:32)
+09. We Rule (03:33)
+10. So Long (04:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796FFE50BE2AB6A3D43938B8049FA5B1F06C7361
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 840533   (414775)
+
+Otherwise - Peace at All Costs (2014) [MP3|320 кб с]<Alternative  Heavy Metal  Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. IV (1:08)
+02. Love & War (3:23)
+03. Darker Side Of The Moon (2:55)
+04. Demon Fighter (3:30)
+05. Coming For The Throne (3:11)
+06. Never Say (3:59)
+07. The Other Side Of Truth (3:10)
+08. All The Pretty Things (3:35)
+09. Walk Away (3:26)
+10. For The Fallen Ones (3:06)(   Читать дальше...   )Жанр: Alternative  Heavy Metal  Hard RockПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F210343628D3C35479B551E4F42D6B99B0342B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 840564   (414769)
+
+Downfall of Gaia - 4 Альбома (2010-2014) [MP3|320 кб с]<Screamo, Neocrust, Dark Hardcore, Post
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_840564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2010 - Epos
+2012 - Suffocating in the Swarm of Cranes
+2013 - Downfall Of Gaia
+2014 - Aeon Unveils The Thrones Of DecayЖанр: Screamo, Neocrust, Dark Hardcore, Post MetalПродолжительность: 03:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32C28A0CC8CB284656D8720611310D4D64631D0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 927606   (414745)
+
+Eisregen - 2 EP, 1 альбом (2014 - 2015) [MP3|320 кб с]<Dark Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_927606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2014 - Flötenfreunde (EP)
+2015 - Brummbar (EP)
+2015 - MarschmusikЖанр: Dark MetalПродолжительность: 01:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8CAC6339EDB06B1DA30CA12C99F6AA90FEF750
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 927791   (414743)
+
+The Damned - Les Genies du Rock - Gun Fury (1995) [MP3|320 кб с]<Goth Rock, Punk>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_927791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Generals (3:26)
+02.  Dozen girls (4:36)
+03.  Disguise (3:30)
+04.  Take that (2:51)(   Читать дальше...   )Жанр: Goth Rock, PunkПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE12859D05E0841DE2D29E45B833D79A58D84183
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 927560   (414742)
+
+Stiv Bators - Les Genies du Rock - Sonic Reducer (1994) [MP3|320 кб с]<Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_927560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It s Cold Outside (2:54)
+02.  Make Up Your Mind (2:20)
+03.  Ready Anytime (3:00)
+04.  I ll Be Alright (2:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF1858995F25883EDC5270704FC04C80C4A5C8F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 927797   (414741)
+
+The Doobie Brothers - Les Genies du Rock - First Album (1993) [MP3|320 кб с]<Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_927797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Excitement (T. Johnston) (4:00)
+02.  Coke can changes (T. Johnston) (3:24)
+03.  Runaround ways (P. Simmons) (2:46)
+04.  Quicksilver princess (T. Johnston) (2:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53FDDAD42CD9B4F34ECE7E3A0CF74C04910C6A1E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 927782   (414716)
 
 The 13th Floor Elevators - Les Genies du Rock - You Re Gonna Miss Me (1993) [MP3|320 кб с]<R
@@ -30346,276 +30632,6 @@ Liquid Tension Experiment — супергруппа из США, сайд-пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C3DB19FB2A6122365FB9C4F74EEE8FC42FA7086
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 936873   (384474)
-
-Пионерлагерь Пыльная Радуга - Правда о потерянном времени (2015) [MP3|320 кб с]<Grunge>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_936873.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Дуальный Пастор [00:04:38]
-02. Оптимизм (автор - Игорь Летов) [00:04:57]
-03. Кавычки [00:04:11](   Читать дальше...   )Жанр: GrungeПродолжительность: 01:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A71C1F8963106536F3B3B6364238F2D660F923
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1048684   (384459)
-
-Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps] <Blues Rock, C
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1048684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thousand Percent Female     (04:36)
-02. Your Name Must Be Love     (02:41)
-03. High Mountain     (03:54)
-04. Rock n rolla Stumbler     (02:41)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:910A489D50CBC49F0532341949D8720EE64ED550
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1048720   (384445)
-
-Epica - The Divine Conspiracy (2007) [FLAC|Lossless|image + .cue]<Symphonic Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1048720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indigo - Prologue 2:05
-02. The Obsessive Devotion 7:13
-03. Menace Of Vanity 4:13
-04. Chasing The Dragon 7:40(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A8FC8897D6217272DC4D4D339BDCF05E127A3D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1239327   (384379)
-
-Sunstorm (Joe Lynn Turner) - The Road To Hell (2018) Japan [FLAC|Lossless|image + .cue] <Mel
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1239327.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Only The Good Will Survive
-2. The Road To Hell
-3. On The Edge
-4. Blind The Sky(   Читать дальше...   )Жанр: Melodic Hard Rock AORПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5862A95BC67FF8052E5EE8E331B85DF9EAAFE782
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 415462   (384293)
-
-U.D.O. - Best Of U.D.O. (1999) Japanese Remastered 2008 [APE|Lossless]<Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Animal House
- 02. Break The Rules
- 03. Heart Of Gold
- 04. Two Faced Woman
- 05. Metal Eater
- 06. Desperate Balls
- 07. Future Land
- 08. Independence Day
- 09. They Want War
- 10. In The Darkness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4810AF84C9F84A19077327CA398C43FE336E246B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 849237   (384289)
-
-Друга Ріка - Supernation (2014) [MP3|320 кб с] <Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:32)
-02. Париж (дай мені вогню) (04:01)
-03. Я чую (04:08)
-04. Хто, якщо не ти? (04:20)
-05. Назавжди (НаНаМаНа) (03:03)
-06. Stop (04:49)
-07. Supernation (03:56)
-08. Де ти є? (03:33)
-09. Хто я тобі? (03:13)
-10. Засинай (03:33)Жанр: RockПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3DF418B9331C20EBF5D8DEB01E3E29EA2B9638
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 400310   (384167)
-
-Сурганова и Оркестр   Увидимся скоро (2011)[MP3|320 kbps]<Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_400310.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Интро
- 002 Увидимся скоро
- 003 Хвала
- 004 SanctumSanctorum(   Читать дальше...   )Жанр: Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C156A81A0CADFD541B4DABEC1220E1B292A816F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 936619   (384130)
-
-Bring Me The Horizon - That’s the Spirit (2015) [FLAC|tracks+.cue]<Metalcore>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_936619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doomed
-02. Happy Song
-03. Throne
-04. True Friends(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF3221BB4FC45A535A7876DA84651DB9D6CF49F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 593276   (384019)
-
-Артур Беркут - Рождественская песня (2012) [MP3|320 кб с]<Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_593276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Рождественская песняЖанр: Heavy MetalПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4A7CE13AF4042CD9E6939C3BF0985F4D6A7685
 ```
 
 #Mybot  @nnmclub_mybot

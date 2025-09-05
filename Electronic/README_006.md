@@ -1,4 +1,120 @@
 
+###  Публикация: 1279844   (471244)
+
+VA - Paul Oakenfold: Sunset At Stonehenge (2019) [MP3|320 Kbps] <House, Deep House, Electronic>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1279844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Oakenfold - Sunset At Stonehenge (Continuous Mix) 1:19:23
+02. U2 - Love Is All We Have Left 2:43
+03. The Grid - Floatation (Subsonic Grid Mix) 7:06
+04. Empire Of The Sun - We Are The People 4:28(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 03:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC30D46EEB7FA48A400D34E210EFE30607072A9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1222690   (471226)
+
+Moonbootica - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Club House>
+
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1222690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonbootica & BONDI - Lost & Found (4:28)
+02. Moonbootica & Jack Beauregard - Covered in Gold (6:12)
+03. Moonbootica & BONDI - Trippin  (4:17)
+04. Moonbootica feat. Nneka - Do Not Do Me (Like Dis) (4:11)(   Читать дальше...   )Жанр: Club HouseПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3511CFF0448D16A3D68EF49B24BBB551CF03E4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1222700   (471222)
+
+VA - Body and Soul-House (2018) [MP3|320 Kbps] <Funky, Club House>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1222700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Quin feat. Kubik LeFunk – Freak (VIP) (5:15)
+02. Hannah Wants – Dot Com (5:33)
+03. Archie B – Gassed Up (6:13)
+04. Eric Prydz – Woz Not Woz (Club Mix) (7:10)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60C6094FA053948D3861531935FBA170C2C1A6B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1279892   (471167)
+
+VA - Night Flight Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge, Electronica>
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1279892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Butler - Cloud No 9 (Original Mix)
+02. Martin Liege - Baby Come On (Original Mix)
+03. Roberto Sol & Florito feat. Ines Prados - Asi Es (Remix)
+04. Svendaq - Each Moment (Original Mix)(   Читать дальше...   )Жанр: Downtempo, ChillOut, Lounge, ElectronicaПродолжительность: 02:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E261865DB50CCD3FCA4379A51A61613211CE4D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1204531   (471166)
 
 Tzolk in - Discography 4 Releases (2004-2013) Divine Comedy Records, Ant-Zen [FLAC|Lossless|tr
@@ -29819,128 +29935,6 @@ Stardance - Stars Challenge (2017) [MP3|320 Kbps] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD8744A9CFF40D5BC72C6AE1C4B50D2D9911ADAA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1136048   (428186)
-
-Omnimar - Poison (2017) [MP3|320 Kbps] <Synth-pop, Synthwave, Darkwave>
-
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1136048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Poison 1:40
-02	I Go On On My Own 4:06
-03	Out Of My Life 5:55
-04	I Wanna Know Now 4:15(   Читать дальше...   )Жанр: Synth-pop, Synthwave, DarkwaveПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E09FE7EB4C189396D78ABD57C15A1E84249278
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 921745   (428118)
-
-Jean-Michel Jarre - Remix EP [1] (2015) [MP3|320 кб с]<Electronic, Ambient, Synth-pop>
-
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_921745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conquistador (JMJ Rmx) (3:50)
- 02. Glory (Radio Mix) (2:54)
- 03. Glory (Steve Angello Remix) (5:53)
- 04. Zero Gravity (Above And Beyond Remix) (7:20)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-popПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709FB2A72E409198C078D98D1718ADA9170E7195
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1135903   (427987)
-
-VA - Monstercat Uncaged, Vol. 1 (2017) [MP3|320 Kbps] <Drum & Bass, Drumstep, Dubstep>
-
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1135903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rogue, Stonebank & Slips & Slurs - Unity
- 02. Dirtyphonics & Bassnectar - Watch Out
- 03. Wolfgang Gartner & Aero Chord - Borneo
- 04. Unlike Pluto - Everything Black (feat. Mike Taylor)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5374C3EBE76C9B70E3F2049767D48B72ECBE0B51
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 835519   (427908)
-
-Calvin Harris - Motion (2014) [MP3|320 кб с]<Electropop, Electro House, Nu Disco, Dance>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Faith
-02. Under Control (w  Alesso Feat. Hurts)
-03. Blame (feat. John Newman)
-04. Love Now (feat. All About She)
-05. Slow Acid
-06. Outside (feat. Ellie Goulding)
-07. It Was You (w  Firebeatz)
-08. Summer
-09. Overdrive (w  Ummet Ozcan)
-10. Ecstacy (feat. Hurts)(   Читать дальше...   )Жанр: Electropop, Electro House, Nu Disco, DanceПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AED60388F0E08C3EC343E7B5A497A555C7D54EF
 ```
 
 #Mybot  @nnmclub_mybot

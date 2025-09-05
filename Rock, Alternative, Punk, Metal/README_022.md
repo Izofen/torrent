@@ -1,4 +1,265 @@
 
+###  Публикация: 1470201   (190621)
+
+Traveler - Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1470201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starbreaker
+02. Street Machine
+03. Behind The Iron
+04. Konamized(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BDB73CAF0D83E96B695D06648F3E2C28454701
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1470155   (190616)
+
+Everlasting Mortality - The Retless Waves (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1470155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallen Goddess (00:07:31)
+02. Inner Prison (00:05:27)
+03. The Bridge (00:08:25)
+04. Construct (00:06:46)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B70F33E9CED01B1175999D941B66303B173FBC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1470147   (190615)
+
+Caliban - Zeitgeister (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1470147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zeitgeister (1:18)
+02. Trauma (feat. Nasty & Matthi) (3:19)
+03. Herz (3:29)
+04. Ausbruch nach Innen (5:01)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F526F76BA14E59500E4C495BE2A2621F221C3BC3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1470162   (190611)
+
+Анатолий Черницов - Временные карусели (2021) [MP3|320 Kbps] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1470162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Удача [00:04:17]
+02 - Временные карусели [00:04:35]
+03 - Детские шалости [00:03:50]
+04 - Письмо [00:03:43](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA34EA36C5799E8D9598C65108B93417105B82F9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1470270   (190607)
+
+El Pistolero - Mexican Standoff (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1470270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sticky Fingers 03:16
+02. Desert Road 02:26
+03. Stormbringer 02:56
+04. Fear the Reaper 05:06(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471F3774C01E87ADD368AC057925CD0E2EA1325A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1469929   (190603)
+
+Kikimora - Dirty Nails (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1469929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bogeyman
+02. The Chosen One
+03. Free
+04. The Hustler(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C0F6DBC10852ADB7B65129DE90D5B7CEFCDEBE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1470197   (190602)
+
+Traveler - Termination Shock (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1470197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaded Mirror
+02. Termination Shock
+03. Foreverman
+04. Diary Of A Maiden(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2484388059F1A6374DB3F71F9631087BC832010E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1470370   (190598)
+
+Кирпичи - Старческий маразм (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rap Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1470370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Новенькового (feat. Ефр) (3:50)
+02. Учитесь плавать (feat. Александр Ф. Скляр) (1:41)
+03. Знаешь, кто я? (2:00)
+04. 25 лет чистого хейта (2:01)(   Читать дальше...   )Жанр: Alternative, Rap RockПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354394BCCB8C2765A481D6A069ABD87363ADC23C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1470276   (190532)
+
+Бахыт Компот - 16 Albums (1994-2021) [MP3|320 Kbps] <Russian Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1470276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А птица пела [00:06:58]
+02. Алёшенька живой! [00:04:24]
+03. Дождь Сергей [00:05:33]
+04. Шаман Саня [00:03:46](   Читать дальше...   )Жанр: Russian RockПродолжительность: 16CD, 13:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DECEEFAC6424D0F0B0508F57075A4E2D5C0473A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1470369   (190518)
 
 Колибри - Счастья нет (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
@@ -28702,267 +28963,6 @@ De Arma - Strayed in Shadows (2021) [MP3|320 Kbps] <Gothic Rock, Post Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6815DD3028AE4A21715A7DF5FB682316977A9D9E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1480075   (172009)
-
-Arabs in Aspic - 3 Albums (2021) [MP3|320 Kbps] <Heavy Progressive Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1480075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aspic Temple [00:00:57]
-02. Flying Norseman [00:04:12]
-03. Dive into My Eye [00:04:30]
-04. Mørket [00:04:30](   Читать дальше...   )Жанр: Heavy Progressive RockПродолжительность: 3CD, 01:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CDF1F33FF3B91CFCB0F0DFDC3D605962F460E9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1480285   (172005)
-
-Mogwai - As The Love Continues (2021) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Post Ro
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1480285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Bin My Friend, Tonight We Vacate Earth (5:09)
-02. Here We, Here We, Here We Go Forever (4:45)
-03. Dry Fantasy (5:10)
-04. Ritchie Sacramento (4:12)(   Читать дальше...   )Производство: Rock Action Records – ROCKACT140CDXЖанр: Post Rock, Alternative RockПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F992077BABA12EBDBC89F0AACC27EE019F8F88FD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1480090   (171999)
-
-Paul Gilbert - Werewolves Of Portland (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1480090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello North Dakota! 6:24
-02. My Goodness 3:32
-03. Werewolves of Portland 5:50
-04. Professorship at The Leningrad Conservatory 4:33(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9536E7BE1BE83E8387B92C5460D93AC77067E1EB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1528726   (171996)
-
-Би-2 - Я никому не верю (2022) EP [MP3|320 Kbps] <Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1528726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Би-2 - Я никому не верю
-2. Ploho - Я никому не верю
-3. Альянс - Я никому не верю
-4. BrainStorm - Broken(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CEE22F1D16B6F9F7C14982C4F282E93A40642B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1480122   (171951)
-
-Motorhead - No Sleep  Til Hammersmith (Live) (2021) 40th Anniversary Edition [MP3|320 Kbps
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1480122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ace of Spades (Live in England 1981) (40th Anniversary Master) [00:02:58]
-02 - Stay Clean (Live in England 1981) (40th Anniversary Master) [00:02:52]
-03 - Metropolis (Live in England 1981) (40th Anniversary Master) [00:03:24]
-04 - The Hammer (Live in England 1981) (40th Anniversary Master) [00:03:04](   Читать дальше...   )Жанр: Heavy Metal, Rock  N  Roll, RockПродолжительность: 04:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6851D65D4B8837ADA9E482D6A89D9F71145A13EB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1480119   (171861)
-
-Within Temptation - Shed My Skin (2021) [MP3|320 Kbps] <Symphonic Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1480119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shed My Skin (4:30)
-02. The Purge (4:16)
-03. Entertain You (3:31)
-04. Shed My Skin (Instrumental) (4:30)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F99789038412F1FB4DE7311F470D068329370A7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1390832   (171853)
-
-Protest The Hero - Palimpsest (2020) [MP3|320 Kbps] <Metalcore>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1390832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Migrant Mother (03:50)
- 02. The Canary (04:28)
- 03. From The Sky (06:15)
- 04. Harborside (01:01)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4E421545C04793AAC0BD1084CC33B0A1A94EFA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1390678   (171850)
-
-Lori Lewis - Carmina Romanus (2020) [MP3|320 Kbps] <Symphonic Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1390678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sol Invictus (03:55)
- 02. Mercury (04:12)
- 03. Venus (03:20)
- 04. Tellus (03:40)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754884ED75837F2CD7B3B92BAF1FCC27238C17D1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1390867   (171848)
-
-Quicksilver Messenger Service - Happy Trails (1969) Remastered, 1992, BGO Records [FLAC|Lossless
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1390867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Do You Love Suite, Who Do You Love (Part 1) (3:33)
-02. When You Love (5:15)
-03. Where You Love (6:07)
-04. How You Love (2:46)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Classic RockПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA0EF7BE8440966E68E307C7DC22B3331700121
 ```
 
 #Mybot  @nnmclub_mybot

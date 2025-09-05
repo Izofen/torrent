@@ -1,4 +1,120 @@
 
+###  Публикация: 1380517   (189842)
+
+Suzanne Vega - An Evening of New York Songs and Stories (2020) [FLAC|24 44.1|Lossless|WEB-DL|t
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1380517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marlene on the Wall
+02. Luka
+03. So How Many People Are Here from out of Town? 
+04. New York Is a Woman(   Читать дальше...   )Жанр: Pop, Folk RockПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D44A1DA410C8DD75F1E63BAC0786DE475B5495
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1380624   (189799)
+
+The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1380624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss You (4:49)
+ 02. When the Whip Comes Down (4:21)
+ 03. Imagination (4:39)
+ 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1380819   (189513)
+
+Andy Williams - Showstoppers. Recorded 1965 (1974) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Po
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1380819.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 On The Street Where You Live
+A2 I ve Grown Accustomed To Her Face
+A3 I Could Have Danced All Night
+A4 Get Me To The Church On Time(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CC122481EBADF9A26BC30B274DDFBE5072DCCD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1380696   (189487)
+
+Frank Sinatra - Some Nice Things I ve Missed (1974) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip]
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1380696.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. You Turned My World Around
+Kaempfert, Rehbein, Carnes, Ellingson
+A2. Sweet Caroline
+Diamond(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D96B1159D7CBF242F59C47AC06928BA6D7CF77F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1380642   (189477)
 
 VA - Love Ibiza & House Music (2020) [FLAC 2.0|44.1 24|tracks|WEB-DL] <Deep House, Minimal, Te
@@ -28812,120 +28928,6 @@ magnet:?xt=urn:btih:5B1C6A8F35D48D38D4979DA34A98D46591BCED85
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B19D64C0E70F9FBA9212CBF6B0E58E64B621342
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1411408   (102867)
-
-Nasty - Menace (2020) [FLAC|Lossless|WEB-DL-24bit-96kHz|tracks] <Hardcore Punk, Beatdown Hardcor
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1411408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ultimate [00:02:31]
-02 Bulletrain [00:00:47]
-03 Menace [00:02:18]
-04 Be Careful [00:02:38](   Читать дальше...   )Жанр: Hardcore Punk, Beatdown HardcoreПродолжительность: 00:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579939F1DEF46F46CB5F4E3B28EF1ACA3BBEFACD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1573604   (102628)
-
-Teen Suicide - honeybee table at the butterfly feast (2022) [FLAC 2.0|48 24|WEB-DL|tracks] <Po
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1573604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. you were my star [00:01:01]
-02. death wish [00:02:44]
-03. get high, breathe underwater (#3) [00:03:51]
-04. unwanted houseguest [00:03:33](   Читать дальше...   )Жанр: Pop, Rock, Alternative & IndieПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A5B36E06763CC7093FC9106AA00FB26327ECF8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1573524   (102620)
-
-Machine Head - ØF KINGDØM AND CRØWN & Bonus Tracks (2022) [FLAC 2.0|48 24|WEB-DL|tracks] <Groo
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1573524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exterøceptiøn (4:46)
-02. Arrøws In Wørds Frøm The Sky (Acoustic) (5:54)Жанр: Groove, Thrash Metal, Nu-MetalПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B7C3125FC26D9098C17F51DDD2181A17AA4155
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1411975   (102579)
-
-Valeria Валерия - The Taiga Symphony (1991) [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Blues Ro
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1411975.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Sky Belongs To Me	4:44
-A2 I Will Travel On	4:52
-A3 Song Of The City (Happening To Me)
-A4 Stay With Me(   Читать дальше...   )Жанр: Blues Rock, BalladПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393696120A072AC574012AEE0372B80B8E3A6414
 ```
 
 #Mybot  @nnmclub_mybot

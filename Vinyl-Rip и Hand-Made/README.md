@@ -1,4 +1,62 @@
 
+###  Публикация: 1815862   (760415)
+
+Huntress - Studio Albums (4 releases) (2010-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1815862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Huntress - американская хэви-метал группа из Хайленд-Парка, Калифорния, создана в 2009 году.2010 - Off With Her Head (EP)
+2012 - Spell Eater
+2013 - Starbound Beast
+2015 - StaticЖанр: Heavy MetalПродолжительность: 02:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6504B50137E67CCD3A7C1A2688B8532F592CB7E1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1815854   (760414)
+
+Evocatus - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash Metal>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1815854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Evocatus - метал-группа из Австралии, основана в 2012 году.2014 - Evocatus (EP)
+2017 - Mortem in Deos
+2020 - Path to Tartarus
+2025 - Inevitable Death(   Читать дальше...   )Жанр: Heavy/Thrash Metal, Melodic Death MetalПродолжительность: 03:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B59F17ED7164D2B3C0603BAA29A619103314621
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1815057   (760060)
 
 Щурците - Shtourtsite (1978) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Prog Rock>
@@ -29481,76 +29539,6 @@ B5 Kisses Of Fire [3:19]Жанр: Disco PopПродолжительность: 0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44648A52BDA7A5C6BC8F7FDA07DEA50C03605BF5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 685194   (567594)
-
-Lester Paul Orchestra - Tenor Saxophone Mood Collection (1975) 2LP Japan, RCA Records [FLAC 2.0
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-A1. Harlem Nocturne
-A2. Danny Boy
-A3. I Left My Heart In San Francisco
-A4. Stardust
-A5. Ebb Tide
-A6. Autumn Leaves
-B1. Broken Promises
-B2. Red Sails In The Sunset
-B3. The Lonely One
-B4. Days Of Wine And Roses(   Читать дальше...   )Жанр: Instrumental (Saxophone), Easy ListeningПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940A1D28994A6481F2D033F3871684705B5822B8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 685324   (567459)
-
-Иоган Штраус - Иоган Штраус (1964) [FLAC 2.0 24 96|tracks (Vinyl-Rip)]<Classical>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-A1. На прекрасном голубом дунае Вальс, соч.314 (8:58)
-The Beautiful Blue Danube, waltz, op.314
-A2. Трик-трак Полька-галоп, соч.214 (2:40)
-Tritsch-Tratsch, polka-galop, op.214
-A3. Венская кровь Вальс, соч.354 (8:46)
-Vienna Blood, waltz, op.354
-B1. Королевский вальс соч.437 (10:28)
-Emperor, waltz, op.437
-B2. Вечное движение Музыкальная шутка, соч.257 (5:49)
-Perpetuum Mobile, musical joke, op.257(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C196E5C32BA967205F0EE63F5A0E65E018A83EFD
 ```
 
 #Mybot  @nnmclub_mybot

@@ -1,4 +1,62 @@
 
+###  Публикация: 1314976   (136000)
+
+Middle Of The Road - It s the Middle Of The Road (1973) [FLAC 2.0|192 24|image +.cue|Vinyl-R
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1314976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Yellow Boomerang
+02. Universal Man
+03. See The Sky(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAF7AAD55B9C0712280BAD210322E49762FAB7A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1548519   (135997)
+
+Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made [restored, declipped]
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1548519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Poets of the Fall (с англ. — «Поэты Осени») — финская рок-группа, записывающаяся на собственном лейбле «Insomniac». Образовалась в Хельсинки 25 апреля 2003 года из дуэта старых друзей: вокалиста Марко Сааресто и гитариста Олли Тукиайнена, а также клавишника и продюсера Маркуса  Капитана  Каарлонена. Концертный состав «Poets of the Fall» включает (   Читать дальше...   )2005 - Signs of Life
+2006 - Carnival of Rust
+2008 - Revolution Roulette
+2010 - Twilight Theater(   Читать дальше...   )Жанр: Alternative Soft Indie RockПродолжительность: 10:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1166051   (135995)
 
 VA - Убойная Сила. Любимые песни из телесериалов (2002) [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <

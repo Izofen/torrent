@@ -1,4 +1,274 @@
 
+###  Публикация: 936873   (384474)
+
+Пионерлагерь Пыльная Радуга - Правда о потерянном времени (2015) [MP3|320 кб с]<Grunge>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_936873.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Дуальный Пастор [00:04:38]
+02. Оптимизм (автор - Игорь Летов) [00:04:57]
+03. Кавычки [00:04:11](   Читать дальше...   )Жанр: GrungeПродолжительность: 01:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A71C1F8963106536F3B3B6364238F2D660F923
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1048684   (384459)
+
+Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps] <Blues Rock, C
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1048684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thousand Percent Female     (04:36)
+02. Your Name Must Be Love     (02:41)
+03. High Mountain     (03:54)
+04. Rock n rolla Stumbler     (02:41)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910A489D50CBC49F0532341949D8720EE64ED550
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1048720   (384445)
+
+Epica - The Divine Conspiracy (2007) [FLAC|Lossless|image + .cue]<Symphonic Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1048720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indigo - Prologue 2:05
+02. The Obsessive Devotion 7:13
+03. Menace Of Vanity 4:13
+04. Chasing The Dragon 7:40(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A8FC8897D6217272DC4D4D339BDCF05E127A3D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1239327   (384379)
+
+Sunstorm (Joe Lynn Turner) - The Road To Hell (2018) Japan [FLAC|Lossless|image + .cue] <Mel
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1239327.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Only The Good Will Survive
+2. The Road To Hell
+3. On The Edge
+4. Blind The Sky(   Читать дальше...   )Жанр: Melodic Hard Rock AORПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5862A95BC67FF8052E5EE8E331B85DF9EAAFE782
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 415462   (384293)
+
+U.D.O. - Best Of U.D.O. (1999) Japanese Remastered 2008 [APE|Lossless]<Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Animal House
+ 02. Break The Rules
+ 03. Heart Of Gold
+ 04. Two Faced Woman
+ 05. Metal Eater
+ 06. Desperate Balls
+ 07. Future Land
+ 08. Independence Day
+ 09. They Want War
+ 10. In The Darkness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4810AF84C9F84A19077327CA398C43FE336E246B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 849237   (384289)
+
+Друга Ріка - Supernation (2014) [MP3|320 кб с] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:32)
+02. Париж (дай мені вогню) (04:01)
+03. Я чую (04:08)
+04. Хто, якщо не ти? (04:20)
+05. Назавжди (НаНаМаНа) (03:03)
+06. Stop (04:49)
+07. Supernation (03:56)
+08. Де ти є? (03:33)
+09. Хто я тобі? (03:13)
+10. Засинай (03:33)Жанр: RockПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3DF418B9331C20EBF5D8DEB01E3E29EA2B9638
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 400310   (384167)
+
+Сурганова и Оркестр   Увидимся скоро (2011)[MP3|320 kbps]<Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_400310.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Интро
+ 002 Увидимся скоро
+ 003 Хвала
+ 004 SanctumSanctorum(   Читать дальше...   )Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C156A81A0CADFD541B4DABEC1220E1B292A816F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 936619   (384130)
+
+Bring Me The Horizon - That’s the Spirit (2015) [FLAC|tracks+.cue]<Metalcore>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_936619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doomed
+02. Happy Song
+03. Throne
+04. True Friends(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF3221BB4FC45A535A7876DA84651DB9D6CF49F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 593276   (384019)
+
+Артур Беркут - Рождественская песня (2012) [MP3|320 кб с]<Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_593276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рождественская песняЖанр: Heavy MetalПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4A7CE13AF4042CD9E6939C3BF0985F4D6A7685
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1152277   (383972)
 
 Houwitser - Death... But Not Buried (1998) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
@@ -29108,267 +29378,6 @@ Almendra - En vivo en el Teatro del Globo (2004) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD542DB2788E554558D51EBADBEDB032237CB84
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1162045   (354726)
-
-Nebiros - Mas que vencedor (2008) [FLAC|Lossless|image + .cue] <Black Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1162045.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (Presagio) 02:10
-2. La gran ramera 04:01
-3. Enemigo oculto 05:18
-4. Ave Lucifer 06:21(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842C9B88C9128025E912D83781C8737424D57FAE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1248585   (354653)
-
-Therapy? - Cleave (2018) [MP3|320 Kbps] <Alternative Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1248585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wreck It Like Beckett
-02. Kakistocracy
-03. Callow
-04. Expelled(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D927264B3CF79DE73FBA52E0CEF5687EB2E6AE92
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1162136   (354604)
-
-Kasabian - For Crying Out Loud (2017) 2CD, Delux Edition [FLAC|Lossless|tracks+.cue] <Alternativ
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1162136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Underdog (06:09)
- 02. Bumblebee (04:33)
- 03. Shoot The Runner (03:50)
- 04. Eez-eh (03:47)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C425A318E59E503D52BBC9E909A67EA7CFAFDD7A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1248587   (354501)
-
-Billy F Gibbons (Zz Top) - The Big Bad Blues (2018) [MP3|320 Kbps] <Blues Rock, Southern Roc
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1248587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missin’ Yo’ Kissin’ (Gilly Stillwater)
-02. My Baby She Rocks
-03. Second Line
-04. Standing Around Crying (Muddy Waters)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3501E5FF6A1E1B5216F4DDA303E2E02236EC14
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1248564   (354500)
-
-Monster Magnet - 14 albums (1990-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock,
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1248564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monster Magnet, пожалуй, самые яркие представители stoner metal, ретро-течения современной музыки, базирующегося на олдовом хард-роке. Модернизируя развернутые медитативные джемы и ультратяжелые риффы корифеев 70-х (Black Sabbath, Blue Cheer, Hawkwind и так далее), используя наработки спейс-рока, гранжа и психоделии, Monster Magnet проделали длинный путь, чтобы добиться (   Читать дальше...   )Список альбомов:
-1990 | Monster Magnet
-1991 | 25... Tab (EP)
-1991 | Spine Of God(   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Psychedelic Rock, Space Rock |Продолжительность: 13:28:01 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41140CEDBC6047FE381245FF3CE12824470024E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1162265   (354475)
-
-Septicflesh - Codex Omega (2017) Deluxe Edition [MP3|320 Kbps] <Symphonic Death Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1162265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dante s Inferno
-02. 3rd Testament
-03. Portrait of a Headless Man
-04. Martyr(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7051E1E9221495DB31FC958CF9456600A063C636
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1162270   (354474)
-
-Epica - The Solace System (2017) Mini-Album [MP3|320 Kbps] <Symphonic Power Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1162270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Solace System
-02. Fight Your Demons
-03. Architect of Light
-04. Wheel of Destiny(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA6DDE79AAB23B2DD6D652EDB91E36799A86922
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1060936   (354452)
-
-Markscheider Kunst - Хамелеон (2016) [MP3|320 Kbps] <Ska, Afro-cuban jazz>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1060936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Майк
-02. Вишнёвый сад
-03. Жара
-04. Зачем(   Читать дальше...   )Жанр: Ska, Afro-cuban jazzПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09FC2043ED41A852FD9BFF1EF8C7E324964B24C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 948642   (354411)
-
-Denner   Shermann - Satan s Tomb (2015) EP [FLAC|image+.cue]<Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_948642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satan s Tomb 04:54
-02. War Witch 04:54
-03. New Gods 06:03
-04. Seven Skulls 05:09Жанр: Heavy MetalПродолжительность: 00:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A03B0E6C48479D643E78CC7553859958C51264D
 ```
 
 #Mybot  @nnmclub_mybot

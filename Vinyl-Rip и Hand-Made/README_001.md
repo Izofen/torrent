@@ -1,4 +1,74 @@
 
+###  Публикация: 685194   (567594)
+
+Lester Paul Orchestra - Tenor Saxophone Mood Collection (1975) 2LP Japan, RCA Records [FLAC 2.0
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+A1. Harlem Nocturne
+A2. Danny Boy
+A3. I Left My Heart In San Francisco
+A4. Stardust
+A5. Ebb Tide
+A6. Autumn Leaves
+B1. Broken Promises
+B2. Red Sails In The Sunset
+B3. The Lonely One
+B4. Days Of Wine And Roses(   Читать дальше...   )Жанр: Instrumental (Saxophone), Easy ListeningПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940A1D28994A6481F2D033F3871684705B5822B8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 685324   (567459)
+
+Иоган Штраус - Иоган Штраус (1964) [FLAC 2.0 24 96|tracks (Vinyl-Rip)]<Classical>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+A1. На прекрасном голубом дунае Вальс, соч.314 (8:58)
+The Beautiful Blue Danube, waltz, op.314
+A2. Трик-трак Полька-галоп, соч.214 (2:40)
+Tritsch-Tratsch, polka-galop, op.214
+A3. Венская кровь Вальс, соч.354 (8:46)
+Vienna Blood, waltz, op.354
+B1. Королевский вальс соч.437 (10:28)
+Emperor, waltz, op.437
+B2. Вечное движение Музыкальная шутка, соч.257 (5:49)
+Perpetuum Mobile, musical joke, op.257(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C196E5C32BA967205F0EE63F5A0E65E018A83EFD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 685328   (567456)
 
 ABBA - The Singles (The First Ten Years) (1982) 2LP [FLAC 2.0 24 192|image (Vinyl-Rip)
@@ -29414,64 +29484,6 @@ A4 Cheryl Lynn - At Last You`re Mine(   Читать дальше...   )Жанр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1314976   (136000)
-
-Middle Of The Road - It s the Middle Of The Road (1973) [FLAC 2.0|192 24|image +.cue|Vinyl-R
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1314976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-01. Yellow Boomerang
-02. Universal Man
-03. See The Sky(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CAF7AAD55B9C0712280BAD210322E49762FAB7A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1548519   (135997)
-
-Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made [restored, declipped]
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1548519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Poets of the Fall (с англ. — «Поэты Осени») — финская рок-группа, записывающаяся на собственном лейбле «Insomniac». Образовалась в Хельсинки 25 апреля 2003 года из дуэта старых друзей: вокалиста Марко Сааресто и гитариста Олли Тукиайнена, а также клавишника и продюсера Маркуса  Капитана  Каарлонена. Концертный состав «Poets of the Fall» включает (   Читать дальше...   )2005 - Signs of Life
-2006 - Carnival of Rust
-2008 - Revolution Roulette
-2010 - Twilight Theater(   Читать дальше...   )Жанр: Alternative Soft Indie RockПродолжительность: 10:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
 ```
 
 #Mybot  @nnmclub_mybot

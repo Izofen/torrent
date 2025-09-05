@@ -1,4 +1,262 @@
 
+###  Публикация: 1172332   (330733)
+
+Mystery Blue - Conquer The World (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1172332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquer The World (04:28)
+02. Innocent Crime (04:51)
+03. Running With The Pack (03:59)
+04. Evil Spell (04:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F3E445118B0E1EB2D366652E80F03292827C00
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1172318   (330732)
+
+Oxiplegatz - Worlds and Worlds (1997) [APE|Lossless|image + .cue] <Avant-garde Black Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1172318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle of Species
+02. First Contact - Conflict
+03. Aftermath
+04. Quest(   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDE969EFF58229632D24D51202427E8A10406B2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1172308   (330731)
+
+Helker - Resistir (2008) [FLAC|Lossless|image + .cue] <Power Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1172308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resistir
+02. Basurero Nuclear
+03. Contra la Corriente
+04. Nunca Más(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AFF5AE7005B6B45E1F0345BACA7BDB2E6EBC7E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1172311   (330730)
+
+Helker - En Algun Lugar Del Circulo (2013) [FLAC|Lossless|image + .cue] <Power Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1172311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuevo Circo Romano
+02. Redencióm
+03. Fantasmas Del Pasado
+04. Al Final Del Camino(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897DBD993A2BB794659F638579312C19ECEBDDCD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1172309   (330728)
+
+Helker - A.D.N. (2010) [FLAC|Lossless|image + .cue] <Power Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1172309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arde Dentro Nuestro
+02. Tus Mentiras
+03. Falsos Profetas
+04. Igual Que A Vos(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF513B22DA1FD462AD1A3446B302206DF0B5B6F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1172342   (330727)
+
+Infinity - Hybris (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1172342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arousing the Sleeping SerpentЖанр: Black MetalПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6879A4AE3146BF12A0460C8BCCED9A474FF2582
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1172394   (330726)
+
+Hydra - Land Of Money (1975) Reissue, 1999, Capricorn Records [MP3|320 Kbps] <Rock, Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1172394.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Little Miss Rock N  Roll
+2. The Pistol
+3. Makin  Plans
+4. Land Of Money(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19411C65C9823EC663B5AC5064872D9487F12A86
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1172346   (330723)
+
+Loudness - Super Best (2013) japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1172346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Let It Go
+02 Black Star Oblivion
+03 S.D.I.
+04 Rock n Roll Gypsy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F25118B07FCA0D1157B490F531F4DA440DE581
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1172509   (330669)
+
+Gamma Ray - Alive  95 (1996) 2CD, Japanese Edition, 2017, Remastered, Ear Music [FLAC|Lossless
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1172509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Return (4:02)
+ 02. Changes (5:23)
+ 03. Insanity & Genius (4:10)
+ 04. Last Before The Storm (4:12)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed MetalПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71CAFCBB1B2D1724185E610BE317A64A9DAC4735
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1172407   (330630)
 
 The Black Dahlia Murder - Nightbringers (2017) Limited Edition [MP3|320 Kbps] <Melodic Death Met
@@ -29144,318 +29402,6 @@ Abinchova - Wegweiser (2014) [FLAC|Lossless]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C4BE81534177B5A84E786CB16347E12A622AE0D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 854468   (303209)
-
-Shades Before Dawn - Blinded By The Inability To See Beyond (2014) [MP3|320 кб с]<Progressive
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Departures 04:31
-02. Somewhere Out Of The Reach 04:03
-03. Blinded By The Inability To See Beyond 03:31
-04. On The Streets Of New York City 03:54
-05. Riding A Metalhead s Truck 03:08
-06. Arrivals 05:32
-07. Before The Dawn 04:18
-08. A Few Seconds After 02:56
-09. Theater Of Tragedy (Falling To Pieces) 04:37
-10. Slaying The Slayer 02:43(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7125BA05F2CFF879389BB10619A628653ACE7B44
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 854871   (303206)
-
-Sirens Over Sumeria - Sirens Over Sumeria (2014) [MP3|320 кб с]<Progressive Metalcore>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854871.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cipher
-2. Sovereign
-3. Phase I: Revelation
-4. Phase II: Paradise Or Perdition
-5. Phase III: Vox Populi
-6. Black Horse Sex Cartel
-7. Medicine Man
-8. Hypocrites & Heretics
-9. For Answer
-10. FactionЖанр: Progressive MetalcoreПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8610C8F1B5BDA5E26E6567BC92C3D712DF57D750
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 854932   (303205)
-
-Stormcast - Frame Of Mind (2014) [FLAC|Lossless]<Atmospheric Melodic Black Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Executioner
-02. Wishful Bliss
-03. New World Order
-04. Of Flesh And Stone
-05. Withdrawn
-06. In Entropy
-07. Immune
-08. DysthimiaЖанр: Atmospheric Melodic Black MetalПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C719BE632A735EC8F8AD71106D05E944606C447
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 854572   (303202)
-
-Starkill - Virus Of The Mind (2014) [MP3|320 кб с]<Melodic Death Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Be Dead Or Die
-2. Winter Desolation
-3. Breaking The Madness
-4. Virus Of The Mind
-5. Skyward
-6. Before Hope Fades
-7. Into Destiny
-8. God Of This World
-9. My Catharsis
-10. ConvergenceЖанр: Melodic Death MetalПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C7DE77B192E026525F0C3EEABFF6412CDF286D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 853677   (303200)
-
-Beitthemeans - Head Held High (2011) [MP3|320 кб с]<Southern Rock  Hard Blues Rock  Stoner
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_853677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:24]
-02. Head Held High [03:54]
-03. The Ballad of Jack Hatchet [02:56]
-04. Pots in the Kitchen [03:05]
-05. All My Kinfolk [02:53]
-06. God Wears a Houndstooth [02:10]
-07. Tombstone Heart [06:49]
-08. Virginia Healer [03:22]
-09. Black Water [04:11]
-10. Ain t No Use [03:20]Жанр: Southern Rock  Hard Blues Rock  StonerПродолжительность: 00:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BEEE41766CD01FC110225CE3CA2774CE42F9AEC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 854650   (303197)
-
-Zed Yago - Pilgrimage (1989) [FLAC|Lossless]<Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pilgrim s Choir [02:10]
-02. Pilgrimage [04:29]
-03. The Fear Of Death [05:42]
-04. Pioneer Of The Storm [04:11]
-05. Black Bone Song [05:10]
-06. Rose of Martyrdom [04:38]
-07. The Man Who Stole The Holy Fire [04:45]
-08. Achilles Heel [03:57]
-09. The Pale Man [04:51]
-10. Omega Child [04:04](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8CC87AAF6395423C1EC6E3FE64EFA60DD8E075
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 854347   (303196)
-
-Stallion - Rise and Ride (2014) [MP3|320 кб с]<Heavy Metal Speed Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise and Ride
-02. Wild Stallions
-03. Streets Of Sin
-04. Stigmatized
-05. Canadian Steele
-06. Bills To Pay
-07. Watch Out
-08. The Right One
-09. The Devil Never Sleeps
-10. Wooden HorseЖанр: Heavy Metal Speed MetalПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E392A25D6C5DE8ACC46CAB46D9FC3BF5B200ED
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 854870   (303195)
-
-Atlas Losing Grip - Currents (2015) [MP3|320 кб с]<Melodic Punk Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinking Ship
-02. The Curse
-03. Cynosure
-04. Shallow
-05. Nemesis
-06. Closure
-07. Kings And Fools
-08. Cast Anchor
-09. Unknown Waters
-10. The End(   Читать дальше...   )Жанр: Melodic Punk RockПродолжительность: 01:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA707645A22994767C8B7028BA83A7262F0BC244
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 854977   (303194)
-
-Alltheniko - Fast And Glorious (2014) [WavPack|Lossless]<Power Speed Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tank Of Death (04:53)
-02. Fast And Glorious (04:47)
-03. KaiserSteel (05:32)
-04. Holy War, Holy Fighters (04:54)
-05. Scream For Exciter (04:30)
-06. Spirit Of War (04:35)
-07. Power To Rebel (06:42)
-08. The Arenas God (04:33)
-09. Power And The Glory I.U.W.S. (Saxon cover) (05:18)Жанр: Power Speed MetalПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD97FFB160E6E00C0094946ABDA7C9CADF95AEB7
 ```
 
 #Mybot  @nnmclub_mybot

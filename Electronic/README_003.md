@@ -1,4 +1,130 @@
 
+###  Публикация: 656866   (593088)
+
+VA - Candle Lounge: Emotional & Sensual Grooves (2011) [FLAC|Lossless]<Lounge, Chillout, Downtem
+
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+Продолжительность: 01:09:40
+01. Erick Morillo & Eddie Thoneick feat. Shawnee Taylor - Live Your Life (Eddie ThoneickґS Chill Out Mix)
+02. Josete Ordoсez - Isla Maria
+03. Agua Loca Project - Marea Morada
+04. NEWTON - Cologne City Waves
+05. Lazy Hammock - Lazy Hammock
+06. Levthand - Cadillac Track (Solar Moon Backseat Dub Instrumental)
+07. M. Pollastro aka DjLopo feat. E. Marenco - Natural Paradise
+08. S.E.L. - Necessary (F.A.I Sunset Chillout Remix)(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 02:22:11
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 775686   (593076)
+
+Asonat - Discography 5 Releases (2012-2014) [MP3|320 кб с]<IDM, Downtempo, Ambient>
+
+
+>>Electronic
+>>IDM
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_775686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: IDM, Downtempo, Ambient |Продолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFF0CA89D8F96C3FDB55CFF320DE0350A72CE16
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 881769   (593071)
+
+Mind.In.A.Box - Memories (2015) [FLAC|Lossless|WEB-DL]<Synthpop, Electro>
+
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Travel Guide (04:48)
+ 02. I Knew (05:00)
+ 03. Unforgiving World (05:42)
+ 04. No Hope (06:18)
+ 05. Synchronize (05:03)(   Читать дальше...   )Жанр: Synthpop, ElectroПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A5007CB675ED27AE63626D71B9ED4C07B833C3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 657191   (593064)
+
+Solarsoul - Defying Gravity (2013) [Web|FLAC|Lossless]<Chillout, Ambient>
+
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. A Star Is Born (05:28)
+02. About Eternal Wandering and About the Earth (Memory of Ray Bradbury) (10:13)
+03. Magellanic Clouds (Original Ambient Dub Mix) (04:48)
+04. The Starry Sky (feat. Nimanty) (Original Space Ambient Mix) (13:46)
+05. There, Where We Will Meet Again (06:16)
+06. Defying Gravity (Original Ambient Space Mix) (07:43)
+07. Metamorphosis of the Mind (Hypnosis Original Mix) (06:51)
+08. The Goldilocks Zone (08:20)
+09. Midnight (Original Ambient Mix) (05:24)
+10. Blurring the Boundaries (Original Ambient Mix) (05:15)(   Читать дальше...   )Жанр: Chillout, AmbientПродолжительность: 01:49:06
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 656614   (593062)
 
 Mesh - Automation Baby (Automation>>Baby) (2013) [FLAC|Lossless]<Electronic, Synthpop>
@@ -30769,122 +30895,6 @@ magnet:?xt=urn:btih:B22E3EB39667DEA21B430BE0C1E2C5872B2ACD37
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B55B7372C78B3F86545CB15D1139164AB6051187
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1029663   (534188)
-
-VA - Energizing Workout Hits (2016) [MP3|320 Kbps] <House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1029663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Newell And Jess Glynne And Dj Cassidy - Kill The Lights (Audien Remix)
-02. Andy Vayel - Pleasant Pain (Original Mix)
-03. Anthony Vince - Want To Dance (Radio Mix)
-04. Antoine Clamaran Feat. Lulu Hughes - Hallelujah (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC429F0B588EDC5978087045F327BF3F0867B23
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1090528   (534154)
-
-VA - MuviSpace Vol.1-15 (2009-2016) [MP3|320 Kbps] <Spacesynth, Electronic>
-
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1090528.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009 - MuviSpace Vol.1 (Space Battle) (Re-Release 2013)
-2009 - MuviSpace Vol.2 (Hot Planet Party) (Re-Release 2013)
-2011 - MuviSpace Vol.3 (Another Planet)
-2012 - MuviSpace Vol.4(   Читать дальше...   )Жанр: Spacesynth, ElectronicПродолжительность: 22:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5FE00E4B9C6749F54E150B073C694A428FBEFCF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1090859   (534144)
-
-VA - New Age & Relaxing Music Selection (2016)(11CD) [FLAC|Lossless|image + .cue] <New Age,
-
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Kevin Keller - Reflection
-02. Schawkie Roth - Summer Rain
-03. Tron Syversen - Dreams Of Passion
-04. Christa Michell - La monotonia(   Читать дальше...   )Жанр: New Age, Meditation,RelaxПродолжительность: 14:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E95969AB3A3831AC32270040FF015B188566EE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1029843   (534081)
-
-VA - Balkan Connection Summer 2016 (2016) [MP3|320 Kbps] <Deep House, Tech House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1029843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subconscious Tales - Helligkeit [07:51]
-02. Praveen Achary, Vlada D Shake - Public Secret (Praveen Achary Remix) [06:48]
-03. Matter, Jorgio Kioris - Pushin  (Matter s Pushin Too Hard Remix) [08:37]
-04. Rick Pier O Neil, Dio S, Desaturate - Nonchalance (Rick Pier O Neil & Desaturate Remix) [07:23](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE67F30AC0A7F5A94C1EDB8D435BD2372476FFD1
 ```
 
 #Mybot  @nnmclub_mybot

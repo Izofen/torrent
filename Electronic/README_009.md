@@ -1,4 +1,120 @@
 
+###  Публикация: 1069858   (344121)
+
+Mario Hammer And The Lonely Robot - L’esprit De L’escalier Remixes (2016) [FLAC|Lossless|WEB-DL|
+
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1069858.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mono No Aware L’esprit De L’escalier (Extrawelt Redux) (9:33)
+2. Mono No Aware L’esprit De L’escalier (Extrawelt Tool) (8:22)
+3. Sirimiri Hammersche Modularverschaltung (Thyladomid Jonas Mantey Retouch) (9:02)
+4. Misodoctakleidist (Mario Hammer & The Lonely Robot edit) (5:19)(   Читать дальше...   )Жанр: Techno, Tech House, IDMПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E711EC66708EE587E3A6538E9CCDA965A1CDE794
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1069751   (344109)
+
+Velvet Dreamer - Remixed (2016) [MP3|320 Kbps] <Electronic, Chill Out, Lounge>
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1069751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1000 Miles Away (Simon & Florzinho Remix)
+ 02. Sky Is Falling (Mo’jardo Remix)
+ 03. Crystal Water (Five Seasons Remix)
+ 04. Frozen (Mirage Of Deep Remix)(   Читать дальше...   )Жанр: Electronic, Chill Out, LoungeПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E330A5BBEF979317658D10CC7FA34C76C38D5E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1070372   (344067)
+
+Airwave - Trilogique (Progressive Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance,Prog
+
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1070372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intrusion (08:16)
+02. Appletonz (09:24)
+03. 8bitz (09:24)
+04. Close Encounters (08:27)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0724313ECC55C9E63BC2259002A0B29DFC4D03B4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1166577   (344009)
+
+VA - Ori Uplift & Tycoos - Uplifting Only 240 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1166577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Seas - Ergaticus (Intro Mix)
+02. Suplifth - Victory (AirLab7 Remix)
+03. New World - Ikigai
+04. Artifi - Summer Breeze(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD58282B98F6EDCB5D05B1641ED98B0C09B7B20A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1070263   (343991)
 
 Skinny Puppy - Weapon (2013) [FLAC|Lossless|image + .cue] <Industrial, EBM, Electro, Experimenta
@@ -28852,128 +28968,6 @@ VA - Post Workout Stretching: Music Chillout After Your Workout (2017) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B881829AC85BECFF7778077CF3AD454854012C4A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 965439   (309632)
-
-Colombo - Abandoned Factory II (2015) [MP3|320 кб с] <Breaks>
-
-
->>Electronic
->>Drum n Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_965439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enjoy This Trip (Original Mix) (6:21)
-02. Hesitation (Original Mix) (5:10)
-03. Cuckoo (Original Mix) (6:16)
-04. Homesick (Original Mix) (6:01)(   Читать дальше...   )Жанр: BreaksПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D95A56FFED1767203744E5373C98C1D35F367A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 852492   (309610)
-
-Alic - Sliders (2014) EP [FLAC|tracks|WEB-DL]<Progressive, Techno>
-
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_852492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sliders   (6:03)
-02.  Sliders (Trilingo Remix)   (6:40)
-03.  Sliders (Pallida Remix)   (8:09)
-04.  Esperanto   (6:18)Жанр: Progressive, TechnoПродолжительность: 00:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8DBA24241D9E5F7B81414FA57995FDD4238FD0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 852531   (309498)
-
-Nicone - Let Love Begin (2013) [FLAC|Lossless|WEB-DL]<Deep House, Tech House>
-
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_852531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Love Begin feat. Malonda [6:56]
-02. Hysterminia [6:48]
-03. Candelaria feat. Narra [6:30]
-04. You Are My Best Meowfucker [6:56]
-05. Heroine [8:36]
-06. Burnhain [6:47]
-07. Querido feat. Sascha Braemer and Yvy [5:37]
-08. Keep It Deep feat. Benjamin Franklin [6:35]
-09. Wish U feat. Sascha Braemer [6:21]
-10. All Right feat. Malonda [7:00](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D16FE513E174493A4B84C9526D86961484887A4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1081966   (309458)
-
-VA - Mainstage Music Top 10 (2016) [MP3|320 Kbps] <House, Electro House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1081966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W&W - How Many 2:48
-02. TWIIG - Hero 3:00
-03. Maurice West - Dont You Say 3:10
-04. W&W with Hardwell & Lil Jon - Live The Night 2:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 00:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D9ADB4B4B0EF2A1C32D25C199B1F625821D3DD
 ```
 
 #Mybot  @nnmclub_mybot

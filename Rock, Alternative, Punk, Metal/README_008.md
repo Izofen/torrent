@@ -1,4 +1,270 @@
 
+###  Публикация: 699658   (552852)
+
+Black Sabbath - The Complete 70 s Replica CD Collection (1970-1978) 8CD Box Set  2001, Castl
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_699658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1970 Black Sabbath
+1970 Paranoid
+1971 Master of Reality
+1972 Volume 4
+1973 Sabbath Bloody Sabbath
+1975 Sabotage
+1976 Technical Ecstasy
+1978 Never Say Die!Жанр: Hard Rock, Heavy MetalПродолжительность: 05:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDC4A107BB5A35C0FD342FD242221455B89EA95
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1018241   (552812)
+
+Aftershok - Detonate (2016) [MP3|320 кб с] <Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1018241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude To Fear
+02. Enter The Dark
+03. Hang  Em High
+04. The World United(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B380EF74B8F02095E0DC122B79D0413D009FEA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1018059   (552811)
+
+Agonizer - Visions Of The Blind (2016) [MP3|320 кб с] <Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1018059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Alone
+02. Devil
+03. Pieces
+04. Haze(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CCB995EC2BB35CB7BE464AFE40BB4F94F18B58
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1018252   (552810)
+
+Stairway - Power and Glory (2016) [MP3|320 кб с] <Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1018252.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lucy Fuhr
+2. 1917   Fatherless Child
+3. Overture 1418
+4. A Mind Insane(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BB5C791197E4E80DA76FDC4E7C2A7DD4DF70DE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1018254   (552801)
+
+Assassin - Combat Cathedral (2016) [MP3|320 кб с] <Thrash Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1018254.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Back From The Dead
+2. Frozen Before Impact
+3. Undying Mortality
+4. Servant Of Fear(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D9369F3626A3620F8D5493541BFE811631E0BF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1018238   (552787)
+
+Lonewolf - The Heathen Dawn (2016) [MP3|320 кб с] <Speed Metal, Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1018238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Call to Wolfes
+02. Wolfsblut
+03. Demon s Fire
+04. Keeper of the Underwolrd(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D967A995A5D7941021400F89AC69B4FFF17FB2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1018025   (552785)
+
+Rialto - Rialto (1998) [APE|Lossless|image + .cue] <Alternative Rock, Brit Pop>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1018025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Monday Morning 5:19	[04:50]
+02.	Dream Another Dream	[03:30]
+03.	Broken Barbie Doll	[04:19]
+04.	Summer s Over	[04:39](   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF389FD2F360F04148230F3ED2EC71E7178D3A9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1018150   (552779)
+
+Suidakra - Realms Of Odoric (2016) [MP3|320 кб с] <Epic Metal, MDM, Viking Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1018150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Realm
+02. The Serpent Within
+03. The Hunter s Horde
+04. Creeping Blood(   Читать дальше...   )Жанр: Epic Metal,MDM,Viking MetalПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC500EF9962050D0D47CF8EC6BFC7C2F131175E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1018240   (552778)
+
+Visionatica - Force Of Luna (2016) [MP3|320 кб с] <Symphonic Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1018240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visions (Intro)
+02. Swamp Of The World
+03. Lilith
+04. She Wolf(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EABA5FB3EA8FCC5EF7CE5A0B6E8E6D2EA79A7C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1018136   (552775)
 
 VA - Metal For The Masses: The Ninth Gate (2011) [FLAC|Lossless|image + .cue] <Grindcore, Viking
@@ -31595,291 +31861,6 @@ magnet:?xt=urn:btih:F6489B1B44145761A36FD73986AC9A622B3091C8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92D3A5040112E7809119E55B2B86DF9BE6CC2AD8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1093968   (525830)
-
-Simon Kinny-Lewis - Country Fried Chicken (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Bl
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1093968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Blue Pellet Shuffle 05:01
-02 Conan The Barbarihen 05:08
-03 Fire Fox 02:34
-04 Ocean Call 04:54(   Читать дальше...   )Жанр: Blues, Blues-Rock, Guitar Jazzy BluesПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5344A9E3D84F7C139B48854BE1BB86E321938E4D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1093788   (525825)
-
-Saviour - Let Me Leave (2017) [MP3|320 Kbps] <Melodic Hardcore, Post-Hardcore, Male & Female Voc
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1093788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. April
-02. All I Am Is You
-03. The Quiet Calm
-04. Pressure And Composure(   Читать дальше...   )Жанр: Melodic Hardcore, Post-Hardcore, Male & Female VocalsПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E3116E7628CBB55FE9DD4A65EE2D51AF8D3318
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1094013   (525818)
-
-Utopia - Oops! Wrong Planet (1977) Remastered, 1995, Mobile Fidelity Sound Lab [MP3|320 Kbps] <S
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1094013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trapped
-02. Windows
-03. Love In Action
-04. Crazy Lady Blue(   Читать дальше...   )Жанр: Synth Pop, Prog Rock, Art RockПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0015859709235DC362C38EED22A489BB2FA46666
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1093790   (525813)
-
-Code Orange - Forever (2017) [MP3|320 Kbps] <Hardcore Punk, Chaotic Hardcore, Sludge>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1093790.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Forever
-2. Kill The Creator
-3. Real
-4. Bleeding In The Blur(   Читать дальше...   )Жанр: Hardcore Punk, Chaotic Hardcore, SludgeПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8ABA0D965F59B8C8F80499BF5921F18E5F52E7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 714251   (525805)
-
-Paul McCartney - New (2013) [FLAC|Lossless]<Classic Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01.  Save Us   (2:39)
-02.  Alligator   (3:27)
-03.  On My Way To Work   (3:43)
-04.  Queenie Eye   (3:48)
-05.  Early Days   (4:08)
-06.  New   (2:57)
-07.  Appreciate   (4:29)
-08.  Everybody Out There   (3:21)
-09.  Hosanna   (3:30)
-10.  I Can Bet   (3:22)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663B4AB34DA1B24180DABB46EFED7D140DF95611
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 714390   (525804)
-
-Kiev - Falling Bough Wisdom Teeth (2013) [MP3|320 кб с]<Indie Rock, Alternative Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsing: Cough Focus
- 02. Ariah Being 3
- 03. Solving and Running
- 04. Falling Bough
- 05. Tube Orms
- 06. Pulsing: Tired Lungs
- 07. Drag Bones
- 08. Animals in Garden
- 09. Pulsing: Wisdom Teeth
- 10. Trees Are Trees(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6F9C825D1ED01A920A81547CA6F5393811EEC8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 864183   (525795)
-
-Blood, Sweat & Tears - Super Hits (1998) [APE|Lossless]<Jazz Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Spinning wheel
-02. You ve made me so very happy
-03. More and more
-04. And when I die
-05. I can t quit her
-06. Somethin  goin  on
-07. Just one smile
-08. I love you more than you ll ever know
-09. Roller coaster
-10. John The Baptist (Holy John)Жанр: Jazz RockПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FD83985C38C17ED73078FC27D237DA6D45BFD4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 864089   (525782)
-
-Xiphea - From The Uncharted Island (2015) [MP3|320 кб с]<Symphonic Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Kissed By the Moon
-02. The Curse
-03. Monument
-04. Crossroads of Dreams
-05. Beauty and the King
-06. Butterflies
-07. Star-Crossed Lover
-08. From the Uncharted Island
-09. With Flames Inside
-10. Sweet the TaleЖанр: Symphonic MetalПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B05C1AA00D9D60B3813A793DBBD2A086E97F81
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1093915   (525718)
-
-Gotthard - Silver (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1093915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver River (3:39)
-02. Electrified (4:00)
-03. Stay With Me (4:00)
-04. Beautiful (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7192ABB97C65389CFD6AF7581B0EEBFF553EA5
 ```
 
 #Mybot  @nnmclub_mybot

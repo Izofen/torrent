@@ -1,4 +1,144 @@
 
+###  Публикация: 767096   (657855)
+
+Markus Schulz - Scream 2 (2014) [FLAC|Lossless]<Trance>
+
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Reloaded
+ 02. Markus Schulz with Venom One feat. Chris Madin - Revolution
+ 03. Markus Schulz feat. Liz Primo - Blown Away
+ 04. Markus Schulz - Remember This
+ 05. Markus Schulz feat. Lady V - Erase You
+ 06. Markus Schulz - Destino
+ 07. Markus Schulz feat. Adina Butar - Muse
+ 08. Markus Schulz - Dancing In The Key Of Life
+ 09. Markus Schulz feat. Liz Horsman - Lord Knows
+ 10. Markus Schulz with Klauss Goulart feat. Paul Aiden - Fireworks(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E1FBAE142CEBD26C653F278CA5C917467EEBE0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 766949   (657796)
+
+VA - Spinnin Records: Best of 2013 [FLAC|Lossless]<House, Deep House, Electro>
+
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix - Animals (Original Mix) (05:04)
+ 02. DVBBS & Borgeous - Tsunami (Original Mix) (03:56)
+ 03. Dimitri Vegas, Moguai & Like Mike - Mammoth (Original Mix) (05:32)
+ 04. Sander van Doorn - Joyenergizer (Original Mix) (05:14)
+ 05. Dimitri Vegas & Like Mike vs. DVBBS & Borgeous - Stampede (Original Mix) (04:17)
+ 06. Showtek feat. We Are Loud & Sonny Wilson - Booyah (Original Mix) (05:11)
+ 07. Fedde Le Grand & Sultan + Ned Shepard - No Good (Extended Mix) (05:16)
+ 08. New World Sound & Thomas Newson - Flute (Original Mix) (04:47)
+ 09. R3hab & NERVO & Ummet Ozcan - Revolution (Instrumental Mix) (04:03)
+ 10. Nari & Milani vs. Maurizio Gubellini feat. Nicci - Vago (Original Mix) (05:11)Жанр: House, Deep House, ElectroПродолжительность: 02:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409D797CFA541007AB2A9B45966028D8154ACD84
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 275573   (657678)
+
+Hooverphonic - 11 альбомов (1996-2012) [FLAC|Lossless]<Trip-hop, Lounge, Downtempo - Vocal>
+
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. In Gold 05:35
+02. Icy 04:20
+03. Rope Dancer 03:05
+04. Strange Disorder 04:25
+05. 107 Windows 03:42
+06. Unlock 04:10
+07. Smile 04:43
+08. Blinded 04:59
+09. For The Beauty Of Confusion 04:16
+10. Night Time  round Here 04:25(   Читать дальше...   )Жанр: Trip-hop, Lounge, Downtempo - Vocal  |Продолжительность: 00:51:23
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 767780   (657295)
+
+Tetris Fingers - 3 Am Rendezvous (2014) [FLAC|Lossless]<House, Trap, Basss, Dubstep>
+
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Snowed In (04:06)
+ 02. 8991 (05:02)
+ 03. When She Found Out (04:18)
+ 04. Sunday Jam (05:01)
+ 05. Water Board (02:15)
+ 06. Udon (interlude) (03:20)
+ 07. Autum (02:36)
+ 08. Willys (03:31)
+ 09. Diamond Juke (04:36)
+ 10. Bad Day (04:39)(   Читать дальше...   )Жанр: House, Trap, Basss, DubstepПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1EECCBD06385AB4A27C96A8DBBE87C60B9AC2D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 767784   (657280)
 
 VA - Ambient Interstellar (2014) [MP3|320 кб с]<Ambient, Downtempo, Chillout>
@@ -33163,132 +33303,6 @@ Jouem - Episodes 4 8 - Reflections On The Rise (2015) [FLAC|Lossless|Vinyl]<Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2441F30348D86345872386E20C38A51ACB67F3A2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 656866   (593088)
-
-VA - Candle Lounge: Emotional & Sensual Grooves (2011) [FLAC|Lossless]<Lounge, Chillout, Downtem
-
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-Продолжительность: 01:09:40
-01. Erick Morillo & Eddie Thoneick feat. Shawnee Taylor - Live Your Life (Eddie ThoneickґS Chill Out Mix)
-02. Josete Ordoсez - Isla Maria
-03. Agua Loca Project - Marea Morada
-04. NEWTON - Cologne City Waves
-05. Lazy Hammock - Lazy Hammock
-06. Levthand - Cadillac Track (Solar Moon Backseat Dub Instrumental)
-07. M. Pollastro aka DjLopo feat. E. Marenco - Natural Paradise
-08. S.E.L. - Necessary (F.A.I Sunset Chillout Remix)(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 02:22:11
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 775686   (593076)
-
-Asonat - Discography 5 Releases (2012-2014) [MP3|320 кб с]<IDM, Downtempo, Ambient>
-
-
->>Electronic
->>IDM
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_775686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: IDM, Downtempo, Ambient |Продолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFF0CA89D8F96C3FDB55CFF320DE0350A72CE16
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 881769   (593071)
-
-Mind.In.A.Box - Memories (2015) [FLAC|Lossless|WEB-DL]<Synthpop, Electro>
-
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Travel Guide (04:48)
- 02. I Knew (05:00)
- 03. Unforgiving World (05:42)
- 04. No Hope (06:18)
- 05. Synchronize (05:03)(   Читать дальше...   )Жанр: Synthpop, ElectroПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A5007CB675ED27AE63626D71B9ED4C07B833C3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 657191   (593064)
-
-Solarsoul - Defying Gravity (2013) [Web|FLAC|Lossless]<Chillout, Ambient>
-
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. A Star Is Born (05:28)
-02. About Eternal Wandering and About the Earth (Memory of Ray Bradbury) (10:13)
-03. Magellanic Clouds (Original Ambient Dub Mix) (04:48)
-04. The Starry Sky (feat. Nimanty) (Original Space Ambient Mix) (13:46)
-05. There, Where We Will Meet Again (06:16)
-06. Defying Gravity (Original Ambient Space Mix) (07:43)
-07. Metamorphosis of the Mind (Hypnosis Original Mix) (06:51)
-08. The Goldilocks Zone (08:20)
-09. Midnight (Original Ambient Mix) (05:24)
-10. Blurring the Boundaries (Original Ambient Mix) (05:15)(   Читать дальше...   )Жанр: Chillout, AmbientПродолжительность: 01:49:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 #Mybot  @nnmclub_mybot

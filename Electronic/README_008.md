@@ -1,4 +1,132 @@
 
+###  Публикация: 1152324   (383901)
+
+VA - Ori Uplift & Rich Triphonic - Uplifting Only 232 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1152324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afternova - The One
+02. Kaimo K & Sarah Russell - Be My Guide
+03. Etasonic - Farewell Forever
+04. Sylvia Tosun & Pino Benji - Lost in a Feeling (Digital X Extended Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75DD964897ED4B904E8E6F3B793A7BEA83E3811
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 738332   (383882)
+
+VA - House Your Pool Party (2013) [MP3|320 кб с]<House>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+001. Addy - Ethnic
+002. Saeed Younan - Clockin
+003. DJ Ortzy & Jean Pierre - The Night (NY Mix)
+004. Saeed Younan - House Is (feat. Mustafa Akbor)
+005. Omid S - La Masalla
+006. Sideburn - Soleil
+007. Alexander Fog - Interface
+008. Redondo & Sideburn - Lacuna
+009. Gino Russo - Dream Life
+010. Sebastian Ledher & Patrick M - Zumba Ea(   Читать дальше...   )Жанр: HouseПродолжительность: 02:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34D8DF454B65F9277C07B86C2173CAF0E48CA06
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 738075   (383877)
+
+VA - Hope Recordings Presents XV (1998-2013) (2013) [MP3|320 кб с]<House, Progressive Hous
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Kastis Torrau - Hero (Original Mix) (07:29)
+ 02. Leftfield - Song of Life (Betoko Mix) (07:39)
+ 03. Kastis Torrau - Monster (Original Mix) (07:20)
+ 04. Nick Warren - La Fabrica (Warehouse Mix) (06:43)
+ 05. Black - Fields of Gold (Original Mix) (08:00)
+ 06. Simply City - Zero Distance (Original Mix) (08:20)
+ 07. Simply City - Breaking (Dave Angel Rework) (08:02)
+ 08. Paul Hazendonk - Slack Tide (Original Mix) (08:19)
+ 09. Nick Warren - Devil s Elbow (Max Cooper Remix) (09:16)
+ 10. Nick Warren - Buenos Aires (Santiago Teillagorry & Luis Bondio Mix) (08:54)(   Читать дальше...   )Жанр: House, Progressive House, Deep HouseПродолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB410146CE241833545B06E0166BE8AF278C8CD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1239422   (383868)
+
+VA - Summer Grooves Vol.5 (Deep House & Ibiza Chill Out Beach Tunes) (2018) [MP3|320 Kbps] <
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1239422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernon - Islands In The Deep Sun (Ibiza Beach House Groove) 5:03
+02. Cuetec - Cascades (Original Mix) 6:31
+03. Dave Neville - Jazzy House (Chillhouse Mix) 6:09
+04. Beatwork - Do It Again (Cool House Edit) 6:47(   Читать дальше...   )Жанр: Downtempo, Deep, ChiillHouse, LoungeПродолжительность: 02:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D12C1C48C8DBE2636DF3353E7AE5BAA6C27EB6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1239449   (383866)
 
 S apex (Daniel Myer) - Audiodesign (1998 2015) Remastered [FLAC|Lossless|WEB-DL|tracks]
@@ -29098,122 +29226,6 @@ Sequences
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3EAA1361B74C2A59636C6505176333A7F0B30BA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1069858   (344121)
-
-Mario Hammer And The Lonely Robot - L’esprit De L’escalier Remixes (2016) [FLAC|Lossless|WEB-DL|
-
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1069858.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mono No Aware L’esprit De L’escalier (Extrawelt Redux) (9:33)
-2. Mono No Aware L’esprit De L’escalier (Extrawelt Tool) (8:22)
-3. Sirimiri Hammersche Modularverschaltung (Thyladomid Jonas Mantey Retouch) (9:02)
-4. Misodoctakleidist (Mario Hammer & The Lonely Robot edit) (5:19)(   Читать дальше...   )Жанр: Techno, Tech House, IDMПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E711EC66708EE587E3A6538E9CCDA965A1CDE794
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1069751   (344109)
-
-Velvet Dreamer - Remixed (2016) [MP3|320 Kbps] <Electronic, Chill Out, Lounge>
-
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1069751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1000 Miles Away (Simon & Florzinho Remix)
- 02. Sky Is Falling (Mo’jardo Remix)
- 03. Crystal Water (Five Seasons Remix)
- 04. Frozen (Mirage Of Deep Remix)(   Читать дальше...   )Жанр: Electronic, Chill Out, LoungeПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E330A5BBEF979317658D10CC7FA34C76C38D5E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1070372   (344067)
-
-Airwave - Trilogique (Progressive Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance,Prog
-
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1070372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intrusion (08:16)
-02. Appletonz (09:24)
-03. 8bitz (09:24)
-04. Close Encounters (08:27)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0724313ECC55C9E63BC2259002A0B29DFC4D03B4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1166577   (344009)
-
-VA - Ori Uplift & Tycoos - Uplifting Only 240 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1166577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 Seas - Ergaticus (Intro Mix)
-02. Suplifth - Victory (AirLab7 Remix)
-03. New World - Ikigai
-04. Artifi - Summer Breeze(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD58282B98F6EDCB5D05B1641ED98B0C09B7B20A
 ```
 
 #Mybot  @nnmclub_mybot

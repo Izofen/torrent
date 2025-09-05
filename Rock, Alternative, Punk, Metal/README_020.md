@@ -1,4 +1,268 @@
 
+###  Публикация: 1338422   (228850)
+
+Вячеслав Бутусов & Орден Славы - Аллилуия (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1338422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Герои
+02. Кровавая река
+03. Идиот
+04. К ангелам(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27EC3588EE7189FB4EFEC164152C571CF569630A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1369239   (228804)
+
+Brujeria - The Mexecutioner! The Best Of Brujeria (Compilation) (2003) [APE|Lossless|image +
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1369239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Pura De Venta	0:41
+02	Leyes Narcos	1:08
+03	Matando Gueros	2:23
+04	Castigo Del Brujo	1:43(   Читать дальше...   )Жанр: Grindcore, Death MetalПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC999EAD38CDCE2F2192DB04DC8B30D1F9243F31
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1369242   (228793)
+
+Tank - Honour and Blood (1984) Reissue, 1990, Roadrunner Records [FLAC|Lossless|image + .cue] <H
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1369242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The War Drags Ever On (08:15)
+02. When All Hell Freezes Over (05:57)
+03. Honour and Blood (06:32)
+04. Chain of Fools (Aretha Franklin cover) (04:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1285F70125B5E2B6E5122C1137745BEEDA997BD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1369440   (228768)
+
+Oleg Serkov - Love Deviant (2009) EP, приложение к журналу CHIP [FLAC|Lossless|tracks] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1369440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свершилось чудо и он наконец-то увидел свет!
+Мой новый мини-альбом  Love Deviant .
+Версию без потери качества ищите на диске в февральском выпуске журнала  CHIP .
+За вдохновение спасибо: жизни, изменам, океанам, свету и тьме, комнатам, новым открытиям.(   Читать дальше...   )01. FreeFall (4:38)
+02. Rooms & Revelations (3:14)
+03. Islands (2:43)
+04. Dreams (3:09)Жанр: RockПродолжительность: 00:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2383A6C261216F00825751D67E2404CC44BB3636
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1369283   (228762)
+
+Frostnatt - Den Russiske Tomheten (2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal,
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1369283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overvintre (5:34)
+02. Innesnødd (3:39)
+03. Den Russiske Tomheten (2:57)
+04. Fjern og tom (4:12)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Instrumental, Post-Black MetalПродолжительность: 00:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDD42EA7C8D9CDBE16175D4A9D086AAC4631F72
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1369140   (228760)
+
+Fataland - Выпей Вина! (2020) [MP3|320 Kbps] <Hardcore, Punk>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1369140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Белок [00:01:09]
+02 Биткоин [00:03:19]
+03 Просто Я Люблю 0.5 [00:01:59]
+04 Илонмаск [00:02:46](   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2880603AC72B2AFB4550AE7D7F090E6CA7A625B7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1369248   (228758)
+
+Twin Obscenity - For Blood, Honour And Soil (1998) [FLAC|Lossless|image + .cue] <Viking Metal, B
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1369248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Glorious Strife 04:00
+02. The Usurper s Throne 06:15
+03. For Blood, Honour And Soil 06:59
+04. Upon The Morning Field 04:51(   Читать дальше...   )Жанр: Viking Metal, Black Metal, Death MetalПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC16105A21B33398F55EBA5C5C399EEB676FB958
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1338771   (228735)
+
+Snowball - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Rock, Jazz-Funk, Prog Rock, Fusion>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1338771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германская группа конца 70-х - начала 80-х годов, рок-фьюжн, с участием трех членов Curt Cress Clan, и фронтменом бывшего Nektar певцом-гитаристом Рой Олбрайтон в их дебютном альбоме.Список альбомов:
+1978 - Defroster
+1979 - Cold Heat
+1980 - Follow The White Line(   Читать дальше...   )Жанр: Rock, Jazz-Funk, Prog Rock, FusionПродолжительность: 01:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FAE157A6332DCDA2599C9A6A00B4B75FE1FE59
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1369275   (228721)
+
+Santana - Supernatural (1999) Special Russian Version, Golden Collection [FLAC|Lossless|image +
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1369275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Da Le) Yaleo (5:54)
+02. Love Of My Life (featuring Dave Matthews) (5:48)
+03. Put Your Lights On (featuring Everlast) (4:45)
+04. Africa Bamba (4:43)(   Читать дальше...   )Жанр: Latin RockПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E65E7B1C1E2CF3F28B3689986DC2ED23CE840C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1369315   (228676)
 
 Smash Hits Cover Band - A Tribute To AC DC - We Salute You (2011) [MP3|320 Kbps] <Rock>
@@ -28634,265 +28898,6 @@ Whitesnake - Snake Bites (1989) Promo, Compilation [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4EBC6664D3B0E250D7634893256BAD5EAB0D09B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1450992   (206951)
-
-Don Airey and Friends - Live in Hamburg (2021) 2xCD [MP3|320 Kbps] <Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1450992.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Nuclear Attack (Live at Fabrik 2017) (04:52)
- 02. Pictures Of Home (Live at Fabrik 2017) (05:52)
- 03. Shooting Star (Live at Fabrik 2017) (05:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F64BFE75299BDA6464F633B5969338CB0AE6CB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1450941   (206946)
-
-Kreator - Under the Guillotine (2021) Explicit [MP3|320 Kbps] <Thrash Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1450941.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Extreme Aggression [4:43]
- 2. Terrible Certainty (Remix) [4:17]
- 3. Endless Pain [3:35]
- 4. People of the Lie (2018 - Remaster) [3:16](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 02:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DFAC8E7B5253FC62AB7251B0EE977FE3C3295B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1451184   (206805)
-
-Fish - Fortunes of War (1994) Promo, CDS, Maxi-Single [FLAC|Lossless|image + .cue] <Prog Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1451184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fortunes of War (Radio Edit) (03:39)
-02. Fortunes of War (Single Edit) (05:08)
-03. Fortunes of War (Live in London) (06:33)Жанр: Prog RockПродолжительность: 00:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129A566601F46E79742DCD44395C18E3872756E2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1451238   (206804)
-
-Nelson - Life (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1451238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Girl Like That
-02. I Would If You Want Me To
-03. Life
-04. She Sheila(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CF067F93C4E3B39B1FFB6ADB6FBDA311A0347F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1451163   (206803)
-
-Shelter - First Stop (1983) Reissue, 2018, Rock Candy [FLAC|Lossless|image + .cue] <AOR, Melodic
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1451163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Line (03:43)
-02. So Glad I Found You (03:48)
-03. The Way I Feel (04:09)
-04. Who Do You Love (03:26)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3A56B10FF4B073A9E28888721426F5766D04AA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1451230   (206802)
-
-Innocent - Innocent (1997) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1451230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say It Aint True
-02. Pray For The Rain
-03. Love Is No Stranger
-04. Walk That Walk(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192FC73F7FB76D13249EA56C5485D103361D46EA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1451339   (206797)
-
-Fish - Change of Heart (1997) CDS, Single [FLAC|Lossless|image + .cue] <Prog Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1451339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change of Heart (03:46)
-02. Goldfish and Clowns (Radio Edit) (04:17)
-03. The Perception of Johnny Punter (US Radio Edit) (08:38)Жанр: Prog RockПродолжительность: 00:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A063DAED888B3D0637E2D623C36BFA3B269DCF67
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1451159   (206794)
-
-Lee Kerslake - Eleventeen (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1451159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celia Sienna (05:48)
-02. Take Nothing For Granted (03:23)
-03. Where Do We Go From Here (04:30)
-04. You May Be By Yourself (But You re Never Alone) (06:05)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB357EBED948F2DD803407F93493415167327566
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1451289   (206793)
-
-Tane Cain - Tane Cain (1982) Reissue, 2015, Rock Candy [FLAC|Lossless|image + .cue] <AOR, Melodi
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1451289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temptation (03:45)
-02. Danger Zone (04:42)
-03. My Time to Fly (04:02)
-04. Crazy Eyes (03:34)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0FB38CD0096A3B4FA4E8730E5259C584E0BD29
 ```
 
 #Mybot  @nnmclub_mybot

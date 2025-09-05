@@ -1,4 +1,120 @@
 
+###  Публикация: 1816008   (760485)
+
+VA - Magic Deep-House, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calmabohain - Loving 03:11
+02. Allume - Poetry Clouds (Radio Edit) 03:06
+03. Chris Le Blanc, Max Weis & Karmaloft - Escape To Infinity 03:17
+04. Dj Soulstar & Josée Hurlock - Taken (Radio Edit) 03:46(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2253D389B3F84C7375C6E069BBF71A44197F7DE8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1816007   (760484)
+
+VA - Redux Selection, Vol. 9 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Alexander & Shadow Theory - Nothing Lasts Forever (Artena Extended Remix) [7:41]
+02. Jay Del Mar - Inertia (Extended Mix) [7:11]
+03. André Wildenhues & Helena Kristiansson & Stacey Jay - Lighthouse (State72 Extended Remix) [7:11]
+04. Sander Bastiaans & DEEMA - Miami Bay (Extended Mix) [8:30](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F65F2127FEACC2D626CEC04619EEAEF929442B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1815883   (760422)
+
+VA - Magic Deep-House, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1815883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardaze - My Soul 03:29
+02. Marc Hartman - As Time Goes By 04:59
+03. Kenhya - In The Ocean (Extended Mix) 04:42
+04. Tony Sanchez - San Momento (Original Mix) 05:51(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBA74D85F367A8F6375B35991AF442B6EFF16CE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1815626   (760196)
+
+VA - Electronic Garden, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1815626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Marc Hartman - Salt Water (04:39)
+ 02 - Cataldo - Do It All Night (03:28)
+ 03 - Paulsen & Stryczek - Barefoot In The Moonlight (04:41)
+ 04 - Steen Thottrup - Liv's Song (Pt. 1) (01:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C12AA7EBDF122D417E57BEE6AC1F5E6A1B6D2F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1815247   (760172)
 
 VA - Chill Mode On: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -28814,122 +28930,6 @@ VA - Kontor Top of the Clubs Vol. 100 (4LP) (2024) [MP3|320 Kbps] <Electronic, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E6077D600574EEE2F5325AA7FEA5E63532654BB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748439   (721756)
-
-VA - Ablazing Autumn Sessions 2024 (2024) [MP3|320 Kbps] <Trance>
-
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claas Inc. & Gid Sedgwick - Through It All (Alex M.O.R.P.H. Extended Remix) [7:01]
-02. Rene Ablaze - Aestas Baleares (Extended Mix) [6:56]
-03. Mhammed El Alami & Exolight - Velvet Skies (Transaphonic Extended Remix) [6:50]
-04. Paipy & Pierre Pienaar - Euphoria (Pierre Pienaar Extended Remix) [7:06](   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6125B119BE2390FC17C7E329790BF5FB3D73B11
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748431   (721755)
-
-VA - Ablazing Summer Sessions 2024 (2024) [MP3|320 Kbps] <Trance>
-
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikolauss - Lost In Transition (Guava Extended Remix) [6:48]
-02. Rene Ablaze & Fischer & Miethig - Follow Me (Extended Mix) [6:42]
-03. Diago - Sequentia (Extended Mix) [7:48]
-04. Ion Blue - Elan (Christopher Corrigan Extended Remix) [7:06](   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB6A871C3892CCA81983192E9BB14F7BA5703CB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748426   (721754)
-
-Aphelion - Humanoid World (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Satellite (6:25)
-02. Edge of the Universe (6:38)
-03. Star Ray from Space (6:27)
-04. Invisible Guest (6:12)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C9E0CE72CC4431F62CD9E15EF875B8151350F9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748174   (721753)
-
-VA - Ibiza Autumn 2024 (Deep-House Smoothies From The Heart) (2024) [MP3|320 Kbps] <House, Deep Hous
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seumas Norv - Archeodromo (Afro Edit) [02:42]
-02. Marc Hartman - Into Thin Air [05:08]
-03. Stardaze - My Soul [03:29]
-04. Vertefeuille - Let Time Fly [03:32](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA12683901FF893AF3065E0204500B2DC496174
 ```
 
 #Mybot  @nnmclub_mybot

@@ -1,4 +1,120 @@
 
+###  Публикация: 1395058   (163623)
+
+VA - City Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Down
+
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1395058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dellasollounge - Firefly (Original Mix)
+02. Gary B - Ripple Effect (Original Mix)
+03. Patiotic - Breathing
+04. Beamy - Dream Traveler(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F05BF73E28758BBBD4C63CF96F6A81150D411B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1394917   (163607)
+
+Depeche Mode - Live Spirits Soundtrack (2020) [MP3|320 Kbps] <Alt.Rock, Synth Pop>
+
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1394917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (02:31)
+ 02. Going Backwards (06:12)
+ 03. It s No Good (04:57)
+ 04. A Pain That I m Used To (04:29)(   Читать дальше...   )Жанр: Alt.Rock, Synth PopПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586A39AE1E680DCF7DFF96C4ABC1FC9E0C0EE507
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1532936   (163518)
+
+Vintage Culture B2B Meca - Live D-Edge Sao Paulo, Brazil (2022-02-17) [MP3|320 Kbps] <Deep House
+
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1532936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitesquare - Folded Reality
+02. James Burton - Breakfast Club (Dennis Ferrer Morning Mix)
+03. Felipe Puertes - Niyama
+04. Øostil & U S H N U - Safe (Hunter Game Remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BB1EADBF23E31BB896AA6A1EE60D675FD2CC4B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 896203   (163500)
+
+Abjective - Discography 21 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks]<IDM, Experimental,
+
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_896203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sages (06:10)
+ 02. Xviiixvi (09:51)
+ 03. Technogenic Eleegy (07:49)
+ 04. Similitude (09:02)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Experimental, Glitch, Ambient, Minimal •Продолжительность: 20:18:33 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9FAF288589FFED834063D0701BF1B99ABFAEFE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1483579   (163484)
 
 Stillhead - Iceberg (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
@@ -28749,122 +28865,6 @@ Proxyon - Proxyon (1989) [OGG|485 Kbps] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2B7B73E400E699FA3FE70EDDAF4795673773750
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1570069   (112274)
-
-Pet Shop Boys - Please (1986) [OGG|485 Kbps] <Synthpop>
-
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1570069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Divided By Zero	  3:34
-02. West End Girls            	  4:45
-03. Opportunities            	  3:43
-04. Love Comes Quickly 	  4:19(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C58F08D971C38244E3BCD0DE1073CA649F27B3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1570060   (112273)
-
-Pet Shop Boys - Actually (1987) [OGG|485 Kbps] <Synthpop>
-
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1570060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Chance     5:28
-02. What Have I Done To Deserve This? 	4:21
-03. Shopping                   3:37
-04. Rent                          5:07(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B406950785FEEAE28BF9F4B74B9F3D0C10259B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1408408   (112001)
-
-Lemongrass - Soulful (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1408408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whereever You Go
-02. Killing Me Softly
-03. Femme Fatale
-04. July Sky (feat. Jane Maximova)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22C36BDF162B1950E9F5A3CB8D8D5617DE7D4B9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1408386   (111988)
-
-VA - Ultra Step Pop Hits 2020 Fitness Session [MP3|320 Kbps] <Funky, Club House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1408386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellen - Mood Ring (Fitness Version 132 Bpm) (04:07)
-02. D Mixmasters - Never Seen The Rain (Fitness Version 132 Bpm) (03:52)
-03. Lawrence - Young And Alive (Fitness Version 132 Bpm) (03:52)
-04. Th Express - Underdog (Fitness Version 132 Bpm) (03:23)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA57291FA33DFCC98286891E932DA82F687CE826
 ```
 
 #Mybot  @nnmclub_mybot

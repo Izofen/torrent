@@ -1,4 +1,381 @@
 
+###  Публикация: 1506397   (79460)
+
+VA - German Top 100 Single Charts 29.10.2021 [MP3|320 Kbps] <Pop>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1506397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Shivers
+02. Adele - Easy On Me
+03. Elton John & Dua Lipa - Cold Heart (PNAU Remix)
+04. Glass Animals - Heat Waves(   Читать дальше...   )Жанр: PopПродолжительность: 04:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7962FD7A84AE2AFF90AF7D138251A701551A6963
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1506473   (79416)
+
+VA - Record Super Chart 30.10.2021 [MP3|320 Kbps] <Pop, Dance>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1506473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alok - It Don t Matter (Feat. Sofi Tukker, Inna) (2:53)
+02. Calvin Harris feat. Tom Grennan - By Your Side (3:09)
+03. Tiesto & KAROL G - Don t Be Shy (2:20)
+04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF40B2CCDA4B1FB509390F53B9C3CEBEB73618DE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1422599   (79378)
+
+VA - New Disco Hits 2020 от DON Music (2020) [MP3|320 Kbps] <Italo Disco, Pop, Dance, Electronic
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1422599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Every Second Of My Life
+02. Amadeus Angelus - One Step From Heaven
+03. Spatial Vox - Cause Of Shining In Your Eyes
+04. Bad Boys Blue - Killers(   Читать дальше...   )Жанр: Italo Disco, Pop, Dance, ElectronicПродолжительность: 05:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B140403EB3A3BABCF47B18A1B0607C6F1FEFBE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1422592   (79333)
+
+VA - Music News vol.47 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1422592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CARA - Tevere (03:18)
+ 02. Alter Bridge - Last Rites (04:08)
+ 03. Aris feat. ONEIL & Crosby - Lies (02:52)
+ 04. Asammuell - Идеал (03:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928563C98188A5864982657E53BBC244751EF746
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645748   (79003)
+
+VA - Blues In The Garden (2023) [MP3|320 Kbps] <Blues, Country Blues>
+
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1645748.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Leyla Mccalla - Feyo [03:15]
+002. Damon Fowler - Taxman [04:41]
+003. Roosevelt Sykes - Pocketful Of Money [02:30]
+004. Johnny Drummer - Bad Attitude [05:09](   Читать дальше...   )Жанр: Blues, Country BluesПродолжительность: 08:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150787B27943372CEDE3046063FED7F3355035E3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645639   (79001)
+
+VA - Trance In Motion Vol.362 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John O Callaghan Official, Tom Colontonio & Sinéad McCarthy - Reality (Extended Mix)
+02. Suncatcher & Exolight & Frank Waanders - Watermelon (Extended Mix)
+03. FAWZY MUSIC & Daniel Kandi & Nick V - Reverie (Extended Mix)
+04. Miditekk Music - Slow The World Down (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BDEACA21F8B96AFC20EA8C40E4518B048EE878
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645763   (78998)
+
+VA - 60 minutes. Old School Dance Music vol.19 (mixed by Dj V) (2023) [MP3|320 Kbps] <Euro T
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_1645763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Ridgewalkers feat. El - Find (Kyau vs. Albert Remix)
+02-Libra pres. Taylor feat. Jan Johnston - Anomaly (Calling Your Name) (Granny s Epicure Remix)
+03-King Of Clubs - Revelation (Atlantic City Remix)
+04-Georgia - Ode To  99(   Читать дальше...   )Жанр: Euro Trance, Progressive Trance, Vocal TranceПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C18AC2076CBABC4A153FE38A5B41F48D7BB0CA7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1645907   (78993)
+
+Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <Rock>
+
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1645907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I m Eighteen (Guitar Riff) [00:28]
+02. Layla (Guitar Riff) [00:27]
+03. Frankenstein (Guitar Riff) [00:51]
+04. American Woman (Guitar Riff) [00:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7B5D91BD53C30B30CC7C2118219B93FFE7D314
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1584108   (78948)
+
+VA - Music News vol.222 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1584108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AMELI - Раздеться (02:05)
+ 002. Aksel  - Свободна (01:55)
+ 003. Alex Parker feat. Francis On My Mind - Love The Way You Lie (02:48)
+ 004. Allega - Не Мани Меня (03:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3F897CA473BE7AFD330E204B0B504DD02C4AB4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1584055   (78947)
+
+VA - 60 Minutes. Old School Dance Music vol.12 (mixed by Dj V) (2022) [MP3|320 Kbps] <Club H
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1584055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Rocco - Everybody (Riphouse Mix)
+02-DJ BoozyWoozy Feat. Pryme - Jumpin  Around (Extended Mix)
+03-Lock  n  Load - House Some More (Club Caviar Rio Mix)
+04-Drunkenmunky - Yeah! (Club Mix)(   Читать дальше...   )Жанр: Club House, Dancecore, EurotranceПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97AC74B434D873F40A6EDCF1C47A3227A042C0F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1422720   (78915)
+
+VA - не Громкие новинки недели 87 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1422720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family - Эгоистка (Yudzhin & Serg Shenon Radio Remix) (3:02)
+02. Ana Baston - Черные Очки (2:42)
+03. Asammuell - Идеал (3:27)
+04. DaBro - Тебе Лучше Меня Не Знать (3:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F9DDED64F7163A3136DADE9E0C435D21FC1701
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1584295   (78862)
+
+VA - Pop 2 Remix NNM (2022) [MP3|320 Kbps] <Pop>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1584295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - 2 Be Loved (Am I Ready) (PNAU Remix) (3:42)
+02. Sam Smith - Unholy (feat. Kim Petras) (Disclosure Remix) (5:02)
+03. Elton John - Hold Me Closer (Joel Corry Remix) (4:08)
+04. James Hype - Ferrari - Oliver Heldens Remix (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1617CFF83DC9D22DB6DD8E4F18436B6C2A1705F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1423062   (78606)
+
+VA - Electro House Future Party (2020) [MP3|320 Kbps] <House, Club, Dance>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1423062.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nathan Lima - Komodo
+002. Jeff Haze - In My Soul
+003. Mizzo - Heliopolis
+004. Matisso - Quarantine(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 11:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6065E89F3F64A4B1CFDE77BC58A7EBE8556914
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1422949   (78600)
 
 VA - Hard Plylist (2020) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock, Alternative>

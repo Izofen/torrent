@@ -1,4 +1,265 @@
 
+###  Публикация: 1559976   (126670)
+
+Arttu Wiskari - Sirpaleet (2014) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock, Schlager>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1559976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: Remu Aaltonen (0:10)
+02. Kun me diskossa suudeltiin (3:44)
+03. Sirpa (feat. Ulpu) (3:25)
+04. Meidän suku on oudompi kuin teidän (3:48)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, SchlagerПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF546901570FCB7C49BE64D22AB7CFDF6550C3F2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1560051   (126669)
+
+Space Druids - 3 Relise (2019-2022) [MP3|320 Kbps] <Vintage Space, Psychedelic Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1560051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Speed [00:04:53]
+02. Zygote [00:05:16]
+03. Astronomy [00:01:07]
+04. Afraid of Space [00:03:47](   Читать дальше...   )Жанр: Vintage Space, Psychedelic RockПродолжительность: 3 CD, 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01FF9351CB36670824BC3324BAB305B5FE67EAED
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1559910   (126665)
+
+Space Druids - Paradox Paradigm (2022) [FLAC|Lossless|WEB-DL|tracks] <Vintage Space, Psychedelic
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1559910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Light Speed (00:04:53)
+02 - Zygote (00:05:16)
+03 - Astronomy (00:01:07)
+04 - Afraid of Space (00:03:47)(   Читать дальше...   )Жанр: Vintage Space, Psychedelic RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D13EC2DD5CD4AC594320D9D4CC90D2FB5783BE2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1559796   (126661)
+
+Thobbe Englund - From the Wilderness (2015) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1559796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildborn
+02. Stormy Nights
+03. A Lonely Hunter
+04. Life from Death(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0523F6308E91497237349E9DD324A7E40AC16DCF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1559472   (126637)
+
+Final Light (Perturbator X Johannes Persson) - Final Light (2022) [MP3|320 Kbps] <Atmospheri
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1559472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Will Bear Your Name (6:09)
+02. In the Void (8:58)
+03. It Came with the Water (7:17)
+04. Final Light (8:33)(   Читать дальше...   )Жанр: Atmospheric Sludge, Post-MetalПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5E61FA66A1F01BD27567AE25F4B9AE17522D81
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1604524   (126619)
+
+Hath - All That Was Promised (2022) [FLAC|Lossless|tracks + .cue] <Death Metal, Black Metal, Pro
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1604524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Million Violations
+02 - Kenosis
+03 - Lithopaedic
+04 - Iosis(   Читать дальше...   )Жанр: Death Metal, Black Metal, Progressive MetalПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B400C2262FA29D67D82BDD82C8C9C405936DE00B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1604606   (126612)
+
+Elvis Presley - Forever In Love (1997) 2CD, Compilation [FLAC|Lossless|tracks + .cue]<Rock n<1
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1604606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wooden Heart
+02. Sentimental Me
+03. Fever
+04. For The Millionth And The Last Time(   Читать дальше...   )Жанр: Rock n RollПродолжительность: 02:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1139D062F53B040A6BDC1A496995D756B18CCDAA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 752277   (126605)
+
+Wulfgar - With Gods And Legends Unite (2007) [FLAC|Lossless]<Death Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_752277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro [02:13]
+02.  Cleansed By Fire [04:41]
+03.  Weapons Of Flesh [04:15]
+04.  Heimdall s Horn [03:53](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168A648E005E785A1FA007CD655B7C84A74D9230
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1560123   (126398)
+
+Lorekeeper - The Beastiary (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1560123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Green Lich (00:05:25)
+02 - Bog Creature (00:04:30)
+03 - Centipede Queen (00:04:15)
+04 - Mycoloth (00:03:11)(   Читать дальше...   )Жанр: Stoner MetalПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6E5FE837ADD477B43EDD549A13ED700E64F645
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1560239   (126397)
 
 Profetus - Coronation of the Black Sun (2009) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
@@ -28763,267 +29024,6 @@ Oak (Portugal) - 2 Albums (2019-2023) [MP3|320 Kbps] <Funeral Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE04C5A51D2BE5D469C1EF1400E986187E81B417
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1611538   (116664)
-
-The Schizophonics - 3 Albums (2017-2022) [MP3|320 Kbps] <Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1611538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2017 - Land of the Living
-2019 - People in the Sky
-2022 - Hoof ItЖанр: RockПродолжительность: 3 CD, 01:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BCD7770E5B9ABA7A25278473A15BE8023AFD3F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1611824   (116663)
-
-...and Oceans - As in Gardens, So in Tombs (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1611824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - As in Gardens so in Tombs (04:16)
-02 - The Collector and His Construct (04:36)
-03 - Within Fire and Crystal (05:51)
-04 - Carried On Lead Wings (05:13)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF8A1BE637C31522AAFF9977847447EDE5264A0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1611953   (116662)
-
-Konfirmat - 2 Albums (2019-2023) [MP3|320 Kbps] <Industrial Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1611953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horrorland [00:05:23]
-02. Flamme [00:04:47]
-03. Befreien [00:04:33]
-04. Aus Weissen Dornen [00:03:56](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 2 CD, 01:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7170C1376C7397E46B2851B98665B83979FA572A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1611876   (116661)
-
-ВЕНЫ - В ожидании плохого настроения (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1611876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В ожидании [00:04:27]
-02. Пожар [00:03:44]
-03. Дождь [00:04:15]
-04. Перебор [00:03:11](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B6FF94DEC406264937AFBBA1D4311BC39F2ADA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1611721   (116659)
-
-Solstice - 3 Albums (2013-2022) [MP3|320 Kbps] <Neo-Progressive, Folk Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1611721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2013 - Prophecy
-2020 - Sia
-2022 - Light UpЖанр: Neo-Progressive, Folk RockПродолжительность: 3 CD, 02:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4CF9D43ABAEFFE88F15DEFB311728F12CC2BC0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1611493   (116658)
-
-The Iron Bees - 2 Albums (2015-2023) [MP3|320 Kbps] <Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1611493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ТОП ТОП ТОП (2023 Remastered Version) [00:01:40]
-02. Дай мне косарь [00:02:57]
-03. Жора (2023 Remastered Version) [00:03:40]
-04. Пару пива, сигарета [00:02:41](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6143EADCD0BA6F7FB143C8167F0DCF027661F929
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1611528   (116655)
-
-Печать-Бюро - Субботняя ночь (2023) [MP3|320 Kbps] <New Wave>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1611528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Тишина [00:04:04]
-02 - Окна [00:03:24]
-03 - Душа [00:02:59]
-04 - Запах домов [00:02:57](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C29B5FA6E48FDFD2A48B8DA920B6B01D06195EC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1611861   (116654)
-
-Земля Ветров - На Одной Волне (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1611861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Встуление [00:01:52]
-02. Вместе с нами [00:03:48]
-03. На одной волне [00:03:24]
-04. Не считая лет [00:04:17](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE4B04C190D325DA0D0D69ABE2181E15DC31B25
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1611537   (116651)
-
-DegrodTeam - Поеб... (2023) [MP3|320 Kbps] <Pop Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1611537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Поеб...[00:01:33]
-02 - 2121 [00:02:32]
-03 - Электричка [00:02:42]
-04 - Какое-то название, забыл (Типа медляк, посвящается Ей) [00:02:16](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7D6FE49CEDF3C92FF0C91CDB7E627D970BCE66
 ```
 
 #Mybot  @nnmclub_mybot

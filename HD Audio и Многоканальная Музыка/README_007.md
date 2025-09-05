@@ -1,4 +1,120 @@
 
+###  Публикация: 1663156   (28005)
+
+Soft Riot - No. (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Minimal Wave>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1663156.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Linked Between Two Minds (5:03)
+2. Crashing Into Tomorrow (5:02)
+3. It Never Takes Long To Say No (4:38)
+4. Shouldering (5:06)(   Читать дальше...   )Жанр: Post-Punk, Minimal WaveПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990840AA8CDCC887544F11118BBE464E27CFB3F9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1663183   (27965)
+
+Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/96|image + .cue|Viny
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1663183.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Inspection
+A1 Blaydon Races
+A2 Shirley Bassey Showcase
+A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр: Brass & Military, MarchesПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1663172   (27964)
+
+The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1663172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alphabet City (3:44)
+02. Deep End (Paul’s in Pieces) (4:29)
+03. Weird Goodbyes (feat. Bon Iver) (5:03)
+04. Turn off the House (4:35)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BCA0E5193A9AD9D3B7F99C4FA4769BD18598A9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 125709   (27923)
+
+Андрей Сапунов и группа «Лотос» - Лотос - 1987, FLAC
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_125709.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Белый день (А. Сапунов / С. Андреев)
+2. Немного счастья на двоих (А. Сапунов / И. Фрадкина)
+3. Евпатория (А. Сапунов / И. Фрадкина)
+4. Свежий ветер (А. Сапунов / И. Фрадкина)(   Читать дальше...   )Жанр: RockПродолжительность: 33:54 + допись 07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D5BFEA2D03555F715280E87ADC472F26DC420F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1572601   (27907)
 
 Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.

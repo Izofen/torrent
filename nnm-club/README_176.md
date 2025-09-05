@@ -1,4 +1,9490 @@
 
+###  Публикация: 989469   (578013)
+
+Opium - Chaos Theory Laboratories (2011) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo, Expe
+
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artichoke (05:51)
+02. Odessa (06:55)
+03. Evilution Theory (06:10)
+04. Scute Through Glasses (05:40)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50653D8BE2DEC25AC9627B49BB7E02D1BE7863B1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989226   (578012)
+
+Conqueror - Madame Zelle (2010) [MP3|320 кб с] <Rock, Prog Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Margaretha  14:47
+02. Indonesia  05:22
+03. Occhio Dell  Alba  04:56
+04. Fascino Proibito  07:16(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEE7CB94B2C281891EC6A42CB6958B7370A7EDF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989316   (578011)
+
+Ice Cold July - There Will Come A Day (1994) [MP3|320 кб с] <Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City
+02. Kick It Up
+03. Home
+04. As One(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE6F30A8B9D2A52DB141A201063728357D5A314
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989504   (578010)
+
+Karasol - In Your Wild Garden (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World Fusion>
+
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan
+02. Desto Fez Santa Maria
+03. Spain
+04. In Your Wild Garden(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC39455F6B06DE736AEAE00AAD0D4249727C471
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989377   (578009)
+
+Charles Mingus - Pithecanthropus Erectus (1956) 2007, Warner Music[FLAC|Lossless|tracks + .cue]
+
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Pithecanthropus Erectus [10:36]
+ 02.A Foggy Day [07:49]
+ 03.Profile Of Jackie [03:10]
+ 04.Love Chant [14:54]Жанр: Post-BopПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4247AE3562E0CCD0084807C78708124134AEA52
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989179   (578008)
+
+Enoch - Sumerian Chants (2013) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me by My Dream Name
+02. The Tragic Defeat of Dur Entash (The Third Vision of Assurbanipal, Last King of Assyria)
+03. Black Night over Unfigured Distances
+04. Blood for the Blood God (And Skulls for the Skull Throne)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0998AF451824EDED7C492CEFA2ED05362C50E85
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989286   (578007)
+
+VA - RLX 10: The Chill out Collection (2016) [MP3|320 кб с] <Downtempo, Chillout, Lounge>
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camiel - No Fuzz [04:02]
+02. C.Cil - Sunset [03:26]
+03. Weathertunes - Destiny [04:38]
+04. Melleefresh - Mells Bells [05:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D394672BE16F23ECD2507680C1CA371141FEACC0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989120   (578006)
+
+Cam Buma Project - The Calling (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Funk>
+
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pick Me Up
+02. Mali Most
+03. The Calling
+04. Low Tide(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43AD6C3BF52824B9FD6469576D7391680640F8C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989496   (578005)
+
+Mozilla Firefox 45.0 beta 8 (x86 x64) [Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2186D1D82B3095604AC188A42D6EF3A3529FC875
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989075   (578004)
+
+VA - Super Bomb Electro - Classic (2016) [MP3|320 kbps] <Electro House, Electro>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989075.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Afrojack & R3hab - Prutataaa (Darth & Vader Remix) (6:27)
+2. Albin Myers - Hells Bells (Original Mix) (4:50)
+3. David Guetta & Afrojack - Lunar (Original Mix) (5:16)
+4. Divkid - Tailwhip (Becca Remix) (5:30)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 02:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC35E95898DF183BD033E3556B69BCBB19737FE4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989526   (578003)
+
+When Nothing Remains - In Memoriam (2016) [MP3|320 кб с] <Doom Metal,Death Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reunited In The Grave
+02. Drowning In Sorrows
+03. In Memoriam
+04. Ghost Story(   Читать дальше...   )Жанр: Doom Metal,Death MetalПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129BE9E0070D557CF8009C36F663F8FF7E4EF2B8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989299   (578002)
+
+Purl & Sinius - Oceans Of Sound (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno>
+
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Water (11:32)
+02. Endless Wonder (10:54)
+03. Cascade (10:04)
+04. Gate Of Liberation (10:52)(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 01:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2062E8FD98E1EB07EFE382C2DB50FDDBBAF76A34
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989116   (578001)
+
+Becca Stevens Band - Perfect Animal (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Indie, Sin
+
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Asked
+02. Imperfect Animals
+03. Thinkin Bout You
+04. Be Still(   Читать дальше...   )Жанр: Vocal Jazz, Indie, Singer-SongwriterПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA6B1F75D82507F57D1948CA58C8473F6FA600A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989318   (578000)
+
+VA - House Nation Volume 4 (2016) [MP3|320 кб с] <House, EDM, Club, Electro>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sander Van Doorn, Dimitri Vegas, Like Mike - Project T (Martin Garrix Remix) (05:13)
+02. Slice N Dice & Stan Gravs - Osiris (06:08)
+03. Zac Waters - No Quarter (04:02)
+04. Fatboy Slim & Riva Starr feat. Beardyman - Eat Sleep Rave Repeat (North Base Bootleg) (05:03)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF70E9D96783A3085ACCC2882D9537D2A0F34444
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989294   (577999)
+
+Журнал | Вооруженные силы стран мира №125 (2015) [PDF]
+
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная коллекция журналов расскажет о военных соединениях разных стран мира, познакомит читателя с видами войск и военной техники, историей военных кампаний 20-21 вв., ключевыми военными фигурами. Материалы распределены по 6-ти рубрикам: военная техника, личности, армии стран мира, стратегия и тактика, битвы и компании.Жанр: Военный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99C52D59E6553A29FA427D01DF549CCB930F1D4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989218   (577998)
+
+И. Эльвин | Дети в плену религии (1933) [PDF]
+
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989218.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказано о положении детей трудящихся капиталистических стран в годы  великой депрессии , насаждении религии среди детей и молодежи, пионерском движении в капиталистических странах начала 1930-х годов.Жанр: История, религиоведение, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4EB0F0A09C75555C53087F547551B1E3B7B584
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989273   (577997)
+
+Mimi Page - Breathe Me In (2012) [MP3|320 кб с] <Alternative Pop, Dream Pop, Trip Hop>
+
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_989273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Vanilla Sky
+02. Black Valentine
+03. Colorblind
+04. All I Need(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2924F0D8B2643F9FD6860EFD5CA937D45EE706
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989405   (577996)
+
+Дэвид Моррелл | Шпион, который явился под Рождество (2014) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пол Каган, секретный агент американских спецслужб, внедрен в русскую мафиозную группировку. Ему удается проникнуть в ближний круг и завоевать доверие главы группировки, постоянно демонстрируя свою «профпригодность», избивая и калеча людей, неугодных мафии. Поняв, что дошел до предела, он срывает одну из самых ответственных сделок мафии с ближневосточными террористами (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5415509DE937DC9904F9E61745DF44640A67E465
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988870   (577995)
+
+Сверхпроводники могут стать ключом к обнаружению таинственной темной материи.
+
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время проводится множество экспериментов, направленных на поиски темной материи, загадочной невидимой субстанции, наличие которой проявляется только в виде гравитационного воздействия на свет, звезды, галактики, скопления галактик и на другие объекты, состоящие из обычной материи. На поверхности Земли ученые для поисков используют ускорители частиц, такие, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989296   (577994)
+
+VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (2016) [MP3|320
+
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illitheas - Endless (Intro Mix Edit) (8:07)
+02. Ahmed Romel - Paradisum (7:57)
+03. SoundLift - Wonderful Feeling (8:01)
+04. Afternova - Into the Sky (2015 Remake) (7:18)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04199D11A3B388191728E9CC17129939F80BB65F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989283   (577993)
+
+Александр Галкин | Царевич Димитрий (2009) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический романист Александр Галкин трагически погиб в 1937 году. У романа «Царь Димитрий» удивительная судьба. После ареста автора только что изданная книга была изъята из книжной торговли и уничтожена. В Государственной библиотеке имени Ленина сохранился один-единственный экземпляр, который чудом отыскала дочь писателя.
+Книга о судьбе несчастного царевича Димитрия (   Читать дальше...   )Жанр: Исторический романПродолжительность: 20:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4194BE503477F0D1CB775A209F9F914B13F3B72E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672557   (577992)
+
+VA - Fun Summer Dance 2013 [MP3|320 кб с]<Pop, Dance>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_672557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carly Rae Jepsen - Tonight I m Getting Over You (4:02)
+02. Corneille - Le Paradis (3:22)
+03. The Saturdays - What About Us (Feat. Sean Paul) (3:42)
+04. Bob Sinclar - Summer Moonlight (Radio Edit) (3:14)
+05. Showtek - Slow Down (Radio Edit) (3:27)
+06. Basto - StormChaser (3:33)
+07. Jack Holiday - Real Love (Feat. Patrick Miller)Жанр: Pop, DanceПродолжительность: 01:21:24
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672375   (577991)
+
+Internet Download Manager 6.16 Build 3 Final RePack + Portable by SV [Ru En]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки до 500 процентов, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного быстрее! Программа имеет встроенный логический ускоритель загрузки, включающий интеллектуальную динамическую сегментацию файла и безопасную многослойную технологию загрузки, что способствует ускорению загрузки. Комплексная система анализа ошибок и возможность докачки, поможет продолжить загрузку, прерванную из-за потери соединения, проблем в сети, выключения компьютера или перепадов в подаче электроэнергии. Простой графический интерфейс делает IDM удобным и дружественным к пользователю.Язык интерфейса: Русский, Английский.
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672588   (577990)
+
+WebcamMax 7.7.6.6 [Multi   Русский]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+WebCamMax - продвинутая утилита для работы с веб-камерой. Программа, добавляющая изумительные видеоэффекты на все вебкамеры, даже без реальной камеры. Программу можно использовать по умолчанию в таких приложениях, как ICQ, AIM, MSN, Camfrog, Skype, Paltalk, Yahoo, ANYwebcam, Stickam. Можно настроить WebcamMax Full так, чтобы она начинала функционировать и вести трансляцию с камеры только в том случае, когда объектив зафиксирует движение. Доступны более 1000 спецэфектов (на сайте производителя) включая телевизионную заставку, воду, туман, смайлы и т.п., прокрутка текста поверх видео, мягкое переключение между несколькими прямыми передачами и сохраненными образами, использование одной камеры сразу несколькими одновременно запущенными программами, обработка собственного изображения для придачи привлекательности или иных визуальных эффектов.
+
+(   Читать дальше...   )Язык интерфейса: Multi   Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672641   (577989)
+
+VA - Beatport Top 100 Download: April - May (2013) [MP3|320 кб с]<House, Trance, Techno>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+001. Showtek, Noise Controllers - Get Loose (Tiesto Remix)
+002. Daft Punk feat. Pharrell Williams - Get Lucky (Radio Edit)
+003. Fedde Le Grand - Rockin  N  Rollin  (Original Mix)
+004. Mark Knight - Your Love (Original Club Mix)
+005. Dimitri Vegas, Like Mike, GTA, Wolfpack - Turn It Up feat. Wolfpack (Original Mix)
+006. Daddy’s Groove & Cryogenix - Tilt (Club Mix)
+007. Alesso vs OneRepublic - If I Lose Myself (Alesso vs OneRepublic Extended Remix)
+008. Showtek & Noisecontrollers - Get loose (Original Mix)
+009. Nari & Milani vs. Maurizio Gubellini feat. Nicci - Vago (Original Mix)
+010. Laidback Luke, Hardwell - Dynamo (Original Mix)(   Читать дальше...   )Жанр: House, Trance, TechnoПродолжительность: 10:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65F6F633A6CE997D46F5F66A393228B229B635B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672615   (577988)
+
+VA - 101 Ultimate Aussie Hits (5CD) (2013) [MP3|320 кб с]<Pop, Rock, Folk, Disco>
+
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Kelly & The Coloured Girls - Before Too Long 03:22
+02. John Farnham - You re The Voice 05:04
+03. Crowded House - Don t Dream It s Over 03:55
+04. Angus & Julia Stone - Big Jet Plane 03:41
+05. Pete Murray - Better Days 03:45
+06. John Butler Trio - Zebra 03:56
+07. Hunters & Collectors - When The River Runs Dry 05:01
+08. Jimmy Barnes - Lay Down Your Guns 03:59
+09. Silverchair - Anthem For The Year 2000 04:21
+10. The Living End - Prisoner Of Society 03:52(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA85779055C2D3BD321DFF4028F777E4B7B15766
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672713   (577987)
+
+VA - Energy Mastermix Vol.7 - The Best In Club & Dance (2013) [MP3|320 кб с]<Club, Dance>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Radioactive (The Dirty Tees Mix) (5:28)
+02. Empire Of The Sun - Alive (3:24)
+03. Avicii - X You (Radio Edit) (3:17)
+04. Duke Dumont - Need U (100%)Жанр: Club, DanceПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672477   (577986)
+
+Работы художников - Чудесный Рисованный Мир 65 [JPEG]
+
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Чудесный Рисованный МирРазрешение файлов: 300х300-4000х3200Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07934CED1DE68028A70AB31D5165BD692E0DA71
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672799   (577985)
+
+Comaduster - Hollow Worlds (2013) [Tympanik Audio] [FLAC|Lossless|Web]<Rhythmic Noise, IDM, Indu
+
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Ma (3:59)
+ 02. Winter Eyes (5:41)
+ 03. The Send Off (5:23)
+ 04. Hollow Worlds (7:22)
+ 05. Unfound (3:05)
+ 06. Walls (5:36)
+ 07. Chasms (4:36)
+ 08. Futureproof Design (7:09)
+ 09. Nightsail (Ft. Cecil Frena) (11:09)
+ 10. Connecting The Seams (7:06)Жанр: Rhythmic Noise, IDM, Industrial, DubstepПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672096   (577984)
+
+Edenbridge - The Bonding (2013) Limited Edition [FLAC|Lossless]<Symphonic Power Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+ 01. Mystic River
+ 02. Alight A New Tomorrow
+ 03. Star-Crossed Dreamer
+ 04. The Invisible Force
+ 05. Into A Sea Of Souls
+ 06. Far Out Of Reach
+ 07. Shadows Of My Memory
+ 08. Death Is Not The End(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:57:03
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672373   (577983)
+
+Журнал | Susanna вязание №5 (май 2013) [PDF]
+
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Новинки итальянской вязаной моды для женщин и мужчин: пуловеры, жакеты, жилеты, топы, платья. Модели номера отличаются элегантными силуэтами, изысканными узорами, необычными деталями, красивым цветовым решением.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED648433C6AC3D1209A70E8878E3902BBC26DE48
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672603   (577982)
+
+VA - Cosmic Chill Lounge Vol.6 (2013) [MP3|320 кб с]<Downtempo, Chillout, Lounge>
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Josete Ordonez - Piedras Y Rosas (Blank & Jones Balearic Relax remix) (05:16)
+02. Villablue - If I Could Tell You (feat Juanita Grande) (04:48)
+03. Gold Lounge - Eternity (Cosmic Chill edit) (05:42)
+04. Polished Chrome - Finally Arrived (05:38)
+05. Sine - To The Sun (04:45)
+06. Merge Of Equals - Home (feat Virag) (04:26)
+07. SoulAvenue - Stuck In A Dream (04:14)
+08. Tim Angrave - Good Vibrations (05:13)
+09. Softwaver - Fuhler (04:12)
+10. VARGO - Awakening (original chorus mix) (04:40)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B34C3A447F4859900936D51343809AEC390F3C6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672722   (577981)
+
+HWiNFO 32 64 4.20-1960 Final + Portable [En]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO - утилита, которая определит, а потом и покажет, из какого  железа  собран компьютер... Выдаются довольно подробные данные о процессоре, материнской плате, памяти, жестких дисках, CD-ROM, видео аудио сетевой картах, мониторе, портах и т.д. Кроме этого, HWiNFO32 умеет снимать информацию с установленных на материнской плате сенсорных датчиков (температура, напряжение и т.п.), а также проводить эталонные тесты CPU, FPU, MMX и дисков.
+
+Программа распознает всевозможные микропроцессоры, определяет их параметры, вычисляет реальную частоту FSB; получает исчерпывающую информацию о материнских платах и BIOS; считывает данные из SPD модулей памяти; идентифицирует сотни видеоакселераторов и более 400 графических чипов, а с помощью DDC и характеристики мониторов (например, такой полезный параметр, как реальная дата производства). Ни малейших затруднений программа не испытывает с IDE- и SCSI-устройствами, модемами, чипами аппаратной диагностики и пр. Кроме того, в нее встроены небольшие тесты производительности (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672696   (577980)
+
+Журнал | National Geographic Traveler №3 [июнь-август 2013] [PDF]
+
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+National Geographic Traveler - это журнал о путешествиях и о культуре народов разных стран, о животном и растительном мире, о гостиницах, курортах, пляжах, маршрутах, турагенствах, предоставляющий энциклопедически точную информацию и советы по посещению экзотических стран.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05316EC425D0BFAE635D47C2AFD64BBB6383237
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989516   (577979)
+
+Dorantes & Renaud Garcia-Fons - Paseo A Dos (2015) [FLAC|Lossless|tracks + .cue] <World Fusion,
+
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Molto enrollado (Bulerías) (5:18)
+02. Palabras de ensueño (Malagueña) (7:48)
+03. Entre las rosas (Guajiras) (3:35)
+04. En el crisol de la noche (Soleá) (6:25)(   Читать дальше...   )Жанр: World Fusion, Ethnic Jazz, FlamencoПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FE4073C5C3E939B8E0B1F7F6047629C067A842
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988977   (577978)
+
+VA - Workout Chillout (2016) [MP3|320 kbps] <Lounge, Chill House, Soulful>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_988977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project feat. Solanos - Festa Do Sol (Funk edit)
+02. Enrico Donner feat. Theresa Thomason - Something New
+03. Zero Feedback - Rien Ne Va Plus (Don Gorda Project remix)
+04. Lazypojke - Why Always Me?(   Читать дальше...   )Жанр: Lounge, Chill House, SoulfulПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC64552316FA4696C9B008CB873E47100E763839
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989369   (577977)
+
+Tasha Taylor - Honey For The Biscuit (2016) [MP3|320 кб с] <Contemporary Blues>
+
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feels So Good (04:00)
+02. Wedding Bells (04:29)
+03. Family Tree (03:52)
+04. Weatherman (02:57)(   Читать дальше...   )Жанр: Contemporary BluesПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF6AE82C9F0F55DEFCCB9BBABDD71EE9696BC06
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989216   (577976)
+
+Sambada - Tropicale (1997) [FLAC|Lossless|tracks + .cue] <Acid Jazz, Trip Hop>
+
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rush Hour (4:25)
+02. Street Walk (4:21)
+03. South of the Border (3:57)
+04. Sunburst (4:14)(   Читать дальше...   )Жанр: Acid Jazz, Trip HopПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1A417A0B4F757EAB71361AAA32E659A5AC283B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989260   (577975)
+
+Mimi Page - The Ethereal Blues (2015) [MP3|320 кб с] <Alternative Pop, Dream Pop, Trip Hop>
+
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989260.jpg" />
+</div>
+
+
+###  Подробнее
+
+На творчество талантливой и востребованной исполнительницы, автора музыки и текстов оказали влияние такие мэтры, как Nine Inch Nails, Tori Amos, Radiohead, Thomas Newman и Enya.01. Singing in the Dark
+02. The Way
+03. Human Hurricane
+04. Hold Me(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FFB05A654574F6F1B08E8BB8403121D0B02D32
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989334   (577974)
+
+Хоккей. КХЛ 2015-2016. Плей-офф. 1 4 финала - Запад. ЦСКА - Слован. 1-й матч. (21.02.2016) HDT
+
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989334.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 февраля 2016, воскресенье. 17:00 МСК
+1 4 финала - Запад. 1-й матч
+
+Стадион: ЦСКА имени Всеволода Боброва (Москва, Россия) , 4 463 зрителя (80 % при вместимости 5 600)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортПродолжительность: 02:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7430403C38ECBAFDE255893E5287B420142A32F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989288   (577973)
+
+VA - Romantic Lounge Fine Collection (2016) [MP3|320 кб с] <Downtempo, Chillout, Lounge>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_989288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - Side Chain Reactions
+02. Don Gorda Project - Stay On Course
+03. Oliver Backstrom - One Last Goodbye feat. Boring Sax
+04. Dr. Diver - Landing(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BE0B3E837F41C46E7A21F8D44B8ADEA66ED6BA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989291   (577972)
+
+Чудо техники (2016.02.22) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989291.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E85C38EAE9C0F50FEBB0E68A38AA01F73E42B77
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989214   (577971)
+
+ЛиД - Концерт в Краснодаре (06.02.2016) (2016) [MP3|320 кб с] <Акустический Рок>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зажигать (Би-2 Cover)
+02. Дыши
+03. Секрет (Агата Кристи Cover)
+04. Солнцем по скатам(   Читать дальше...   )Жанр: Акустический РокПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2343C4E89E2921DFC026FCBF46B0D7C4F55FA9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989367   (577970)
+
+От поплавка до донки (2007) IPTVRip [H.264] [MP4|720x576]
+
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыболовный эксперт Роберт Вишневски делится секретами поплавочной и донной ловли. Отправившись на небольшое польское озеро, Роберт рассказывает о разных способах ловли линя и золотого карася. Программа дает зритель представление об основных способах рыбалки на малых озёрах.Производство: ПольшаЖанр: ДокументальныйПеревод: Одноголосый закадровыйПродолжительность: 00:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1249246A20B91E653C0DB1C89C8150CD1D168275
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989268   (577969)
+
+Артур Вейгалл | Эхнатон. Фараон-вероотступник (2013) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Вейгалл, принимавший участие в раскопках в Египте, избегая предвзятых оценок и непроверенных мнений, предлагает увлекательную и наиболее полную из существующих биографий египетского фараона Аменхотепа IV, который вошел в историю как религиозный реформатор. Утвердивший культ единого бога Атона, он принял имя Эхнатон -  угодный Атону .Жанр: Исторический романПеревод: С. ФёдороваПродолжительность: 06:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F9E1EDEA8833A250F002D245ECCA2E66747C42
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989344   (577968)
+
+SlimBrowser 7.00 Build 139 + Portable [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Браузер на основе движка Trident, обладающий большим количеством полезных возможностей. В частности в SlimBrowser встроен настраиваемый блокиратор всплывающих окон, инструмент автозаполнения форм, менеджер паролей, присутствует возможность «на лету» исправлять ошибки в скриптах. Имеются опции контроля за загружаемым контентом: графикой, анимацией, звуками и т.д.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37AC398B0965B0213B29158F0BFEF5086046238
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989062   (577967)
+
+VA- Русский зимний муз-отрыв №1 - 2016 (2016) [MP3|192-320кб с] <Pop>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989062.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danya - Никому и Никогда
+002. Елена Темникова - Ревность
+003. Aркадиас - Cоленый дождь
+004. Арвид – Ты позови меня(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83C31D85DEE836F7565829E94F4ED18CC16093F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989357   (577966)
+
+It - Departure (2009) [FLAC|Lossless|image + .cue] <Neo Progressive Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God is Dead
+02. Departure
+03. Killing Me
+04. Car Crash(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDC627448B75E02C21919C3A830DED5D5430BC0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989420   (577965)
+
+Юрий Кларов | Розыск (2015) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дилогия Юрия Кларова «Розыск» («Черный треугольник» и «Станция назначения — Харьков») посвящена поиску национальных сокровищ, похищенных из патриаршей ризницы, и ценностей, составляющих казну монархической организации «Алмазный фонд». Интересное само по себе расследование не исчерпывает содержания романов. Автор знакомит читателей с малоизвестными страницами истории (   Читать дальше...   )Жанр: ДетективПродолжительность: 21:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84542620C1E9BA718D81495620E4B4FAC90BFAA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988745   (577964)
+
+VA - Electro Life Best 100 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Dubstep, Electro Pro
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_988745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Kunnari - Helsinki (Marcus Maison & Will Dragen Remix)
+02. Amir Afargan ft. Katty Heath - Above The Clouds (Original Mix)
+03. Andrew D - Sweet Thing
+04. Andrew Spencer - What A Feeling (Cassey Doreen Remix)(   Читать дальше...   )Жанр: Electro House, Dubstep, Electro Progressive, Progressive HouseПродолжительность: 07:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931FF4D86E6EBAD899C1E705D34FD918C2BFCC83
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989036   (577963)
+
+John Ford - Resurrected (The Best Of and Then Some) (2011) [FLAC|Lossless|image + .cue] <Cla
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_989036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Back
+02. Acoustic Sunrise
+03. Perfect Day
+04. Resurrected(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4055033D191A656A21FA00B5FBD7F8035899114
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989157   (577962)
+
+VA - Придуманный мир. Новинки русского шансона (2016) [MP3|128-320 kbps] <Шансон>
+
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Игорь Голубев - Придуманный Мир
+002. Сергей Вольный - Поздняя любовь
+003. Игорь Слуцкий – Материнская любовь
+004. Борис Мамажанов- Осень в подмосковье(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AA7A79CCC27682A1EA2ACB6E669F68519530AE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989422   (577961)
+
+Н. Ф. Колесницкий | Феодальное государство (VI-XV вв.) [Пособие для учителей] (1967) [DJVU]
+
+
+>>Разное (категория книг)
+>>Историография
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989422.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются важнейшие методологические вопросы истории феодального государства и прослеживается развитие государственного строя трех наиболее значительных стран Западной Европы — Франции, Англии и Германии — в эпоху раннего и классического феодализма. Учитель истории найдет в пособии богатый материал для формирования у учащихся сложных понятий и представлений, (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4D32CB6F0EDE5C58852FE89CFEF9F56E9D6019
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989337   (577960)
+
+It - Over & Out (2002) [FLAC|Lossless|image + .cue] <Neo Progressive Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группы с подобными названиями найти в сети практически невозможно! Тем более, если не знаешь, что искать необходимо! Музыка группы написана под влиянием творчества PINK FLOYD, PORCUPINE TREE, OPETH, THE CURE и NINE INCH NAILS!01. Tuning In
+02. Good Morning America
+03. Hang On Tom
+04. Stay Tuned(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC54AF31DE528F12D5BD75CA4920C91DD0EB0C4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672770   (577959)
+
+Грег Иган | Карантин (1997) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_672770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чудовищная сфера, прозванная Пузырем, окружила Землю, скрыв от людей звезды... Золотая эпоха для преступников, получивших доступ к технологиям столь совершенным, что ни полиция, ни охрана не в силах им противостоять. Не лучшее время для частного детектива- время, когда кто угодно может по желанию изменить свою внешность или сознание. Простое на первый взгляд дело (   Читать дальше...   )Жанр: ФантастикаПеревод: Е. Мариничева, Л. Левкович-МаслюкФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26C8DB2CFAF81A0C48EF2E8AFB86E6C4EFCB24B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672704   (577958)
+
+NirLauncher Package 1.18.13 + Sysinternals Suite + Piriform Portable by punsh [Русский]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+NirLauncher - пакет, состоящий из 170 бесплатных портативных утилит для Windows, разработанных NirSoft в течение последних нескольких лет и объединенных в удобную оболочку для запуска. Включает утилиты для восстановления потерянных паролей, мониторинга сетевых соединений, поиска файлов в системе, просмотра и извлечения cookies, кэша и другой информации, сохраненной вашим браузером, различные системные и дисковые утилиты и многое другое.
+
+Также к пакету утилит от NirSoft в оболочку NirLauncher добавлены утилиты от Sysinternals Suite и Piriform (CCleaner 4.02 Professional, Defraggler 2.14, Recuva 1.47, Speccy 1.22), которые все вместе составляют 280 утилит.
+(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672748   (577957)
+
+AIDA64 Extreme Edition 3.00.2522 Beta [Multi Rus]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 (бывший Everest) - утилита является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку отдельных подсистем ПК. Выводит подробные сведения обо всем аппаратном и программном обеспечении, установленном в системе.
+
+(   Читать дальше...   )Язык интерфейса: Multi Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672577   (577956)
+
+Как отделаться от парня за 10 дней   How to Lose a Guy in 10 Days (2003) BDRip [480p] iPhone<3
+
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_672577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналистка Энди Андерсон из журнала получает довольно необычное редакционное задание, которое к тому же надо сделать очень быстро. Ей вменяется в обязанность написать статью о том, что выдумывают женщины для того, чтобы отделаться от мужчины, когда они его больше не хотят лицезреть рядом. На все про все у нее только 10 дней, через которые материал должен лежать (   Читать дальше...   )Жанр: мелодрама, комедияВ ролях: Кейт Хадсон, Мэттью МакКонахи, Кэтрин Хан, Энни Пэррис, Адам Голдберг, Томас Леннон, Майкл Мишель, Шалом Харлоу, Роберт Клейн, Биби НьювиртПеревод: Русский дублированный , многоголосый закадровый (DDV), многоголосый закадровый (CTC)Субтитры: * 3GPP Text -  АнглийскийПродолжительность: 01:55:28
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672583   (577955)
+
+Windows 7 Manager 4.2.8 Final [Английский]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 Manager - утилита позволяет пользователю эффективно настраивать оптимизировать и выполнить очистку от неиспользуемых файлов и параметров реестра вашу Windows 7. Утилита позволяет существенно увеличить быстродействие системы и ее безопасность. Программа паказывает подробную информацию обо всех компонентах компьютера и о запущенных процессах. Windows 7 Manager включает в себя более 30 утилит,
+которые служат для ускорения работы системы, а так же повышения ее стабильности и безопасности.
+
+(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 671645   (577954)
+
+Иметь и не иметь   To Have and Have Not (1944)  WEB-DL (720p)
+
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма основан на одноимённом романе Эрнеста Хемингуэя.
+1940 год. Идёт Вторая мировая война, Франция оккупирована нацистами. Гарри Морган живёт на острове Мартиника, ему принадлежит катер, на котором он возит богатых клиентов ловить рыбу. К Моргану обращается Жерар, участник Сопротивления, с просьбой тайно перевезти на Мартинику одного из лидеров движения. (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: Триллер, Мелодрама, ПриключенияРежиссер: Ховард ХоуксАктеры: Хамфри Богарт, Уолтер Бреннан, Лорен Бэколл, Долорес Моран, Хоаги Кармайкл, Шелдон Леонард, Марсель Далио, Уолтер Сэнд, Дэн Сеймур, Одри Армстронг, Джой Барлоу, Юджин Борден, Джек Чиф, Луиз Кларк, Жан Де Брик, Марсель Де Ла Бросс, Фред Дэш, Альфонсе Ду Бойс, Элзи Эмануэль, Фред Фаррелл, Лэнс Фуллер, Харольд Гаррисон, Джанетт Грае, Сьюзетт Харбин, Маргарет Хэтэуэй, (   Читать дальше...   )Перевод: Многоголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4EE8471357AAFF3FEBA601F11E2FC224B186A7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989087   (577953)
+
+The Temperance Movement - White Bear (2016) [FLAC|Lossless|tracks + .cue] <Rock, Blues Rock, Har
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Bulleits (03:14)
+02. Get Yourself Free (03:37)
+03. A Pleasant Peace I Feel (04:36)
+04. Modern Massacre (02:22)(   Читать дальше...   )Жанр: Rock, Blues Rock, Hard RockПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2EBE517725F38F2A8E13A23A60EAD465901858E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989503   (577952)
+
+VA - The 60 s Collection (2000) [FLAC|Lossless|tracks + .cue] <Rock&Roll>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marianne Faithful - This Little Bird (2:06)
+02. James Brown - It s A Man s Man s Man s World (2:46)
+03. Dusty Springfield - You Don t Have To Say You Love Me (2:50)
+04. Marvin Gaye - I Heard It Through The Grapevine (3:12)(   Читать дальше...   )Жанр: Rock&RollПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B58C8647B9ADB6715E6FD83974FF4788BFF5A75
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989270   (577951)
+
+Лазерная система POLARIS устанавливает мировой рекорд по мощности импульса
+
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+POLARIS является самой мощной на сегодняшний день лазерной системой со светодиодной накачкой, которая недавно произвела импульс с рекордной для подобных систем мощностью. Рекордный уровень энергии импульса был получен, благодаря некоторой серьезной модернизации этой лазерной системы, которая было проведена специалистами из Института оптики и квантовой электроники (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989358   (577950)
+
+SRWare Iron 48.0.2550.1 DC 21.02.16 + Portable [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безопасный, удобный и быстрый в работе браузер на основе исходного кода проекта Chromium. Обладая интерфейсом и многими функциями, знакомыми пользователям по Google Chrome, SRWare Iron отличается своей политикой по отношению к безопасности и конфиденциальности. В нем отсутствуют какие-либо «следящие» модули, в чем неоднократно обвинялся браузер от Google.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7FD4FF7D958064BCB3F995868AC1770280CCD6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989373   (577949)
+
+Обои - Микс обоев. Часть 15. 1920x1080 - 300 шт [JPG]
+
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка качественных обоев для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB0A46BFB1A2BFA9A7073A1E8BE11DADAE14D3B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989125   (577948)
+
+Музыка Верди (1961) TVRip
+
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989125.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказов К. Паустовского  Музыка Верди  и  Доблесть .Производство: СССР, МосфильмЖанр: Мелодрама, Музыкальный, КороткометражныйРежиссер: Владимир ГориккерАктеры: Нина Головина, Николай Тимофеев, Виктор Хохряков, Ольга Жизнева, Эммануил Геллер, Николай Крючков, Михаил Трояновский, Александр Лебедев, Алексей Мотылев, Сергей ГоловановПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4865F43D15A71EC23F3CA69292EA0396C4D85A50
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989495   (577947)
+
+В.В Богданов, С.Н. Попова | Истории обыкновенных вещей (1992) [DJVU]
+
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга в увлекательной форме рассказывает обо всех тех вещах, которые стали неотъемлемой частью нашей повседневной жизни. Десятки, сотни вещей вокруг. Одни сопровождают нас всю жизнь, другие — только ее маленький отрезок. Многие вещи настолько сживаются с нами, что по ним можно определить наши привычки. Цель книги — расширить представление детей об окружающем мире, (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A8FC17383556FA60D4CF5E6EFA843054049343
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989399   (577946)
+
+MindNode 2.2.3 [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989399.jpg" />
+</div>
+
+
+###  Подробнее
+
+MindNode  – программа, позволяющая визуализировать ваши мысли с помощью построения графических диаграмм. Отлично помогает при мозговых штурмах и при необходимости упорядочить мысли или идеи.
+
+MindNode  элегантный и простой в использовании, который помогает визуально:
+	•	Сбора, классификации и структуре идей.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 февраля 2016Разработчик: IdeasOnCanvas GmbHПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460A829368D5FB1A1B5EBE8E8EA5C084287A25CF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989290   (577945)
+
+Первая передача на НТВ. Автомобильная передача. Выпуск №239 (22.02.2016) SATRip
+
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989290.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31EF197C447F9BE53D2A61116B910D5EADAEE6B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989077   (577944)
+
+Calogero - Calog3ro (2004) Enhanced [FLAC|Lossless|image + .cue] <Pop, Chanson>
+
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_989077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yalla  04:48
+02. Il Bat  04:20
+03. Face A La Mer (En Duo Avec Passi)  03:43
+04. Si Seulement Je Pouvais Lui Manquer  03:20(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF64177D3FC96DCDEB479BE4478122ED09CBBF70
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989224   (577943)
+
+VA - The Many Faces Of David Bowie (2016) 3CD [MP3|320 кб с] <Art Rock, Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Reeves Gabrels Feat David Bowie - You ve Been Around
+02. Tony Visconti & Woody Woodmansey - The Man Who Sold The World
+03. Ian Hunter & Mick Ronson - All The Young Dudes
+04. Dana Gillespie Prod By Mick Ronson & David Bowie - Andy Warhol(   Читать дальше...   )Жанр: Art Rock, RockПродолжительность: 02:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B350C0E1B88CDC3E2B46038FB16987E27EC3B12D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988981   (577942)
+
+Анетта (1966) SATRip [H.264]
+
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_988981.jpg" />
+</div>
+
+
+###  Подробнее
+
+На рыболовецкое судно пришла новая повариха - добрая пожилая женщина Анетта. Матросы, ожидавшие увидеть молодую, были разочарованы. Однако её отношение к ребятам, добрая улыбка со временем покорила всех. Она, как мать, заботилась о молодых матросах, за что парни стали называть её «мамуся». Но она не могла простить жестокости одного из них и уходит с судна…Производство: СССР, Одесская киностудия художественных фильмовЖанр: Короткометражный, ДрамаРежиссер: Георгий ШмовановАктеры: Вера Алтайская, Виктор Пименов, Валерий Панарин, Дмитрий Орловский, Владимир Евченко, Николай Кошкин, Виктор Степаненко, Валентин Стоянов, А. Чинов, В. ФедоренкоПродолжительность: 00:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B8E6492249EDFA750D7AE1C74B6F119AC13377
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989220   (577941)
+
+VA - The Many Faces Of David Bowie (2016) 3CD [FLAC|Lossless|image + .cue] <Art Rock, Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Garson - Space Oddity
+02. The Spiders From Mars - Prisoner
+03. The Velvet Underground - Waiting For The Man
+04. Iggy Pop & David Bowie - Sister Midnight(   Читать дальше...   )Жанр: Art Rock, RockПродолжительность: 02:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF45D8DA213B4C42EEB67AE5FD6F79BCA697A6B6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989300   (577940)
+
+Элис Манро | Слишком много счастья (2016) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот уже тридцать лет Элис Манро называют лучшим в мире автором коротких рассказов, но к российскому читателю ее книги приходят только теперь, после того, как писательница получила Нобелевскую премию по литературе. Критика постоянно сравнивает Манро с Чеховым, и это сравнение не лишено оснований: подобно русскому писателю, она умеет рассказать историю так, что читатели, (   Читать дальше...   )Жанр: НовеллыПеревод: С англ. Андрея СтепановаПродолжительность: 10:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74E14831C96FDEF8D4F8BAD6ED0381A26CA444D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988936   (577939)
+
+Гельмут Фигдор | Беды развода и пути их преодоления (2006) [FB2]
+
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_988936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гельмут Фигдор - один из ведущих специалистов в области разводов. Беды детей, по его утверждению, являются следствием родительских бед, поэтому помочь первым можно, только лишь оказав помощь вторым. Одну из самых больших проблем автор видит в том захлестывающем чувстве вины, которое сопровождает развод, именно оно и мешает взрослым делать то, что необходимо детям. (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253D4EBDDCE89DFA13F5B28ED45C6446AB5238CE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989424   (577938)
+
+Журнал | Дом в саду. Спецвыпуск №1 Садовые розы (2016) [PDF]
+
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Сад, ландшафтный дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E05275614E5D9B08FD566089C59251B79D4DB31
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989314   (577937)
+
+Полигон. Танк Т-72БЗ (2015) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых ожидаемых премьер этого телесезона — программа о современных военных разработках, новейших видах вооружения, средствах ведения боя и индивидуальной защиты!
+Российская армия сегодня – это не только автомат Калашникова и самолеты Сухого. Инновационные разработки военно-промышленного комплекса открывают практически безграничные возможности. Однако гражданским (   Читать дальше...   )Телекомпания: Россия 2Жанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402FB3B483C8FEEC963BD1EE357514BEFCB44513
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989315   (577936)
+
+Полигон. Корветы (2015) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых ожидаемых премьер этого телесезона — программа о современных военных разработках, новейших видах вооружения, средствах ведения боя и индивидуальной защиты!
+Российская армия сегодня – это не только автомат Калашникова и самолеты Сухого. Инновационные разработки военно-промышленного комплекса открывают практически безграничные возможности. Однако гражданским (   Читать дальше...   )Телекомпания: Россия 2Жанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D7A1D1B4521B047D2B49025C5BD78C8E6FFBCF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989541   (577935)
+
+День космических историй. Кто управляет водой?  (2016.02.22) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
+День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AEAC6854DDA1F0A5692E6003099FDFFB5CB5C3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989531   (577934)
+
+Розыск 3 (2015) WEB-DLRip [H.264 1080p-LQ] (серии 1-16 из 16)
+
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть авторитета Самойлова, казалось бы, прекратила бандитские разборки, и теперь майор Попов вернулся к розыску преступников, пытаясь совместить опасную работу и воспитание своей дочери-подростка. Но временное затишье грозит бурей. Преступные группировки больше не могут мирно уживаться на одной территории: Кок, бывшая «правая рука» Самохина, и Ринат, главный враг (   Читать дальше...   )Производство: Россия   ООО  АЛЬЯНС ПРОФИ Жанр: детективРежиссер: Сергей КрасновАктеры: Сергей Борисов, Роман Богданов, Алексей Фаддеев, Василий Шмаков, Рамиль Сабитов, Руслан Ягудин, Леонид Тимцуник, Наталья Лукеичева, Марина Черняева, Владислав Маленко, Сергей Якубенко, Игорь Ливанов, Сергей Векслер, Алексей Ошурков, Олег Харитонов, Сергей Беляев, Денис Варенов, Софья Максимча, Денис Курочка, Тамерлан Коченов, Александр Воробьёв, Елена Штарова, Александр (   Читать дальше...   )Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB9A8AB77646496807237B07EEA25AA3B3149A6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 671553   (577933)
+
+Кошмар Дарвина   Darwin s Nightmare (2004) DVDRip [EN, FR]
+
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Австрийский документалист Хуберт Саупер (Hubert Sauper) представил на премию  Оскар  картину о глобальных последствиях небольшого научного эксперимента. В 1960-х в африканское озеро Виктория была выпущена небольшая популяция нильского окуня. За сорок лет этот крупный и быстро размножающийся хищник истребил почти все эндемичные виды рыб. Но нильский окунь оказался хорошей статьей экспорта, приносящей немалый доход Танзании. На вырученные деньги владельцы рыбных заводов и правительство покупают не лекарства от СПИДа, который бушует в стране, а оружие для воюющих группировок.
+
+На этом можно было бы и закончить, если бы не одно «но»:
+По ходу фильма Саупер пристраивается к украинскому экипажу грузового Ил-76 (тот совершает рейсы в Танзанию как раз за этой самой рыбой). Выбрав себе в качестве героев наших соотечественников (надо сказать, что фильм снят на трёх языках: английским, русском и суахили), режиссёр определенно ищет скандала: якобы русские в обмен на рыбу поставляют африканским повстанцам оружие. (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Хуберт СауперАктеры: Жители Мванзы, пилоты Ил-76, члены разных комиссий и др.Перевод: Отсутствует (субтитры)Язык субтитров: РусскиеПродолжительность: 1:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83F5E982649048A65E277F9CB531EDBC153FD70
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672489   (577932)
+
+VA - За глаза твои карие (2013) [MP3|320 кб с]<Шансон>
+
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Михаил Шелег - За глаза твои карие
+ 02. Виктор Королев - Не родись красивой
+ 03. Жека - Вдыхая друг друга
+ 04. Бумеr - Не плачь
+ 05. Катерина Голицына - Май
+ 06. Яна Павлова - Знает только небо...
+ 07. Ирина Круг - Перелетная птица Для Васи (Новая Версия)
+ 08. Иван Кучин - Роза на крови
+ 09. Денис Майданов - Вечная любовь
+ 10. Сергей Сухачев - Первые цветы(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6369293F0F458B4F87F52B303580A742ECC34A76
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672710   (577931)
+
+Журнал | Women s Health [Россия] №7 (июль 2013) [PDF]
+
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Women’s Health – качественное модное глянцевое издание о здоровом образе жизни в современном формате. Это живой, веселый и практичный журнал для современных, активных женщин, он не только о здоровом образе жизни и фитнесе, но и о красоте, стиле, сексе и отношениях. Издание ответит на популярные среди женщин вопросы, как вести здоровый образ жизни, как справиться (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3556142A28424DC717B383FC7CCDB50C668295BB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672503   (577930)
+
+Компьютерная графика - Photos from Scott Miron s [JPG]
+
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Фотоманипуляции фотографа Scott Miron s.Разрешение файлов: от 480x800px до 800x800px.Формат: JPG.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6802769BC51AF4672E3D3238A1377EF3967A17A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672742   (577929)
+
+Юрий Ермолаев | Сборник (6 книг) [1969-1981] [FB2]
+
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_672742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Иванович Ермолаев (1921-1996) - детский писатель, драматург, актер.
+Добрые, веселые повести, рассказы и сказки всегда нравились детям и взрослым, которые были детьми.
+А андроиды и мутанты, которые миновали детство, не заметив его, могут эти книги не читать.
+Иллюстраторами в книгах Ермолаева поработали Боровский, Мазурин, Медведев и Вальк.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EF7353469273428D46FE448023E28CF8D004C8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672668   (577928)
+
+Sirenia - Perils Of The Deep Blue (2013) Limited Edition [MP3|320 кб с]<Symphonic Gothic Metal
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Ducere Me In Lucem
+02. Seven Widows Weep
+03. My Destiny Coming To Pass
+04. Ditt Endelikt
+05. Cold Caress
+06. Darkling
+07. Decadence
+08. Stille Kom Doden
+09. The Funeral March
+10. Profound Scars(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59C3987D94B9AAD492385D5C7D0765E8A8ABD15
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672694   (577927)
+
+PhotoScape 3.6.4 [Ru Multi]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Графический редактор с расширенными возможностями. Photoscape позволяет просматривать изображения, редактировать графику, обрабатывать файлы в пакетном режиме, конвертировать RAW-файлы. Помимо этого в Photoscape можно создавать анимированные файлы GIF, делать скриншоты, определять цвета пикселей, настраивать яркость, цветовую насыщенность, баланс белого, проводить коррекцию контрастности. Программа позволяет создавать рамки, графический текст, рисовать картинки, обрезать изображения, применять различные фильтры, удалять эффект  красных глаз  и многое другое.Язык интерфейса: Ru Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 668949   (577926)
+
+VA - Metal Front (vol. 1-4) (2013) [MP3|178-320 кб с]<Heavy Metal, Trash Metal, Power Meta
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_668949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galneryus - Rebel Flag
+02. Asgard - Spirits
+03. Timo Tolkki s Avalon - The Land of New Hope
+04. Dreamtale - We Have No God
+05. Art Of Dying - Sorry
+06. Pink Cream 69 - Land Of Confusion
+07. Revolution Renaissance - Crossing The Rubicon
+08. Scorpions - No One Like You
+09. As I Lay Dying - Tear Out My Eyes
+10. Iron Tongue - Ever After(   Читать дальше...   )Жанр: Heavy Metal, Trash Metal, Power Metal, Industrial MetalПродолжительность: 03:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052B949E1FBA5CF55B5AA23E408B6EC92160FE64
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988955   (577925)
+
+DDT - Метель Августа (2000) [FLAC|Lossless|tracks + .cue] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_988955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бродяга (4:19)
+02. Питер (5:38)
+03. Летели облака (4:24)
+04. Московская барыня (3:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FFD73C535E1F3C611CC0C115F16BFA43B9AF01
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989540   (577924)
+
+День космических историй. Когда погаснет Солнце  (2016.02.22) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
+День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B242069392CDA998862CC0DB1893F0E1BADEBA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989577   (577923)
+
+День космических историй. Охота на циклопа (2016.02.22) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
+День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D3DCC043ACBF51F30392D4D7AA08579E792E39
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989297   (577922)
+
+Юрий Мухин | Святой русский царь (2015) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель Юрий Мухин на основе книги А.И. Спиридовича  Великая война и Февральская Революция 1914-1917 годов  дает свое видение причин падения монархии в России.
+Эта книга об управлении людьми – о том, как управлять людьми не следует, но управляют.Жанр: История, публицистикаПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3C03498DDF058E6A5800384DF48EB0920AE1FE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989533   (577921)
+
+Розыск 3 (2015) WEB-DLRip [H.264 720p-LQ] (серии 1-16 из 16)
+
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть авторитета Самойлова, казалось бы, прекратила бандитские разборки, и теперь майор Попов вернулся к розыску преступников, пытаясь совместить опасную работу и воспитание своей дочери-подростка. Но временное затишье грозит бурей. Преступные группировки больше не могут мирно уживаться на одной территории: Кок, бывшая «правая рука» Самохина, и Ринат, главный враг (   Читать дальше...   )Производство: Россия   ООО  АЛЬЯНС ПРОФИ Жанр: детективРежиссер: Сергей КрасновАктеры: Сергей Борисов, Роман Богданов, Алексей Фаддеев, Василий Шмаков, Рамиль Сабитов, Руслан Ягудин, Леонид Тимцуник, Наталья Лукеичева, Марина Черняева, Владислав Маленко, Сергей Якубенко, Игорь Ливанов, Сергей Векслер, Алексей Ошурков, Олег Харитонов, Сергей Беляев, Денис Варенов, Софья Максимча, Денис Курочка, Тамерлан Коченов, Александр Воробьёв, Елена Штарова, Александр (   Читать дальше...   )Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A462B4C6939EBA6DFC5AE82641F8FC9E8E0AD2CC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989431   (577920)
+
+Мэри Хиггинс Кларк | Смерть под маской красоты [сборник] (2016) [FB2]
+
+
+>>Художественная литература
+>>Детективы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Едва выйдя замуж за Майка Брода, помощника окружного прокурора из Лос-Анджелеса, Дженис Саундерс полетела с ним в Нью-Йорк – повидать свою старшую сестру Александру, с которой не виделась уже год. Александра, известная фотомодель и актриса, пообещала встретить молодую пару в аэропорту. Но прошло несколько часов, а сестра так и не появилась. Приехав к ней на квартиру, (   Читать дальше...   )Жанр: Современные детективы, Зарубежные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59093110EF00E497F461B75277A0E420D6AA1AF4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989542   (577919)
+
+День космических историй. Что за новая планета?  (2016.02.22) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
+День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D237F590FA99BEB10B94186998DF47AC87C1B88B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 982395   (577918)
+
+Анна – королева пиратов   Anne of the Indies (1951) DVDRip [H.264]
+
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_982395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поймав пирата Ла Рошеля, британские власти предлагают ему свободу в обмен на поимку двух морских разбойников — капитана Черная Борода и капитана Провидения. Ла Рошель попадает на борт корабля, которым командует Провидение. И тут он выясняет, что капитан Провидение — женщина…Производство: США   20th Century Fox Film CorporationЖанр: Боевик, Драма, Мелодрама, ПриключенияРежиссер: Жак ТурнёрАктеры: Джин Питерс, Луи Журдан, Дебра Пейджит, Херберт Маршалл, Томас Гомес, Джеймс Робертсон Джастис, Фрэнсис Пьерло, Шон МакКлори, Холмс Херберт, Байрон НельсонПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E92B107B60C2C928D548C3153627AFC0FD60487
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989451   (577917)
+
+Dino MC47 - Вне Номинаций (2008) [FLAC|Lossless|tracks + .cue] <Rap>
+
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вдохновение (Feat. Iskra) (5:02)
+02. Клуб: Пусть Будет Шоу (Feat. Настя Задорожная) (3:50)
+03. Жара (Feat. Теона Дольникова) (4:22)
+04. Нет Невозможного (3:41)(   Читать дальше...   )Жанр: RapПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA62AA61A398BA964EF800B7AFBBE84E5B40A57
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989257   (577916)
+
+Обои - Super mix wallpapers Set.85-88 [JPG]
+
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски 85-88.Формат: JPGРазрешение файлов: 1280х1024 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05478CED5C813095973C5A12CA329908AD3D77BB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989376   (577915)
+
+Даниэль Труссони | Ангелополис (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение всемирно известного бестселлера «Ангелология»!
+
+Вот уже многие века длится противостояние людей и нефилимов – существ, порожденных на заре времен человеческими женщинами от ангелов. За тысячи лет нефилимы расселились по Земле, став злейшими врагами людей. Им противостоят ангелологи – специалисты по охоте на падших ангелов. Однако в последнее время в этой (   Читать дальше...   )Жанр: Ужасы и Мистика, Триллеры, Зарубежное фэнтези, Зарубежные детективы, Городское фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB75347E0AED8688BA1E85D5C069E59BF7E6A8B6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989336   (577914)
+
+Wise Care 365 Pro 3.97.359 Final + Portable [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4BA2BAE2BC4C6D37710B9229CB2D941BAEBD11
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989374   (577913)
+
+Обои - Природа в разрешении 2560x1600. Часть 2 - 200 шт [JPG]
+
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка качественных обоев на тему природы для вашего рабочего стола.Формат: JPGРазрешение файлов: 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842ADABCF7EFDDC8AA72045C1EA05CD2C7AE8CCC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989295   (577912)
+
+Военная приемка. Секретные материалы (21.02.2016) HDTVRip [720p-LQ]
+
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы увидим то, что обычно остается за кадром объектива. Съемочный процесс без прикрас. С грязью, потом, сломанной техникой и конечно с неудачными дублями. Мы покажем вам, в каких экстремальных условиях порой приходится работать нашей съемочной группе. Вы узнаете, что чувствуешь, когда висишь между небом и землей, а мимо тебя летит в пустоту тяжелая военная техника. (   Читать дальше...   )Еженедельная программа  Военная приемка  расскажет зрителю обо всех новинках российского оборонного комплекса. Кроме этого, особое внимание будет уделено такой важной профессии, как военный представитель - офицер, который несет перед государством ответственность за качество выпускаемой военной техники.Телекомпания: ЗвездаЖанр: ТелепередачаПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B40B8B0244404FE4D1D8807F3674E7AB02ECA3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989223   (577911)
+
+Ashampoo Snap Business 8.0.8 Portable by SpeedZodiak [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Snap Business специально сделана для того, чтобы без труда влиться в Ваш бизнес. Мы добавили Ваш дизайн, логотип и водяной знак, а также подпись авторского права, чтобы защитить интеллектуальную собственность Вашей компании. Для более тесной интеграции с сетью, мы добавили возможность при желании заливать скриншоты и видео на предопределённый сетевой адрес. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FDB72E2B6D70C7E87DF270E8080DFBB0391C98
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989347   (577910)
+
+Адам Нэвилл | Номер 16 (2016) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_989347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон. Респектабельный дом в престижном районе. И «нехорошая» квартира, в которую уже пол столетия никто не входит и из которой никто не выходит.Сету, ночному портье, тоже не следовало отворять дверь с номером 16, какие бы странные звуки ни проникали наружу. Не стоило переступать роковой порог и молодой американке Эйприл, неожиданно получившей квартиру в наследство (   Читать дальше...   )Жанр: Мистика, ужасыПродолжительность: 14:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C7A910BAF544F28CE152D7821B5358C5153A05
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989368   (577909)
+
+Крис Юэн | Прибежище (2016) [FB2]
+
+
+>>Художественная литература
+>>Детективы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роб Хейл очнулся в больнице после аварии. Он серьезно пострадал, но еще больше его беспокоит состояние пассажирки – едва знакомой девушки, с которой они катались на мотоцикле. Вот только полицейские и врачи в один голос убеждают его, что на месте крушения больше никого не было, что забравшей девушку машины «Cкорой помощи» не существует и что ложная память – обычное (   Читать дальше...   )Жанр: Современные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035E22D9407881F6908894E086D08ADFF316FE8C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989440   (577908)
+
+Blocs 1.6.0 [En]
+
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Простой способ создания красивых сайтов.
+Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
+
+Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: февраль 2016Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8114EEAABF8DD0CAE41B9EF3C1461B02292386
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989409   (577907)
+
+Discovery. Техногеника. Родина-мать и Останкинская телебашня (2016) HDTVRip [720p-LQ]
+
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_989409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родина-мать и Останкинская телебашняТехногеника — это серия документальных фильмов, каждый из которых посвящен одному из наиболее значимых для России и уникальных в мировом контексте памятников (или объектов) технического инженерного искусства, объектов, значение которых для развития нашей страны переоценивать невозможно, объектов, создание которых обогатило опыт всей человеческой цивилизации.
+Наш (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C61E8ED6F376BEBDCE13A7B679C03F315EA667C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989371   (577906)
+
+Максим Хорсун | Арбат (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он был пахарем без единого шанса изменить свою судьбу…
+Но шанс представился.
+Теперь юноше нужно добраться до Арбата, чтобы завершить миссию, от которой зависит судьба Кремля – а, возможно, и всего человечества.
+Но для этого ему необходимо выжить в плену у нео и на кровавой Арене, пробираться через кишащий опасностями лабиринт улиц Москвы, насмерть сражаться с коварными (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97A21F5934BE06A4220436CB1A53B3C0A310520
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672621   (577905)
+
+GIMP 2.8.6 Final Portable by PortableApps [Ru Multi]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+GIMP - средство для работы с изображениями. Программа может справиться с задачами создания графики и логотипов, масштабирования и кадрирования фотографий, раскраской, комбинирования изображений с использованием слоев, ретуширования и преобразования изображений в различные форматы. GIMP является одним из первых приложений подобного класса, которое распространяется с открытыми исходными кодами. Несмотря на то, что GIMP является свободным ПО, его возможности практически не уступают аналогичному продукту Adobe Photoshop.
+(   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672661   (577904)
+
+Cher - Woman s World (Live On The Voice) (2013) [H.264 1080i] HDTV
+
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Новый сингл талантливой поп. дивы Cher. Живое выступление на американском  The Voice  (06.18.2013).Жанр: PopПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104DC00554F6C4D1CA74B7945AEEAC80628623D1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672445   (577903)
+
+Kiss - Monster (2012) International Tour Edition   2013, Universal   [FLAC|Lossless]<Glam Ha
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Or Halleluja [4:07]
+02. Wall Of Sound [2:56]
+03. Freak [3:35]
+04. Back To The Stone Age [3:01](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672205   (577902)
+
+Превратности любви   Playing by Heart (1998) BDRip [H.264]
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Два клаббера, повстречавшиеся в ночном клубе. Пожилая пара, заново дающая друг другу обет. Антисоциальная женщина, принимающая приглашение на свидание от незнакомца. Парень, умирающий от СПИДа, и его мать, не желавшая принять сына из-за его гомосексуальности. Пара, у которой затягивается роман. И мужчина, бродящий по барам и рассказывающий там о своих несчастьях.
+Шесть совершенно непохожих друг на друга и не взаимосвязанных историй постепенно сплетутся воедино…Жанр: Драма, Мелодрама, КомедияРежиссер: Уиллард КэрроллПродюсер: Уиллард Кэрролл, Мэг Либерман, Томас Л. УилхайтАктеры: Анджелина Джоли, Шон Коннери, Джина Роулендс, Джиллиан Андерсон, Мэделин Стоу, Райан Филипп, Деннис Куэйд, Кристиан Миллс, Келли Уэймайр, Эйприл ГрэйсПеревод: Многоголосый закадровыйПродолжительность: 02:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5FE7BE0B20DF1870CB302AECE27D703F5F76E9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672290   (577901)
+
+Ни жив, ни мертв   Half Past Dead (2002) Blu-Ray [1080p]
+
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_672290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преступный гений пробует попасть в одну из самых хорошо охраняемых тюрем мира, чтобы узнать у сокамерника-смертника местоположение 200 миллионов долларов в золоте, когда-то им украденных.
+Но на несчастье бандита, ФБР имеет своего человека в тюрьме, который сделает все, чтобы помешать тому первым найти спрятанное сокровище.Производство: Franchise Pictures    Германия, СШАЖанр: Боевик, Триллер, КриминалРежиссер: Дон Майкл ПолАктеры: Стивен Сигал, Моррис Честнат, Джа Рул, Ниа Пиплз, Тони Плана, Карапт, Майкл Талиферро, Клаудия Кристиан, Линда Торсон, Брюс ВайцПеревод: Профессиональный (дублированый)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, Арабский, Датский, Голландский, Эстонский, Финский, Французский, Хинди, Литовский, Норвежский, Румынский, ШведскийПродолжительность: 01:38:32
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672549   (577900)
+
+oCam Screen Recorder 13.0 Portable by KGS [Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+oCam Screen Recorder - бесплатная программа, позволяющая быстро и качественно записать видео всего происходящего на экране. Кодирование (сжатие) получаемого видео производится кодеками, установленными в систему. Имеется поддержка двух мониторов. Cam Screen Recorder позволяет записывать также и звуковое сопровождение, причем не только через микрофон. Особенностью программы является именно беспроблемная запись любых звуков, воспроизводимых через динамики в процессе записи. Для этого применяется технология WASAPI loopback, при которой производится захват звуков издаваемых системой (то, что мы слышим) без применения стереомикшера. Кроме того, программа может сохранять и обычные скриншоты в формате PNG.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672541   (577899)
+
+Lenka - Lenka (2008) [FLAC|Lossless]<Pop>
+
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. The Show [03:56]
+02. Bring Me Down [03:29]
+03. Skipalong [03:53]
+04. Don t Let Me Fall [02:51]
+05. Anything I m Not [03:18]
+06. Knock Knock [03:41]
+07. Dangerous And Sweet [03:32]
+08. Trouble Is A Friend [03:36]
+09. Live Like You re Dying [03:49]
+10. Like A Song [03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672622   (577898)
+
+Саймон: Английский легионер   Simon: An English Legionnaire (2002) HDRip
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+В 1960 году англичанин Саймон Мюррей завербовался во Французский Иностранный Легион, и все 5 лет службы в Алжире вёл дневник, на основе которого спустя годы им была написана книга  Легионер , которая в свою очередь послужила основой для фильма Мартина Хьюберти. Вкратце показаны тренировки, быт и взаимоотношения легионеров 60-х годов, несколько боевых операций. Вообще, для  Лежьон Этранже  это был не самый спокойный период его существования: шел заключительный этап войны в Алжире, закончившейся признанием его независимости в 1962 году.Жанр: Драма, ВоенныйРежиссер: Мартин ХубертиАктеры: Пол Фокс, Том Харди, Кейт Маберли, Эйтор Мерино, Фелисите Ду Жю, Йорик ван Вагенинген, Бруно Мунос-Рохас, Хавьер Альсина, Кристиан Мюло, Дугалд Брюс ЛокхартПеревод: Авторский одноголосый (Ю. Сербин)Язык субтитров: ОтсутствуютПродолжительность: 01:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421CA1A48700FD175D1ABA01435D08C8F9A9998E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989397   (577897)
+
+Журнал | Автомир [Россия] №10 (февраль 2016) [PDF]
+
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989397.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3BF1E3D538CA6CC2825347910E0EFB2FD2C90D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989287   (577896)
+
+Сергей Кашин | Умная пасека. Разумное ведение хозяйства (2015) [FB2]
+
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мед – это очень полезный и вкусный продукт, но не всегда есть возможность покупать его в необходимом количестве. Если есть садовый участок, то вы без труда сможете овладеть секретами пасеки и делать медовые запасы в нужном объеме, не тратя на это больших денег. Наша книга станет для вас прекрасным помощником и советчиком в деле пчеловодства.Жанр: Хобби и ремесла, Сад и ОгородФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF019E4D352BEB4C744E21264B62990ED5E54742
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989417   (577895)
+
+Glary Utilities Pro 5.45.0.65 Final RePack (& Portable) by D!akov [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE8BF989387EBD5C7BF07C12170F1D62500668E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989181   (577894)
+
+Геркулоиды   The Herculoids (1980) DVDRip [H.264] (Сезон 2, серий 1-11 из 11)
+
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далекий и дикий мир планеты Квазар станет местом приключений семьи Людей (Зендора, Тары и Дорно), а так же их друзей - невероятных животных-геркулоидов.Производство: США. Cartoon Network, Hanna-Barbera ProductionsЖанр: Рисованная анимация, МинисериалРежиссер: Алекс ТотПерсонажи: Зендор, Дорно, Тара, животные-геркулоиды и масса злодеев и монстровПеревод: Одноголосый закадровыйОзвучка   Автор перевода: Трамвай-фильмПродолжительность: 00:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE723D5AF578AD9E199DA7B51D73EE3609EED57
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989232   (577893)
+
+Мэри Поппинс   Mary Poppins (1964) BDRip
+
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство Бенкс озабоченно поисками няни для своих детей. И как это бывает только в сказке, она появилась прямо из воздуха, прекрасная, ни на кого не похожая. Как раз такая, какую мечтали бы иметь в своем доме всякие любящие родители.
+У неё не просто цветущий вид. Она не просто лучше всех умеет готовить, ходить по магазинам, одеваться, танцевать и воспитывать детей. (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: Комедия, Семейный, Мюзикл, Фэнтези, АнимацияРежиссер: Роберт СтивенсонАктеры: Джули Эндрюс, Дик Ван Дайк, Дэвид Томлинсон, Глинис Джонс, Гермиона Бадделей, Рита Шоу, Карен Дотрис, Мэттью Гарбер, Эльза Ланчестер, Артур ТричерПеревод: ДублированныйПродолжительность: 02:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E956D4AA91AE2FC066D71957FA3A6C0379C66008
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989271   (577892)
+
+Машины-монстры: Cedar Rocket - самое быстрое в мире бревно с колесами
+
+
+>>След.
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Можно с уверенностью сказать, что даже заядлым энтузиастам и любителям автомобилей неизвестно, что среди прочих необычных и безумных рекордов в Книге мировых рекордов Гиннеса имеется рекорд в категории  самое быстрое бревно на колесах и с двигателем . Обладателем этого рекорда является транспортное средство Cedar Rocket, детище Брайана Рейда (Bryan Reid), (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 982047   (577891)
+
+Два моряка и генерал   Due marines e un generale (1965) DVDRip [H.264] [VO]
+
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_982047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идет Вторая мировая война. Два сослуживца Джой и Фрэнк, по воле случая, оказываются вовлечены в выполнение важнейшей миссии — подготовить высадку американского десанта в районе порта Анцио. Благодаря своему врожденному кретинизму они разрушают немецкую оборону и выигрывают войну…Производство: Италия   Dino de Laurentiis Cinematografica, Italian International FilmЖанр: КомедияРежиссер: Луиджи СкаттиниАктеры: Франко Франки, Чиччо Инграссия, Бастер Китон, Фред Кларк, Марта Хайер, Франко Рессель, Барбара Лой, Алессандро Сперли, Альфредо АдамиПеревод: Одноголосый закадровый (Д.Есарев)Субтитры: ОтсутствуютПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991D24669A83BB89E1AB6A1B16E8685EDE739A63
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989416   (577890)
+
+Разомкнутые объятия   Los abrazos rotos (2009) BDRip [H.264 1080p]
+
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный сценарист и режиссёр попадает в страшную автокатастрофу, после которой необратимо слепнет. Он не может больше снимать кино, от него уходит женщина, которая была смыслом его жизни. Вместе со зрением он теряет всё. Смириться с трагедией своей жизни он сможет только спустя 14 лет, открыв душу своему молодому помощнику, которого он полюбил как сына.Производство: ИспанияЖанр: Триллер, мелодрама, драмаРежиссер: Педро АльмодоварАктеры: Пенелопа Крус, Льюис Омар, Бланка Портильо, Хосе Луис Гомез, Рубен Очандиано, Тамар Новас, Анхела Молина, Чус Лампреаве, Кити Манвер, Лола ДуэньясПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 02:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB8487E87AF1304C7305A07999574C9BE64C901
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989234   (577889)
+
+Американский самурай   American Samurai (1992) DVDRip [H.264]
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малыш Эндрю Коллинз, потеряв своих родителей в результате авиакатастрофы, чудом остался жив и попадает в семью Наставника, открывшего ему тайны самурайского меча. Его названный брат Канджиро выкрадывает фамильный меч, обладающий силой предков, который по праву должен принадлежать Эндрю.
+Такой позор, по самурайскому кодексу чести, можно смыть только кровью. Эндрю (   Читать дальше...   )Производство: США   Cannon Pictures, Global PicturesЖанр: БоевикРежиссер: Сэм ФёрстенбергАктеры: Дэвид Брэдли, Марк Дакаскос, Валери Трапп, Рекс Район, Мелисса Хеллман, Джон Фудзиока, Дуви Коэн, Марк Уоррен, Коби Азарли, Шалом АвитанПеревод: Многоголосый, двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278D6EEDDA994D53C3798255B82FBA9274D4B539
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989170   (577888)
+
+Ирина Аллегрова в Олимпийском - Перезагрузка (2015) HDTVRip
+
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_989170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет телевизионную версию концертного шоу, которое стало одним из самых ярких событий в мире российского шоу-бизнеса 2015.
+Народная артистка России Ирина Аллегрова представляет на суд широкой аудитории свою новую программу «Перезагрузка».
+В 2012-м Аллегрова объявила о своем уходе со сцены,
+но у творчества свои законы и именно вскоре после тех (   Читать дальше...   )01. Перезагрузка
+02. Я тебе не верю
+03. Не обернусь
+04. Когда любовь умирает(   Читать дальше...   )Телекомпания: 1HDЖанр: Концерт, PopПродолжительность: 01:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1177A7689BB7F5F9D0D0DF131FC301872D89C1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989215   (577887)
+
+В. Николаев, Д. Катков (сост.) | Вкуснейшие салаты (1997) [PDF, DJVU]
+
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - уникальна: ни одна из вышедших ранее на русском языке книг не содержит такого большого количества рецептов салатов, в которых используются только доступные современные продукты. В книге также даны полезные советы по приготовлению и рекомендации диетологов.Жанр: КулинарияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EB5915F83F80A4E92F42527A82F951AC6239BB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989184   (577886)
+
+Всё к лучшему (2015) SATRip [H.264] (серии 1-4 из 4)
+
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще недавно жизнь Анны была вполне благополучна: на работе она считалась лучшей сотрудницей, дома заботилась о стареньком отчиме и воспитывала 15-летнего сына Костю, подающего надежды скрипача. И вдруг, в один миг все пошло прахом. С работы уволили по статье из-за интриг завистников, отчим скоропостижно скончался, не успев оставить завещание, и его родной сын Борис (   Читать дальше...   )Производство: Россия   Студия «Грин Фильм» по заказу студии «Телемастер»Жанр: мелодрамаРежиссер: Алексей ПраздниковАктеры: Ольга Филиппова, Константин Соловьев, Денис Пьянов, Наталья Иохвидова, Вадим Яковлев, Наталья Щербакова, Василий Щипицын, Геннадий Меньшиков, Алексей Лонгин, Геннадий Смирнов и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F259AA4C9A79D76ECCA982B8FDBDB47B179DD9BC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989302   (577885)
+
+Подшивка журналов | Делаем сами [24 журнала] (2015) [PDF]
+
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал выходит 2 раза в месяц. Издание представляет полезные советы домашним мастерам и мастерицам - тем, кто шьет и вяжет, строит и ремонтирует, придумывает и творит. Для тех, кто любит делать красивые и полезные вещи своими руками, создает уют в доме. Схемы, чертежи и описания самоделок, другая полезная информацияЖанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7A8227CDC8FE9161B7ACAEF6B3532693D2CDE4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989174   (577884)
+
+Дэвид Йоффи, Майкл Кусумано | Искусство стратегии. Уроки Стива Джобса, Билла Гейтса и Энди Гроува <5
+
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опыт трех легендарных CEO, работу которых авторы изучали и анализировали на протяжении 30 лет.
+С 1968 по 1976 г. Билл Гейтс, Энди Гроув и Стив Джобс создали три компании, которые сформировали мир высоких технологий, накопили активов на общую сумму более чем в триллион долларов США и преобразили наши жизни. Как им удалось этого добиться? В этой книге изложены успехи (   Читать дальше...   )Жанр: Бизнес, Известные людиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1BA1AD047893EA1F8A09D29E26D1FD6D31492A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989370   (577883)
+
+Андрей Буторин | Метро 2033: Подземный доктор (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Метро 2033: Мутант» из межавторского цикла «Вселенная Метро 2033».
+
+Две тысячи тридцать третий год. Разрушенный Последней Войной Великий Устюг, один из древнейших городов Русского Севера. Мутант Глеб, кажется, вполне счастлив в браке с юной Снегурочкой-Сашей. Можно даже забыть ненадолго о собственной устрашающей внешности и о том, что между правителями (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8869698858AB87EA935A0FD52A07E38AA7FC2B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989168   (577882)
+
+Shania Twain - 6 студийных альбомов и 2 сборника (1993-2007) [FLAC|Losless|image+.cue] <Country,
+
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальная дискография Шанайи Твэйн по версии Википедии и Wikipedia:
+1. Shania Twain (20 апреля 1993)
+2. The Woman in Me (7 февраля 1995)
+3. Come on Over (4 ноября 1997)(   Читать дальше...   )Жанр: Country, Pop, RockПродолжительность: 09:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416905C4A69EDB019173946DCA0CBA3206C68C91
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989323   (577881)
+
+PowerArchiver 2016 16.00.67 RePack by D!akov [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989323.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerArchiver - универсальный архиватор с поддержкой всех популярных форматов. Позволяет производить с архивами самые различные действия: создание, просмотр, извлечение файлов; добавление файлов; создание самораспаковывающихся и многотомных архивов; шифрование методами Blowfish 128-bit, DES 64-bit, Triple DES 128-bit и AES 128-bit; восстановление повреждённых зип-архивов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1097BB88F5468F27B08ABABA397C09C59F62127A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989153   (577880)
+
+Gilisoft Slideshow Movie Creator 8.0.0 [En]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая программа для создания красивых видео слайд-шоу из фотографий. Обладает интуитивно понятным интерфейсом, в котором удобно работать с фото и управлять параметрами слайд-шоу.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7842868A8211EF441F8BABFA772DC47CD76F9821
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989518   (577879)
+
+Второе восстание Спартака (2013) WEB-DLRip [H.264 1080p-LQ] (серии 1-8 из 8)
+
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спартак Котляревский был русским летчиком, бомбившим Берлин в августе 1941-го. Но вместо Звезды Героя он получил тюремный срок. И теперь у Спартака, как у его тезки, римского гладиатора, две тысячи лет назад, остался единственный выход — восстание. Котляревский организует самый крупный бунт заключенных за всю историю советского режима. Наперекор судьбе Спартак вырывается (   Читать дальше...   )Производство: Россия    Централ Партнершип ,  2-Б-2 Жанр: драма, приключения, военныйРежиссер: Василий ПичулАктеры: Константин Крюков, Татьяна Арнтгольц, Кирилл Плетнёв, Александр Лойе, Виктор Раков, Галина Польских, Александр Семчев, Александра Урсуляк, Даниил Спиваковский, Виктор Проскурин, Сергей Варчук, Роман Радов, Нияз Гаджиев и др.Продолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45C102CEEF825D3128059E0D9E154FB31942BF4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988886   (577878)
+
+Zeallsoft Fun Morph  3.0 [En]
+
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_988886.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZeallSoft Fun Morph — несложный инструмент для морфинга и анимации изображений, то есть для слияния двух фотографий в одну, в которой будут присутствовать общие черты исходных фотографий. Область применения ограничена только вашей фантазией. Шутки, шаржи, открытки и т.п.
+
+Интерфейс прост, без излишних наворотов. Просто расставьте общие точки на фотографиях, а все (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BECEAE3DC6DE0A7A3D6167F9132D74F6146725E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672545   (577877)
+
+COMODO Firewall 6.2.282872.2847 [Ru Multi]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Comodo Firewall Бесплатный фаервол обеспечивает высокий уровень защиты от входящих и исходящих угроз, делает невидимыми для атак хакеров порты компьютера и блокирует вредоносное ПО от передачи ваших личных данных через Интернет. Предназначен для защиты пользователей ПК под управлением ОС Windows, по своим возможностям практически не уступает аналогичным продуктам, в том числе отдельным коммерческим разработкам. Интерфейс предельно упрощен, но в то же время предоставляет все необходимые возможности и функции.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672362   (577876)
+
+VA - 120 Sax Standards (2012) [MP3|320 кб с]<Instrumental, Saxophone>
+
+
+>>Неофициальные сборники
+>>Instrumental New Age Meditative Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+001. What a Wonderful World - Gil Ventura
+002. Gone With the Wind - John Caltran
+003. 007 Goldfinger - John Caltran
+004. You Are the Sunshine of My Life - Pepito Ros
+005. The Captain of Her Heart - Gil Ventura
+006. A Summer Place - Fausto Papetti & Papetti Project
+007. All the Time in the World - Gil Ventura
+008. Amazing Grace - Pepito Ros
+009. And I Love Her - Fausto Papetti & Papetti Project
+010. Aquarela do Brasil - Pepito Ros(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 07:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C7B87374227ACBDC423F92ADED7A67EDA9B4DE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672310   (577875)
+
+Carpenters - Gold: Greatest Hits (2000) XRCD [FLAC|Lossless]<Pop>
+
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterday Once More [04:00]
+ 02. Superstar [03:48]
+ 03. Rainy Days And Mondays [03:35]
+ 04. Goodbye To Love [03:56]
+ 05. It s Going To Take Some Time [02:59]
+ 06. I Won t Last A Day Without You [03:54]
+ 07. For All We Know [02:32]
+ 08. Jambalaya (On The Bayou) [03:37]
+ 09. Touch Me When We re Dancing [03:21]
+ 10. Please Mr Postman [02:48](   Читать дальше...   )Жанр: PopПродолжительность: 01:16:12
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672038   (577874)
+
+На старт!   Go on! [Сезон 1 полный (22 серии)] (2012) WEB-DLRip (FOX)
+
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — хамоватый, но обаятельный ведущий спортивных новостей, который пытается оправиться от потери и находит поддержку в тех, с кем ему приходится ходить на групповую терапию.Жанр: КомедияРежиссер: Тодд Холлэнд, Джеми Бэббит, Кевин Даулинг, Майкл ЛеманнАктеры: Мэттью Перри, Лаура Бенанти, Джули Уайт, Сьюзи Накамура, Тайлер Джеймс Уильямс, Бретт Гельман, Саймон Филлипс, Джон Чо, Сара Бэйкер, Эллисон Миллер и др.Перевод: Двуголосый закадровый, профессиональныйОзвучка   Автор перевода: FOXПродолжительность: ~ 00:20:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672751   (577873)
+
+Схватка (Жара)   Heat (1995) BDRip [720p] ATV
+
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_672751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Де Ниро в роли опытнейшего грабителя банков и прочих объектов, где деньги лежат, вступает в дуэль с полицейским Аль Пачино, очень схожим с ним по характеру и стилю работы. Авторы фильма дают объемную характеристику этих двух  близнецов , их женщин и других членов банды Де Ниро, среди которых выделяется Крис (Килмер) своей одержимой любовью к жене. Потрясающе снята сцена ограбления банка и последующего боя на улицах Лос-Анджелеса - просто захватывает дыхание...Жанр: боевик, триллер, драма, криминалВ ролях: Аль Пачино, Роберт Де Ниро, Вэл Килмер, Том Сайзмор, Эми Бреннеман, Джон Войт, Дайан Венора, Эшли Джадд, Майкелти Уильямсон, Уэс СтьюдиПеревод: Русский одноголосый закадровый (Goblin), многоголосый закадровый (Gemini), многоголосый закадровый (Twister), одноголосый закадровый (Гаврилов)Продолжительность: 02:50:27
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672586   (577872)
+
+Рестлинг   WWE Friday Night SmackDown! 21.06.2013 (2013) HDTVRip [H.264] [EN]
+
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_672586.jpg" />
+</div>
+
+
+###  Подробнее
+
+722-й выпуск Friday Night SmackDown!Жанр: СпортПеревод: ОтсутствуетПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDA6DF7EB93616E929B1869A21B45CCD8A30FA3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672181   (577871)
+
+Горец 3: Последнее измерение   Highlander III: The Sorcerer (1994) HDRip
+
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_672181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессмертный воин Коннор Маклауд вновь вызван на поединок, на этот раз своим самым могущественным врагом, Колдуном Кейном, заточенным под мистической горой в Японии 300 лет назад и достигшим невероятной магической силы.Ничего не подозревающие археологи освобождают Кейна. Для того, чтобы править миром колдуну нужна магическая энергия, которую он сможет получить только (   Читать дальше...   )Производство: Канада, Франция, Великобритания,  Fallingcloud, Initial Groupe, Lumière PicturesЖанр: Боевик, Фантастика, ФэнтезиРежиссер: Эндрю МорахэнАктеры: Кристофер Ламберт, Марио Ван Пиблз, Дебора Кара Ангер, Мако, Рауль Трухильо, Мартин Неуфелд, Фредерик Й. Окимура, Дэниэл ДоПеревод: Многоголосый закадровыйЯзык субтитров: отсутствуютПродолжительность: 01:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FED490208C7AD710CA9715B19C2CA4B5B33E10
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672481   (577870)
+
+Супермен: Непобежденный   Superman: Unbound (2013) BDRip [720p] ATV
+
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_672481.jpg" />
+</div>
+
+
+###  Подробнее
+
+К городу приближается несокрушимый андроид. К Земле приближается огненный шар. Бесстрашная красавица-журналистка приближается к своей цели - сделать об этом репортаж. Это самый обычный день для Человека из стали, только на этот раз плечом к плечу с ним сражается его двоюродная сестра, Супердевушка. Приключения начинаются, когда Супермен узнаёт о том, что силы безжалостного Брэйниака смогли уменьшить и захватить Кандор, столицу планеты Криптон. Супермен намерен во что бы то ни стало освободить порабощенную метрополию и защитить родную планету от растущего могущества Брэйниака.Жанр: мультфильм, боевик, приключенияВ ролях: Мэтт Бомер, Стана Катич, Джон Ноубл, Молли С. Куинн, Дидрих Бадер, Джейсон Бех, Фрэнсис Конрой, Йен Джеймс Корлетт, Мелисса Дисней, Александр ГоулдПеревод: Русский дублированный (R5), многоголосый закадровыйПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 671802   (577869)
+
+VA -Gold the 80s. Greatest Hits (2013) [MP3|192 кб с]<Disco, Pop, Retro>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Mister - Kyrie 04:17
+02. Survivor - Burning Heart 03:54
+03. Steve Forbert - Romeo s Tune 03:32
+04. Hall & Oates - Private Eyes 03:29
+05. Taco - Puttin  On The Ritz 03:26
+06. The B-52 S - Love Shack 05:23
+07. Zz Top - Legs 03:37
+08. The Pointer Sisters - Neutron Dance 04:14
+09. Sheila E. - The Glamorous Life 03:44
+10. Falco - Rock Me Amadeus 03:22(   Читать дальше...   )Жанр: Disco, Pop, RetroПродолжительность: 07:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA9738B07EDE03A55041932DC0A4FF525B8DC66
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672087   (577868)
+
+Сборник клипов - VA - Various Music part. 43 (2013) WEBRip 720p, 1080p
+
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+1. 9-11 - Cum se face 1080p (3:30)
+2. A.M. SNiPER - ROAR 1080p (2:39)
+3. Abel The Kid & Julio Iglesias Jr. feat Snoop Dogg A Piece Of My Love 720p (4:02)
+4. ALEXANDER PROJECT FEAT. MAAX - Сердце 1080p (3:23)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F8EED913F8E6D54F7580E1C1A13780F4125149
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989415   (577867)
+
+Юрий Андрушкевич (сост.) | 100 мест России, которые вы никогда не забудете (2015) [PDF]
+
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расположенная на двух континентах и растянувшаяся от Северного Ледовитого до Тихого океана, Россия поражает размахом и первозданной красотой. Природа щедро одарила Русскую землю богатствами, разнообразие пейзажей и ландшафтов неизменно вызывает восхищение у путешественников. Запорошенные снегами равнины тундры и согретые солнцем пляжи, березовые рощи и пихтовые леса, (   Читать дальше...   )Жанр: Туризм, история, географияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2680B32DB18332E6848A5040CA8DC751537063E9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989501   (577866)
+
+Фаина Раневская | Самые мудрые притчи и афоризмы Фаины Раневской (2016) [FB2]
+
+
+>>Художественная литература
+>>Классика, Проза, Поэзия
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_989501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изумительная актриса, афоризмы которой слышны и сегодня. Одна фраза способна задать тон всему дню! В этой книге собраны самые мудрые афоризмы и притчи, автор которых – Фаина Раневская. Ее высказывания наполнены не только глубоким смыслом, но и добрыми улыбками, особым очарованием и интеллигентностью.Жанр: Афоризмы и цитаты, Крылатые фразы и выражения, ЮморФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7458F6050C1C5F3AC5CACAB88152F8DF3E2D3A19
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 755274   (577865)
+
+Это катастрофа   It s a Disaster (2012) HDRip
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Восемь друзей встречаются на воскресный обед, как вдруг они начинают осознавать, что электричество отключено, и ни один телефон не работает. Вскоре они узнают, что город стал жертвой загадочного нападения. Теперь они заперты в доме и отрезаны от остального мира, и не знают, что их ожидает дальше. Нервы начинают сдавать, и один за другим начинают терять рассудок...Производство: СШАЖанр: Драма, КомедияРежиссер: Тодд БергерАктеры: Дэвид Кросс, Америка Феррера, Эринн Хэйс, Джефф Грэйс, Рейчел Бостон, Кевин Бреннан, Блэйз Миллер, Джулия Стайлз, Тодд Бергер, Лаура ЭдкинПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EACD567B52AF4ECC3FC6C6FDF8FAD2308B4BD68
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989298   (577864)
+
+Сказка о Мальчише-Кибальчише (1964) DVDRip [H.264]
+
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нам бы только день простоять, да ночь продержаться!
+Через некоторое время после одной разрушительной войны, на страну снова напали буржуины из-за Чёрных Гор. После того, как на войну ушли отец и старший брат Мальчиша-Кибальчиша, в деревне остались одни мальчиши. И когда боец Красной Армии в очередной раз прибыл за подмогой, но никого не нашёл, кроме дряхлого старика, (   Читать дальше...   )Производство: СССР, К ст им.ДовженкоЖанр: Героическая сказкаРежиссер: Евгений ШерстобитовАктеры: Сережа Остапенко, Сергей Тихонов (II), Анатолий Юрченко, Сергей Мартинсон, Леонид Галлис, Дмитрий Капка, Рафик   Сабиров, Шурик Харитонов, Володя Квятко, Вася Талько, Коля Костенко, Юра Кузнецов (V), Юрий Лавров, Пётр   Соболевский, Петр Кирюткин, Альфред Шестопалов, Владимир Кисленко, Сергей Сибель, Александр Толстых, Витольд   Янпавлис, Лев Перфилов, Виктор Полищук, (   Читать дальше...   )Продолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897A4B458730D42A2956A023F80B56B2F296E956
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 982600   (577863)
+
+Захват поезда Пелэм 1-2-3   The Taking of Pelham One Two Three (1974) DVDRip [H.264] [AVO]
+
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_982600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк. Четверо вооружённых людей захватывают вагон метро под улицами Манхэттэна и берут всех пассажиров в заложники. Они требуют миллион долларов. Власти принимают решение удовлетворить требование террористов, они считают, что у злоумышленников нет шансов улизнуть из подземки с такими деньгами. Но у четвёрки хитрый план…Производство: США   Palladium Productions, Palomar Pictures CorporationЖанр: Боевик, Триллер, КриминалРежиссер: Джозеф СарджентАктеры: Уолтер Мэттау, Роберт Шоу, Мартин Болсам, Гектор Элизондо, Эрл Хиндмэн, Джеймс Бродерик, Дик О’Нил, Ли Уоллес, Том Педи, Беатрис УиндПеревод: Авторский х2Субтитры: ОтсутствуютПродолжительность: 01:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C26D9F960E93276A85F21322D632755710C327F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989497   (577862)
+
+КВН-2016. Высшая лига. КВН на Красной поляне. Старт сезона  (2016.02.22) HDTV [H.264 1080i-LQ]
+
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания:  Визитная карточка ,  Разминка ,  Конкурс капитанов ,  Музыкальный конкурс ,  Домашнее задание . Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 02:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22DF031537B34DFE8E9B99B8405A60B24E0B42B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988621   (577861)
+
+Юрий Антонов - Зеркало (1993) Unofficial Release [FLAC|Lossless|image + .cue] <Schlager, Pop Roc
+
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_988621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Зеркало 	03:40
+02. 	Не Забывай 	03:54
+03. 	Двадцать Лет Спустя 	03:39
+04. 	Вот Как Бывает 	03:25(   Читать дальше...   )Жанр: Schlager, Pop RockПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A8D67312CEAB5CDDE5B56BB1B1A9E55764AD4D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 876524   (577860)
+
+Shirobako [2014, TV, 24 + 2sp] BDrip 1080p Hi10p raw
+
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_876524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как здорово, когда можно реализовать детские мечты! Пять девчонок из клуба анимации школы Каминояма не мыслили иной судьбы, кроме аниме-индустрии – и у них получилось! Сидзука стала сэйю, Миса – оператором компьютерной графики, студентка Мидори – сценаристом-фрилансером, а еще двое пробились на знаменитую студию Мусасино. Эма, как талантливая рисовальщица, получила (   Читать дальше...   )Жанр: комедияРежиссер: Мидзусима Цутому   Mizushima Tsutomu   水島努Язык озвучки: ЯпонскийПродолжительность: 24 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0C346ABFFB0D15BAC65A8461B6E3FCD675CBA4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989418   (577859)
+
+Проекты - Motion Array - Retro Split Frame Slideshow [AEP]
+
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1FA292F68C30966CC528C50D78250B94326080
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 943606   (577858)
+
+Robot Girls Z Plus   Девочки-роботы Зет [2015, ONA, 6] WEB-DLRip 720p raw
+
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_943606.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Toei Robot Girls» — проект по перевоплощению «легендарных супер роботов в прекрасных девушек!»
+Звёзды «Robot Girls Z» — Z-тян, Gre-тян, и Grenda-сан. Вместе они защищают (или пытаются это сделать) город Photon Power от «механических монстродевочек подземной империи». Во главе злодеев стоит Барон Ашура, подземный император, склонный к мировому господству или хотя (   Читать дальше...   )Производство: Toei AnimationЖанр: Комедия, Волшебство, Меха, Пародия, ЭттиРежиссер: Икэхата ХиросиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: ONA, 6 серий по 10 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AB859EC576440ABB3545346B43DAB7C56DF2D5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989324   (577857)
+
+Томас Лоренц, Штефан Оппитц | Самооценка. Повышай свою уверенность! (2016) [FB2]
+
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтение этой книги займет не более 30 минут. За это время вы получите максимум информации о том, как объективно оценить психологический тип личности (свой и чужой) и использовать эти знания в работе и личной жизни.Жанр: Самосовершенствование, личностный рост, психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0AA518871F11A2A2440235E22CE4DA737F61E8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989384   (577856)
+
+Pink - The Truth About Love Tour (Live From Melbourne) BDRip [H.264 1080p]
+
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989384.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 13 февраля Pink отправилась в новое мировое турне в поддержку своего альбома The Truth About Love. Турне называется The Truth About Love Tour.01  Raise Your Glass
+02  Walk Of Shame
+03  Just Like A Pill
+04  U + UR Hand(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955D551BD88668B2551729DC590929E12D8172F9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989221   (577855)
+
+Проекты - Проект ProShow Producer - Теперь ты в армии [PSH]
+
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Тематическая презентация к Дню защитника Отечества.
+Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью, стили, переходы и саундтрек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315296399F3CA9A414BA898BB558BFC7B23CEC7F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 987083   (577854)
+
+Собачий Отель   Hundhotellet (2000) DVDRip
+
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_987083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история в духе Агаты Кристи, героями которой являются собаки. Она рассказывает о том как пес Стури и его друг художник Пикассо отправляются путешествовать на автомобиле в Париж. Но по дороге они останавливаются в отеле для собак, «Розовый бутон». Где с ними происходят загадочные события. Познакомившись с писательницей детективных романов мисс Мопс, они вместе (   Читать дальше...   )Производство: Швеция, Дания, НорвегияЖанр: Приключения, КомедияРежиссер: Пер ОлинПерсонажи: Ганс Альфредсон, Рольф Скоглунд, Бо Кристер Хьельте, Маргрет Вейверс, Karin Gidfors, Бьёрн Чьелльман, Johan Ulveson, Ян Мюбранд, Томас фон Брёмссен, Stig Grybe, Йохан Рабеус, Пернилла Уолгрен, Петер Харрисон.Перевод: Одноголосый закадровый, любительскийОзвучка   Автор перевода: Max NabokovПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26606AF358D1FE72CA83C283A37BD89F17D622AB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989210   (577853)
+
+Мариам Акопян | Как фотографировать людей. Все секреты (2012) [PDF]
+
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотографировать людей – одна из самых востребованных задач в современной журнальной и рекламной фотографии и одна из самых сложных, поскольку нет четких правил съемки. Автор этого справочника для начинающих фотографов-портретистов дает очень подробные описания самых первых шагов в фотографии, полезные рекомендации в вопросах выбора техники, а также выделяет технические (   Читать дальше...   )Жанр: ФотографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715AD64CF650F442EDFE17834F5971B41B52F54A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989250   (577852)
+
+Проекты - VideoHive - Photo Stream Logo Reveal [AEP]
+
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D46C02093C76EC2D673489E38DAF56472FCA80
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988490   (577851)
+
+Роберт Грин  | Законы обольщения (2001) [FB2]
+
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_988490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стать человеком обольстительным втайне мечтает каждый. Женщинам нравится обольщать мужчин, мужчинам - женщин, писатели обольщают читателей, актеры - зрителей, продавцы - покупателей, политики обольщают электорат, то есть нас с вами. Участников этой восхитительной, волнующей и зачастую жестокой игры можно перечислять до бесконечности. Однако в совершенстве владеют (   Читать дальше...   )Жанр: Образовательная литература, Секс и семейная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F538CF894B35DA2C6B828E23078999C74E9D4A8F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989380   (577850)
+
+Влад Савин | Восточный фронт (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцатый роман цикла «Морской волк».
+
+Годовщина Победы. В этой исторической реальности, Великая Отечественная Война закончилась тоже 9 мая, но 1944 года. Нет еще традиции военного парада в этот день (зато он был 1 мая, как и до войны). Но, в отличие от той истории, день уже объявлен нерабочим. Город и корабли украшены флагами и портретами Вождей, Ленина и Сталина, (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AF2F7821D8E9F65C2D8E1608BE47BB6B9001E5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989259   (577849)
+
+Векторный клипарт - Spring abstract background with green leaves [EPS]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нежный векторный клипарт с красивой зелёной темой из листьев.
+16 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88841C931C17F71099C11D7BB19ABEB7041581E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989249   (577848)
+
+Волчья яма   Wolf Creek (2005) BDRip [H.264 1080p]
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое студентов отправляется в путешествие по Австралии, чтобы найти гигантский кратер, образовавшийся в результате падения метеорита. Это место окутано страшными тайнами и мистическими историями. Наши герои и не могли предположить, что участниками очередной такой мистической истории станут они сами…Производство: Австралия   403 Productions, The Australian Film Finance CorporationЖанр: УжасыРежиссер: Грег МакЛинАктеры: Джон Джаррэтт, Кассандра Маграт, Кести Морасси, Нэйтан Филлипс, Гай О Доннелл, Питер Олшин, Гордон Пул, Фил Стивенсон, Тереза Палмер, Эми Шапель, Джефф Ревелл, Энди МакФи, Эрон СтернсПеревод: Дублированный, Профессиональный многоголосый, Профессиональный двухголосый, АвторскийСубтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 01:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282DFF25D6E37AFD48980E283374B939B37579BE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 671963   (577847)
+
+Vivaldi - Five Concertos for bassoon and chamber orchestra (2003) [FLAC|Lossless]<Classical, Con
+
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Concerto, BaroccoПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D852A9584A2F0C3901C435C34BC4472ABBDBDF0D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672294   (577846)
+
+Stone & Charden - Made in France (2012) [MP3|256 кб с]<Pop, French Chanson>
+
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. J ai un probleme
+02. Paroles paroles
+03. Desir desir
+04. Chanson sur une drole de vie
+05. Dieu est un fumeur de havanes
+06. Manhattan kaboul
+07. Joue pas
+08. Les gondoles a venise
+09. La-bas
+10. Le seul bebe qui ne pleure pas(   Читать дальше...   )Жанр: Pop, French ChansonПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C57216B43AB2FC115375E4AAFD455F12928F913
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672509   (577845)
+
+Фотография - Photography Studios  Sublime Lightworks  [JPG]
+
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_672509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы фотостудии  Sublime Lightworks .Разрешение файлов: от 800x567px до 800x1200px.Формат: JPG.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B692B90BF02BF0BDDDDDEC9D0D5D69FF559677
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672808   (577844)
+
+Е.И.Всяких, Е.В.Сидоренко, Б.В.Носков, С.П.Киселев, А.Г.Зуева | Практика и проблематика моделировани
+
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Цель книги – познакомить читателей с существующими подходами и решениями в области моделирования бизнес-архитектуры предприятия. В книге освещаются различные аспекты данной проблематики, в том числе такие вопросы как базовые подходы к моделированию и возможности современных инструментальных средств.
+Особое внимание уделяется специфике организации проектов по разработке моделей бизнес-архитекуры. На основе практического опыта реализации проектов по моделированию бизнес-процессов в различных предметных областях проанализированы и обобщены типичные риски, ошибки и заблуждения основных участников, даны рекомендации по их предупреждению. Проиллюстрированы частные подходы и решения, например, моделирование бизнес-процессов в среде ARIS. С учетом современных тенденций в развитии технологий и управления бизнесом сформулированы перспективные направления практического использования методологии и инструментальных моделирования бизнес-процессов.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFAD66E288544A2F07EA702AB4AB576823C9274
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672466   (577843)
+
+Сказания Земноморья   Tales from Earthsea   Gedo Senki (2006) BDRip [720p] ATV
+
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_672466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горы, пещеры и замки сказочной страны, драконы и амулеты, заклинания и пророчества, маги и принцы, жрицы и убийцы, злодеи и праведники - в новой приключенческой анимационной фэнтази-саге о волшебном мире Земноморья.
+Земноморье в опасности, мир волшебства на грани исчезновения. Вселенское равновесие нарушено: драконы, обитающие в западном пределе сказочной страны, неожиданно появляются на востоке во владениях людей. Верховный маг Гед отправляется на поиски первопричины беды. В пути он встречает Аррена, принца Энлада, который после свершения страшного греха, убийства отца, бежит из родного края, преследуемый тенью.
+Прибыв в столицу Земноморья Норт Таун, путники находят пристанище в доме Белой Дамы, бывшей жрицы-хранительницы темных Гробниц Атуана. Верховный Маг Гед открывает Аррену тайны жизни и смерти, правды и лжи. Призывая служить истине с полной самоотдачей, он словно передает эстафету дерзновенному юноше, которому предначертана особая миссия в этом мире. Но успеют ли они противостать силам зла? Или уже слишком (   Читать дальше...   )Жанр: аниме, мультфильм, фэнтези, приключенияВ ролях: Джуничи Окада, Аой Тешима, Бунта Сугавара, Юко Танака, Теруюки Кагава, Джан Фубуки, Такаши Найто, Мицуко Байсё, Юи Нацукава, Каору КобаяшиПеревод: Русский дублированный (R5, RUSCICO), двухголосый закадровый (П. Гланц, Т. Казакова   Superbit), одноголосый закадровый (А. Гаврилов), одноголосый закадровый (KARASU)Продолжительность: 01:48:07
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672446   (577842)
+
+Последний единорог   The Last Unicorn (1982) BDRip [1080p] [Вертикальная анаморфная стереопара
+
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+В далекой волшебной стране в сиреневой роще жил юный прекрасный единорог, знающий секреты магии. Однажды он узнал, что все его сородичи исчезли с лица земли, и он может стать последним единорогом на свете.
+И тогда единорог покинул свою рощу и отправился в долгое и опасное путешествие, чтобы разыскать и спасти своих сородичей. Много приключении пришлось ему пережить (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, СемейныйРежиссер: Джулз Басс, Артур Ранкин мл.Персонажи: Алан Аркин,  Джефф Бриджес,  Миа Фэрроу,  Тэмми Граймз,  Роберт Клейн,  Анджела Лэнсбери,  Кристофер Ли,  Кинен Уинн,  Пол Фрис,  Рене ОбержонуаПеревод: Многоголосый закадровыйПродолжительность: 01:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99AB52506AFA850E87167CDF0585A992E26525F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989461   (577841)
+
+Notepad++ 6.9 Final + Portable [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71647B2DD01E826E319CF6F4ECFBA49A6CF6454B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989305   (577840)
+
+Шаблоны - Wedding Photography Brochure - V328 [PSD]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая свадебная брошюра.Формат: PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:674ED61395FDD3F59B9834DC70536B2D6DE31377
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989278   (577839)
+
+Текстуры - Stone Wall Textures [JPG]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры и Фоны
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989278.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 каменных текстур для вашего творчества.Формат: JPGРазрешение файлов: 3884х2600 - 5456х3632   300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0404C354C50A61A99BDFB71ABB7C2E8564D6B50E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989394   (577838)
+
+Галина Кизима | Моя высокоурожайная теплица. Как вырастить высокие урожаи томатов, перца, баклажанов
+
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже самые опытные дачники не застрахованы от сюрпризов изменчивой погоды. Сильный ветер ломает выращенные с любовью ценные сорта овощных культур, ночные понижения температуры приостанавливают рост растений, а заморозки вовсе губят рассаду.Так что всем, кто хочет получить гарантированный урожай и увеличить продолжительность сезона на два-три месяца, без теплицы не (   Читать дальше...   )Жанр: Сад, огородФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068E401BB24B11F470A61A845E9AB183EA27F655
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989166   (577837)
+
+MKVToolNix 8.9.0 Final + Portable [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989166.jpg" />
+</div>
+
+
+###  Подробнее
+
+MKVToolnix - функциональный набор инструментов для работы с видео-файлами MKV Matroska. Очень полезная программа, позволяет добавлять убирать звуковые дорожки, субтитры, склеивать резать файлы. Все очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg OGM, и RealVideo. MKVToolnix - специальный аудио видео контейнер, похожий на AVI, хранящий в (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6962787F24CA90C638B9F5F3981B44FD6802C34C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989366   (577836)
+
+VA - The Best Rock Ballads... Ever! Volume 2 (2013) 4CD Box Set, Deluxe Edition [FLAC|Lossless|t
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родоначальником этой серии считается звукозаписывающий лейбл Virgin, ведь именно он ещё в далекие 90-е опробовал такую форму сборника (и даже в 1997 году вышел сборник под точно таким же названием). Через шестнадцать лет уже Warner Music отважилась продолжить эту линию. Получился совсем не похожий, и, на мой взгляд, гораздо лучший бокссет. В него были включены не (   Читать дальше...   )CD1
+01. Oasis - Don t Look Back In Anger  (4:52)
+02. Keane - Everybody s Changing  (3:36)
+03. Kasabian - Man Of Simple Pleasures  (3:35)(   Читать дальше...   )Жанр: Rock, Soft Rock, PopПродолжительность: 04:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B4CDE628D5147351EC2DECD675397C47965ACE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988968   (577835)
+
+Робин Шарма | Лидер без титула (2015) [MP3]
+
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_988968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большинство людей считает, что им суждено прожить «среднюю» жизнь и они никогда не добьются ничего выдающегося. Это абсолютное заблуждение! Это не так!
+Судьба – это всего лишь результат выбора. Эта аудиокнига предлагает вам сделать несколько простых, но судьбоносных выборов.
+Еcли вы действительно хотите изменить свою жизнь к лучшему, просто следуйте тому словам автора. (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 07:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BC5AF722B3B9C588E8504BABDA30A4607B6FEA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989401   (577834)
+
+Сэмэн Цыбулька | Шоб я так жил! Анекдоты из Одессы (2015) [FB2]
+
+
+>>Художественная литература
+>>Сатира, Юмор
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абрам берёт газету и читает:  Продаются два мешка картошки. Интим не предлагать .
+- Сара, а шо здесь за интим?
+- Ой, а то ты таки не знаешь за Одессу! Им только дай повод.
+Золотые слова. Одесситам дай только повод пошутить. А что поделаешь, такой народ - веселый и остроумный! И это здорово! И если у вас не получается искупаться в самом синем Черном море, (   Читать дальше...   )Жанр: Анекдоты, ЮморФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011F683AF97106237F453A6C2B77BE678D1A65A9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989546   (577833)
+
+Алексей Корепанов | Цикл «Наследие богов» [4 книги] (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если бы боец Звездного флота Империи Рома Юнион Кристиан Габлер знал, чем для него обернется военная кампания на планете Нова-Марс, то он бы предпринял все возможные меры, чтобы туда не попасть. Нельзя просто так прилететь и начать убивать под небом чужих богов, не любят они такого. И уж тем более не пошел бы в отпуск, зная наперед, чем он закончится… Он всю жизнь (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6CEE4D82B9EF24D9704E902D3D74654D6A2FF8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989446   (577832)
+
+Б. П. Брусилов | Кулинарная смекалка, или Все о резервах питания (1993) [PDF, DJVU]
+
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть меткая поговорка: «Знать да уметь - всё равно что иметь». Эта народная мудрость заложена в принцип подбора многочисленных полезных советов, доступных и оригинальных рецептов, сведений о навыках, способных помочь делать пищу вкусную и питательную даже при самом ограниченном выборе продуктов, рассчитанных в основном на использование в семьях скромного и более (   Читать дальше...   )Жанр: КулинарияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5314ECD9CADE7A96DFA637ED1948E3AE959066
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988997   (577831)
+
+Эверест   Everest (2015) DVD5
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_988997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эверест — великая неприступная гора, покорить вершину которой мечтают многие профессиональные альпинисты. Одна из экспедиций на ее вершину закончилась настоящей трагедией, однако этот факт не останавливает отважных альпинистов.
+
+Опытный инструктор Роб Холл, собрав группу из лучших альпинистов, собирается совершить восхождение на самую высокую вершину планеты. Все (   Читать дальше...   )Производство: США, Великобритания, Исландия   Universal Pictures, Walden Media, Cross Creek Pictures, Working Title FilmsЖанр: Триллер, драма, приключения, биография, историяРежиссер: Бальтасар КормакурАктеры: Джейсон Кларк, Джош Бролин, Джейк Джилленхол, Сэм Уортингтон, Джон Хоукс, Майкл Келли, Ингвар Эггерт Сигюрдссон, Кира Найтли, Эмили Уотсон, Робин РайтПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, чешский, венгерский, польский, русский, болгарский, хорватский, эстонский, греческий, иврит, латышский, литовский, румынский, словенский, украинскийПродолжительность: 01:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68032691BF75D6260200D685595811C5A4219763
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989191   (577830)
+
+Проекты - Проект ProShow Producer - 23 февраля [PSH]
+
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Тематическая презентация к Дню защитника Отечества.
+Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью и саундтрек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2773569C1A6271D64BA42FFF7DE34AB9182DA61A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989364   (577829)
+
+VA - The Best Rock Ballads... Ever! (2007) 4CD Box Set, Delux Edition [FLAC|Lossless|tracks + .c
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989364.jpg" />
+</div>
+
+
+###  Подробнее
+
+На одном из форумов в комментариях к этому сборнику были вот такие слова:  Это удивительные песни! Любите это! Все до одной песни, которые я никогда не вычеркну из моей жизни до самой смерти ... Музыка настолько трогательна и лирика просто удивительна! Я мог бы поставить 20 из 10 возможных. Если бы я мог! 
+Ну что тут ещё можно добавить?CD1
+01. Extreme - More Than Words  (5:34)
+02. Marrillion - Kayleigh  (3:34)
+03. Soundgarden - Black Hole Sun  (5:20)(   Читать дальше...   )Жанр: Rock, Soft Rock, PopПродолжительность: 04:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113C12E663A06DB8C33F59A1C3BED92AA4E85CCC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989329   (577828)
+
+AIMP 4.00 Build 1697 Final + Portable [Multi Ru]
+
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E7174D9B7BF27B73A188ADE5F2F43CD0E2AEFF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989414   (577827)
+
+Возмещение ущерба   Collateral Damage (2002) BDRip [H.264 1080p]
+
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Власти, расследующие теракт, советуют Горди Брюеру не вмешиваться в это дело. Но он уже вмешался в него самым страшным образом: его жена и сын значатся в списке жертв взрыва бомбы. Брюер, пожарный из Лос-Анджелеса, полон решимости найти неуловимого террориста по кличке Эль Лобо.
+Брюер знает, что Эль Лобо нанесет свой следующий удар именно здесь. Но как? Когда? И (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драмаРежиссер: Эндрю ДэвисАктеры: Арнольд Шварценеггер, Франческа Нери, Элиас Котеас, Клифф Кёртис, Джон Легуизамо, Джон Туртурро, Хсу Гарсиа, Тайлер Пози, Майкл Милхоун, Рик УорсиПеревод: Дублированный, многоголосый закадровый, двухголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A5FDE23D11622D2A255495FD2A4BE8ED364A54
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989348   (577826)
+
+Экстрасенсы ведут расследование (2011-2015) (сезоны 01-06) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуПродолжительность: от ~00:47:00 до ~01:10:00 на серию
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9DD34FF7DFB5C903ABE0917E97A93036CF0613
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989351   (577825)
+
+AdwCleaner 5.036 Portable [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989351.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdwCleaner - программа, которая ищет и удаляет рекламное ПО в веб-браузере, панели инструментов, потенциально нежелательные программы (PUP) и hijacker-утилиты с вашего компьютера. С помощью AdwCleaner вы можете легко удалить многие из этих типов программ для спокойной работы на вашем компьютере и в Интернете.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671446EFA9AD5CD958F783646968612412A7B459
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989289   (577824)
+
+Растровый клипарт - Скрап-набор   Love Blooms Here   [PNG, JPG]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительно красивый и нежный романтический скрап-набор.Формат: PNG, JPGРазрешение файлов: от 500х500 до 3600х3600 (300 dpi)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8016DB8FE8F366C4BE5669F75A55143F116E8F86
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989236   (577823)
+
+Векторный клипарт - Delicate frames with white floral ornament [EPS]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт с красивым нежным орнаментом.
+21 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E570028C9A856B67AEA5D210C8122113B4F2C3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672568   (577822)
+
+VA - Дискотека у радиолы: Лучшие шлягеры зарубежной эстрады 1950-60 годов (2006) [APE|Lossless]<
+
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+1. Besame Mucho -  Los Panchos 
+2. Sugarbush - Дорис Дэй, Фрэнки Лейн
+3. Lazzarella - Альдо Контэ
+4. Ezustgitar - Balazs Tomas
+5. Oh! My Papa - Эдди Фишер
+6. Johnny, Tu N’es Pas Un Ange - Эдит Пиаф
+7. Domino - Вико Vico Torriani
+8. Coimbra Divina - Лолита Торрес
+9. Colonel Bogey - Карел Влах
+10. Mambo Italiano - Розмари Клуни(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672527   (577821)
+
+Стили - Text Style Pack 3 для Photoshop [JPEG,ASL,PSD]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Ещё одна подборка красивых стилей для PhotoshopФормат: JPEG,ASL,PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8753AF43529BF230697A8FDB0C26BE7A2E18780
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672365   (577820)
+
+Человек из стали   Man of Steel (2013) CamRip *PROPER* [UKR]
+
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Кларк Кент Кал-Эл — молодой человек, который чувствует себя чужаком из-за своей невероятной силы. Много лет назад он был отправлен на Землю с развитой планеты Криптон, и теперь задается вопросом: зачем? Воспитанный приемными родителями Мартой и Джонатаном Кентами, Кларк знает: обладать сверхспособностями — значит принимать сложные решения. Но когда человечество более всего нуждается в стабильности, оно подвергается нападению. Сможет ли герой восстановить мир, или воспользуется своей силой для того, чтобы окончательно его разрушить?Жанр: Фантастика, Фэнтези, БоевикРежиссер: Зак СнайдерПродюсер: Кристофер Нолан, Чарльз Ровен, Дебора СнайдерАктеры: Генри Кавилл, Эми Адамс, Майкл Шеннон, Кевин Костнер, Дайан Лэйн, Лоренс Фишбёрн, Антье Трое, Айелет Зурер, Рассел Кроу, Гарри Дж. ЛенниксПеревод: ДублированныйПродолжительность: 02:12:02
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672424   (577819)
+
+Ночная фиалка (2013) HDTV [1080i]
+
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Богатый и влиятельный чиновник содержит любовницу — очень красивую девушку Риту, которую он в свое время вытащил из борделя. Он обеспечил ее всем — квартирой, машиной, деньгами, потребовав взамен лишь одного — верности. Рита, ни капли не любя этого щедрого, но жестокого и циничного человека, соблюдает их «договор», но лишь до того момента, пока не встречает свою (   Читать дальше...   )Производство: Студия МаркесЖанр: Комедия, КриминалРежиссер: Виктория ДержицкаяАктеры: Иван Жидков, Наталья Рудова, Олег Бойко, Валерий Девятых, Анна Масальская, Дмитрий Шевченко, Анатолий ГорячевПродолжительность: ~ 01:28:00
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672177   (577818)
+
+Симпсоны   The Simpsons (2011-2013) WEB-DL [H.264 720p-LQ] (Сезон 23, серии 2-22. Сезон 24
+
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_672177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симпсоны (англ. The Simpsons) - самый длинный анимационный сериал в истории американского телевидения: более 500 эпизодов, которые, в свою очередь, объединены в 23 сезона, примерно по 20 серий в каждом. Дебютировал 17 декабря 1989 на телеканале FOX. Сериал «Симпсоны» - сатирическая пародия на жизнь «рядового» американца, воплощенная в семье Симпсонов. События происходят (   Читать дальше...   )Жанр: КомедияРежиссер: Мэтт ГроунингПерсонажи: Дэн Касталанетта (Гомер), Джули Кавнер (Мардж), Нэнси Картрайт (Барт), Ядли Смит (Лиса), Гарри Ширер (Нед Фландерс и Монтгомери Бернс)Перевод: Дублированный (украинский)Язык субтитров: английскийПродолжительность: 32 х ~00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A58FFC6CE7AF86E993F2C0DDFCCF4144F1BE5F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 671808   (577817)
+
+Rammstein - Рок над Волгой 2013 (08.06.2013) HDCam
+
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+8 июня под Самарой прошёл крупнейший в Европе музыкальный фестиваль  Рок над Волгой , который в пятый раз собрал лучших российских и мировых артистов. Это самый масштабный российский оупен-эйр, который за 4 года посетил почти миллион человек.01. Ich tu dir weh
+02. Wollt Ihr Das Bett In Flammen Sehen
+03. Keine lust
+04. Sehnsucht
+05. Asche Zu AscheЖанр: RockПродолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC57E4B735905685C8AEF9E30E7B958AEF7758A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672578   (577816)
+
+КИНО - Лучшие песни (Часть II) - Новая коллекция (2009) [FLAC|Lossless]<Rock, Russian rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01.  Бездельник
+02.  Время есть, а денег нет
+03.  Лето
+04.  Братская Любовь
+05.  Каждую ночь
+06.  Дождь для нас
+07.  Генерал
+08.  Я объявляю свой дом
+09.  Рядом со мной
+10.  Музыка волн(   Читать дальше...   )Жанр: Rock, Russian rockПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672338   (577815)
+
+Храбрая сердцем   Brave (2012) BDRip [1080p] ATV3 iPad3
+
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_672338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испокон веков мифы и легенды окутывают загадочной пеленой живописные отроги Шотландских гор. Искусной лучнице Мериде приходится выбирать свой путь в жизни самостоятельно, и однажды она отказывается следовать древним традициям королевства, бросая вызов могущественным шотландским кланам и их предводителям: нескладному лорду МакГаффину, угрюмому лорду Макинтошу и сварливому лорду Дингволлу. Неосторожные поступки Мериды грозят повергнуть королевство в хаос, и тогда она отправляется за советом к эксцентричной отшельнице, которая вместо помощи накладывает на Мериду опасное заклятье. Юной принцессе предстоит полагаться только на собственную храбрость, чтобы преодолеть могущественное волшебство и победить самого страшного зверя из тех, что водятся в горных долинах.Жанр: мультфильм, фэнтези, комедия, приключения, семейныйВ ролях: Келли Макдоналд, Эмма Томпсон, Билли Коннолли, Джули Уолтерс, Робби Колтрейн, Кевин МакКидд, Крэйг Фергюсон, Сэлли Кингхорн, Эйлид Фрайзер, Пейджи БаркерПеревод: Русский дублированныйПродолжительность: 01:33:37
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672468   (577814)
+
+Реальные парни   Stand Up Guys (2012) BDRemux [1080p]
+
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+История строится вокруг двух уже немолодых преступников, один из которых получил задание убить близкого друга. Столь непростая ситуация требует времени на обдумывание, и киллеры решают вместе с приятелем изрядно побуянить (включая посещение борделя, угон машин и бегство от полиции), прежде чем будет принято окончательное решение.Жанр: Драма, Комедия, КриминалРежиссер: Фишер СтивенсАктеры: Аль Пачино, Кристофер Уокен, Алан Аркин, Джулианна Маргулис, Марк Марголис, Люси Панч, Эддисон Тимлин, Ванесса Ферлито, Кэтрин Уинник, Билли БаррПеревод: Дублированный, Авторский одноголосыйЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:34:58
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672306   (577813)
+
+Истребители (2013) [H.264] DVDRip (сезон 1, серии 1-12 из 12)
+
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+СССР. В разгаре Великая Отечественная Война. Молодые летчики Леонид и Борис по прибытии в летную школу узнают, что они зачислены в авиационный полк и в ближайшее время их отправят на фронт…Жанр: Драма, ВоенныйРежиссер: Алексей МурадовАктеры: Екатерина Вилкова, Дмитрий Дюжев, Николай Козак, Любовь Руденко, Олег Фомин, Юрий Яковлев-Суханов, Мария Андреева, Виталий Махов, Денис Варенов, Антон Соколов, Дмитрий Арбенин, Александр Корчагин, Екатерина РябоваПродолжительность: 12x ~00:43:00
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672502   (577812)
+
+Agnitum Outpost Firewall PRO 8.1 (4303.670.1908) [Ru Multi]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Agnitum Outpost Firewall - персональный брандмауэр, защищающий пользователей путем фильтрации входящего и исходящего сетевого трафика, контроля текущих соединений, выявления подозрительных действий. Чтобы полностью обезопасить вас от этих новых угроз, эффективное средство безопасности должно использовать многоуровневый подход, обеспечивая проактивную, основанную на анализе поведения, блокировку вместе с более традиционными, сигнатурными методами обнаружения.Современный интернет требует принципиально нового подхода к безопасности. Огромное число соединений происходит в реальном времени, в этом и заключается угроза. Эффективное средство безопасности должно обнаруживать как известные вредоносные программы, так и новые.
+
+(   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672750   (577811)
+
+Godzilla: Unleashed [Wii] [NTSC] [ENG] (2007)
+
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_672750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый потрясающий файтинг, который когда-либо знал мир!
+Гигантские монстры будут люто биться, превращая вокруг себя все в руины. А разрушать есть что, ведь арены это прототипы реальных мегаполисов! Двадцать три чудовища, включая самого известного монстра на свете - Годзиллу, каждое обладающее фантастическими способностями и собственным боевым стилем, позволят полностью выпустить всю свою ярость. Благодаря управлению Wii создается по-настоящему реальное чувство боя. А эпический разветвленный сюжет, с различными концовками, придаст необходимый драматизм.
+Зовите друзей, ведь можно устраивать баталии даже вчетвером. Пришло время великих битв!
+(   Читать дальше...   )Тип издания: ЛицензияРазработчик: PipeworksЖанр: FightingЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB1EAC5D83D775E3645ED47047A157E03743247
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 671350   (577810)
+
+Параллельные миры   Upside Down (2012) Blu-Ray [1080p] 3D [3D 2D]
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Очень давно две планеты притянулись друг к другу, и на обеих планетах живут люди, для каждой из планет есть своё притяжение. На верхней планете царит богатство и благоденствие. На ней создана корпорация, выкачивающая недры второй планеты и взамен предлагающая электроэнергию по неподъёмной для бедных жителей нижней планеты цене. Перемещение людей между планетами жестко (   Читать дальше...   )Производство: Канада, Франция, Jouror Productions, Onyx Films, Studio 37, TransfilmЖанр: Фэнтези, МелодрамаРежиссер: Хуан Диего СоланасАктеры: Кирстен Данст, Джим Стёрджесс, Стелла Маив, Нил Напье, Джэйн Хейтмейер, Холли О’Брайэн, Ларри Дэй, Агнешка Вроновска, Джон МакЛарен, Дон ДжорданПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:48:06
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989021   (577809)
+
+007: Спектр   Spectre (2015) DVD5
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зашифрованное послание из неизвестного источника выводит Бонда на след зловещей глобальной организации под кодовым названием СПЕКТР, в то время как М пытается спасти секретную разведывательную службу от ликвидации.Производство: Великобритания, США   Metro-Goldwyn-Mayer (MGM), Columbia Pictures, Sony, B24, Revolution SunЖанр: Боевик, триллер, приключенияРежиссер: Сэм МендесАктеры: Дэниэл Крэйг, Кристоф Вальц, Леа Сейду, Рэйф Файнс, Моника Беллуччи, Бен Уишоу, Наоми Харрис, Дэйв Батиста, Эндрю Скотт, Рори КиннерПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, русский, эстонский, латышский, литовский, украинскийПродолжительность: 02:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F169B8BD7DFFD7ED4CED9AC2C89AE0564A77E9F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989319   (577808)
+
+NonVisual Desktop Access (NVDA) 2016.1 [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989319.jpg" />
+</div>
+
+
+###  Подробнее
+
+NonVisual Desktop Access (NVDA) — свободная с открытым исходным кодом программа речевого доступа к экрану под Windows. NVDA позволяет незрячим и слабовидящим людям использовать компьютер без дополнительных затрат на приобретение специальных программ. NVDA позволяет работать с основными приложениями Windows и следить за происходящим на экране, используя синтезатор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C0FBF84617C4EB3C19BE23D05ED250DD65455C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989509   (577807)
+
+Секретные материалы   The X Files (1996-1997) BDRip [H.264 1080p-LQ] (сезон 4, серии 1-24
+
+
+>>Зарубежные сериалы
+>>Секретные материалы   X-Files
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Секретные материалы — научно-фантастический и мистический сериал о двух агентах ФБР: Фоксе Малдере и Дане Скалли. Специальному агенту Дане Скалли, доктору и выпускнику академии ФБР в Виргинии, поручают работу в паре с агентом Фоксом Малдером над проектом «Секретные материалы» — архивом таинственных, нерешённых дел ФБР, которые зачастую связаны с паранормальными явлениями, (   Читать дальше...   )Производство: США, Канада    20th Century Fox Television ,  Ten Thirteen Productions ,  X-F Productions Жанр: фантастика, триллер, драма, детективРежиссер: Крис КартерАктеры: Джиллиан Андерсон, Дэвид Духовны, Митч Пиледжи, Уильям Б. Дэвис, Николас Ли, Том Брэйдвуд, Дин Хаглунд, Брюс Харвуд и др.Перевод: Дублированный - ТВ-3; Двухголосный закадровый, профессиональный - REN-TVПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD74B215B4B0AAC8E7B19E68A1A84965D9662CCD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989252   (577806)
+
+Снежная битва   La guerre des tuques 3D (2015) BDRemux [H.264 1080p-LQ]
+
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы развлечься во время зимних каникул,
+детвора из маленькой деревни решает устроить грандиозное снежное побоище между двумя командами.Производство: Канада   CarpeDiem Film & TVЖанр: Приключения, КомедияРежиссер: Жан-Франсуа Пуле, Франсуа БриссонПерсонажи: Анджела Галуппо, Марилуп Вульф, Люсинда Дэвис, Николас Савард-Хербер, Софи Кадьо, Энн Касабонн, Хелен Буржуа Леклерк, Росс Линч, Катрин Трюдо, Жильдор РуаПеревод: ДублированныйПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E98650B0521DB599A78C83A28CC57DD23DBBA89
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989341   (577805)
+
+Пресеты - VideoHive - Liquify Preset [FFX, AEP]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимированные пластичные пресеты для модификации Вашего логотипа или текста. Прост в использовании. Достаточно просто перетащить пресет.
+Используется в Adobe After Effects.Формат: FFX, AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3022266A26365B95E8BF54C2CFFA2D93D939CA90
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989212   (577804)
+
+TP-Link стал первым производителем, закрывшим возможность установки сторонних прошивок на роутеры
+
+
+>>След.
+>>Новости
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_989212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производитель сетевых роутеров TP-Link начал запрещать обновление прошивки на выпускаемых им продуктах. Ограничения касаются роутеров с поддержкой (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989511   (577803)
+
+Секретные материалы   The X Files (1996-1997) BDRip (сезон 4, серии 1-24 из 24) ТВ-3, REN-
+
+
+>>Зарубежные сериалы
+>>Секретные материалы   X-Files
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Секретные материалы — научно-фантастический и мистический сериал о двух агентах ФБР: Фоксе Малдере и Дане Скалли. Специальному агенту Дане Скалли, доктору и выпускнику академии ФБР в Виргинии, поручают работу в паре с агентом Фоксом Малдером над проектом «Секретные материалы» — архивом таинственных, нерешённых дел ФБР, которые зачастую связаны с паранормальными явлениями, (   Читать дальше...   )Производство: США, Канада    20th Century Fox Television ,  Ten Thirteen Productions ,  X-F Productions Жанр: фантастика, триллер, драма, детективРежиссер: Крис КартерАктеры: Джиллиан Андерсон, Дэвид Духовны, Митч Пиледжи, Уильям Б. Дэвис, Николас Ли, Том Брэйдвуд, Дин Хаглунд, Брюс Харвуд и др.Перевод: Дублированный - ТВ-3; Двухголосный закадровый, профессиональный - REN-TVПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D7A3A06FE89A9E4F631F5083A18A1806254A45
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989121   (577802)
+
+Воровка книг   The Book Thief (2013) BDRip [H.264 1080p]
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германия, начало 1939 года, канун Второй мировой войны. Смерть готовится начать свою жатву. Девятилетняя Лизель переезжает в Мюнхен к своим приемным родителям и с их помощью учится читать. С каждым днем чтение становится ее жизненной потребностью, и Лизель начинает воровать книги — единственную отраду ее жизни. Все, что она узнает из них, помогает ей понять события, (   Читать дальше...   )Производство: США, Германия    Fox 2000 Pictures, Studio Babelsberg, Sunswept EntertainmentЖанр: Драма, ВоенныйРежиссер: Брайан ПерсивалАктеры: Софи Нелисс, Джеффри Раш, Эмили Уотсон, Бен Шнетцер, Нико Лирш, Роджер Аллам, Барбара Ауэр, Карина Визе, Оливер Стоковски, Райнер БокПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 02:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBF7E59C57F5811E17BD376268A78F17C4E11469
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989333   (577801)
+
+Universal Media Server 6.1.0 [Multi Ru]
+
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_989333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Media Server программа, предоставляющая медиа-ресурсы (фотографии, аудио и видео файлы) Вашего компьютера другим UPnP (DLNA) устройствам в домашней сети, например, телевизорам Philips, Sony, Samsung, LG, Toshiba, игровым приставкам Sony Playstation 3, XBOX 360, медиа-плеерам WD TV Live, Popcorn Hour, Dune, Boxee Box, IconBit, ASUS O!Play, iPad iPhone iPod, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A91E50A88D68B2388A37E0DB45726A5B73E247
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989274   (577800)
+
+Экшены - GraphicRiver - Portrait 2 Photoshop Action - 14656848 [ATN]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный экшен в стиле световых бликов и боке. Многие оценят его по достоинству.
+В раздачу вошло 1 ABR File, 1 ATN File, Help Guide Included (.docx)Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:054B56C6F6173F810873B9009CE61507436AEADF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989320   (577799)
+
+Проекты - VideoHive - Kronos - 8525117 [AEP]
+
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания титров. Прост в настройке и в использовании.
+26 каменных букв на прозрачном фоне. В каждой букве более 1000 каменных частиц. Множество пресетов на все случаи жизни.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72FEC5AF68556FE402FBEC7C19EFA4ED55D5CFA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989078   (577798)
+
+Мёд в голове   Honig im Kopf (2014) BDRip
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989078.jpg" />
+</div>
+
+
+###  Подробнее
+
+История 11-летней Тильды, которая просто обожает своего дедушку Амандуса. Когда тому диагностируют болезнь Альцгеймера, а родители, по ее мнению, хотят избавиться от него, сдав в дом престарелых, она берет ситуацию в свои руки и сбегает вместе с дедом в сказочную Венецию. Город выбран неслучайно. Ведь почти полвека назад Амандус сделал там предложение руки и сердца (   Читать дальше...   )Производство: ГерманияЖанр: Драма, Комедия, ПриключенияРежиссер: Тиль Швайгер, Ларс ГмелингАктеры: Эмма Швайгер, Дитер Халлерворден, Тиль Швайгер, Паскуале Алеарди, Марко Бриэро, Алекса Брюннер, Белинда Буш, Клаудио Кайоло, Дэна ЦебуллаПеревод: Многоголосый закадровый, профессиональныйОзвучка   Автор перевода: FocusStudio (Александр Воронов, Наталья Казначеева, Иван Калинин, Алёна Созинова) по переводу Анастасии КисиленкоЯзык субтитров: Русский (форсированные на итальянскую и французскую речь; полные - 2 вида), Немецкий (полные SDH), Английский (полные)Продолжительность: 02:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AEEBBFF29768698CB59D7A05608D775E3C356A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989008   (577797)
+
+Марсианин   The Martian (2015) DVD5
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного.
+
+Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США   20th Century Fox Film Corporation, TSG Entertainment, Scott Free ProductionsЖанр: Фантастика, приключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, датский, финский, норвежский, русский, шведский, эстонский, латышский, литовский, украинскийПродолжительность: 02:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413078CD56A976C224B379601AB959870FFC7BE8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989230   (577796)
+
+Фантастические твари и где они обитают   Fantastic Beasts and Where to Find Them (2016) DСPRip
+
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о приключениях писателя Ньюта Скамандера в Нью-Йоркском секретном обществе волшебниц и волшебников, происходивших за 70 лет до того, как Гарри Поттер прочитает книгу этого писателя в школе.Производство: Великобритания, США   Warner Bros.Жанр: Фэнтези, ПриключенияРежиссер: Дэвид ЙэтсАктеры: Эдди Редмэйн, Эзра Миллер, Колин Фаррелл, Кэтрин Уотерстон, Рон Перлман, Саманта Мортон, Джон Войт, Дэн Фоглер, Кармен Эджого, Элисон Судол, Кристин МардзаноПеревод: ДублированныйПродолжительность: 00:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C7117ACF6BA07E9CADF1A3FD2FE3A9DFF86675
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989381   (577795)
+
+Головоломка   Inside Out (2015) BDRip [1080p] ATV
+
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Райли — обычная 11-летняя школьница, и, как у каждого из нас, ее поведение определяют пять базовых эмоций: Радость, Печаль, Страх, Гнев и Брезгливость. Эмоции живут в сознании девочки и каждый день помогают ей справляться с проблемами, руководя всеми ее поступками. До поры до времени эмоции живут дружно, но вдруг оказывается, что Райли и ее родителям предстоит переезд (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, семейный, комедияРежиссер: Роналдо Дель КарменАктеры: Эми Полер, Филлис Смит, Ричард Кайнд, Билл Хейдер, Льюис Блэк, Минди Кейлинг, Кейтлин Диас, Дайан Лэйн, Кайл МакЛоклен, Пола ПаундстонПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  Английские SDH (полные, отключаемые)Продолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59928A286253F00E9435A33C265885101B8C947A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989089   (577794)
+
+InstallShield 2015 Premier Edition 22.0.0.0 [En]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система «InstallShield» — это отраслевой стандарт разработки инсталляционных пакетов. Именно с ее помощью создаются дистрибутивы программного обеспечения Microsoft, Adobe, IBM, HP, Sun, Cisco и многих других лидеров индустрии. Очередная версия системы InstallShield предлагает целый ряд новых и доработанных функций, поднимающих планку эффективности и надежности разработки (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAD3BDFF67DF597F8D280C2B6F2F9C1AA295F32
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989255   (577793)
+
+Звуковые библиотеки - Bluezone Corporation - Cinematic Impact Sound Effects [WAV, AIFF]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinematic Impact Sound Effects - Библиотека кинематографических семплов и звуковых эффектов, обеспечивающая огромный спектр воздействий и хитов, идеально подходит для трейлеров, кино, мультимедиа, проектов звукового дизайна фильмов и видео игр.  Пакет содержит 179 звуковых эффектов тщательно отредактированных, охватывающих широкий круг тем, таких как металлические (   Читать дальше...   )Формат: WAV, AIFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3241F48F2EACD357A983A4E315A943344C462765
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989248   (577792)
+
+Проекты - VideoHive - Complete Modern Wedding Pack - 6928975 [AEP, AI]
+
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой пакет для создания романтического фильма.
+Так же в пакет вошли DVD обложка, постер и другая печатная продукция выполненая
+в стилистике проекта, в формате AI (Adobe Illustrator).Формат: AEP, AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3682F0DD9D8C4C60E328DB53F525AA80EEF275
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989356   (577791)
+
+Ксения Аниашвили, Игорь Гусев | Покажи мне как. 777 самоучителей в одной книге! (2016) [PDF]
+
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989356.jpg" />
+</div>
+
+
+###  Подробнее
+
+И детям, и взрослым хочется уметь делать многие вещи самостоятельно. А чтобы не тратить уйму времени на поиски нужной информации в Интернете, открывайте эту книгу и вы непременно найдете интересующие вас сведения.
+
+Как устроить пикник по-итальянски? Как достать монетку из воды, не замочив рук? Как завязать рыболовный узел  восьмерка ? Как оформить букет (   Читать дальше...   )Жанр: ДосугФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13FE41A57B898A056499FF6502FEAC8CA72DA5D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988979   (577790)
+
+Бегущий в лабиринте: Испытание огнём   Maze Runner: The Scorch Trials (2015) DVD5
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_988979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лабиринт пройден, но Томасу, Терезе, Минхо и прочим глэйдерам не приходится расслабляться. Таинственное руководство ПОРОКА — секретной организации, устроившей гонки на выживание — назначает ребятам новые, смертельно опасные испытания. На сей раз их ждет переход по раскаленной пустыне и встреча с жертвами неизлечимой болезни, которые отличаются буйным нравом и непредсказуемым (   Читать дальше...   )Производство: США   20th Century Fox, TSG Entertainment, Temple Hill Entertainment, Gotham GroupЖанр: Фантастика, боевик, триллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Кая Скоделарио, Ки Хонг Ли, Томас Сэнгстер, Декстер Дарден, Алекс Дж. Флорес, Джейкоб Лофленд, Роза Салазар, Джанкарло Эспозито, Патришия КларксонПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, датский, финский, норвежский, русский, шведский, эстонский, латышский, литовский, украинскийПродолжительность: 02:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8124F94C61B0220AC67FC9232411B97FCDB3C2A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989359   (577789)
+
+American Truck Simulator (2016) [Multi Ru] [OS X Native game]
+
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989359.jpg" />
+</div>
+
+
+###  Подробнее
+
+American Truck Simulator – симулятор, разработанный студией SCS Software. Вам предстоит в игре взять на себя роль водителя-дальнобойщика, и выполнять различные контракты по грузоперевозкам по всей территории США. Если вы любитель серии Truck Simulator, то в данной части, вы так же сможете управлять компанией, открывать филиалы в различных штатах и нанимать водителей. (   Читать дальше...   )Тип издания: OS X Native gameРелиз состоялся: 2016Разработчик: SCS SoftwareПоддерживаемая ОС: 10.9+Жанр: Simulation, DrivingЯзык интерфейса: Русский, Английский, Немецкий, Французский, Польский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB30D45D15F14050B0854D3800B5CC97284D757
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989325   (577788)
+
+Шаблоны - Information Technology PowerPoint Templates [PPTX]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественный бизнес-шаблон для PowerPoint,
+более 120 слайдов в 3 цветовых решениях.
+Макет присутствует как в Standard(4:3), так и в Wide(16:9)Формат: PPTXРазрешение файлов: 1920х1080   300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962D3D5A94C2F428D315BE69090A2F0BC57B9552
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989345   (577787)
+
+Spellcrafter (2015) [Ru Multi] (1.0) License PROPHET
+
+
+>>Win Игры
+>>Strategy Tactical (RTS TBS)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Магия – это не искусство и не религия. Магия – это ремесло. Погрузись в увлекательный и незабываемый мир приключений в темной вселенной фэнтези! Spellcrafter – это стратегия с ведением тактических пошаговых сражений и уникальной системой заклинаний. Исследуй мир, полный магии; собери золото; взаимодействуй с неигровыми персонажами; получай задания и делай правильный (   Читать дальше...   )Тип издания: LicenseРазработчик: Jujubee S.A.Жанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868A35871BFA51ED32C450A865EDABEBB1E27BB1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989395   (577786)
+
+Kara no Shojo - The Second Episode   Kara no Shoujo 2   Uro no Shoujo (2015) [En] Repack
+
+
+>>Манга и Арт
+>>Визуальные новеллы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1957 год, декабрь. Прошло почти два года с момента похищения Кучики Токо из госпиталя. Сестра Токисаки Рейдзи, Юкари спасает человека, пытавшегося совершить суицид. Этот человек - жертва  проклятия Хинна-сама , которое совсем недавно считалось забытым... Сам Рейдзи не оставляет надежды, и продолжает расследование об исчезновении Токо. В тоже время, некая (   Читать дальше...   )Тип издания: RepackРазработчик: Innocent GreyЖанр: Визуальная новелла, Эроге, Хоррор, МистикаЯзык озвучки: ЯпонскийСубтитры: АнглийскиеЯзык интерфейса: АнглийскийПродолжительность: Длинная (30 - 50 часов)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7445594DE20A11C660D8D10E7B02C9002F1AE52F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989162   (577785)
+
+Kenny G - Полная дискография (1982 - 2015) [MP3|320 кб с] <Jazz>
+
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кенни Джи (англ. Kenny G, настоящее имя — Ке́ннет Брю́с Горе́лик, англ. Kenneth Bruce Gorelick, род. 5 июня 1956) — американский саксофонист, входящий в список 25 самых продаваемых американских музыкантов всех времён по статистике R.I.A.A. (англ. Recording Industry Association of America), лауреат премии «Грэмми» 1993 года, премии «Soul Train», «Мировой (   Читать дальше...   )Жанр: JazzПродолжительность: 45:26:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF84C5795FDF55AC4369E8B74560153B898DEB4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989361   (577784)
+
+Шрифты - Кириллические шрифты в количестве 1585 штук [TTF, OTF]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стандартные кириллические шрифты, обновлённые на конец 2015г.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7835F026E350178F4776D2ABC3FA6FEFC13960C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989490   (577783)
+
+Космос: Территория смерти   Dead Space: Downfall (2008) BDRemux [H.264 1080p]
+
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бороздящий космические просторы горно-исследовательский корабль «Ишимура» натыкается на загадочную чужеродную Метку, обозначающую особую зону. Команда амбициозного экипажа уверена, что они обнаружили подтверждение существования наших создателей. Но… исследование и смещение Метки высвобождает НЕЧТО, относящееся к инопланетному виду, которое долгое время было погребено (   Читать дальше...   )Производство: США   Electronic Arts (EA), Film Roman ProductionsЖанр: Ужасы, Фантастика, ТриллерПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: РусскийПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D451D452AC68CD205BD33FD7FF89035FDB83671C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 987325   (577782)
+
+#Хоррор   #Horror (2015) HDRip [VO]
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_987325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героини фильма - 12 летние девчонки, решившие на выходных развлечься и поучаствовать в онлайн-игре. Для победы нужны выкладывать свои фото и получать «лайки». Но их погоня за популярностью заходит настолько далеко, что вечер превращается в кровавую баню.Производство: СШАЖанр: Ужасы, Триллер, Драма, ДетективРежиссер: Тара СабкоффАктеры: Хлоя Севиньи, Тимоти Хаттон, Бальтазар Гетти, Стелла Шнабель, Хейли Мерфи, Бриджет МакГарри, Блу Линдеберг, Мина Сандвол, Эмма АдлерПеревод: Одноголосый закадровый, любительскийОзвучка   Автор перевода: Хихидок   МарселинСубтитры: ОтсутствуютПродолжительность: 01:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7453D4869599C4C94A4A6BCA1C001A610B8301
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989254   (577781)
+
+Рождество   The Night Before (2015) HDRip
+
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989254.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о веселых приключениях трех старых друзей, отправившихся на поиски лучшей рождественской вечеринки в Нью-Йорке..Производство: США, Columbia Pictures, Good Universe, LStar Capital, Point Grey PicturesЖанр: КомедияРежиссер: Джонатан ЛевинАктеры: Джозеф Гордон-Левитт, Сет Роген, Энтони Маки, Джиллиан Белл, Лиззи Каплан, Майкл Шеннон, Хелен Йорк, Илана Глейзер, Аарон Хилл, Трэйси Морган, Дэрри Лоуренс, Нэйтан ФилдерПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4BD4668182ADE6718923907D95C5EB165A2AA9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 166435   (577780)
+
+Частная практика   Private  practice (2009) HDTVRip (сезон 3, серии 1-23 из 23) Danila Ivi
+
+
+>>След.
+>>Анатомия страсти   Grey s Anatomy
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_166435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф сериала  Анатомия страсти  ( Grey s anatomy ), в котором главной героиней выступит доктор Эддисон Форбс Монтгомери, переехавшая в Санта-Монику и начавшая новую жизнь. Эддисон – известный хирург. Оставив работу в Сиэттле, рухнувший брак с Дереком Шепардом и неудавшиеся отношения с Марком Слоаном, она переезжает в Лос-Анджелес, в более солнечный (   Читать дальше...   )Жанр: Комедия, Мелодрама, ДрамаРежиссер: Марк Тинкер, Майкл Цинберг, Джеффри Мэлман, ...Актеры: Кейт Уолш Тим Дейли КаДи Стрикленд Пол Эделстин Эми Бреннеман Одра МакДональд Крис Лоуэлл Тэй Диггз Дэвид Сатклифф Брайан Бенбен ..Перевод: Любительский одноголосый закадровый (Masya323, Riverain, озвучка Danila Ivin)Продолжительность: по 00:42:00 минуты
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989354   (577779)
+
+Шаблоны - Business Report PowerPoint Template [PPTX, PPT]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественный бизнес-шаблон для PowerPoint,
+более 100 слайдов в 6 цветовых решениях.
+Макет присутствует как в Standard(4:3), так и в Wide(16:9)Формат: PPTX, PPTРазрешение файлов: 1920х1080   300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A55C970668C12A0FE9885317378D30E338BE770
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989322   (577778)
+
+Правнуки (2015) HDRip
+
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое молодых друзей на 9 мая узнают о том, что далеко на другом конце страны нашлись останки их прадедов, которые пропали на войне. Прежде, чем отправиться в дальний путь, им предстоит дать ответ самим себе на многие вопросы, о которых забывать не следует…Производство: Россия, Кинокомпания  Акростих Жанр: ДрамаРежиссер: Антон ГребенщиковАктеры: Александр Барановский, Дмитрий Мазуров, Антон Гребенщиков, Светлана Грунина, Платон Харитонов, Павел Харин, Григорий Шустер, Людмила Трошина, Виктория Левченко, Тамара КочержинскаяПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA7D6D5701537E3DEC152F4E702D13A0CB03FF3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989442   (577777)
+
+XCOM 2 (2016) [Ru En Pl] (1.0.0.33124 dlc) Repack R.G. Origami [Digital Deluxe Edition
+
+
+>>След.
+>>Strategy Tactical (RTS TBS)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество проиграло войну. Двадцать лет минуло с тех пор, как мировые лидеры подписали безоговорочную капитуляцию, и Земля была отдана инопланетянам. Последняя линия обороны, организация XCOM, разбита и предана забвению. Пришельцы правят покоренным миром, возводя сверкающие города, которые обещают безоблачное будущее для человечества, но за этим пышным фасадом (   Читать дальше...   )Тип издания: RepackРазработчик: Firaxis Games и Feral InteractiveЖанр: Strategy (Real-time, Turn-based, Tactical), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461C74E0228F34152A1C4D43F58E2A0D4C56E043
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988995   (577776)
+
+InfiniteSkills | Профессиональное руководство по взлому и проникновению в беспроводную сеть WiFi (
+
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_988995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устраняем неполадки сети с помощью Wireshark
+Захватываем и анализируем сетевой трафикЖанр: Обучающий видеокурсПеревод: СубтитрыПродолжительность: 04:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB5F2020246EC6B20B212D698EBFA52A41639F2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 987827   (577775)
+
+Тёмная паутина   Darkweb (2016) HDRip [VO]
+
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_987827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказывается кроме хорошо знакомого нам интернета существует огромная паутина, где вертятся огромные деньги и идет своя жизнь. Слышали ли вы о Тёмной паутине? Это сетевые сегменты, вообще не подключённые к сети Интернет... Таинственные люди создали садистскую группу, похищая молодых девушек для участия в охоте на индюшек в качестве добычи, при этом они снимают всё (   Читать дальше...   )Производство: Франция   A.A.A.Жанр: Боевик, ТриллерРежиссер: Бруно ВассенатАктеры: Оливье Грюнер, Тони Харрисон, Ибрахима Кейта, Винсент Паризи, Тристан Робин и др.Перевод: Одноголосый закадровый, любительский ( Васька Куролесов по субтитрам Enigma)Субтитры: ОтсутствуютПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18922787AFDBD564D8E12CF2A9479D805367A490
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 541882   (577774)
+
+Звуковые библиотеки - Bluezone Corporation Samples Pack [WAV, AIFF]
+
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_541882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bluezone корпорация очень рада представить вам уникальный пакет сэмплов. Это сокровище, спрятанное в недрах Вселенной из самых последних постановок. Доступные для мгновенной загрузки, FX образцы предлагают  коллекцию звуков различной тематики: барабанные петли, синтезаторные звуки и звуковые эффекты.
+Каждый набор находится в отдельной папке и может быть скачан отдельно, (   Читать дальше...   )Формат: WAV, AIFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C11431212864100A707A2AED452364CD53B3809
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 983139   (577773)
+
+Чисто английские убийства   Midsomer Murders (2016) HDTVRip (сезон 18, серии 1-2 из 6) (
+
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_983139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чисто английский сериал по чисто английским романам Каролины Грэм. От перемены мест слагаемых сумма английского детектива не меняется, и время не властно над истинными ценностями. Чопорные островитяне по-прежнему совершают самые изощренные преступления, за ними с самым обстоятельным и почтительным видом следуют элегантные сыщики, а фоном для этих сдержанных страстей (   Читать дальше...   )Производство: Великобритания, Bentley Productions Ltd., Independent Television (ITV)Жанр: драма, криминал, детективРежиссер: Алекс Пиллай, Ренни РэйАктеры: Джон Неттлз, Джейн Уаймарк, Бэрри Джексон, Джейсон Хьюз, Лаура Ховард, Нил Даджон, Дэниэл Кэйси, Фиона Долмэн, Кирсти Диллон, Тэмзин Маллсон и др.Перевод: Одноголосый закадровый, любительский - reiserПродолжительность: ~01:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D5447F1AAABA1643C93364E3C59FDEDB49B418
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989262   (577772)
+
+Француз   Un Francais (2015) HDRip
+
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марко — настоящий скинхед. Вместе со своими приятелями, Брагетом, Гран-Ги и Марвеном, он дубасит арабов и расклеивает плакаты ультраправых. Это продолжается до тех пор, пока он не начинает чувствовать, что вся эта ненависть улетучилась. Но как избавиться от жестокости, злости и глупости, которая в нас живет? Это пример пути человека, который был подонком, но захотел (   Читать дальше...   )Производство: Франция   Fin Aot Productions, Mars Films, France 3 CinmaЖанр: ДрамаРежиссер: ДьястемАктеры: Элбан Ленуар, Поль Ами, Джинн Роза, Патрик Пино, Рено Леба, Бландин Пелиссье, Алекс МартинПеревод: Многоголосый закадровый, любительский (Paradox & Omskbird records)Субтитры: отсутствуютПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981F24A9C4A13CD18C8E4A58EDA85708EC0ABA9D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 920021   (577771)
+
+Call of Juarez: Gunslinger (2013) [Ru En] (1.0.5 dlc) Repack =nemos=
+
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_920021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев. Вам предстоит побывать в грязных салунах, золотых шахтах и многих других местах, где могут укрываться бандиты. (   Читать дальше...   )Тип издания: RePackРазработчик: TechlandЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE1BAE9AB99A66391354011CB2DE1E4A6199159
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989149   (577770)
+
+Пятьдесят оттенков черного   Fifty Shades of Black (2016) WEBRip [Line]
+
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неискушенная студентка колледжа знакомится с состоятельным бизнесменом, чьи сексуальные предпочтения омрачают их отношения.Производство: США, IM GlobalЖанр: КомедияРежиссер: Майкл ТиддесАктеры: Марлон Уайанс, Кали Хоук, Фред Уиллард, Майк Эппс, Эффион Крокетт, Джейн Сеймур, Флоренс Хендерсон, Эндрю Бэчелор, Дженни Зигрино, Кейт Лэнг Джонсон, Сидни Кастилло, Ирен Чои, Расселл Питерс, Д.С. Эрвин, Шонте Вайанс, Винсент Ошана, Ховард Алонсо, Брэд Шмидт, Джои Ромэйн, Дейв ШериданПеревод: Дублированный (Чистый звук)Продолжительность: 01:24:22Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F2D6E1277C1DD95D609BDE849D22F7857A7FBD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989681   (577769)
+
+VA - Piano Lullaby (25 Piano Lounge Anthems) (2016) [MP3|320 кб с] <Pop, Lounge, Easy List
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key Of Dreams Fiftheen - Welcome Go Back (04:25)
+02. Division Tree - Surrealism (03:20)
+03. Kasey Taylor - Crossing (02:56)
+04. System 55 - Portus (02:11)(   Читать дальше...   )Жанр: Pop, Lounge, Easy Listening, PianoПродолжительность: 01:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1418D54E085018868C01BF6C91343CC291F7D5A6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989895   (577768)
+
+Qiyu Swordfish Browser 1.0.5.0 [En Cn]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Qiyu Swordfish Browser - китайский браузер «Рыба-меч» на базе Chromium. Офсайт на китайском, однако сам браузер имеет и английский интерфейс. По заявлениям разработчиков обеспечивает высокоскоростной доступ в Интернет, используя новейшие скорости загрузки ядр-Chrome ??браузера, что влияет на скорость загрузки страницы в целом. Скорость подкреплена  свежим интерфейсом (   Читать дальше...   )Язык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DF9766303439CE5DCB2FD8D7E87F23C20B6823
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989434   (577767)
+
+Журнал | Дом в саду. Спецвыпуск №5 Пряные корнеплоды (2016) [PDF]
+
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Садоводство, огородничествоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7B2F73596C845186BEB9EA62E865DD8A81D0A8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989643   (577766)
+
+Журнал | Приготовь. Спецвыпуск №3. На масленицу (март 2016) [PDF]
+
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масленицу в этом году мы отмечаем 7-13 марта Перед тем, как войти в Великий пост, принято прощаться с зимой, радоваться первым погожим денькам, выпекая традиционные блины, ходить друг к другу в гости и готовиться к очищению души и тела Поэтому в мартовском номере журнала мы собрали для вас рецепты масленичных блюд.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8296C36EA4B93F43341948AAC30F58B6AD65260
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989269   (577765)
+
+Новый  плоский  материал позволит  продлить жизнь  закону Гордона Мура
+
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Ни для кого не является секретом, что соблюдение закона Гордона Мура, определяющего темпы развития микропроцессорной вычислительной техники, в последнее время находится под большим вопросом в силу многих причин. Именно поэтому различные исследовательские группы производят поиски альтернативных вариантов, материалов, позволяющим электронам или другим носителями электрического (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989456   (577764)
+
+Дмитрий Аксенов | Предсказания будущего. (2015) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989456.jpg" />
+</div>
+
+
+###  Подробнее
+
+В трех словах книга рассказывает о том, какой может и будет наша жизнь ЗАВТРА. В этой книге я собрал мнения известных людей, как пессимистические, так и оптимистические, о перспективах выживания Человечества. И одной шестой части суши в частности. Примерный прицел прогнозов - 50-100 лет. Примерные сроки вашей (уважаемый читатель) жизни.Таков краткий сценарий книги, (   Читать дальше...   )Жанр: ИсторияПродолжительность: 09:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6C34E6108839D540B7147D4EE8CBEEC56597D7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989771   (577763)
+
+Журнал | Дарья №1 (Январь 2016) [PDF]
+
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный журнал для современных женщин. В каждом номере – модные тенденции и рецепты красоты, фэн-шуй, интервью со звездами, истории из жизни, рекомендации врачей, диетологов, дизайнеров, садоводов, уникальные советы ясновидящей Анастасии, кулинарные рецепты, а также астропрогноз, сканворды, конкурсы.Жанр: женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E294DCC86959DCF583EEB492A1748E0103872B55
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989934   (577762)
+
+Полигон. Гаубица Д-30 (2015) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых ожидаемых премьер этого телесезона — программа о современных военных разработках, новейших видах вооружения, средствах ведения боя и индивидуальной защиты!
+Российская армия сегодня – это не только автомат Калашникова и самолеты Сухого. Инновационные разработки военно-промышленного комплекса открывают практически безграничные возможности. Однако гражданским (   Читать дальше...   )Телекомпания: Россия 2Жанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7255AA4983D77E9EC913CF765C577D7DC7D1A91
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989411   (577761)
+
+SMART Utility 3.2.2 [En]
+
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+SMART Utility - приложение, которое считывает данные SMART внутренних жёстких дисков компьютера.
+ SMART Utility - системная утилита, читающая S.M.A.R.T (Self-Monitoring Analysis and Reporting Technolodgy - технология самотестирования, анализа и отчетности) с ваших жестких дисков. Поддерживаются все чипы S.M.A.R.T жестких дисков, заявленных на сегодняшнем рынке, поэтому (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 февраля 2016Разработчик: Volitans SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3577DF1D17D438D6EBC2C81C7B72D49F4F5AB7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989711   (577760)
+
+Картинки - Wild animals (Big Pack 3) [JPG]
+
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки на тему диких зверейФормат: JPGРазрешение файлов: 1280x960 - 8889x5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D093433BBF65D386501A61898F9EE9FE371315B7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989839   (577759)
+
+Сидни Шелдон | Ты боишься темноты? (2015) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989839.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Париже американец Харрис бросился вниз с площадки Эйфелевой башни. Неподалеку от Денвера канадец Рейнолдс врезался в гору на своей  Сессне , успев сообщить диспетчеру о том, что попал в сильную турбулентность, тогда как с земли ничего подобного не наблюдалось. Жительница Берлина Соня Вербрюгге утонула в собственной ванне.И в Нью-Йорке на берегу Ист-Ривер (   Читать дальше...   )Жанр: ТриллерПродолжительность: 09:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE24570BC6F58E21BEAECF4CD9C8CD63A2D150D8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989566   (577758)
+
+VA - Extreme Workout Sport Music (2016) [MP3|320 кб с] <Dance, Club, Deep House, Electro House
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Workout Electronica DJ - Time To Rise (Mindful Hatha Yoga Dance DJ Mix 132 BPM) [06:43]
+02. Workout Electronica DJ - Warming Up (Yoga Meditation Run DJ Mix 132 BPM) [04:31]
+03. Power Workout DJs - Lets Work It Out (Xtreme Rave Runnners 135 BPM DJ Mix) [03:54]
+04. VIP Fitness EDM DJs - Go Higher Go Faster (Hard Training Club 128 DJ Mix) [06:23](   Читать дальше...   )Жанр: Dance, Club, Deep House, Electro HouseПродолжительность: 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71AB8A8B41D2184D2917DCAF1588AB04F0AE63E5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989666   (577757)
+
+Павел Березов (сост.) | Ленин и Сталин в творчестве народов СССР (1938) [DJVU]
+
+
+>>Художественная литература
+>>Исторические книги
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989666.jpg" />
+</div>
+
+
+###  Подробнее
+
+... Настоящая книга содержит в себе часть того обширного фольклорного и литературно-художественного материала, в котором нашли наиболее полное и яркое выражение чувства благодарности и любви народов СССР к величайшим вождям человечества - Ленину и Сталину.Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCD3D98107FA9A44199574EFC7142AD9F016876
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989539   (577756)
+
+Голос. Дети (2016.02.20) HDTVRip [H.264 720p-LQ] (сезон 3, выпуск 1)
+
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989539.jpg" />
+</div>
+
+
+###  Подробнее
+
+ Первый канал  представляет премьеру третьего сезона музыкального проекта  Голос. Дети . Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес  Первого канала , музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в слепых (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460F6618EAB08F2F34C906AF48C40F44241AAB73
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989694   (577755)
+
+Полигон. Большой десантный корабль (2015) HDTVRip [720p-LQ]
+
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа о современных военных разработках, новейших видах вооружения, средствах ведения боя и индивидуальной защиты! В  боевых условиях  ведущие попытаются выяснить, как устроены и работают современные бронеавтомобили и снайперские винтовки, ударные вертолеты и боевые корабли. С любознательностью новобранцев они будут рассматривать каждый винтик и интересоваться (   Читать дальше...   )В этом выпуске: Алексей Громыко побывает на большом десантном корабле, чтобы рассказать, как проходит десантирование подразделений морской пехоты с техникой на морское побережье и как выполняется условное задание.Телекомпания: Т24Жанр: ТелепередачаПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1023BF755688EA5CBCE6A8AB7F85EC9E0B2EB9E7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989429   (577754)
+
+Журнал | Дом в саду. Спецвыпуск №3 Живые изгороди (2016) [PDF]
+
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Садоводство, огородничество, цветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074E8F348CE8B7766564135AA2005FD3B8C38152
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989444   (577753)
+
+Клод Давид | Франц Кафка (2012) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франц Кафка - один из классиков европейской литературы XX века, автор абсурдистских произведений, герои которых страдают и гибнут в столкновении с чуждой, враждебной им действительностью. Книги Кафки - зеркальное отражение судьбы их автора, всю жизнь тщетно пытавшегося обрести гармонию в семье, в творчестве, в отношениях с женщинами. Он так и остался одиноким и непонятым, (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 12:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDACD4A31FC1F1BA7ADCD50548A583097DDF5979
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989426   (577752)
+
+Журнал | Дом в саду. Спецвыпуск №2 Контейнерный сад (2016) [PDF]
+
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Сад, ландшафтный дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D799018126CAB5B20F53172D1ED1C4C2A99BB0BC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989569   (577751)
+
+Tori Amos - Diamond Collection (1998) Unofficial Release [FLAC|Lossless|image + .cue] <Alternati
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_989569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cornflake girl  05:04
+02.Crucify  04:56
+03.Spark  04:11
+04.Caught a lite sneeze  04:24(   Читать дальше...   )Жанр: Alternative Rock, VocalПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39EC98E82D3339D605D4923B3F83B21584FD0858
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989430   (577750)
+
+Журнал | Дом в саду. Спецвыпуск №4 Картофель (2016) [PDF]
+
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Садоводство, огородничествоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A80DC10D386470A664181D89075E0F498370AD9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672558   (577749)
+
+Американский пирог: Все в сборе   American Reunion (2012) HDRip [Hand Made Extended Unrated Cu
+
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Герои «Американского пирога» встречаются вновь спустя несколько лет. Они докажут, что даже время и расстояние не в силах разрушить их дружбу. Летом 1999-го четверо мичиганских парней решили расстаться с невинностью. Прошли годы, и теперь друзья вернулись домой уже повзрослевшими, чтобы вспомнить прошлое и оторваться на полную катушку.Жанр: КомедияРежиссер: Джон Харвитц, Хейден ШлоссбергАктеры: Джейсон Биггз, Элисон Хэннигэн, Крис Клейн, Томас Иэн Николас, Тара Рид, Шонн Уильям Скотт, Мена Сувари, Эдди Кэй Томас, Джон Чо, Дженнифер Кулидж, Юджин ЛевиПеревод: Дублированный, со вставками двухголосого на расширенные местаПродолжительность: 02:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0FE1F48E3941C4E57CE1EF29CD875937FE4660
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672718   (577748)
+
+Adobe Flash Professional CC 13.0.0.759 [Ru Multi]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Adobe Flash Professional CC является частью Creative Cloud™ , а то есть каждый пользователь может загрузить свой flash-проект в  облако  и после сможет в любой момент открыть свой проект на других компьютерах. Adobe Flash это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Flash также позволяет работать с растровой, векторной а так же с трёхмерной графикой используя при этом GPU . Также поддерживает двунаправленную потоковую трансляцию аудио и видео. Для КПК и других мобильных устройств выпущена специальная «облегчённая» версия платформы Flash Lite, функциональность которой ограничена в расчёте на возможности мобильных устройств и операционных систем Android, iOS и другие.
+
+(   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672542   (577747)
+
+Adobe Captivate 7 7.0.0.118 [Multi Eng]
+
+
+>>След.
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Adobe Captivate 7 позволяет быстро создавать интерактивные обучающие материалы и руководства, мобильные курсы на основе технологии HTML5, демонстрационные материалы для различных программных продуктов в HD формате, а также различные тренинги.
+Программа позволяет использовать в Ваших проектах готовые слайды из Microsoft PowerPoint, различные мультимедийные и интерактивные элементы, викторины, и сохранять готовый проект практически для любых устройств, в том числе для планшетов iPad.
+
+(   Читать дальше...   )Язык интерфейса: Английский, Немецкий, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 671879   (577746)
+
+Солдатики 2   Toy Defense 2 (2013) [Ru En] (1.0) Лицензия
+
+
+>>След.
+>>Strategy Manager Business (Casual)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_671879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте продолжение знаменитой игры в стиле tower defense, ставшей настоящим хитом. Первая мировая война выиграна. Идет Вторая мировая - самая страшная, самая кровопролитная. Игрушечные солдатики вновь готовы побеждать. Кто из них выиграет, чья армия окажется сильней, выбирать вам. Приготовьтесь к новым сражениям: выберите одну из противоборствующих сторон, продумайте стратегию, постройте укрепления, научитесь использовать военные машины и оборудование того времени и в бой!Тип издания: ЛицензияРазработчик: Melesta GamesЖанр: Tower DefenceЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55AC9A99C9F0A3D88AAAB25EA55E166403A4A281
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672278   (577745)
+
+ORION - Раскрой листовых материалов 2.60.0.299.4 Demo [Ru]
+
+
+>>След.
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Программа  ORION - Раскрой листовых материалов  предназначена для оптимизации раскроя листовых материалов на детали прямоугольной формы.
+ Основная цель программы - формирование карт раскроя листовых материалов с минимальными отходами. Формирование карт раскроя производится с помощью оригинального высокоскоростного алгоритма, главным  критерием которого является минимизация отходов материала. Программы функционируют в среде операционных систем Windows XP Vista Win7  Windows 8.
+
+(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672490   (577744)
+
+Adobe Bridge CC 6.0.0.151 (x64) [Ru Multi]
+
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Adobe Bridge CC предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, добавлять водяные знаки и даже централизованно устанавливать параметры цвета — Bridge упростит вашу работу и поможет поддерживать порядок.
+
+(   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672791   (577743)
+
+Adobe Photoshop CC (v14.0) DVD [RUS ENG]
+
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Компания Adobe полностью отказалась от распространения своих продуктов на DVD-дисках за фиксированную стоимость и перешла на распространение их по сети по ежемесячно оплачиваемой подписке. Не всем это оказалось по нраву. Среди противников новых порядков и я, ваш покорный слуга. Во многом благодаря этому, вы можете, имея эту сборку, пользоваться, как и раньше DVD-редакцией с разово применяемым лекарством!
+
+Adobe Photoshop CC - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные инструменты и рабочие процессы для создания трехмерной графики, двухмерных проектов, а также фильмов.
+
+Adobe  Photoshop CC входит в состав Creative Cloud. Поэтому его пользователям доступны все последние обновления, а доступ к новым версиям предоставляется (   Читать дальше...   )Язык интерфейса: Русский   Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989660   (577742)
+
+Машины-монстры: SUSTAIN - лаборатория, в стенах которой создаются искусственные ураганы 5-й категори
+
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Согласно прогнозам ученых-климатологов, ураганы, сопоставимые по силе с ураганом Сэнди (Hurricane Sandy), будут возникать на Земле и обрушиваться на прибрежные районы некоторых стран каждые 130 лет. Для сравнения, в далеком прошлом периодичность возникновения подобных ураганов составляла порядка 3 тысяч лет. И для того, чтобы иметь возможность подготовиться к таким (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989714   (577741)
+
+Картинки - Мальдивы [JPG]
+
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки на тему Мальдивских Островов.Формат: JPGРазрешение файлов: 1600x1200 - 8000x4926
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBBD10FB18575A3C90205DF263565ABBF590FE4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989645   (577740)
+
+Журнал | Приготовь. Спецвыпуск №2 В мультиварке (февраль 2016) [PDF]
+
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинария в мультиварке обретает все большую популярность, поскольку этот простой кухонный электроприбор используется домашними хозяйками все чаще. С мультиваркой можно сэкономить массу времени при приготовлении многих, порой сложных блюд. В этом выпуске вы найдете более 70 рецептов вкусных блюд от простого к сложному, которые не потребуют от вас больших затрат и (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E2F13F8614D99FD2E3CE7B75B2FC3B20A33698
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989598   (577739)
+
+Мария Полякова. Своя среди чужих (2015) DVB
+
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о судьбе одной из немногих советских женщин-резидентов Марии Поляковой. Она умерла 7 мая 1995 года за два дня до юбилея Великой Победы. Автору фильма удалось незадолго до ее смерти записать большое интервью с  резидентом Марией . Это интервью и легло в основу фильма.Телекомпания: Студия  Русский космос Жанр: ДокументальныйПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05531C2AEF7A2BC24501FDD51066F0C95E3A111
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989506   (577738)
+
+Алан Брэдли | Сладость на корочке пирога (2014) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989506.jpg" />
+</div>
+
+
+###  Подробнее
+
+В старинном английском поместье Букшоу обитают последние представители аристократического рода – эксцентричный полковник де Люс и три его дочери. Летом 1950 года тягучее болото сельской жизни нарушают невероятные события: убийство незнакомца и арест полковника. Пока старшие дочери, как положено хорошо воспитанным английским леди, рыдают в платочки, младшая, одиннадцатилетняя (   Читать дальше...   )Жанр: Зарубежный детективПродолжительность: 10:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC60F04589FAEBDBEBF86BAAD71396DF8C41401F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989514   (577737)
+
+VA - Star Wars Headspace (2016) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Soundtrack>
+
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaskade - C-3P0 s Plight (03:13)
+02. GTA - Help Me! (03:56)
+03. TroyBoi - Force (02:52)
+04. Baauer - Cantina Boys (02:49)(   Читать дальше...   )Жанр: Electronic, SoundtrackПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9497FEE9CAECD09879AAC91F9C7232F08A7A7A66
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989349   (577736)
+
+OST - Verliefd op Ibiza   Любовь и секс на Ибице (2013) [MP3|230-270 кб с] <Soundtrack>
+
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Fiora - Waiting For The Night (Radio Edit)
+02. James Blunt - Same Mistake
+03. Rebecca Ferguson - Nothing s Real But Love
+04. Alderliefste - Une Belle Histoire(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0928717081A610FB3DB6AB89E89290AC250CACEC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989579   (577735)
+
+День космических историй. Кто же мама? (2016.02.22) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
+День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A971ADED12429D6881B1777E8EEBAC568F34D0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989578   (577734)
+
+День космических историй. Где волшебную косят трын-траву? (2016.02.22) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
+День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61BA0A03C4A96FDEDC166FD07DE39D370E2DC41
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989807   (577733)
+
+Смешанные единоборства. UFC Fight Night 83: Cowboy vs. Cowboy. (21.02.2016) WEB-DL [H.264 720p
+
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_989807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все бои турнира  UFC Fight Night 83: Cowboy vs. Cowboy , прошедшего 21 февраля 2016 года в  Consol Energy Center , Питтсбург, штат Пенсильвания, США.Телекомпания: FOX Sports 1Жанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:29:20 + 01:59:50 + 02:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555651E0A71ED12CDA1597CFB158356BA9879A5D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989705   (577732)
+
+Журнал | Дачный спец №2 (февраль 2016) [PDF]
+
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбор семян, уход за уход за рассадой, устройство теплицы - в этом вам помогут дельные советы опытных дачников и  руководства  для начинающих в новом выпуске издания. А экскурс по фитолампам и почве подскажет вам, как создать для юных растений наиболее комфортную среду.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC1A96DA3255E0B4DFEC5E4700003685BFFE926
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989712   (577731)
+
+Игорь Афонский | Дети забытых богов (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989712.jpg" />
+</div>
+
+
+###  Подробнее
+
+На данный момент заключительная часть похождений частного детектива Алексея Николаева. Странно, но некоторые вещи были незакончены логически, но написаны раньше, а потом просто легли, как на свое место.
+
+Читатель сможет убедиться, что все случившиеся очень давно события смогли сильно влиять на происходящее с детективом уже в последнее время. Если читатель вообще (   Читать дальше...   )Жанр: Детективная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313620CF371D8C696BF2235BEE2F04F1EBB28DDA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989804   (577730)
+
+Терри Пратчетт | Шляпа, полная небес [Тиффани Болит - Книга 2] (2015) [m4b|AAC]
+
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если у тебя есть магические способности, а учителей поблизости нет? У ведьм принято проходить ученичество у старых ведьм, овладевая профессией и помогая им в работе. Вот и Тиффани Болит, одиннадцати лет, отправилась даже в другую страну — Ланкр (которая находится не так уж и далеко на самом то деле), чтобы пройти обучение и стать настоящей ведьмой.Жанр: ФэнтезиФормат: m4bПродолжительность: 09:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479D306D6B9B4F195A84EC6FED9B579CB61515F3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989713   (577729)
+
+Картинки - Milky Way [JPG]
+
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки на тему млечного путиФормат: JPGРазрешение файлов: 1600x1139 - 5376x3584
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B5FABEAD81011F2DD08AAC92AFB3E8CABC61BB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989796   (577728)
+
+Юрий Табашников | Пуп горы (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой попадает в собственную игру нового поколения, о создании которой его заставили забыть. Вместе  со своим неизменным спутником- орком, он неожиданно оказывается втянут в ряд совершенно фантастических событий. Игра, которая показалась изначально развлекательной, вдруг становится смертельно опасной, а за ее кажущейся простотой таится сложный мир, который (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE010B0A3B4052041D69C3078403A2CC6B63313
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989803   (577727)
+
+Терри Пратчетт | Вольные мальцы [Тиффани Болит - Книга 1] (2014) [m4b|AAC]
+
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочка Тиффани-ведьма. На ней огромные ботинки и сковородка в руках. Она маленькая, ей 9 лет и вот она должна… Ну вы догадались? Она должна спасти мир! У нее есть помощники: племя нак-мак фиглов, сказочный народец, отличающийся маленьким ростом и великой драчливостью, вороватостью и выпиватостью…Жанр: ФэнтезиФормат: m4bПродолжительность: 10:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8160D7309E08D0F9333669A7EF79B43E0D027F5C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989762   (577726)
+
+5 Стихий - Колыбель Времён (2016) [MP3|320 кб с] <Melodic Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_989762.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Время подобно ребенку, ведомому за руку: смотрит назад...» (Хулио Кортасар). «Но только в будущем обретает смысл…», добавляет группа. Этот альбом - намек на связь прошлого, настоящего и будущего, ведь иначе нельзя понять, кто мы. Ибо осознание этого необходимо нам, как Воздух…1. Начало
+2. Сольвейг
+3. Сгори
+4. Дух Свободы(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8ABD8CA5D4C9EB4C2422DEE05616F7437F0ECD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989726   (577725)
+
+Юрий Табашников | День Икс (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды на краю глухой сибирской деревушки появился дом. Возник он неожиданно, в один момент. Один за другим, местные жители начали входить внутрь, но назад выходили не все. В то же время по всему миру начали происходить грандиозные масштабные изменения. Наступил День Икс. Оставит ли он хоть малейшие шансы для человечества?..Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475FD2F095A515649DA1E15D329FD1ECE3546E9D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989699   (577724)
+
+VA - Wedding Music Chillout - First Dance Songs (2015) [MP3|320 кб с] <Downtempo, Chillout, Lo
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wedding Piano - Love Story [03:25]
+02. Wedding Piano - Waltz No. 14 in E Minor (Ballet) [03:58]
+03. Romantic Love Songs - Wedding (Piano Classics) [03:49]
+04. Wedding Piano - Grande Valse Brillante in E Flat Major, Op. 18 (Wedding Songs) [01:44](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA9AAD1670F91D2ACA37272339B1AA9CAD4A4A6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 673028   (577723)
+
+Журнал | Computerworld [Россия] №15 (800) (июнь 2013) [PDF]
+
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+«Computerworld» - еженедельник, посвященный информационным технологиям: обзор важнейших событий ИТ-индустрии в России и в мире, материалы о новых технологиях.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156B3FC8891DD339E1E80A6735ABDDC51FF043BF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 673190   (577722)
+
+VA - Now! The Ultimate Collection (2013) 2CD [MP3|~245 кб с (V0)]<Pop, Rock>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia - Save The World (3:32)
+02. Black Eyed Peas - I Gotta Feeling (4:50)
+03. Asaf Avidan - One Day   Reckoning Song (3:32)
+04. Avicii - Levels (3:18)
+05. Lmfao - Party Rock Anthem (4:22)
+06. Stromae - Alors On Danse (3:34)
+07. Ne Yo - Beautiful Monster (4:11)
+08. Timbaland - Apologize (3:05)
+09. N.E.R.D. - She Wants To Move (3:34)
+10. Gorillaz - Feel Good Inc (3:41)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 673064   (577721)
+
+Zoungla - Entwine (2013) [MP3|320 кб с]<Psychill, Ambient, Downtempo>
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Great Mountain Of Life (07:47)
+02. Wakefulness In Sleep (08:09)
+03. Release (07:39)
+04. Anahata (09:47)
+05. Young Man (05:34)
+06. Wonky Kong (09:23)
+07. Charging By The Crystal Cave (08:14)
+08. Crimson Sandcastle (06:29)
+09. Entwine (08:02)Жанр: Psychill, Ambient, DowntempoПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87590C4CBE100CBB929469C0F2FF08D7CEF64BAF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672774   (577720)
+
+Freemake Video Downloader 3.5.2.3 [Ru Multi]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Freemake Video Downloader - бесплатный загрузчик видео, позволяющий без труда скачивать видеофайлы с таких видеохостингов, как ВКонтакте, Яндекс, RuTube, Mail.ru, YouTube, Facebook, Google Video, MetaCafe, Vimeo, MTV и многих других, сохраняя их в оригинальном формате или форматах AVI, MKV, MP3, iPod, iPhone, PSP, Android. Кроме этого, Freemake Video Downloader позволяет сохранять аудиодорожки из онлайн-видео в оригинальном формате и без потери качества. Интерфейс - многоязычный.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 673201   (577719)
+
+Arrayan Path - IV: Stigmata (2013) [MP3|320 кб с]<Epic Power Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+1. Clepsydra
+2. The Bible Bleeds
+3. Midnight and the First-born Massacre
+4. Judas Iscariot
+5. Stigmata
+6. Cursed Canaan
+7. Pharaoh s Wish
+8. Harbingers of Death
+9. Disguising your Soul
+10. The Storyteller(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B2D6C3D2C5114F46EE7201DB13F9FEEB5E0AF3
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672849   (577718)
+
+Diskarnate - Greed (2013) [MP3|192 кб с]<Synthpop, Electropop>
+
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Greed
+02. Comet
+03. Infinity
+04. Empire
+05. Late Night Song
+06. Seven Sorrows
+07. Lorelei
+08. Wicked Mortal
+09. In Darkest Night
+10. DiskarnateЖанр: Synthpop, ElectropopПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B9D5AD4A9AED43B5898279BAED5FABF3079135
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 673091   (577717)
+
+EmEditor Professional 13.0.2 Final + Portable [Ru Multi]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода. Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный режим выделения, настройка панели кнопок, меню, шрифта и цвета элементов. Для каждого языка можно создавать отдельную конфигурацию. Также программа имеет поддержку мощных макросов написанных на javascript или VBScript, позволяющих создавать практически любые действия, используемые часто или периодически.
+
+Этот редактор является идеальным средством для редактирования HTML, PHP, JSP и XML файлов. При указании интернет-браузера в качестве внешнего приложения, вы сможете просматривать HTML файлы во время редактирования. Поддерживается подсветка синтаксиса ASP, C#, C++, CSS, HTML, Java, javascript, JSP, Pascal (Delphi), Perl, Python, PHP, SQL, VBScript (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 673073   (577716)
+
+The Electric Soft Parade - Idiots (2013) [MP3|256 кб с]<Indie Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. The Sun Never Sets Around Here
+02. Summertime In My Heart
+03. Brother, You Must Walk Your Path Alone
+04. The Corner Of Highdown And Montefiore
+05. Idiots
+06. Mr. Mitchell
+07. One Of Those Days
+08. Lily
+09. Welcome To The Wierdness
+10. Never AgainЖанр: Indie RockПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF173D12E7B5FB7B142FD6706B61F99AE9A7343
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 671720   (577715)
+
+Kalmah - Seventh Swamphony (2013) Scene [FLAC|Lossless]<Melodic Death Metal>
+
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Seventh Swamphony (5:10)
+02. Deadfall (3:51)
+03. Pikemaster (5:03)
+04. Hollo (7:20)
+05. Windlake Tale (4:28)
+06. Wolves on the Throne (4:35)
+07. Black Marten s Trace (4:45)
+08. The Trapper (6:02)Жанр: Melodic Death MetalПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989800   (577714)
+
+VA - The 70 s Collection (2000) S&V #04 2000 [FLAC|Lossless|tracks + .cue] <Rock&Roll, Rock,
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_989800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Waterloo (2:48)
+02. Barry White - Never, Never Gonna Give You Up (4:09)
+03. Dire Straits - Sultans Of Swing (5:51)
+04. Elton John - Rocket Man (4:43)(   Читать дальше...   )Жанр: Rock&Roll, Rock, PopПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4986BAC0F1389F46323BA6FA79EEAA458D46A976
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989576   (577713)
+
+Герои новой России. Карьера нелегала (2006-2007) DVB
+
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Козлов - уроженец Вологодчины, Герой России, полковник СВР. Он десятилетиями выдавал себя за немца, всего в 28 странах мира, поставляя в нашу страну самую секретную и достоверную информацию. Его жизнь полна героизма, трагедий и тайн... Разведчик-нелегал Алексей Козлов добывал данные для СССР в Западной Европе и в Африке. Попал в плен, пережил пытки, но не (   Читать дальше...   )Телекомпания: Студия  Лавр Жанр: ДокументальныйПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E08D74AB6F2D5D5A1AF0CFE5934F871CF41F6D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989805   (577712)
+
+Терри Пратчетт | Зимних дел мастер [Тиффани Болит - Книга 3] (2016) [m4b|AAC]
+
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя два года после событий книги «Шляпа, полная небес», 13-летняя Тиффани Болит снова отправилась в Ланкр, обучаться ведовству у старой ведьмы мисс Тенеты. Поздней осенью мисс Тенета отвела Тиффани в лес, чтобы понаблюдать за темным Танцем Морриса, приветствующим зиму. Несмотря на запрет, Тиффани пускается в пляс, не в силах противостоять магии танца, и занимает (   Читать дальше...   )Жанр: ФэнтезиФормат: m4bПродолжительность: 11:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7A5ECD9EDB05B55840CAC711A2BA502F356ACC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989321   (577711)
+
+Gary Moore - Wild Frontier (1987) Remastered, Japanese Edition, 2016 [MP3|320 кб с] <Hard Rock
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Over The Hills And Far Away
+02 - Wild Frontier
+03 - Take A Little Time
+04 - The Loner(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89F1B2D742F95467FB215DA5461A7F5AB8E4CA6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989695   (577710)
+
+Алексис Сойер | Таинства кулинарии. Гастрономическое великолепие Античного мира (2015) [FB2]
+
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексис Бенуа Сойер, знаменитый английский шеф-повар французского происхождения, был величайшим новатором в кулинарии и настоящим  богом плиты . Автор нескольких кулинарных трудов, разошедшихся баснословными тиражами, эту свою книгу Сойер посвятил истории искусства приготовления еды, наполнив ее увлекательными рассказами о нравах и обычаях знаменитых гурманов, (   Читать дальше...   )Жанр: Кулинария, история, культурологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9513865A544F6CFCD0B9DDDF6FC10BADB9E2B995
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989600   (577709)
+
+Дмитрий Лепетов | Орг. Призыв аватара (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует ли магия? Этот вопрос волновал студента-программиста Сергея Лемехова, когда он прочитал заклинание из одной древней книги. И вот он уже в другом теле, в другом мире, полном опасностей и загадок. Задор и смелость, смекалка и находчивость всегда при нём, и Сергей отважно принимает вызов судьбы. Его ожидают рискованные приключения, магические битвы и политические (   Читать дальше...   )Жанр: Попаданцы, Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F628E2CFE6B27C2568BF5970004C6EB2D16635
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989701   (577708)
+
+Обои - Закаты 32 [JPG]
+
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему закатовФормат: JPGРазрешение файлов: 1920x1080 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD93A32B808B2C13C6B7AC7610C1D2651E2449F2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989624   (577707)
+
+Glary Utilities Pro 5.45.0.65 Final Portable by PortableAppZ [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities Pro – функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности. При помощи Glary Utilities пользователь может управлять различными модулями, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A34715BCC01E6805528553106DFDF5ECF63886
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989682   (577706)
+
+Скоро весна (2009) DVDRip [H.264]
+
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается на подворье вдали от города. Это место, где прибился десяток людей со своей историей и непосредственной судьбой. Место, где сталкиваются высокое и низкое, где последние имеют шанс стать первыми, а первые могут стать последними. Управляет этим хозяйством матушка Екатерина. Помогает ей справляться юная послушница Оля, неуклюже простодушная, (   Читать дальше...   )Производство: Россия    Теле-Сервис, СВ-АурумЖанр: МелодрамаРежиссер: Вера СторожеваАктеры: Ксения Кутепова, Сергей Пускепалис, Ольга Попова, Мария Букнис, Дмитрий Чернов, Николай ЛибиковПродолжительность: 01:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528B905E908D4C254F56A13AC82A05810E9D76D1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989905   (577705)
+
+VA - Простые движения. Русский сборник попмузыки (2016) [MP3|192-320 кб с] <Pop>
+
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989905.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лена Савельева (Лёха)-Слышишь
+002. Александр Антонов - Это все, что я могу
+003. Евгений Коновалов - Прощай ( Andgork+Remix Electro )
+004. Катя Лель - Огни (Alex Radionow Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9132185C24C1E3548F8B9C3515F1801198AFDF85
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989798   (577704)
+
+VA - Наше Импортозамещение: Русский Сборник (2016) [MP3|128-320 кб с] <Pop, Shanson, Rock>
+
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989798.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. МакSим - Не выдыхай
+002. Егор Крид - Будильник (Sunset Live Remix)
+003. Иван Смелик - Мне снилось
+004. Ландыши - Добрый вечер!(   Читать дальше...   )Жанр: Pop, Shanson, RockПродолжительность: 06:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E860977B0E211AC32465716BB89881AB6776B786
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989855   (577703)
+
+Юрий Андрушкевич | 100 мест, которые должен увидеть каждый (2015) [PDF]
+
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг о самых лучших в мире местах и достижениях человечества. В каждой книге представлены 100 объектов по теме с красочными иллюстрациями, интересными описаниями и полезной информацией. Соберите всю коллекцию этих потрясающих книг, и на вашей книжной полке будут издания о самых красивых в мире местах, дворцах, замках, автомобилях, о самых известных предметах (   Читать дальше...   )Жанр: Города. СтраныФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0829E67EEF36F4EA53E2C410FD0C354EB5D1CBF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989570   (577702)
+
+Girlfriend (Kari) | Girlfriend (Beta) | Девушка (Бета) [2015, TV, 12 эп.] BDrip 1080p ra
+
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много красавиц в Ямато у нас, звезды сияют во мраке их глаз! Ну а лучшие из лучших, понятно, учатся в старшей школе, где занимаются чем угодно – от ухода за кошками до изучения японской культуры. Так что встречайте новых героинь – очаровательную гимнастку Кокоми, неугомонную журналистку Аканэ, «литературную барышню» Фумио, фотографа Елену и примкнувшую к ним француженку (   Читать дальше...   )Производство: Студии Silver Link и C-StationЖанр: повседневностьРежиссер: Хаяси НаотакаПеревод: Amethyst Princess (01-09), Esito (10), Athwale + Coackroach (11-12)Язык субтитров: РусскийПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1DFE1453539C446D75161A97A6D8B18E5E0618
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989871   (577701)
+
+iMazing 1.5.1 [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989871.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 февраля 2016Разработчик: DigiDNAПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946958D17A060FD7D9694571ADEBA3E0E4DC5775
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989733   (577700)
+
+Валентин Лавров | Катастрофа (2013) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это увлекательный роман о бурных и трагических событиях XX века. Читателя захватит рассказ об «окаянных днях»: большевистском перевороте, кровавом терроре, укреплении диктаторских режимов в Европе, несчастной жизни россиян на чужбине. Надолго запоминаются яркие персонажи — от Николая II и эсера Бориса Савинкова до Троцкого, Ленина, Гитлера и Сталина. В центре всех (   Читать дальше...   )Жанр: Исторический романПродолжительность: 33:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B142DE1DFC53231E6FB75B43B5A8E6619602DCD7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989845   (577699)
+
+Сергей Минцлов | Атлантида (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989845.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли избранные фантастические и мистические рассказы выдающегося библиофила и библиографа, занимательного рассказчика и одаренного прозаика, журналиста и путешественника, археолога и коллекционера С. Р. Минцлова (1870–1933).
+Включены рассказы из сборников «Мистические вечера (Записки общества любителей осенней непогоды)», «То, чего мы не знаем…» и «У камелька». (   Читать дальше...   )Жанр: Ужасы, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A3F87D6C262CF9D5A9980F6C45DD3AA10AEF79
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 988856   (577698)
+
+Полонез Огинского (1971) DVDRip [H.264]
+
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_988856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть военных лет. Осиротевший маленький скрипач вместе со своим старшим другом проводят одну за другой серьезные операции в тылу врага.Производство: СССР, БелорусьфильмЖанр: Военный, ДрамаРежиссер: Лев ГолубАктеры: Илья Цуккер, Геннадий Гарбук, Павел Кормунин, Геннадий Юхтин, Олев Эскола, Леонид Крюк, Игорь ВарпаПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5318E938371E4388101D7CCFFC08C276CA638AA7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989596   (577697)
+
+День космических историй. Куда бежать?  (2016.02.22) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
+День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B875C15EE6A4814C14C72130A3D9CDE06FB991
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989685   (577696)
+
+Wise Care 365 Pro 3.97.359 Final RePack by D!akov [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8985325A8B9417D518455C7733FDC4BC8AE168E9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 452982   (577695)
+
+VA - Armada At Ibiza Summer 2009 Mixed by Ruben de Ronde [FLAC|Lossless|tracks + .cue]<Trance>
+
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_452982.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mat Zo - Subaquatic Dream
+2. M.I.K.E. presents Caromax - X3
+3. Andy Moor & Ashley Wallbridge feat. Meighan Nealon - Faces
+4. David Forbes feat. Antonia Lucas - Because Of You(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20FB8FA8EB04754C6E8085B380ABB25A4AA5B237
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672724   (577694)
+
+Galneryus - The Ironhearted Flag Vol. 1 : Regeneration Side (2013) [FLAC|Lossless]<Neoclassical,
+
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Braving Flag [05:28]
+ 02. Rebel Flag [04:22]
+ 03. Point of No Return [06:08]
+ 04. Fate of the Sadness [06:55]
+ 05. My Last Farewell [05:06]
+ 06. Shiver [07:10]
+ 07. Quiet Wish [05:47]
+ 08. United Flag [05:48]
+ 09. The Flag of Reincarnation [09:02]
+ 10. Silent Revelation [06:42]Жанр: Neoclassical, Power MetalПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672147   (577693)
+
+VA - Trance Style vol.1 (1995 - 2012) [MP3|128-320 кб с]<Trance, Hard-Trance, Hardcore>
+
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Ross Copperman - Talk (DJ Space Raven vs. Nolita Club Remix)
+02. Nebulus - Destination Paradise (Original Club Mix)
+03. Paffendorf - Welcome To Africa (Technopunk Remix)
+04. Twilight Forces - Reckless
+05. DJ Dean vs. DJ Space Raven - Nobody Ever Knows Anymore (Original Mix)
+06. Lagoon - Cosmic Ray (Club Mix Edit)
+07. Kindervater - FTP 013.07.974 (Original Mix)
+08. Kris McLachlan - Awakening (S.H.O.K.K. Remix)
+09. Freestate - Release (Dave 202 & Phil Green Remix)
+10. S.H.O.K.K. & Nick The Kid - Daydreams (Original Mix)(   Читать дальше...   )Жанр: Trance, Hard-Trance, HardcoreПродолжительность: 05:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78863C14262013091DD18B48AB4CC33DDEBDDDC8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 673132   (577692)
+
+VA - Paradise Chill Out Lounge, Vol. 3-4 (2012-2013) [MP3|320 кб с]<Downtempo, Lounge, ChillOu
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+1. Twentyeight - Hope (8:44)
+2. Easy L. - New Day (Anthem) (Afterlife Mix) (5:05)
+3. Cosmic Funk feat. Max C - I ll Never Stop (Axel B. Sunset Mix) (3:30)
+4. The Soulful Sun - Loose It (4:45)
+5. Chad & River - Understanding (5:25)
+6. OHM G & Bruno - Just for One Day (5:30)
+7. Twentyeight feat. Tesz Millan - In My Arms (4:28)
+8. Gilbert Jan - Vacuity (5:04)
+9. Axel B. - Sunset Love (4:56)
+10. Xaric - Sunset (8:11)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0007068FDECAC0B83DCB6BF3990E0E8ED68C58
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 673092   (577691)
+
+Журнал | Дачный совет №7 (июль 2013) [PDF]
+
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Верный помощник для садоводов и огородников в самый разгар дачных работ. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации адвоката, а также календарь дачных работ.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA116C34EC93F19307555EA3227E62E2F6ED6140
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 673128   (577690)
+
+Dave Evans and Nitzinger - Revenge (2013) [FLAC|Lossless]<Hard-Rock, Blues-Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Control [0:03:30.30]
+02. Revenge [0:03:34.00]
+03. Shifting Sand [0:03:47.00]
+04. A Sharp Stick In The Eye [0:04:14.60]
+05. Dead Cat Smile [0:02:45.00]
+06. Where She Goes I Go [0:04:24.00]
+07. The Night We Drank The Stars [0:04:28.15]
+08. Going Back To Texas [0:04:02.45]
+09. Stay Drunk [0:03:12.45]
+10. Headache [0:04:40.32]Жанр: Hard-Rock, Blues-RockПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 673155   (577689)
+
+VA - House Music Hot Shots (2013) 2CD [MP3|~245 кб с (V0)]<House>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Candys feat. Evelyn & Carl Prit - Brand New Day (Radio Edit) (2:47)
+02. Vine Street feat. Pitbull, Dale Saunders & Raquel - Spread My Wings (Davis Redfield Edit Mix) (3:45)
+03. G&g - Use Somebody (Radio Edit) (3:21)
+04. Superfreakz - Want You So (Original Radio Edit) (2:57)
+05. The Disco Boys - Heartbreaker (Crazibiza Remix) (5:54)
+06. Picco - Mash! (Original Radio Edit) (3:26)
+07. Rico Bernasconi & Marc Van Linden - Hypnotic Tango (Thias Remix Edit) (3:27)
+08. Vicetone feat. Jonny Rose - Stars (Radio Edit) (3:58)
+09. General Tosh - Dance (Original Mix) (5:49)
+10. Deepdisco - Kinky Revenge (Original Mix) (6:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:15:40
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 671572   (577688)
+
+Maison Du Malheur - Wicked Transmission (2013) [FLAC|Lossless]<Blues, Jazz, Alternative>
+
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01.  Jailbird  (3:15)
+02.  Jug  (2:55)
+03.  Man for the Job  (4:11)
+04.  Wicked Transmission  (5:09)
+05.  Mr. Porter  (3:19)
+06.  Moon  (3:05)
+07.  Wolf  (3:13)
+08.  Safe House  (3:35)
+09.  Blue  (6:38)
+10.  Demon Rum  (4:07)(   Читать дальше...   )Жанр: Blues, Jazz, AlternativeПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672851   (577687)
+
+Modovar - The Sea Of Unspoken Words (2013) [MP3|320 кб с]<Synthpop>
+
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Clearly
+02. The Sea Of Unspoken Words
+03. If I Called
+04. This Moment (Hold On)
+05. The Lies We Tell Ourselves For Lo
+06. Where There S Life
+07. King Of Pain
+08. Save The Day
+09. Darkest Shadows
+10. Only A FoolЖанр: SynthpopПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1252A2D69E84E39D8BCC0F7A7CFCE27937F5FF5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672830   (577686)
+
+Маша Стрельцова | Доктор Web для молодого вампира [2006] [DOC, FB2]
+
+
+>>Художественная литература
+>>Детективы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Практикующая ведьма, в миру вполне симпатичная блондинка по имени Магдалина, окажет помощь по исцелению, приворожит любимого, убережет от сглаза, но сама вечно попадает в неприятные ситуации. В XXI веке быть укушенной вампиром и потихоньку превращаться в кровожадную тварь — такую судьбу не пожелаешь даже ведьме. И Магдалина решает действовать. Как всегда нестандартно.Формат: doc, fb2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B52499B13477EF70D0B94BCFA654E03234887A6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 672838   (577685)
+
+Маша Стрельцова | Помело для лысой красавицы [2005] [DOC, FB2]
+
+
+>>Художественная литература
+>>Детективы
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+Если вам скажут, что ведьмы и колдуны могут все, – не верьте! Например, я, потомственная ведьма Магдалина Потемкина, даже умереть спокойно не могу... Враги наслали на меня порчу, и теперь я так и болтаюсь между жизнью и смертью... И все-таки одна добрая душа решилась оказать помощь – приготовила особое колдовское зелье, которое вернет мне жизнь. Но за это нужно заплатить: отыскать кольцо Клеопатры – артефакт убойной магической силы... Жить-то хочется, и я начала поиски. Но скоро выяснилось: вместо чудодейственного лекарства мне подсунули обычный наркотик! А почему? Да потому, что явно собирались убить... Вот теперь уж точно деньки мои сочтены... Вся надежда на кольцо Клеопатры. Вот только где оно?..Формат: DOC, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF93AC493ED0CAAF40E1ABA8CD202E97CB23D364
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989815   (577684)
+
+Доктор Нонна | Безглютеновая диета по-русски (2014) [FB2]
+
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – для всех, кто мечтает быть здоровым и счастливым. Для тех, кто, перепробовав множество диет, так и не добился результата. Для тех, кто долгие годы пытается решить проблемы своего здоровья, но никак не найдет причины, отчего оно не меняется к лучшему. Автор не только раскрывает механизмы безглютеновой диеты, но и предлагает рецепты здорового питания на (   Читать дальше...   )Жанр: Здоровье, диетологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47ACA4525DBEF83B1B47D58BEE8763426694F753
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989858   (577683)
+
+Квартирник у Маргулиса - Евгений Хавтан и Браво (2016) DVBRip
+
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса Евгений Хавтан и группа Браво. Дата эфира: 07.02.201601. Ray Davies
+02. Бег
+03. Навсегда
+04. Это за окном рассвет(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B11533D20CD0C161FDFE4F097CE5E5F0B00C66
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989812   (577682)
+
+Проекты - RocketStock - Alluvion [AEP]
+
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alluvion-стильный проект After Effects, который сделает Ваш логотип в 3D без каких то ни было сторонних плагинов. Проект легко настраивается в цветовую гамму, в соответствии с вашим брендом.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FBFE9C59F0A84AC2ED3163584B3D90A119970E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989585   (577681)
+
+Tina Turner - 25 Best Songs (2016) [MP3|~245 кб с (V0)] <Rock & Roll, R&B>
+
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_989585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best 1989 (05:31)
+02. Better Be Good To Me 1984 (05:12)
+03. GoldenEye 1996 (04:44)
+04. Typical Male 1986 (04:18)(   Читать дальше...   )Жанр: Rock & Roll, R&BПродолжительность: 01:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2229158CA97441F47ED7B6EB1AE5313DA312F6A7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989817   (577680)
+
+CCleaner 5.15.5513 + Portable [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC4CAB349898D0239EEC4AA7716A1512676C4D6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989478   (577679)
+
+Гарик Сукачев И Неприкасаемые - Третья Чаша (2005) [FLAC|Lossless|image + .cue] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Оборотень С Гитарой-05:52
+( Guitar – Дмитрий Борисенков, Сергей Воронов,Vocals – Сергей Шнуров)
+02. 	Watch TV -03:37
+03. 	In The Death Car-04:34(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAF351EC2556294C8A9C1B1F840D80A177B74A5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989595   (577678)
+
+День космических историй. Как спецслужбы инопланетян ловили  (2016.02.22) SATRip
+
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
+День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1D19A1EA4529847B4E7787BF9A447F48B89C34
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989482   (577677)
+
+Евгений Сухов | Я - вор в законе. Волчья пасть (2016) [MP3]
+
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_989482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – от автора серии «Я – вор в законе». В Санкт-Петербурге – столице криминального мира – произошло очередное заказное убийство. Жертвой стал представитель воровского «сходняка». Воровской «сходняк» отправляет в город «смотрящего», чтобы он нашел и наказал беспредельщиков, а заодно навел порядок. Ведь в ближайшее время должен пройти аукцион по продаже «Севморфлота» (   Читать дальше...   )Жанр: Боевик. КриминалПродолжительность: 13:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD231CF703494B6843203908E71CAE8199609AB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989475   (577676)
+
+Журнал | Идеи вашего дома [Россия] №3 (205) (март 2016) [PDF]
+
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеи вашего дома — ежемесячный журнал, посвященный вопросам ремонта и обустройства интерьера. Заинтересует людей, планирующих реконструкцию, ремонт, дизайн интерьера своего жилья. Журнал предлагает большое количество планировочных и оформительских решений, обзоры ремонтно-строительных материалов, мебели, техники и оборудования.Жанр: Дизайн, строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4B892C3801586AB4E642D2C25286AA5D414F63
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989441   (577675)
+
+Проекты - VideoBlocks - TV Drama Promo 4 [AEP]
+
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо-ролика или трейлера к фильму.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FD56EAC284BC1AEE3CE668B49E95B88F4F6C9A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989521   (577674)
+
+Ligalize - XL (2006) [FLAC|Lossless|tracks + .cue] <Hip-hop>
+
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лигалайз - Интро (0:29)
+02. Лигалайз - Остаться (3:02)
+03. Лигалайз - Почувствуй силу (feat. Богдан Титомир и N’Pans) (3:44)
+04. Лигалайз - Будущие мамы (4:45)(   Читать дальше...   )Жанр: Hip-hopПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B47CC3523E01AD948D9A3BC6045AB82EB911C0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989728   (577673)
+
+Алексей Корепанов | Тайны Древнего Лика (2016) [FB2]
+
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космос всегда притягивал внимание человечества своими тайнами и загадками. Более всего интересен людям был Марс, как находящаяся в непосредственной близости к нам планета. Названный в честь бога войны, он становился объектом воздыхания поэтов, ученых, мечтателей… Никто не сомневался в наличии жизни на Марсе. И вот в один прекрасный момент эта «жизнь» повлияла на (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B167C1B515064ED178371AFEEB71887809C2C21D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989917   (577672)
+
+Ashampoo Photo Optimizer 6.0.17.131 RePack (& Portable) by KpoJIuK [Multi Ru]
+
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Photo Optimizer - приложение для оптимизации и улучшения качества цифровых фотографий. Позволяет корректировать контрастность, яркость и цветовой баланс. Предусмотрена пакетная обработка графических файлов. Исходные данные автоматически сохраняются в резервной папке и уничтожаются только по желанию пользователя.Язык интерфейса: Русский   Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:344F531EC065E5DF50890CD2BE9EBE3E0A7968B2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 989453   (577671)
+
+Discovery: Железная дорога Аляски   Railroad Alaska (2015) (сезон 2, серии 1-10) HDTVRip
+
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многосерийная передача о труде элитных железнодорожных бригад. Настоящие профессионалы своего дела работатт в сложных климатических условиях на территории со сложным ландшафтом. Ведь только в их силах устроить бесперебойную работу восьмисот километров железнодорожной дороги на Аляске. Для Аляски – это единственная и грузовая, и пассажирская дорога в Америку; в этих (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~07:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AA025ACEE1A1564CF7A284E57790E84DEC7B52
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 989549   (577670)
 
 Звуковые библиотеки - Diginoiz - R&B Love Songs [WAV, REX]
@@ -17942,9447 +27428,6 @@ magnet:?xt=urn:btih:D9EC273E22BE40FFD5F01E62073084BF91E50AA5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BEE379A1721F6491F5EADA99BEE06B3B8978A2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673573   (577013)
-
-Журнал | Forbes [Россия] №6 (июнь 2013) [PDF]
-
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
- Forbes  является главным деловым журналом в мире, успех журнал получил благодаря своим дерзким расследованиям в мире бизнеса и справедливым оценкам событий.  Forbes  пишет об историях успеха и поражений предпринимателей, новых идеях для бизнеса и инвестиций, а также публикует ежегодные авторитетные рейтинги.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCDB1154E576C229F471D545C1A5D7B3F577842
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673616   (577012)
-
-Beat Service & Susana - Reach The Sun (2013) [BSA016] [FLAC|Lossless|WEB]<Trance>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Reach The Sun (Original Mix) [7:42]
-02. Reach The Sun (Dub) [7:10]Жанр: TranceПродолжительность: 14:52
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673613   (577011)
-
-Cosmic Gate feat. Emma Hewitt - Calm Down (2012) [BH499-0] [FLAC|Lossless|WEB]<Trance>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-1. Cosmic Gate & Emma Hewitt - Calm Down (Extended Mix) (7:28)
-2. Cosmic Gate & Emma Hewitt - Calm Down (Omnia Remix) (6:30)
-3. Cosmic Gate & Emma Hewitt - Calm Down (Ost & Meyer Remix) (6:44)
-4. Cosmic Gate & Emma Hewitt - Calm Down (Zetandel Chillout Mix) (5:12)
-5. Cosmic Gate & Emma Hewitt - Calm Down (Radio Edit) (3:37)
-6. Cosmic Gate & Emma Hewitt - Calm Down (Ost & Meyer Radio Edit) (3:12)Жанр: TranceПродолжительность: 00:32:43
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673888   (577010)
-
-11 eyes | 11 глаз [2009, TV, 12 ep + 1 sp] BDRip 1080p raw
-
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какэру Сацуки вырос в приюте. Когда его старшая сестра покончила с собой, 10-летний мальчик тоже потерял волю к жизни и спасся лишь благодаря помощи и поддержке еще одной сироты, Юки. Прошло семь лет. Юка счастлива в приемной семье Минасэ, Какэру живет один, но учится в одном классе с подругой детства. Тем не менее, главный герой из-за детской травмы и повязки на (   Читать дальше...   )Производство: студия Doga KoboЖанр: приключения, мистика, этти, драмаРежиссер: Симода Масами   Shimoda Masami   下田正美Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46DC348E8E54EB6C105C96E260542913CABF1E2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673615   (577009)
-
-Attila - About That Life (2013) [MP3|320 кб с]<Metalcore Deathcore>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Middle Fingers Up [00:02:36]
-02. Hellraiser [00:02:55]
-03. Rageaholics [00:03:00]
-04. Backtalk [00:03:03]
-05. Leave A Message... [00:00:45]
-06. About That Life [00:03:05]
-07. Thug Life [00:02:47]
-08. Break Shit [00:02:58]
-09. Gimmicks And Lies [00:01:08]
-10. Callout [00:02:29](   Читать дальше...   )Жанр: Metalcore DeathcoreПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6A233F3C5C6E8FBA8BCF20E8924429A7A4E060
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673468   (577008)
-
-Jam Worachest - Saxophones Thailand (4CD) (2012) [MP3|320 кб с]<Instrumental, Saxophone>
-
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More
-02. Because
-03. I Will Always Love You
-04. Hope You Love Me
-05. Freedom To Love
-06. Love The One Who Loves You
-07. Love Of All Seasons
-08. Love Me Now
-09. Oh, My Love
-10. Love IsЖанр: Instrumental, SaxophoneПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76ADF0742DCDFA0E729372D73D51A3DDBD23FB6D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673626   (577007)
-
-Chromium 30.0.1550.0 Portable [Ru Multi]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Chromium - мощный, портативный и довольно обычный в использовании браузер с открытым кодом, который был специально создан для обеспечения более безопасной, быстрой и комфортной интернет-навигации, а также для использования в качестве комфортной платформы для интернет-приложений.
-
-На основе Chromium создается браузер Google Chrome, а также ряд остальных интернет-браузеров. Интернет с Chromium станет личностным: пользователь может изменять значки интерфейса, цвета, границы формы, ширину, стиль, восприятие глубины, толщины, шрифты и многочисленное другое.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673663   (577006)
-
-VA - Vocal Dub Step Vol.3 (2013) [MP3|128-320 кб с]<DubStep>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. 12 Inch Plastic Toys - Black Dog Feat Miss Wonder (Original Mix) (07:19)
-02. 99FPC - Simply listen (Stile Vocal 2013 ) (05:04)
-03. Addergebroed ft. Simoon - On My Own (04:49)
-04. Arkasia, CoMa - Angel (04:58)
-05. Armin Van Buuren, Aelyn - In And Out Of Love (DeadWish Remix) (03:37)
-06. Audio-FX - With The Wild (JohnBrah Remix) (04:27)
-07. Black & White ft. Angie Brown - Get Ya Hands Up (Sam Laxton Remix) (03:44)
-08. Booty Luv - Say It  (Nero Remix) (05:30)
-09. Bourke & Vegas - I m Alive (Must Die! Remix) (03:46)
-10. Breezer Feat. Farisha - Up And Away (Original Mix) (04:01)(   Читать дальше...   )Жанр: DubStepПродолжительность: 03:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0031B3006ADF747850D1D691FAEDAD102356D28
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989258   (577005)
-
-Филип Котлер | Десять смертных грехов маркетинга (2012) [FB2, DOCX]
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача маркетинга – управлять бизнес-стратегией компании: выявлять возможности, разрабатывать и реализовывать планы, которые принесут успех на рынке. Гуру маркетинга Филип Котлер проанализировал десять типичных ошибок, которые допускают маркетологи, и дал советы, как их избежать и обеспечить успешное развитие компании.
-Книга адресована менеджерам и владельцам компаний, (   Читать дальше...   )Жанр: БизнесФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DBDF8FA3D51F6EADEE8A34C94540662D84E784
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990513   (577004)
-
-Книжная серия | Антикризисная дача [15 книг] (2015) [FB2]
-
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой серии книг мы подробно расскажем вам какая садовая техника необходима, как сделать садовую мебель своими руками без лишних трат, раскроем секреты эффективной и экономной борьбы с садовыми вредителями и сорняками, какие именно плодовые культуры без труда приживутся именно в вашем регионе и каждый год будут радовать прекрасным урожаем.
-Также вы узнаете обо всех (   Читать дальше...   )Жанр: Сад и огородФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C091F0CC4E334C6346A67E935AF9429681AE21
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990436   (577003)
-
-Анна Яновская | Психотерапевт Его Величества (2016) [FB2]
-
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа психолога в магическом мире трудна и опасна. Но выбора у Аси нет, в родной мир ее вернут только после исполнения контракта. Так как никто не говорит, кому именно нужно помочь, придется терапить всех подряд, параллельно заводя друзей и врагов, постигая основы бытовой магии и исцеляя собственные душевные травмы... любовью, конечно! А чем же еще?!
-
-Внецикловый (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFAD356306A27CE3E2F505C7FAA2ECE8FAEAC0A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990037   (577002)
-
-Фехтовальщик   Miekkailija (2015) BDRip [H.264 1080p] [EST, FIN, RU]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990037.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу фильма  Фехтовальщик  частично легла биография эстонского спортсмена и тренера Энделя Нелиса (1925-1993).
-1952 год. Последние месяцы правления Сталина. В небольшой эстонский городок Хаапсалу приезжает из Ленинграда мастер спорта Эндель Нелис, который начинает работать учителем физкультуры в местной школе. Установление контакта с учениками интровертному (   Читать дальше...   )Производство: Финляндия, Эстония, ГерманияЖанр: ДрамаРежиссер: Клаус ХярёАктеры: Лембит Ульфсак, Кирилл Кяро, Мярт Аванди, Лииса Коппел, Урсула Ратасепп, Кай Нордберг, Алина Кармазина, Каарле Ахо, Мария АвдюшкоПеревод: ОтсутствуетЯзык озвучки: Смешанный - эстонский, финский, русский.Субтитры: ОтсутствуютПродолжительность: 01:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC08FABFA8B5FC12457823CCCB4413EBC8595717
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990441   (577001)
-
-Карлос Кастанеда | Огонь изнутри (2016) [MP3]
-
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_990441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огонь изнутри` - полный переворот в восприятии учения дона Хуана. Кастанеда вспоминает, сдвигая свою точку сборки в те же состояния повышенного осознания, в каких проходило его обучение. Он обретает свою целостность. Мы снова встречаемся с доном Хуаном и знакомимся с потрясающей концепцией `мелких тиранов` возможностью рассматривать любую негативную ситуацию в качестве (   Читать дальше...   )Жанр: Паранормальное,мистика,эзотерика,магияПродолжительность: 12:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B021FD3DF4477022E25E0AE152736978662872
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990482   (577000)
-
-Иван Царевич и Серый Волк 3 (2015) Blu-ray [H.264 1080p]
-
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Царь Тридевятого царства, в честь своего 150-летия решил, что с него хватит — пора на заслуженный отдых. «Я устал. Я ухожу», — заявил самодержец и с удочкой и ведёрком удалился в деревенскую глушь. А оберегать государство остались Иван с Серым Волком. Вот только Василиса, жена Ивана, заявила, что свадебного путешествия у неё не было, заграницу она не видела, «постить» (   Читать дальше...   )Производство: РоссияЖанр: Мультфильм, Приключения, СемейныйРежиссер: Дарина ШмидтПерсонажи: Никита Ефремов, Иван Охлобыстин, Михаил БоярскийПеревод: Не требуется (русский) (Лицензия BD RUS)Продолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D82BFD12D90BC1DBD72E2B5C899A3D831632F5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990381   (576999)
-
-Ворошиловский стрелок (1999) DVDRip [H.264]
-
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пенсионер, железнодорожник в отставке, скромно живёт со своей внучкой Катей. В соседнем доме постоянно собираются трое молодых бездельников, чувствующие себя безнаказанными хозяевами жизни. Однажды они хитростью заманили Катю к себе, где изнасиловали. Поначалу насильников арестовывают, однако отец одного из них — большой милицейский начальник — освобождает их. Не (   Читать дальше...   )Производство: Россия, Кинокомпания «НТВ-Профит»Жанр: Драма, КриминалРежиссер: Станислав ГоворухинАктеры: Михаил Ульянов, Анна Синякина, Александр Пороховщиков, Сергей Гармаш, Ирина Розанова, Марат Башаров, Илья Древнов, Алексей Макаров, Владислав Галкин, Георгий Мартиросян, Сергей Апрельский, Алексей Шевченков, Владимир Семаго, Павел Савчук, Владимир Романовский, Олег Хатюшенко, Вячеслав Голоднов, Алексей Гольцов, Анна Портная, Роза Якимова, Олег Комаров, Павел Фетисов, (   Читать дальше...   )Субтитры: Русские, Английские; вшитые, отключаемыеПродолжительность: 01:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD2DECCBC9303DFA2E5E7FFCEC97A3465AECF55
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989833   (576998)
-
-Е.В. Ширшов | Финансово-экономические расчеты в Excel (2015) [FB2]
-
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989833.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии приведены материалы к заданиям для самостоятельного выполнения контрольных, лабораторных, практических работ, примеры и методика их решения.Предназначены для студентов, обучающихся по направлениям: 38.03.02 (080200.62) «Менеджмент» (профили: «Производственный менеджмент», «Финансовый менеджмент»), 38.03.01 (080100.62) «Экономика» (профили: «Финансы (   Читать дальше...   )Жанр: Менеджмент, экономикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9171C14997BCEE8CC95A731FF1B436F61B091F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 603174   (576997)
-
-Discovery: Пятёрка лучших   World s TOP 5 (2012) HDTVRip [выпуски 1-6]
-
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_603174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капот к капоту, крыло к крылу - самые мощные, самые быстрые, самые совершенные автомобили, самолеты, поезда готовятся начать беспрецедентное состязание. В каждом виде этого необычного спорта встретятся пять представителей своего класса. Экспертное жюри сравнит пять их основных характеристик, чтобы определить лучшего из лучших. Соревнование охватывает не только транспортные (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 6 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BA279FE68A11FAE3DFB55ACEFB52CBCF69B13E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989244   (576996)
-
-Майкл Стелзнер | Контент-маркетинг. Новые методы привлечения клиентов в эпоху Интернета (2011) [
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Стелзнер – признанный эксперт в области социальных медиа, создатель одного из самых популярных блогов о маркетинге в социальных сетях SocialMediaExaminer.com (более 150 000 подписчиков).
-В книге Стелзнер рассказывает о разных видах контента, которые вы можете публиковать на своем сайте, в блоге, на странице в социальной сети и которые помогут вам привлечь внимание (   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8328FBA52279D4C13770291F9AFE86316A7C996
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 858283   (576995)
-
-NG. Расследование на месте катастрофы   Crash Scene Investigation (2006) HDTV [H.264 1080i-L
-
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-National Geographic Channel представляет «Расследование на месте катастрофы» - новый цикл передач от создателей поражающего зрителей своей реалистичностью сериала «Расследования авиакатастроф». Вы будете не просто сторонними наблюдателями, а непосредственными участниками расследований. От крушения греческого туристического парома, унесшего жизни 80 пассажиров, до (   Читать дальше...   )Жанр: Документальный, катастрофы, расследованияПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 3 x ~00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09802C7FE535BE20E6E9834F4B7D67A0266DC7B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990180   (576994)
-
-Трамбо   Trumbo (2015) BDRip [H.264 720p]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далтон Трамбо, один из самых успешных голливудских сценаристов, автор «Римских каникул» и «Спартака», не подозревал, что черный список «Hollywood 10» реально существует, пока сам не попал туда и не был навсегда выкинут из жизни фабрики грез…Производство: США   Groundswell Productions, ShivHans PicturesЖанр: драма, биографияРежиссер: Джей РоучАктеры: Брайан Крэнстон, Дайан Лэйн, Хелен Миррен, Луис С.К., Эль Фаннинг, Джон Гудман, Майкл Стулбарг, Алан Тьюдик, Адевале Акинойе-Агбаже, Дин О’ГорманПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Язык субтитров: Английский, ИспанскийПродолжительность: 02:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2F9CB5C860F57979310F2C5D22BDF367FD658F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990501   (576993)
-
-Михаил Атаманов | Через смерть (2016) [FB2, EPUB]
-
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Защита Периметра».
-
-Играть шаблонно? Эта не наш метод! В попытке оттянуть вызов на императорский суд кронпринц вынуждает Чужин вторгнуться в его собственную систему. Вся Империя с замиранием сердца в режиме прямой трансляции наблюдает за битвой флота под командованием кронпринца Георга с ужасными захватчиками. Богомолоподобные Исееки тоже впечатлены (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E40B2D28B63F992D6AFB2F2E4B2A8182770F09
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990163   (576992)
-
-Сергей Змеев, Вера Семёнова | Риэлтор-Миллионер (2013) HDRip [H.264 720p]
-
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_990163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть очень много инструментов, которые могут помочь Вам стать богатым человеком. Но самая простая и естественная сфера, в которую Вы можете спокойно войти, получив знания как в ней работать - это сфера недвижимости.
-Мы запускаем отдельный проект, который посвящен конкретно работе в сфере недвижимости.От приобретения профессии, организации собственного дела и до тонкостей (   Читать дальше...   )Жанр: Бизнес, Инвестиции, НедвижимостьПродолжительность: 30:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6DE2738247CC0A5A520F71FE9A17E065729BBC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990564   (576991)
-
-Проекты - VideoHive - Distorted Mania [AEP]
-
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет содержит:
-- Основной проект “Искаженная мания”;
-- Проект “Финальные Титры”;
-- Проект с 15 видео фильтрами “Цветной вид”.(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3A6F8FF77AAA577F4361FEAB791A16D93A3A5C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989954   (576990)
-
-VA - Легендарные Песни. Выпуск 01 (86-91) (2002) [FLAC|Lossless|tracks + .cue] <Pop>
-
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_989954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ласковый Май - Белые Розы (5:40)
-02. Мираж - Музыка Нас Связала (4:25)
-03. Евгений Белоусов - Девочка Моя Синеглазая (6:09)
-04. Комбинация - Бухгалтер (4:31)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64313CC589EA5FD6B2AC1FB7C52C0BB46CA307B6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990115   (576989)
-
-Зеленая комната   Green Room (2015) WEBRip [H.264 720p] [Трейлер]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990115.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме речь пойдёт о музыкантах панк-группы, которые становятся свидетелями убийства во время концерта в каком-то захолустье. Теперь их хотят убить скинхеды, но не торопятся, а запирают для начала в некой зелёной комнате.Производство: США   Broad Green Pictures, Film ScienceЖанр: Триллер, КриминалРежиссер: Джереми СолньеАктеры: Имоджен Путс, Алиа Шокат, Каллум Тернер, Марк Веббер, Антон Ельчин, Патрик Стюарт, Джо Коул, Эрик Эдельштейн, Мэйкон Блэр, Кай ЛенноксПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3CDA216CD7BC03F4B35F7899339DC76819FAD6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990311   (576988)
-
-Падение Лондона   London Has Fallen (2016) WEBRip [H.264 1080p] [Трейлер]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма начинается в Лондоне, где премьер-министр Великобритании погибает при загадочных обстоятельствах. На похоронах безусловно присутствуют руководители западного мира. Но то, что начиналось как наиболее безопасное событие на земле, превращается в опаснейшее покушение на самых мощных мировых лидеров, что в свою очередь ставит под угрозу будущее всего мира. (   Читать дальше...   )Производство: США, Великобритания, Болгария   Millennium Films, Gerard Butler Alan Siegel Entertainment, LHF FilmЖанр: Боевик, ТриллерРежиссер: Бабак НаджафиАктеры: Джерард Батлер, Аарон Экхарт, Морган Фримен, Анджела Бассетт, Рада Митчелл, Шарлотта Райли, Мелисса ЛеоПеревод: ДублированныйПродолжительность: 00:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23FFD1583A77619989E1F7EE64053272593DD3D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989991   (576987)
-
-Брайан Трейси | Менеджмент (2016) [EPUB]
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сила любой компании определяется качеством работы её менеджеров. Что они делают и как они это делают - ключевой фактор корпоративного успеха. Хотите стать незаменимым для своей компании? Развивайте управленческие навыки.
-
-Хорошая новость в том, что менеджерами не рождаются, а становятся. Когда вы прочитаете о том, что знают самые успешные менеджеры, вы сможете превратить (   Читать дальше...   )Жанр: Бизнес, МенеджементФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9B7ACC585253E1A56B53F0EEA5E1E64ED36836
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990208   (576986)
-
-Йен Маклин, Орин Томас | Установка и настройка Windows 7 (2011) [PDF]
-
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это подробное руководство по настройке операционной системы Windows 7. В нем детально описаны установка и развертывание системы как в ручном, так и в автоматическом режиме, обновление до Windows 7 и перенос данных пользователя, управление устройствами и драйверами. Уделено особое внимание вопросам безопасности – ограничениям на использование приложений, проверке (   Читать дальше...   )Жанр: ОС и Сети, Зарубежная образовательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379DC9A8921A1FFD6118BDF65B7AB8D0813875AE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 672495   (576985)
-
-Alicia Keys - VH1 Storytellers (2013) [MP3|320 кб с]<R&B>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. No One (Live)
-02. Brand New Me (Live)
-03. You Don t Know My Name (Live)
-04. Empire State of Mind, Pt. II -  Broken Down (Live)
-05. Not Even the King (Live)
-06. Fallin  (Live)
-07. If I Ain t Got You (Live)
-08. Girl On Fire (Live)
-09. New Day (Live)
-10. Try Sleeping With a Broken Heart (Live)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75EF86504EE1F3B9A2D5B75B4EC81CF1AE1CDDB5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673508   (576984)
-
-Легкие деньги   Free money (1998) WEB-DLRip
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Простых парней Бада (Чарли Шин) и Ларри (Томас Хейден Черч),угораздило жениться на дочерях грозного начальника тюрьмы по кличке Швед (Марлон Брандо). Очень быстро Ларри и Баду просто осточертело жить рядом с тестем , под его полным контролем. На пути к свободе они решили ограбить поезд,перевозящий огромную сумму денег.Жанр: Комедия, КриминалРежиссер: Ив СимонеАктеры: Марлон Брандо , Дональд Сазерленд , Чарли Шин , Томас Хейден Черч , Мира Сорвино , Мартин Шин , Дэвид Аркетт , Жан Пьерр Бержерон , Реми Жирар.Перевод: Профессиональный (многоголосый закадровый)Продолжительность: 01:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A1F2914CD1BD641E9260C02F60220FFF146DA3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673859   (576983)
-
-WebcamMax 7.7.6.6 RePack by KpoJIuK [Multi   Русский]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-WebCamMax - продвинутая утилита для работы с веб-камерой. Программа, добавляющая изумительные видеоэффекты на все вебкамеры, даже без реальной камеры. Программу можно использовать по умолчанию в таких приложениях, как ICQ, AIM, MSN, Camfrog, Skype, Paltalk, Yahoo, ANYwebcam, Stickam. Можно настроить WebcamMax Full так, чтобы она начинала функционировать и вести трансляцию с камеры только в том случае, когда объектив зафиксирует движение. Доступны более 1000 спецэфектов (на сайте производителя) включая телевизионную заставку, воду, туман, смайлы и т.п., прокрутка текста поверх видео, мягкое переключение между несколькими прямыми передачами и сохраненными образами, использование одной камеры сразу несколькими одновременно запущенными программами, обработка собственного изображения для придачи привлекательности или иных визуальных эффектов.
-
-(   Читать дальше...   )Язык интерфейса: Multi   Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673039   (576982)
-
-Эйдзи Ёсикава | Честь самурая. Десять меченосцев. История Хэйкэ [2004] [DOC]
-
-
->>Художественная литература
->>Исторические книги
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
- ЧЕСТЬ САМУРАЯ 
-Роман классика японской литературы посвящен реальным историческим событиям XVI века, когда в Японии шла жестокая борьба за власть между разрозненными самурайскими кланами. В центре романа – жизнь легендарного воина Тоётоми Хидэёси, прошедшего путь от сына простого крестьянина до военного правителя Японии. Сам император пожаловал ему высший придворный титул – тайко. Хидэёси, став самураем, провел лучшие годы жизни в бесконечных сражениях, совершенствуя военное мастерство, и в конце концов объединил отдельные княжества и укрепил свое владычество над страной. Его щедрое покровительство наукам и искусствам на закате дней привело к возникновению феномена, названного впоследствии японским Возрождением.
-Роман Э.Ёсикавы полностью вписывается в традиции японской литературы.
-
- ДЕСЯТЬ МЕЧЕНОСЦЕВ 
-В романе классика японской литературы воссозданы реальные исторические события начала XVII века, когда Японию раздирала борьба за правление страной между отдельными князьями – дайме. Это время (   Читать дальше...   )Формат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F20FB1E419B900C8B4AB8C85C3AC59D8706E52F5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673875   (576981)
-
-MusicBee 2.1.4924.Final + Portable [Ru Multi]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-MusicBee - многофункциональное приложение для прослушивания и организации музыкальной коллекции. Данная программа позволит произвести организацию вашей музыкальной коллекции, в том числе и на переносных устройствах. Она имеет встроенный плеер, отличающийся великолепным качеством воспроизведения. Проигрыватель программы имеет встроенный эквалайзер с набором готовых «пресетов», кроме того, позволяет создать свои собственные конфигурации настроек частот с возможностью сохранения.Язык интерфейса: Русский Multi
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673417   (576980)
-
-VA - Летний марафон № 45   Видеоклипы (Зарубежный хит) (2013) [H.264 1080p-LQ] HDTVRip
-
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Последние июньские новинки танцевальных хитов  new   (24-27.06.13)1. Bladi El Melodico ft. Henry Mendez - Te Voy A Olvidar (Official Video) (00:03:25)
-2. Bodybangers feat. Tony T. - Breaking The Ice (Official Video) (00:03:29)
-3. Bom Dia - Noche Buena (Official Video) (00:03:43)
-4. Fuse ODG - Antenna (Official Video) (00:03:33)
-5. INNA - Spre mare (Official Video) (00:03:43)
-6. Jencarlos Canela - I Love It  (Official Video) (00:03:36)
-7. P Square - Alingo (Official Video) (00:04:39)
-8. Papa Joe ft. Foncho - Caperucita (Official Video) (00:03:35)
-9. Steve Modana & Tony T - Crazy (Official Video) (00:03:24)
-10. Yonas - Girls of Summer (Official Video) (00:04:19)Жанр: Dance, Pop, LatinПродолжительность: 00:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119A1D8D9515FFD6899498937CD735C59F3BCAF4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673764   (576979)
-
-Internet Download Manager 6.17 Build 1 Final RePack by KpoJIuK [Multi   Русский]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного быстрее! Internet Download Manager имеет встроенный логический ускоритель загрузки, включающий интеллектуальную динамическую сегментацию файла и безопасную многослойную технологию загрузки, что способствует ускорению загрузки. Комплексная система анализа ошибок и возможность докачки, поможет продолжить загрузку, прерванную из-за потери соединения, проблем в сети, выключения компьютера или перепадов в подаче электроэнергии. Простой графический интерфейс делает IDM удобным и дружественным к пользователю.
-
-(   Читать дальше...   )Язык интерфейса: русский | английский | украинский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673553   (576978)
-
-Мечты   Awaken (2012) WEB-DLRip [H.264 720p-LQ]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-В канун нового года владелец кофейни знакомится с симпатичной девушкой, которая спустя несколько минут трагически погибает под колёсами автомобиля. Событие поражает его, но по ночам эта девушка начинает являться к нему в снах и у них начинается роман…Производство: США   Cold Arrow Productions, Petri EntertainmentЖанр: Драма, Мелодрама, ФантастикаРежиссер: Дэрик ЛуАктеры: Кори Севьер, Джордан Лэдд, Райан Алосио, Рени Дориан, Ким ПуарьеПеревод: Многоголосый закадровый, профессиональныйОзвучка   Автор перевода: Телеканал НТВ+Язык субтитров: АнглийскийПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813510C1912C299A82B2056736D1CF71B6EC3C1C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673673   (576977)
-
-Девушка с календаря   Calendar Girl (2011) WEB-DLRip [VO]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-В Филадельфии декабрь. Пока все готовятся к праздникам, творческий городской маньяк начинает поиски финальной 12-ой девушки, чтобы закончить свой кровавый «календарь». Убийца обещает, что последняя жертва будет особенной и не похожей на остальных. Возможно на эту роль подойдёт некая Ари, официантка местной закусочной.Производство: США   Calendar Girl: The Movie, Double Windsor FilmsЖанр: Ужасы, Мелодрама, КомедияРежиссер: Дерек ЛиндеманАктеры: Корбин Бернсен, Гилберт Готтфрид, Брайан О’Хэллоран, Крис Рааб, Джессика Чоп, Аль Сноу, Мэттью Наду, Брайан Галлахер, Тэмми Жан, Мохаммед Дж. АлиПеревод: Любительский одноголосыйЯзык субтитров: ОтсутствуютПродолжительность: 01:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231DD67C9A972389404F11DC476A89794E59AEAF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673710   (576976)
-
-Epica - The Phantom Agony  (2013) Expanded Edition, 2CD [FLAC|Lossless]<Gothic Metal, Symphonic
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
- Epica  представляет! В честь 10-летия выхода дебютного альбома группы  The Phantom Agony , 21 марта 2013 года на Transmission Records вышел его юбилейный 2-дисковый расширенный вариант.1. Adyta
-2. Sensorium
-3. Cry for the Moon — The Embrace that Smothers — Part 4
-4. Feint
-5. Illusive Consensus
-6. Facade of Reality — The Embrace that Smothers — Part 5
-7. Run For A FallЖанр: Gothic Metal, Symphonic MetalПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673820   (576975)
-
-Seiken no Blacksmith   The Sacred Blacksmith   Божественный Кузнец [2009, TV, 12] BDrip 720p raw
-
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то этот мир сотрясала Война Нарушенного Завета, где с людьми сражались демоны. Ценой огромных жертв они были изгнаны, но… несколько лет спокойствия ничего не решили, в чем на горьком опыте убедилась Сесилия Кэмбелл – молодой рыцарь из вольного торгового города Хаустаун. В первом же серьезном бою ее фамильный меч сломался, а спас ее неизвестный парень, владеющий настоящей японской катаной. Незнакомец, к тому же, оказался не простым кузнецом, а наследником великого мастера. Правда, Люк Эйнсуорт (так его звали) остался глух к настойчивым просьбам Сесилии починить ее меч или сковать новый, но кто может долго противиться красивой и настойчивой девушке?
-
-А потом, как и положено, начались приключения, схватки с демонами, путешествие с капризной принцессой, скелеты в шкафу, срывание покровов с темного прошлого и все, что положено в фэнтезийном аниме. Угадайте, чего не хватает? И это тоже будет!
-
-© Hollow, World ArtЖанр: приключения, фэнтези, эттиРежиссер: Хидака МасамицуПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31109E7634A031CE86D5279712756E51843E995
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990506   (576974)
-
-Дарья Донцова | Вставная челюсть Щелкунчика (2016) [FB2]
-
-
->>Художественная литература
->>Детективы
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виола Тараканова – председатель жюри конкурса «Девочка года»! Ее издатель, который приветствует любой пиар автора Арины Виоловой, радостно потирал руки. Во время финала между тремя претендентками на Гран-при назревал конфликт. Вернее, его разжигали матери Марины и Сони и бабушка Алисы, Галина Сергеевна Петрова. Обе мамаши набросились на нее с обвинениями: Петрова (   Читать дальше...   )Жанр: Иронические детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C566F280362F57B09011563D321C9E019265FF5C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990533   (576973)
-
-Вячеслав Шалыгин | Упреждающий удар (2016) [MP3]
-
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неведомая опасность приближается к обитаемым мирам из центра Галактики. В некоторых местах вдруг резко возрастает активность светил, странным образом исчезают люди, случаются необъяснимые происшествия, но межзвездное сообщество пока не верит в реальность угрозы.
-На защиту своих миров приходится вставать немногочисленным смельчакам, таким как дактианец Сайрус Рем, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 10:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB64324DF3157A71BE6C671C55F2C38B203506E8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989994   (576972)
-
-Брайан Трейси | Полная вовлеченность. Вдохновляйте, мотивируйте и раскрывайте все лучшее в своей ком
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство по созданию команды звезд от гуру Брайана Трейси.
-
-Успех в бизнесе во многом определяется тем, насколько эффективно менеджеры и предприниматели могут использовать человеческий капитал - вовлекать сотрудников, мотивировать и вдохновлять их.
-Из этой книги известного гуру Брайана Трейси вы узнаете:(   Читать дальше...   )Жанр: БизнесФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FEB13B2C9CFCC0A2751E87A49A56767224C427
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989996   (576971)
-
-Александр Роднянский | Выходит продюсер (2016) [EPUB]
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это дополненное издание книги о тонкостях профессии, о том, каково быть теле- и кинопродюсером в России и в мире. В книгу вошли новые главы о том, как создавались  Сталинград ,  Левиафан  и  Город грехов 2 .
-Эта книга многослойная, как хороший фильм. Одна большая идея — продюсер влияет на сознание миллионов. Много личного опыта и полезных (   Читать дальше...   )Жанр: Бизнес, КреативФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CEBF96D596FBEBB28DB7ED4E3A544CA97D2CA23
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990443   (576970)
-
-Мэрилин Аткинсон, Рае Т. Чойс | Достижение целей: Пошаговая система (2013) [FB2, DOCX]
-
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цитата
- Глубокий ум сначала стремится понять другого человека и лишь потом предлагает свою мудрость.  Мэрилин Аткинсон О чем книга
-О трансформационном коучинге, цель которого состоит в том, чтобы помочь человеку раскрыть его внутренний потенциал, определить свои главные ценности и видение цели в жизни. Трансформация происходит тогда, когда людям задают (   Читать дальше...   )Жанр: ПсихологияФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267194BE159D364CFCE475FEF6D8048AE5182F4E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989263   (576969)
-
-Митч Мейерсон, Мэри Скарборо | Основы интернет-маркетинга. Все, что нужно знать, чтобы открыть свой
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обо всем, что нужно знать новичку, чтобы успешно запустить свой магазин в интернете: общая стратегия маркетинга, выбор продукта, создание контента, дизайн, привлечение трафика, конверсия, автоматизация и аналитика, партнерские программы и т.д.  Возможности глобальной сети позволяют сегодня не ограничиваться географическими рамками и работать по тому сценарию, который (   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF7BF5DA8E6DE2D5A1C11A27B4E2C1FA1C7A723
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989264   (576968)
-
-Дэвид Льюис | Нейромаркетинг в действии. Как проникнуть в мозг покупателя (2015) [FB2]
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга расскажет, что и как заставляет нас покупать больше — даже если мы этого не хотим.
-Из лабораторий наука пришла в супермаркет по соседству с вами — и оказывает серьезное влияние на вас. В условиях серьезной конкуренции компании используют науку о мозге, чтобы анализировать то, как мы делаем покупки и какие скрытые факторы побуждают нас покупать.
-Основатель нейромаркетинга (   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AC8FD72C4DBED568FDCBFDC7E1C4B7F79F5FE5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 987994   (576967)
-
-Чужие на районе   Attack the Block (2011) BDRemux [H.264 1080p]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_987994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южный Лондон, Брикстон. Ноябрь. Группа юных хулиганов под предводительством четырнадцатилетнего Мозеса не дает житья обитателям не слишком благополучного квартала новостроек. Однажды прямо на автостоянку, где тусуется шпана, приземляется маленькое злобное инопланетное существо. Раздраженный агрессией космического гостя главарь шайки убивает пришельца. Если бы он (   Читать дальше...   )Производство: Великобритания, Studio Canal, Film4, UK Film CouncilЖанр: Фантастика, боевик, комедияРежиссер: Джо КорнишАктеры: Ник Фрост, Джоди Уиттакер, Люк Тредэвэй, Терри Нотари, Джон Бойега, Джои Анса, Алекс Эсмейл, Кристофер Уилсон, Фламиния Кику, Ли Николас ХаррисПеревод: Профессиональный многоголосый (R5), Авторский, Любительский одноголосыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E730250930DDA3952933A73F35FCCD6DB1BE1B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990474   (576966)
-
-В сердце моря   In the Heart of the Sea (2015) BDRip 3D [H.264 1080p] [Line] [Горизонтальная
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990474.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: Приключения, ДрамаРежиссер: Рон ХовардАктеры: Крис Хемсворт, Киллиан Мёрфи, Том Холлэнд, Бен Уишоу, Мишель Фэйрли, Шарлотта Райли, Брендан Глисон, Пол Андерсон, Бенджамин Уокер, Хорди МольяПеревод: Дублированный (чистый звук)Продолжительность: 02:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D91A53659F3F1CAD080D6E732D7F8F516760028
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989161   (576965)
-
-Кеннет Бланшар, Спенсер Джонсон | Одноминутный менеджер. Самые практичные техники менеджмента (201
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга детально описывает три практические техники менеджмента. В процессе чтения вы познакомитесь с некоторыми открытиями, которые помогут понять, почему эти предельно простые методы так хорошо работают. Наконец, вы поймете, как их можно применить к вашей собственной ситуации, и сможете: максимально упростить себе жизнь, успевать больше за меньшее время, избавиться (   Читать дальше...   )Жанр: Менеджмент, модели управления, бизнесФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EBDBF805FA5EA1D7EDB48273AD57B5CA088988
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990540   (576964)
-
-Звуковые библиотеки - Bluezone Corporation - World Percussion Loops and Samples [WAV, AIFF]
-
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990540.jpg" />
-</div>
-
-
-###  Подробнее
-
-World Percussion Loops and Samples - этот типовой пакет обеспечивает широкую коллекцию экзотических петель ударных, ритмов и сэмплов ударных из различных индийских, арабских и африканских ударных инструментов.Формат: WAV, AIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97866A6FE612D5B85DF951F68F51C6960D53B3FE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990230   (576963)
-
-Золотая клетка   Иллюзия любви (2013) WEB-DL [H.264 1080p-LQ] (серии 1-4 из 4)
-
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красавица медсестра Алина вынуждена бежать из родного города после череды ужасных и трагических событий. В Москве Алина работает сиделкой у пострадавшего в аварии молодого миллионера и оказывается полностью в его власти. Но это ли настоящая любовь? Вскоре Алина снова остается одна. Спасаясь от преследователя, который не остановится, пока не найдет ее, Алина полностью (   Читать дальше...   )Производство: Россия   ООО Кинокомпания «Маркес»Жанр: драма, мелодрамаРежиссер: Сергей КешишевАктеры: Ирина Антоненко, Дмитрий Исаев, Станислав Бондаренко, Алексей Суренский, Юлия Яблонская, Нина Курпякова, Евгений Кушпель, Юрий Пронин, Сергей Походаев, Евгения Каверау, Ольга ЖитникПродолжительность: ~ 01:31:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9247470295E91AD6335AD77E8605EB0BE98959AA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989272   (576962)
-
-Дмитрий Кот | E-mail маркетинг. Исчерпывающее руководство (2013) [FB2]
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Электронные рассылки как маркетинговый инструмент имеют свои особенности: обычно широкий охват, но не всегда высокий отклик: часто их даже не читают.
-
-Что можно сделать, чтобы повысить интерес к вашей рассылке? Где взять нужную базу подписчиков? Как оформить подписную страницу? Каким образом выстроить серию писем, информирующих о конкретной акции и побуждающих к (   Читать дальше...   )Жанр: Бизнес, КопирайтингФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1C6E0DED076D30514CD2ABEDB37FC0DD28314F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990236   (576961)
-
-Прогулка среди могил   A Walk Among the Tombstones (2014) HDRip [Line]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк охватывает волна странных и страшных убийств. Муж одной из жертв, наркобарон, нанимает бывшего полицейского, чтобы тот добрался до убийцы жены. Частный детектив Скаддер видит то, чего не замечает полиция, и проникает туда, куда копы боятся даже сунуть нос. Распутывая дьявольские преступления, он понимает, что люди боятся совсем не того.Производство: США, 1984 Private Defense Contractors, Cross Creek Pictures, Da Vinci Media Ventures, Double Feature FilmsЖанр: Детектив, Триллер, Криминал, ДрамаРежиссер: Скотт ФрэнкАктеры: Лиам Нисон, Дэн Стивенс, Дэвид Харбор, Бойд Холбрук, Себастьян Роше, Астро, Уитни Эйбл, Стефани Андужар, Марина Скверсьяти, Марк КонсуэлосПеревод: Дублированный (Чистый звук)Продолжительность: 01:54:05Реклама: Присутствуют голосовые и текстовые вставки рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708F3C0C1FC21BE3DF24F2EEEA0E507B8754B440
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990337   (576960)
-
-Моя честь называется верность. Лейбштандарт   My Honor Was Loyalty (2015) DVDRip [DE   RU Su
-
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Унтершарфюрер Зигфрид Херкель, преданный и патриотичный солдат из дивизии СС Лейбштандарт после того, как воевал на разных фронтах, столкнутся с худшим из них: с его собственными мыслями, которые угрожают не только его стране, но и его собственному будущему.Производство: Италия, Progetto900Жанр: Военный, драмаРежиссер: Алессандро ПепеАктеры: Леоне Фриза, Франческо Мильоре, Паоло Ваккарино, Альбрехт ВеймерПеревод: ОтсутствуетЯзык озвучки: НемецкийЯзык субтитров: РусскийПродолжительность: 01:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33A49F03B57889F9793D376BF821AA5F58446D3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990306   (576959)
-
-Acronis Backup Advanced Workstation   Server 11.7.44397 + BootCD [En]
-
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis Backup (бывший Acronis Backup & Recovery) - программа для резервного копирования и аварийного восстановления серверов и ноутбуков под управлением Windows в физических и виртуальных средах. Будучи основан на проверенных технологиях создания образов и восстановления на «голое железо», новый продукт является следующим поколением семейства Acronis True Image (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C657F67DAA5151C1275E7A8CD8F1156AD647B4B3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990541   (576958)
-
-Вячеслав Шалыгин | Стальная бабочка (2016) [MP3]
-
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990541.jpg" />
-</div>
-
-
-###  Подробнее
-
-С тех пор как человечество покинуло лишенную ресурсов и жизни Землю, оно разделилось на три расы: генномодифицированных дактианцев, полумеханических сайтенов и мароманнов, напичканных нанороботами. Лишь дикари-вильдеры, населяющие опустошенные в ходе галактической экспансии планеты, сохранили свою человеческую природу. Спустя много веков из центра Галактики, именуемого (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 14:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E1B21B6B1BA7EC371F439DD79A52DA62E72161
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989997   (576957)
-
-Джек Уэлч, Сюзи Уэлч | Вместо MBA. Полезные советы от легендарных менеджеров (2016) [EPUB]
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полезные советы по менеджменту от Джека Уэлча с большим количеством жизненных примеров.
-Джек Уэлч, легендарный руководитель General Electric, и его жена - бывший главред Harvard Business Review - подготовили актуальное руководство по бизнесу, которое поможет вам справиться со всеми современными вызовами на пути к правильной стратегии, успешному лидерству и отличной (   Читать дальше...   )Жанр: БизнесФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747D2F8AE10C9F5AECC8AD8C3A134F2E148F78A3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989266   (576956)
-
-Джей Левинсон | Партизанский маркетинг. Простые способы получения больших прибылей при малых затрата
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Партизанскому маркетингу не учат на занятиях по маркетингу, о нем не пишут в обычных учебниках, его не применяют рекламные агентства, и он неизвестен большинству ваших конкурентов – тем и хорош, уверен Джей Левинсон. У вас в руках книга № 1 по партизанскому маркетингу. Если ваш бюджет на маркетинг исчисляется тысячами рублей, а не миллионами, обязательно прочтите (   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA20309D25E2237138A16AE716E53D65E12733A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990530   (576955)
-
-В сердце моря   In the Heart of the Sea (2015) BDRip 3D [H.264 1080p] [Line] [Вертикальная а
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990530.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: Приключения, ДрамаРежиссер: Рон ХовардАктеры: Крис Хемсворт, Киллиан Мёрфи, Том Холлэнд, Бен Уишоу, Мишель Фэйрли, Шарлотта Райли, Брендан Глисон, Пол Андерсон, Бенджамин Уокер, Хорди МольяПеревод: Дублированный (чистый звук)Продолжительность: 02:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C697C24C87E19E0E0FB89C6C924BC463E3F2C5A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673676   (576954)
-
-Журнал | Burda №7 [без выкроек] (июль 2013) [PDF]
-
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Издание с мировым именем, хорошо известное всем женщинам, которые хотят быть образцом безупречного вкуса для окружающих. На страницах журнала Burda — самые последние тенденции мировой моды, новости с европейских подиумов, советы по стилю и модные торговые марки. Каждый месяц — новая коллекция одежды от ведущих дизайнеров мира. Диапазон моделей одежды, представленных (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477D8C2AC07D2CD84026144278BB7FE52C58E0AF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 671960   (576953)
-
-Разговор на кухне со С.Пеуновой. Планы по разрушению России военными и невоенными способами (2013<
-
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_671960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корреспонденты raznesi.info побывали в гостях у председателя политической партии  ВОЛЯ  Светланы Пеуновой.
-
-За чашкой чая Светлана Михайловна рассказала о своих путешествиях и поделилась самыми инетресными наблюдениями. В первой части передачи раскрываются эзотерические тайны Великой Отечественной войны и современной политики. В чем сила и загадка Мамаева Кургана? Куда зовет солдат Родина-мать? Зачем Сталину и Гитлеру были нужны массовые репрессии и расстрелы? Что общего между индейцами майя, Гилером и сирийскими повстанцами? Что скрывает Мавзолей Ленина и почему  Газпром  потратил 700 миллионов рублей на создание мавзолея для прицессы Укока?Жанр: ДокументальныйПродолжительность: 02:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBCF6326584F4E2CE76C34D8A43413F17AA8EC33
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673538   (576952)
-
-Инопланетянин   E.T. the Extra-Terrestrial (1982) HDTVRip
-
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Инопланетянин, телом похожий на черепаху без панциря, а мордочкой одновременно на мопса и Альберта Эйнштейна, прилетел на землю с мирными намерениями — в составе научно-исследовательской группы. Специалисты из NASA заметили приближение летающей тарелки и посчитали, что просто обязаны отловить хотя бы одну из инопланетных тварей.
-Несчастные существа были вынуждены (   Читать дальше...   )Жанр: Фантастика, Приключения, СемейныйРежиссер: Стивен Спилберг   Steven SpielbergАктеры: Ди Уоллес-Стоун, Хенри Томас, Питер Койот, Роберт МакНотон, Дрю Бэрримор, Дэвид О Делл, Том Хауэлл, Шон Фрай, К. С. Мартел, Эрика ЭлениакПеревод: ДублированныйЯзык субтитров: ОтсутствуютПродолжительность: 01:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D8DB9847E14C81FEA511682B3BAA83B662EDF2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673655   (576951)
-
-Kubuntu 13.10 Saucy Alpha I [i386, amd64]
-
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_673655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел первый альфа релиз следующей версии Kubuntu Saucy. Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 13.10 разрабатывается сообществом. Дистрибутив содержит все необходимые программы, которые Вам нужны или могут потребоваться: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 671613   (576950)
-
-Trinity - Eye To Eye (2013) [FLAC|Lossless]<Reggae>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-1. Intro By Joe Lickshot (0:26)
-2. Bad Boy feat. Prince Alla (3:48)
-3. Genocide feat. Barrington Levy (4:28)
-4. Jah Jah Man feat. Cornell Campbell (extended DJ version) (6:56)
-5. Irie Collie feat. Gregory Isaacs (3:41)
-6. African Princess feat. Dennis Brown (4:03)
-7. Lion Is A Thief feat. Beres Hammond (4:09)
-8. Tribute To Gregory Isaacs feat. Naggo Morris, Tamlins & Dillinger (4:08)
-9. Love Is Like A Candy feat. John Holt (extended DJ version) (7:02)
-10. Country Boy feat. Leroy Sibbles (3:43)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:61:16
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673728   (576949)
-
-Спина к спине   Back to Back (1996) DVDRip [H.264]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Два суперкиллера из якудза едут в Америку, чтобы казнить конкурента — дона итальянской мафии. Но не все идет гладко: в ресторане убийцы сами становятся заложниками вооруженного психопата, и с этого момента действие развивается со скоростью сорвавшейся с катушки тележки «американских горок».Жанр: Боевик, Драма, КриминалРежиссер: Роджер НайгардПродюсер: В.К. Бордер, Томас Калабрезе, Такасигэ ИтисэАктеры: Майкл Рукер, Рё Исибаси, Даниэль Харрис, Джон Лофлин, Кох Такасуги, Боб Голдтуэйт, Винсент Скьявелли, Стефен Ферст, Тим Томерсон, Фред УиллардПеревод: Двуголосый закадровый (Twister)Продолжительность: 01:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1145AA2D7CAC1ED2BDA1AE917C08FBB3B3FA3DAE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673658   (576948)
-
-Lubuntu 13.10  Saucy Alpha I (легкий дистрибутив) [i386, amd64]
-
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоялся первый тестовый релиз семейства дистрибутивов 13.10  Saucy Alpha I
-
-Lubuntu — это свободная операционная система на базе Ubuntu Linux. Основное отличие Lubuntu — малые требования к ресурсам компьютера за счет использования среды рабочего стола LXDE. Lubuntu — это современная операционная система, которую можно поставить как на современные компьютеры, так и на устаревшие. Lubuntu работает очень быстро, она безопасна, красива, функциональна. К тому же, Lubuntu позволяет вернуть к жизни старые персональные компьютеры, на которых другие современные операционные системы не смогут нормально работать. Lubuntu также отлично подходит для установки на нетбуки и другие портативные устройства.
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673778   (576947)
-
-A*Teens - Teen Spirit (2001) [FLAC|Lossless]<Europop, Ballad>
-
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Upside Down [03:16]
- 02. To The Music [03:23]
- 03. Halfway Around The World [03:41]
- 04. Firefly [03:08]
- 05. Sugar Rush [03:03]
- 06. Rockin  [03:27]
- 07. Around The Corner Of Your Eye [04:13]
- 08. Slammin Kinda Love [03:04]
- 09. All My Love [03:17]
- 10. For All That I Am [03:19](   Читать дальше...   )Жанр: Europop, BalladПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673709   (576946)
-
-Dr.Web CureIt! 8.2.0 (28.06.2013) [Ru Multi]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Компания «Доктор Веб» сообщает о выпуске восьмой версии лечащей утилиты Dr.Web CureIt!, предназначенной для антивирусной проверки и лечения компьютеров, в том числе с установленным антивирусом другого производителя. С помощью утилиты Dr.Web CureIt!® без установки Dr.Web в системе Вы можете быстро проверить Ваш компьютер и, в случае обнаружения вредоносных объектов, вылечить его.
-
-(   Читать дальше...   )Язык интерфейса: Ru Multi
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673606   (576945)
-
-IrfanView 4.36 Final [Ru En]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-IrfanView - компактная и в то же время мощная программа для просмотра и конвертации графических файлов с продвинутыми возможностями, поддерживающая множество форматов графики, есть опции редактирования. Кроме работы с графическими файлами, IrfanView понимает многие аудио и видеоформаты; вдобавок, возможности программы можно значительно расширить за счет плагинов, хотя и без них IrfanView обладает множеством достоинств: в программе имеются базовые средства обработки графики, можно конвертировать файлы из одного формата в другой, делать скриншоты с экрана и заставки для рабочего стола, есть режимы слайдшоу и thumbnail (показ уменьшенных копий), а также функция вытаскивания иконок из *.exe и *.dll файлов. Кроме этого, явным плюсом программы является ее небольшой размер.Язык интерфейса: Ru En
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673776   (576944)
-
-Гостья   The Host (2013) BDRip [720p] [Line]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля — в опасности! Наше место скоро займут Души — лишенные плотской оболочки пришельцы, вытесняющие из человеческих тел разум и замещающие его разумом собственным. Большая часть человечества уже погибла. Немногие выжившие скрываются в жалкой попытке отсрочить неизбежное… Теперь Душа пытается захватить тело юной Мелани. Однако происходит неожиданное: Мелани и ее Душа вынуждены сосуществовать в одном теле. Гостье надлежало выследить и выдать землян-повстанцев, с которыми связана Мелани, но она помогает своей носительнице.Жанр: Фантастика, Драма, МелодрамаРежиссер: Эндрю НикколПродюсер: Стефани Майер, Пола Мэй Шварц, Стив ШварцАктеры: Сирша Ронан, Макс Айронс, Джейк Эйбел, Дайан Крюгер, Уильям Хёрт, Чандлер Кентербери, Фрэнсис Фишер, Скотт Лоуренс, Бойд Холбрук, Мустафа ХаррисПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 02:05:38
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 378895   (576943)
-
-Бешеное золото (1976) DVDRip
-
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_378895.jpg" />
-</div>
-
-
-###  Подробнее
-
-На одном из тропических тихоокеанских островов восемь вполне здоровых и нормальных людей ищут спрятанные сокровища. Они находят клад и начинают его делить. Плетутся интриги, разгораются страсти, друзья становятся врагами и похоже, что золото не достанется никому…Производство: СССР   МосфильмЖанр: Комедия, КриминалРежиссер: Самсон СамсоновАктеры: Майя Эглите, Борис Иванов, Валентин Гафт, Нонна Терентьева, Николай Ерофеев, Николай Олялин, Глеб Стриженов, Ольга Яковлева, Юрий СобольковСубтитры: ОтсутствуютПродолжительность: 01:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571F7257E97B55E8B9976CDA372AB9983486A4BC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990305   (576942)
-
-Головоломка   Inside Out (2015) BDRip [480p] iPod
-
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Райли — обычная 11-летняя школьница, и, как у каждого из нас, ее поведение определяют пять базовых эмоций: Радость, Печаль, Страх, Гнев и Брезгливость. Эмоции живут в сознании девочки и каждый день помогают ей справляться с проблемами, руководя всеми ее поступками. До поры до времени эмоции живут дружно, но вдруг оказывается, что Райли и ее родителям предстоит переезд (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, семейный, комедияРежиссер: Роналдо Дель КарменАктеры: Эми Полер, Филлис Смит, Ричард Кайнд, Билл Хейдер, Льюис Блэк, Минди Кейлинг, Кейтлин Диас, Дайан Лэйн, Кайл МакЛоклен, Пола ПаундстонПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  Английские SDH (полные, отключаемые)Продолжительность: 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741ED2EB36738C8A2992D4E5ECB0B0628E2DBFBC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990340   (576941)
-
-30 свиданий (2015) WEB-DL [H.264 720p-LQ]
-
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_990340.jpg" />
-</div>
-
-
-###  Подробнее
-
-На что только не пойдешь, чтобы обрести счастье?! Невезучая Даша верит в найденный в интернете способ — в течение месяца сходить на 30 свиданий, а затем мужчина твоей мечты сам найдет тебя. Только остаться бы живой после встреч с самыми безумными кавалерами и пробовать разглядеть среди них того самого.Производство: Россия   ПЦ «Кинематограф»Жанр: Комедия, МелодрамаРежиссер: Татьяна КапитанАктеры: Наталия Медведева, Никита Панфилов, Дмитрий Богдан, Сергей Аброскин, Ирина Гринёва, Данила Якушев, Гарик Харламов, Никита Джигурда, Сергей Баталов, Ольга ТумайкинаПеревод: Не требуется (русский) iTunesПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C2D72ACA9A6A357B28181CF546FCFBE362CA4A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989213   (576940)
-
-Филип Котлер | Маркетинг от А до Я. 80 концепций, которые должен знать каждый менеджер (2012) [F
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цитата
- Трудно ли научиться маркетингу? Хорошая новость: его можно изучить за один день. Плохая новость: его можно изучать всю жизнь . Филип Котлер О чем книга
-О маркетинге, а именно о 80 ключевых понятиях, или концепциях, эффективного маркетинга, их содержании и значении для современного бизнеса. Автор собрал и переосмыслил основные принципы и лучшие методы (   Читать дальше...   )Жанр: Бизнес, МенеджементФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807A2EED3059C2F8E34A8F01DA415BE15916A2C2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989237   (576939)
-
-Филип Котлер | Основы маркетинга. Краткий курс (2007) [FB2, DOCX]
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маркетинг - одна из основополагающих дисциплин для профессиональных деятелей рынка, таких как коммивояжеры, розничные торговцы, работники рекламы, исследователи маркетинга, управляющие по новым и марочным товарам и т.п. Им нужно знать, как описать рынок и разбить его на сегменты; как оценить нужды, запросы и предпочтения потребителей в рамках целевого рынка; как (   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB20A888CFA493006B1C7AABA8E09005FA30151
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990233   (576938)
-
-В сердце моря   In the Heart of the Sea (2015) BDRip [H.264 720p] [Line]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990233.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Австралия, Испания, Великобритания, Канада   Cott Productions, Enelmar Productions, Imagine EntertainmentЖанр: Приключения, Драма, БиографияРежиссер: Рон ХовардАктеры: Крис Хемсворт, Киллиан Мёрфи, Том Холлэнд, Бен Уишоу, Мишель Фэйрли, Шарлотта Райли, Брендан Глисон, Пол Андерсон, Бенджамин Уокер, Хорди МольяПеревод: Дублированный (чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0B87E712D38BECACBB46EBB95D1DBBEC8A5E86
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990186   (576937)
-
-Трамбо   Trumbo (2015) BDRemux [H.264 1080p]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далтон Трамбо, один из самых успешных голливудских сценаристов, автор «Римских каникул» и «Спартака», не подозревал, что черный список «Hollywood 10» реально существует, пока сам не попал туда и не был навсегда выкинут из жизни фабрики грез…Производство: США   Groundswell Productions, ShivHans PicturesЖанр: драма, биографияРежиссер: Джей РоучАктеры: Брайан Крэнстон, Дайан Лэйн, Хелен Миррен, Луис С.К., Эль Фаннинг, Джон Гудман, Майкл Стулбарг, Алан Тьюдик, Адевале Акинойе-Агбаже, Дин О’ГорманПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Язык субтитров: АнглийскийПродолжительность: 02:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006715ECC70F55DF75C3F15DA36E2717868D1FBB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990171   (576936)
-
-Сергей Змеев | Тайная Власть Денег (Сборник, 5 шт.) (2011-2013) DVDRip [H.264]
-
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_990171.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайная Власть Денег» – это легендарный курс, который прошли тысячи человек. Результаты участников исчисляются в сотнях миллионов рублей. И тут все очень просто. Я знаю, как делать деньги. И успешно делаю это много лет. И только человек, действительно обладающий и внутренним, и внешним состоянием, способен передать эту силу, уверенность и энергию денег другим.
-Сделайте (   Читать дальше...   )Жанр: Личные финансыПродолжительность: 44:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC7AAB7FC9A2142A3CA4DA4B5360A6C3EB47721
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 979393   (576935)
-
-Секретные материалы   The X-Files (2016) WEB-DL [H.264 720p-LQ] (сезон 10, серии 1-6 из 6<
-
-
->>Зарубежные сериалы
->>Секретные материалы   X-Files
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_979393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США   20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, детектив, драмаРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилледжи, Уильям Б. Дэвис, Робби Амелл, Джоэл МакХэйл, Эндрю Моргадо, Лорен Эмброуз, Ализа Веллани, Даниэла Диб и др.Перевод: Екатерина КузнецоваЯзык субтитров: английскийПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64E0EB24B914644F5BE4383735825F077A9DE26
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990320   (576934)
-
-Крампус   Krampus (2015) WEB-DL [H.264 720p-LQ]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в неблагополучной семье маленького Макса снова происходит конфликт накануне Рождества, то мальчик поворачивается к празднику спиной. Он еще не знает, что его отсутствие праздничного духа пробудило гнев Крампуса, демонического существа, наказывающего неверующих. Теперь всей семье придется заплатить за порчу Рождества. Но если герои хотят выжить, то им придется (   Читать дальше...   )Производство: США, Новая ЗеландияЖанр: Ужасы, Фэнтези, КомедияРежиссер: Майкл ДогертиАктеры: Адам Скотт, Тони Коллетт, Дэвид Кокнер, Эллисон Толман, Кончата Феррелл, Эмджей Энтони, Стефания Оуэн, Криста Штадлер, Марк Аткин, Тревор ПауПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490E1D12D5BBAAE48EDA19BC1B650E54FCECAC6C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990364   (576933)
-
-Звуковые библиотеки - Cinematic Trailer Music [WAV]
-
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный сборник создан для оформления мульти-медиа проектов,
-содержит 62 трека разных вариаций.
-Звуковые файлы открываются в любых проигрывателях , аудио- или видео- редакторах, естественно при наличии надлежащих кодеков в системе.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12873CF5DF520D4F4322179AF37CC93B05AA6C20
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990589   (576932)
-
-Дем Михайлов | Мир Вальдиры. Книга 7 (2016) [FB2]
-
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Седьмой роман цикла «Мир Вальдиры».
-
-Мягкий порыв ветра принес с собой запах морской соли и йода... уже пора в путь!
-Но сколько еще осталось дел на суше...(   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Боевое фэнтези, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51715EDE15A8DAB3D695F9BCDCBE8432FF1B9EB8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 988847   (576931)
-
-Сергей Щербаков | Партизанский маркетинг в социальных сетях. Инструкция по эксплуатации SMM-менеджер
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_988847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга по сути – вовсе не книга, а скорее должностная инструкция, которая призвана регламентировать профессиональную жизнь SMM-менеджера даже за пределами трудодня. В ней буквально почасовое расписание задач на неделю (вопрос «Что?») сменяется полноценным «Как?» и лишь в необходимых случаях «Зачем?».
-– На предприятии это позволяет руководителю просто вручить сотруднику (   Читать дальше...   )Жанр: Бизнес, SMM, ПиарФормат: FB2, PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7191523D7CF050D4DC436F88D650C04C664DFE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989267   (576930)
-
-Денис Каплунов | Контент, маркетинг и рок-н-ролл. Книга-муза для покорения клиентов в интернете (2
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня мы не представляем свою жизнь без интернета. Однако на одни сайты мы заглядываем мимоходом, а другие нас не отпускают — мы добавляем страницу в «Закладки» и возвращаемся туда снова и снова. В чем же причина? В захватывающем контенте.
-
-Как создавать привлекательный контент в любом виде и формате, что публиковать с целью моментального привлечения аудитории, (   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4ADE4BCCD6A5E943CF300C280107D066B2507D2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990170   (576929)
-
-Трамбо   Trumbo (2015) BDRip [H.264 1080p]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далтон Трамбо, один из самых успешных голливудских сценаристов, автор «Римских каникул» и «Спартака», не подозревал, что черный список «Hollywood 10» реально существует, пока сам не попал туда и не был навсегда выкинут из жизни фабрики грез…Производство: США   Groundswell Productions, ShivHans PicturesЖанр: драма, биографияРежиссер: Джей РоучАктеры: Брайан Крэнстон, Дайан Лэйн, Хелен Миррен, Луис С.К., Эль Фаннинг, Джон Гудман, Майкл Стулбарг, Алан Тьюдик, Адевале Акинойе-Агбаже, Дин О’ГорманПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Язык субтитров: АнглийскийПродолжительность: 02:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE074DCED5FB1467737793B19061390791C9F06
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990328   (576928)
-
-Джозеф Албахари, Бен Албахари | C# 6.0. Карманный справочник [+ файлы к книге] (2016) [PDF]
-
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда вам нужны ответы на вопросы по программированию на языке C# 6.0, эта практическая и узкоспециализированная книга предложит именно то, что вам необходимо знать - безо всяких длинных введений или раздутых примеров. Легкая в чтении, она идеальна в качестве краткого справочника или даже руководства в том случае, если вы знакомы с языком Java, C++ или более ранней (   Читать дальше...   )Жанр: Языки и системы программированияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60F99F5D991A5DA490087FECB633A9ED8386573
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990304   (576927)
-
-Крампус   Krampus (2015) WEB-DLRip
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в неблагополучной семье маленького Макса снова происходит конфликт накануне Рождества, то мальчик поворачивается к празднику спиной. Он еще не знает, что его отсутствие праздничного духа пробудило гнев Крампуса, демонического существа, наказывающего неверующих. Теперь всей семье придется заплатить за порчу Рождества. Но если герои хотят выжить, то им придется (   Читать дальше...   )Производство: США, Новая ЗеландияЖанр: Ужасы, Фэнтези, КомедияРежиссер: Майкл ДогертиАктеры: Адам Скотт, Тони Коллетт, Дэвид Кокнер, Эллисон Толман, Кончата Феррелл, Эмджей Энтони, Стефания Оуэн, Криста Штадлер, Марк Аткин, Тревор ПауПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081E9DE4E4F8022E010252E985BCEE861D37F766
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990239   (576926)
-
-В сердце моря   In the Heart of the Sea (2015) HDRip [H.264] [Line]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990239.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Австралия, Испания, Великобритания, Канада, Cott Productions, Enelmar Productions, Imagine EntertainmentЖанр: Биография, Приключения, ДрамаРежиссер: Рон ХовардАктеры: Крис Хемсворт, Киллиан Мёрфи, Том Холлэнд, Бен Уишоу, Мишель Фэйрли, Шарлотта Райли, Брендан Глисон, Пол Андерсон, Бенджамин Уокер, Хорди МольяПеревод: Дублированный (Чистый звук)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced), Английский (Full, SDH)Продолжительность: 02:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBB1F4DBE25B4E9B7A631D2AD51359546DF7621
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990319   (576925)
-
-Черная месса   Black Mass (2015) BDRip [H.264 1080p]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина расскажет об Уайти Балджере, знаменитом бостонском гангстере, который 16 лет находился в бегах и был арестован в июне 2011 года в Санта-Монике. Балджер, которому уже за 80, обвинялся в рэкете, был замешан в 19 убийствах и в то же время работал информатором на ФБР. Чтобы не попасть за решетку, он исчез в 1995 году и 16 лет успешно скрывался от правосудия.Производство: США, Великобритания   Cross Creek Pictures, Free State Pictures, Grisbi Productions, LeЖанр: драма, криминал, биографияРежиссер: Скотт КуперАктеры: Джонни Депп, Джоэл Эдгертон, Бенедикт Камбербэтч, Кевин Бейкон, Джесси Племонс, Питер Сарсгаард, Кори Столл, Дакота Джонсон, Рори Кокрейн, Дэвид ХарборПеревод: Дублированный (Лицензия BD CEE), Авторский (одноголосый, закадровый) М.ЯроцкийЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE95C440C222102086B1DA0A30B1672B3DAA502
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1736525   (576924)
-
-28 дней спустя / 28 Days Later... (2002) DVDRip [H.264] [Fullscreen]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1736525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «зеленых» экстремистов вторгается в центр исследования приматов и выпускает из секретной научной лаборатории обезьяну, зараженную вирусом неудержимой агрессии. Смертельный вирус, передающийся через кровь за считанные секунды, приводит к мгновенному заражению и, соприкоснувшись с любым живым существом, превращает его в кровожадного монстра.
-28 дней спустя вся (   Читать дальше...   )Производство: Великобритания, США / DNA Films, British Film CouncilЖанр: ужасы, фантастика, триллер, драмаРежиссер: Дэнни БойлАктеры: Киллиан Мерфи, Наоми Харрис, Меган Бёрнс, Брендан Глисон, Кристофер Экклстон, Ной Хантли, Люк Мэбли, Стюарт Маккуорри, Джуниор Ланиян, Санджей РамбарутПеревод: Дублированный ("Невафильм")Язык озвучки: русский, английскийСубтитры: русские 18+ (Дмитрий "Гоблин" Пучков), русские ("Позитив-Мультимедиа")
-
-Рип мой. Исходник видео: 28 дней спустя / 28 Days Later... (2002) DVDRemuxПродолжительность: 01:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7704A3A1AEF542097D3104A7876F3C85638684ED
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990126   (576923)
-
-The Walking Dead: Michonne Episode 1 (2016) [Ru Multi] (1.4.3) Repack bosenok
-
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990126.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Walking Dead: Michonne - A Telltale Games Mini-Series- небольшая эпизодическая игра, состоящая из трех частей, действия которой разворачиваются между событиями 126 и 139 выпусков комикса «Ходячие мертвецы», а главной героиней выступает Мишон. Фанаты комикса узнают, почему девушка покинула группу верных друзей, и что заставило ее вновь к ним вернуться.Тип издания: RepackРазработчик: Skybound LLCЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A541461AA354C1F0747A1BE66437481AD15CEF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989413   (576922)
-
-Сергей Конюхов | Практическая аналитика в Excel (2015) PCRec [H.264]
-
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освойте мощные технологии анализа всего за 11 уроков.Жанр: Практическая аналитика, ExcelПродолжительность: ~04:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5CACAAF114BF20162274881DC84D0738C33334
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990363   (576921)
-
-30 свиданий (2015) WEB-DLRip [H.264]
-
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990363.jpg" />
-</div>
-
-
-###  Подробнее
-
-На что только не пойдешь, чтобы обрести счастье?! Невезучая Даша верит в найденный в интернете способ — в течение месяца сходить на 30 свиданий, а затем мужчина твоей мечты сам найдет тебя. Только остаться бы живой после встреч с самыми безумными кавалерами и пробовать разглядеть среди них того самого.Производство: Россия, ПЦ «Кинематограф»Жанр: Комедия, МелодрамаРежиссер: Татьяна КапитанАктеры: Наталия Медведева, Никита Панфилов, Дмитрий Богдан, Сергей Аброскин, Ирина Гринёва, Данила Якушев, Гарик Харламов, Никита Джигурда, Сергей Баталов, Ольга ТумайкинаПеревод: Не требуется (русский) iTunesПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E335DAB319955E8D02A1D222FCD592BF548B4717
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990299   (576920)
-
-Adobe Photoshop Lightroom 6.4 Portable by PortableWares [Multi Ru]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA481C6ABBB6629F33098BA26136512954E26FCF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990407   (576919)
-
-Крампус   Krampus (2015) WEB-DLRip
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в неблагополучной семье маленького Макса снова происходит конфликт накануне Рождества, то мальчик поворачивается к празднику спиной. Он еще не знает, что его отсутствие праздничного духа пробудило гнев Крампуса, демонического существа, наказывающего неверующих. Теперь всей семье придется заплатить за порчу Рождества. Но если герои хотят выжить, то им придется (   Читать дальше...   )Производство: США, Новая ЗеландияЖанр: Ужасы, Фэнтези, КомедияРежиссер: Майкл ДогертиАктеры: Адам Скотт, Тони Коллетт, Дэвид Кокнер, Эллисон Толман, Кончата Феррелл, Эмджей Энтони, Стефания Оуэн, Криста Штадлер, Марк Аткин, Тревор ПауПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275BDA70F7F2EF59217AC1E5AA3308701F938EA2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989150   (576918)
-
-Вера Шварцбург | Практический курс ретуши (2016) PCRec [H.264 720p]
-
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_989150.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ПРАКТИЧЕСКИЙ КУРС РЕТУШИ» руководство, которое позволит вам научиться делать качественную, дорогую и натуральную ретушь.
-
-На уроках вы:
-Узнаете, на что обращать внимание при ретуши портрета и какие ошибки ни в коем случае нельзя допускать(   Читать дальше...   )Жанр: РетушьПродолжительность: 05:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53A7FDB67770B6B4A70B4FB81644872B7F8B0B3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989137   (576917)
-
-Вера Шварцбург | Как снять крутой портрет (2016) PCRec [H.264 720p]
-
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_989137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Важные базовые знания, которые я даю вам в моём курсе
-«Как снять крутой портрет»
-позволят вам работать с камерой, моделью, светом и композицией грамотно и правильно, а это – первый шаг к будущему успеху.
-(   Читать дальше...   )Жанр: Обучение фотографииПродолжительность: 03:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1424CCB2DEA1B38C9FF192B5B2F3D8F1DF29C734
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990368   (576916)
-
-Римские свидания   All Roads Lead to Rome (2015) WEB-DL [H.264 720p-LQ] [Line]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990368.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Мэгги все спланировано для идеального отпуска — солнце Рима и море Тосканы. Вот только ее 16-летняя дочь Саммер мечтает улететь назад в Штаты к своему бойфренду, а Мэгги случайно встречает свою первую любовь — сердцееда Луку и его взбалмошную мамашу, которая тоже норовит сбежать из дома к тайному возлюбленному. Расслабленный отдых оборачивается головокружительной (   Читать дальше...   )Производство: Италия, США   Ambi Pictures, Paradox StudiosЖанр: КомедияРежиссер: Элла Лемхаген   Ella LemhagenАктеры: Сара Джессика Паркер, Рози Дэй, Рауль Бова, Клаудия Кардинале, Пас Вега, Кьяра Бассерманн, Марко Бонини, Джанклаудио КареттаПеревод: Дублированный (Чистый звук)Субтитры: английские (вшитые, отключаемые)Продолжительность: 01:31:27Реклама: Внимание, присутствуют вставки голосовой и текстовой рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5B1C1AAA3C8FD0554DA71F7DBECD2D6E8EFBF8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 988755   (576915)
-
-Михаил Русаков | Как сделать сайт-визитку своими руками (2016) [PDF]
-
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_988755.jpg" />
-</div>
-
-
-###  Подробнее
-
-На примере создания сайта-визитки в книге наглядно показано, как сделать полноценный сайт своими руками. Книга написана простым и легким языком, который будет понятен любому новичку. Пошагово демонстрируются три этапа сайтостроения: разработка дизайна, верстка и процесс публикации готового сайта в сети.
-Для всех этапов предусмотрены упрощенные варианты, что позволит (   Читать дальше...   )Жанр: СайтостроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BFD1C5D7198CAD68F7801085F569985FEDEE66
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990450   (576914)
-
-В ад и обратно   Hell and Back (2015) DVDRip [H.264]
-
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990450.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о двух закадычных друзьях, которые должны спасти третьего участника их сплоченного коллектива после того, как тот по ошибке попал прямиком в Ад.Производство: СШАЖанр: Для взрослых, Приключения, КомедияРежиссер: Том Джинас, Росс ШуманПерсонажи: Мила Кунис, Дэнни МакБрайд, Боб Оденкёрк, Ник Свардсон, ТиДжей Миллер, Сьюзен Сарандон, Роб Риггл, Мария Бэмфорд, Лэнс БассПеревод: Двуголосый закадровый, любительскийОзвучка   Автор перевода: SinisterSoundСубтитры: ОтсутствуютПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4556234B7476ABDC3D683D67774CD09E354CCD23
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 979385   (576913)
-
-Секретные материалы   The X-Files (2016) WEB-DL [H.264 720p-LQ] (сезон 10, серии 1-6 из 6<
-
-
->>Зарубежные сериалы
->>Секретные материалы   X-Files
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_979385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США   20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилледжи, Уильям Б. Дэвис, Робби Амелл, Джоэл МакХэйл, Эндрю Моргадо, Лорен Эмброуз, Ализа Веллани, Даниэла Диб и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Татьяна Оболевич, Семён Птаха, Сергей Корчак и Олекса МельникПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B923CCF2CB45062DCDD9505BA0BA56A21C89C42
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990499   (576912)
-
-30 свиданий (2015) WEB-DLRip
-
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990499.jpg" />
-</div>
-
-
-###  Подробнее
-
-На что только не пойдешь, чтобы обрести счастье?! Невезучая Даша верит в найденный в интернете способ — в течение месяца сходить на 30 свиданий, а затем мужчина твоей мечты сам найдет тебя. Только остаться бы живой после встреч с самыми безумными кавалерами и пробовать разглядеть среди них того самого.Производство: Россия   ПЦ «Кинематограф»Жанр: Комедия, МелодрамаРежиссер: Татьяна КапитанАктеры: Наталия Медведева, Никита Панфилов, Дмитрий Богдан, Сергей Аброскин, Ирина Гринёва, Данила Якушев, Гарик Харламов, Никита Джигурда, Сергей Баталов, Ольга ТумайкинаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722921AD7D2A204EE083581242212A938AEF8BFA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990290   (576911)
-
-30 свиданий (2015) WEB-DLRip
-
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990290.jpg" />
-</div>
-
-
-###  Подробнее
-
-На что только не пойдешь, чтобы обрести счастье?! Невезучая Даша верит в найденный в интернете способ — в течение месяца сходить на 30 свиданий, а затем мужчина твоей мечты сам найдет тебя. Только остаться бы живой после встреч с самыми безумными кавалерами и пробовать разглядеть среди них того самого.Производство: Россия   ПЦ «Кинематограф»Жанр: Комедия, МелодрамаРежиссер: Татьяна КапитанАктеры: Наталия Медведева, Никита Панфилов, Дмитрий Богдан, Сергей Аброскин, Ирина Гринёва, Данила Якушев, Гарик Харламов, Никита Джигурда, Сергей Баталов, Ольга ТумайкинаПеревод: Не требуется (русский) iTunesПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641B6F3FDE6314AA65C19072C8D234027155C7E9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989104   (576910)
-
-Игорь Манн | Маркетинг без бюджета. 50 работающих инструментов (2013) [FB2]
-
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989104.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом очень практичном руководстве (ранее выпускавшемся ограниченным тиражом под названием «Без бюджета») вы найдете 50 эффективных маркетинговых инструментов, которые можно использовать в условиях ограниченного маркетингового бюджета (или его полного отсутствия). Самое ценное то, что по каждому инструменту приводится подробное описание – кому делать, что делать, (   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12739311893E7A5755141345D7BA8AA9B1C54863
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990292   (576909)
-
-Идиократия   Idiocracy (2006) HDTVRip [H.264]
-
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капрала Джо Бауэрса Пентагон выбирает для участия в сверхсекретной программе по гибернации людей. Проведя в спячке пятьсот лет, он пробуждается и попадает в цивилизацию, где интеллектуальный уровень людей намного ниже того, которым обладает он. В итоге, Джо оказывается самым умным человеком на планете…Производство: СШАЖанр: Социальная сатира, фантастикаРежиссер: Майк ДжаджАктеры: Люк Уилсон, Майя Рудольф, Дэкс Шепард, Терри Крюс, Энтони Кампос, Дэвид Херман, Сонни Кастилло, Кевин МакЭфи, Роберт Мусгрейв, Майкл МакКаффертиПеревод: Профессиональный (многоголосый, закадровый)Субтитры: отсутствуютПродолжительность: 01:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48E3021BB5395F7499BE3CFB28AE5F3C4823A99
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990525   (576908)
-
-Trine 3: The Artifacts of Power (2015) [Ru Multi] (1.11.3102) Repack =nemos=
-
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trine 3: The Artifacts of Power - продолжение красочного паззл-платформера. Вас ждёт встреча с давними знакомыми – магом Амадеем, лучницей Зоей и рыцарем Понтием. Trine 3: The Artifacts of Power – это волшебное, полное опасностей путешествие трех героев: волшебника Амадея, рыцаря Понтия и воровки Зои. Грандиозное приключение со сложными и увлекательными уровнями (   Читать дальше...   )Тип издания: RePackРазработчик: FrozenbyteЖанр: Arcade (Platform), Logic, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA73B310B774087CC75A2A92EBD5F622071E80E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989383   (576907)
-
-TheNewBoston | Фотошоп CS6   Photoshop CS6 (2014) PCRec [EN]
-
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_989383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная серия видеоуроков поможет освоить работу в графическом редакторе Adobe Photoshop на практических примерах.Жанр: Графический ДизайнПродолжительность: 19:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8000E26F512CD74F64A32AFFC7802DD3F80E7C8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989146   (576906)
-
-Вера Шварцбург | Идеальный цвет в фотографии (2016) PCRec [H.264 720p]
-
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_989146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я представляю вам курс
- ИДЕАЛЬНЫЙ ЦВЕТ В ФОТОГРАФИИ 
-в котором без лишней воды научу вас понимать механизмы работы с цветом и делать эффектную, качественную и дорогую цветокоррекцию.Жанр: РетушьПродолжительность: 05:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F24825CCBE385C552203D81212EEF9CF7CBEB5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990451   (576905)
-
-Call of Juarez: Bound in Blood (2009) [Ru] (1.1.0.0 tr) Repack =nemos=
-
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золото лишает людей рассудка, кружит им голову и разрушает любые узы, в том числе и кровные. Вам предстоит на себе испытать пленительную силу его блеска в игре Call of Juarez: Узы крови. Вместе с братьями Макколл вы отправитесь в увлекательное и смертельно опасное путешествие из разоренного гражданской войной штата Джорджия к ацтекским руинам на территории Мексики.Тип издания: RePackРазработчик: TechlandЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5ACD41D6814A6F71A922025F11914456664B29
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 987037   (576904)
-
-Семейный альбом (2016) HDTVRip (серии 1-14 из 14)
-
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_987037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятидесятые годы 20 века. СССР. Время, когда наши бабушки и дедушки были молодыми, когда молодой была страна и граждане ее верили, что еще нынешнее поколение будет жить при коммунизме. То, что сейчас кажется пафосом, было настоящей жизнью и настоящей любовью – к своей родине, к профессии, к людям, к стране.Большая семья академика Колокольцева живет на даче под Ленинградом: (   Читать дальше...   )Производство: Россия   Кинокомпания «Щука»Жанр: мелодрама, история, семейныйРежиссер: Леонид ПрудовскийАктеры: Игорь Скляр, Татьяна Черкасова, Даниил Страхов, Екатерина Олькина, Иван Шибанов, Ксения Суркова, Эра Зиганшина, Борис Романов, Евгений Сидихин, Зоя Буряк, Владимир Фридман, Владимир Матвеев, Виталий Олечкин, Вячеслав Аркунов, Роман Фёдоров, Валерия Шкирандо, Елена Лопаткина, Никита Барсуков, Ксения Алексеева, Мария Рочева и др.Продолжительность: ~ 00:53:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E305E5D833C772F5813731BA605B52E2E704CD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 968416   (576903)
-
-Теленовелла   Telenovela (2015) WEB-DLRip (сезон 1, серии 1-11 из 11) NewStudio
-
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_968416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героиня сериала — звезда испанских мыльных опер, которая на самом деле на испанском не говорит. И, более того, в ее собственной жизни ничуть не меньше, чем в теленовелле, нелепых событий и неожиданных поворотов.Производство: США   NBCЖанр: комедияРежиссер: Фред ГоссАктеры: Ева Лонгория, Амори Ноласко, Диана-Мария Рива, Сюзанн Куэст, Луис Фернандес-Хиль, Хенкарлос Канела, Джейдин Дуглас, Хосе Морено Брукс, Этан Мехер и до.Перевод: Многоголосый закадровый, профессиональный - NewStudioПродолжительность: ~ 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D9EE40BE3B026A21117448A584A9F6CAD6C27B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990220   (576902)
-
-Американский герой   American Hero (2015) HDRip [VO]
-
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелвин — супергерой поневоле, который живёт только ради лёгких денег, женщин и наркотиков. Но однажды он понимает, что единственный способ наладить отношения со своим единственным сыном — встать на путь исправления.Производство: США   Vertigo FilmsЖанр: Фантастика, Боевик, КомедияРежиссер: Ник ЛавАктеры: Стивен Дорфф, Эдди Гриффин, Bill Billions, Jonathan Billions, Андреа Коэн, Луис Да Силва мл., Кина Фергюсон, Рэден Грир, Грэйсон Килпэтрик, Йоханс МайлсПеревод: Одноголосый закадровый, любительскийОзвучка   Автор перевода: datynet   КуценкоСубтитры: ОтсутствуютПродолжительность: 01:26:16Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1564D871F0789F9C940E1E40D34486BD691DCCCA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 936325   (576901)
-
-Castle Story (2015) [En] (0.6.0) Repack John2s
-
-
->>Win Игры
->>Demo Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_936325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Castle Story - новая воксельная стратегия с элементами песочницы, в которой вы будете строить замки кирпичик за кирпичиком, и защищать их от врагов! Мир игры состоит из множества островов, парящих над бескрайними просторами океана. Игроки смогут исследовать красочный мир игры, добывать ресурсы, прокладывать тоннели и возводить строения, которые впоследствии можно (   Читать дальше...   )Тип издания: RepackРазработчик: Sauropod StudioЖанр: Strategy (Manage, Busin., Real-time), SandboxЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C6883D45F5B0544E973A6F17836647C386BB51
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990123   (576900)
-
-В сердце моря   In the Heart of the Sea (2015) BDRip [H.264 1080p] [Line]
-
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990123.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Австралия, Испания, Великобритания, Канада   Cott Productions, Enelmar Productions, Imagine EntertainmentЖанр: Приключения, Драма, БиографияРежиссер: Рон ХовардАктеры: Крис Хемсворт, Киллиан Мёрфи, Том Холлэнд, Бен Уишоу, Мишель Фэйрли, Шарлотта Райли, Брендан Глисон, Пол Андерсон, Бенджамин Уокер, Хорди МольяПеревод: Дублированный (чистый звук)Язык субтитров: Русский, АнглийскийПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847F53E958E8292D741BF0B5A26D14E33F101DE3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 979446   (576899)
-
-Секретные материалы   The X-Files (2016) WEB-DLRip (сезон 10, серии 1-6 из 6)  OMSKBIRD re
-
-
->>Зарубежные сериалы
->>Секретные материалы   X-Files
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_979446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США   20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, детектив, драмаРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилледжи, Уильям Б. Дэвис, Робби Амелл, Джоэл МакХэйл, Эндрю Моргадо, Лорен Эмброуз, Ализа Веллани, Даниэла Диб и др.Перевод: Екатерина КузнецоваПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F224FC6D802540D3BB500DD5CD7F2940F892DA9E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990246   (576898)
-
-К.Г. Жуков | Модельное проектирование встраиваемых систем в LabVIEW (2011) [PDF]
-
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал книги является учебным курсом по модельному проектированию динамических систем в инструментальной среде LabVIEW. Значительная часть книги посвящена математическому моделированию физических процессов и технических систем. Приведен математический аппарат исследования подобных систем, рассмотрены методы их анализа во временной и частотной областях. Рассмотрены (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923D7F543D0629FC87379DBBD84F499C848A4E3C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 980331   (576897)
-
-Секретные материалы   The X-Files (2016) WEB-DLRip (сезон 10, серии 1-6 из 6) NewStudio
-
-
->>Зарубежные сериалы
->>Секретные материалы   X-Files
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_980331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США   20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилледжи, Уильям Б. Дэвис, Робби Амелл, Джоэл МакХэйл, Эндрю Моргадо, Лорен Эмброуз, Ализа Веллани, Даниэла Диб и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A26015DC2C8339F0F33E688AFE9ED2C3D8FA4F1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989280   (576896)
-
-Дмитрий Федотов | Расширенный курс по портретной фотографии (2016) PCRec [H.264 1080p]
-
-
->>След.
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте какие возможности раскроет для вас профессиональная съемка людей. Этот курс включает в себя все, что необходимо знать по портретной фотографии - теория, практика, обработка, разбор работ лучших фотографов, секреты профессионалов по время работы, да и многое, многое другое ... Это самый полный и насыщенный курс по портретной съемке.
-
-Курс состоит из 5 (   Читать дальше...   )Жанр: ФотографияПродолжительность: 15:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE1D5674156A1384AD20995EB0B7B5CB167D3B7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990270   (576895)
-
-Портниха   The Dressmaker (2015) HDRip
-
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гламурная женщина возвращается в родной город, откуда уехала еще ребенком после обвинения в убийстве. Жители городка сначала не принимают ее, но постепенно она завоевывает расположение местных дам благодаря остроумию и умению кроить безупречные наряды.Производство: АвстралияЖанр: ДрамаРежиссер: Джослин МурхаусАктеры: Кейт Уинслет, Лиам Хемсворт, Сара Снук, Хьюго Уивинг, Кэролайн Гудолл, Джуди Дэвис, Керри Фокс, Ребекка Гибни, Шэйн Джейкобсон, Хейли МагнусПеревод: Двуголосый закадровый, любительскийОзвучка   Автор перевода: 2DСубтитры: ОтсутствуютПродолжительность: 01:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFE2F13D51E96B99C2C6AE506B866A990F310B7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990569   (576894)
-
-Bandicam 3.0.3.1025 RePack (& Portable) by KpoJIuK [Multi Ru]
-
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD3D86C978647CE310E84F7535B72385009E76A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 980758   (576893)
-
-Секретные материалы   The X-Files (2016) WEB-DLRip (сезон 10, серии 1-6 из 6) LostFilm
-
-
->>След.
->>Секретные материалы   X-Files
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_980758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США   20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилледжи, Уильям Б. Дэвис, Робби Амелл, Джоэл МакХэйл, Эндрю Моргадо, Лорен Эмброуз, Ализа Веллани, Даниэла Диб и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmЯзык субтитров: русский, английскийПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC998414E83BFFBC19B93444285E50C85C24905
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990535   (576892)
-
-В сердце моря   In the Heart of the Sea (2015) BDRip [H.264 720p-LQ] [Line]
-
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990535.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Австралия, Испания, Великобритания, Канада   Cott Productions, Enelmar Productions, Imagine EntertainmentЖанр: Приключения, Драма, БиографияРежиссер: Рон ХовардАктеры: Крис Хемсворт, Киллиан Мёрфи, Том Холлэнд, Бен Уишоу, Мишель Фэйрли, Шарлотта Райли, Брендан Глисон, Пол Андерсон, Бенджамин Уокер, Хорди МольяПеревод: Дублированный (чистый звук)Язык субтитров: Русский, АнглийскийПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F27233A8E97540964B8E428A756232FCA35CB79
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 979136   (576891)
-
-Секретные материалы   The X-Files (2016) WEB-DLRip (сезон 10, серии 1-6 из 6) ColdFilm
-
-
->>След.
->>Секретные материалы   X-Files
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_979136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США   20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пиледжи, Уильям Б. Дэвис, Робби Амелл, Том Брэйдвуд, Дин Хэглунд, Брюс Харвуд, Джоэл МакХэйл, Лорен Эмброуз и др.Перевод: Двуголосый закадровый, любительский - ColdFilmПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:774F94E902FB7F9F02BD7A18A6C41AA7B6FCE864
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990293   (576890)
-
-30 свиданий (2015) WEB-DL [H.264 1080p-LQ]
-
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990293.jpg" />
-</div>
-
-
-###  Подробнее
-
-На что только не пойдешь, чтобы обрести счастье?! Невезучая Даша верит в найденный в интернете способ — в течение месяца сходить на 30 свиданий, а затем мужчина твоей мечты сам найдет тебя. Только остаться бы живой после встреч с самыми безумными кавалерами и пробовать разглядеть среди них того самого.Производство: Россия   ПЦ «Кинематограф»Жанр: Комедия, МелодрамаРежиссер: Татьяна КапитанАктеры: Наталия Медведева, Никита Панфилов, Дмитрий Богдан, Сергей Аброскин, Ирина Гринёва, Данила Якушев, Гарик Харламов, Никита Джигурда, Сергей Баталов, Ольга ТумайкинаПеревод: Не требуется (русский) iTunesПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD8E2B59A63D75DCF3873EBE9B2EE20E2A91C9E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 980751   (576889)
-
-Секретные материалы   The X-Files (2016) WEB-DL [H.264 1080p-LQ] (сезон 10, серии 1-6 из 6
-
-
->>След.
->>Секретные материалы   X-Files
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_980751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США   20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилледжи, Уильям Б. Дэвис, Робби Амелл, Джоэл МакХэйл, Эндрю Моргадо, Лорен Эмброуз, Ализа Веллани, Даниэла Диб и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmЯзык субтитров: английскийПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1404F362C3CA107BB3014A7579C206432826C9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 979137   (576888)
-
-Секретные материалы   X-Files (2016) HDTVRip [H.264 720p-LQ] (сезон 10, серии 1-6 из 6)
-
-
->>След.
->>Секретные материалы   X-Files
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_979137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: СШАЖанр: фантастика, триллер, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Робби Амелл, Том Брэйдвуд, Дин Хэглунд, Брюс Харвуд, Джоэл МакХэйл, Лорен Эмброуз, Уильям Б. Дэвис, Митч Пилледжи и др.Перевод: Двуголосый закадровый, любительский - ColdFilmПродолжительность: ~ 00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB7C5E743CEFB472B3563032D883E6796064749
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990403   (576887)
-
-Помнить   Remember (2015) HDRip
-
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990403.jpg" />
-</div>
-
-
-###  Подробнее
-
-90-летний Зев, переживший Холокост, узнает, что охранник-нацист, виновный в гибели его семьи во время войны, благополучно живет в Америке под чужим именем. Зев отправляется туда вершить правосудие.Производство: Канада, ГерманияЖанр: Драма, ТриллерРежиссер: Атом ЭгоянАктеры: Кристофер Пламмер, Дин Норрис, Мартин Ландау, Джеймс Кейд, Юрген Прохнов, Генри Черни, Бруно Ганц, Натали Крилл, Питер ДаКуна, Джанет Портер, София Уэллс, Дуан МюррэйПеревод: Многоголосый закадровый, любительскийОзвучка   Автор перевода: Parovoz ProductionСубтитры: ОтсутствуютПродолжительность: 01:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC0A1270551430C6029CBDE5DB6D0BDF4AB17C9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 979144   (576886)
-
-Секретные материалы   The X-Files (2016) WEB-DL [H.264 1080p-LQ] (сезон 10, серии 1-6 из 6
-
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_979144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США, 20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пиледжи, Уильям Б. Дэвис, Робби Амелл, Том Брэйдвуд, Дин Хэглунд, Брюс Харвуд, Джоэл МакХэйл, Лорен Эмброуз и др.Перевод: Двуголосый закадровый, любительский - ColdFilmПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A35AC4FEE3C9B602BF701AEF442BE1EC089BED
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990303   (576885)
-
-Крампус   Krampus (2015) WEB-DL [H.264 1080p-LQ]
-
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990303.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о демоне, который во время Рождества выискивает непослушных детей, чтобы наказать их.Производство: США, Новая Зеландия, Universal PicturesЖанр: Ужасы, Фэнтези, КомедияРежиссер: Майкл ДогертиАктеры: Адам Скотт, Тони Коллетт, Дэвид Кокнер, Эллисон Толман, Кончата Феррелл, Эмджей Энтони, Стефания Оуэн, Криста Штадлер, Марк Аткин, Тревор ПауПеревод: Дублированный (iTunes)Продолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38354F802A1598DD086C14CFE00F7A5F72D10BA9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990138   (576884)
-
-Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated v5 (AIO)
-
-
->>3
->>37
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка не является чем-то новым и революционным. Это лишь небольшая переработка сборки Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated v4 (AIO). Изменений немного, они не очень существенны, но, тем не менее, полезны. Впрочем ниже, вы сами можете с ними ознакомиться и сделать для себя вывод, нужно оно лично вам!
-
-Работоспособность сборки по мере возможности (   Читать дальше...   )Язык интерфейса: Русский   Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63629ABD3A9F40381EF485989C2DF98541B9056
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 979128   (576883)
-
-Интерны (2016) SATRip (сезон 14, серии 1-20 из 20)
-
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_979128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некоторые люди в белых халатах уверены, что сердце - всего лишь мышца, качающая кровь. Но только не герои нового сезона «Интернов». На вверенном доктору Быкову этаже кипят пушкинские страсти: интриги, секс и любовные треугольники стали нормой жизни . А перчинки всему этому добавят шаманы в палатах, жены с почасовой оплатой и всего один, но зато настоящий пистолет. (   Читать дальше...   )Производство: Россия    Комеди Клаб Продакшн  по заказу  тнтЖанр: комедия, ситкомРежиссер: Максим Пежемский, Дина ШтурмановаАктеры: Иван Охлобыстин, Илья Глинников, Вадим Демчог, Светлана Камынина, Юлия Назаренко-Благая, Один Ланд Байрон, Светлана Пермякова, Александр Ляпин, Аглая Тарасова, Яна Гурьянова, Азамат Мусагалиев и др.Продолжительность: ~ 00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E524E87985440592459D7210297B7655A5755240
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673722   (576882)
-
-Wallpapers - Lindsay Marie [JPEG]
-
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1366х768,3000х2000Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C3F53BB457D870D9A509DD3EE49E4829306887
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673760   (576881)
-
-Эндрю Косби | Damn Nation [2005] [CBR]
-
-
->>Комиксы и Артбуки
->>Комиксы без перевода
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-The United States  borders and ports are locked down against a terrible threat. However, the barbed wire and infantries are not positioned to keep an enemy out, but to protect the rest of the world from a vampire plague that s spread over every inch of the country.
-
-Andrew Cosby, the creator of UPN s Haunted and the Sci-Fi network original series Eureka, and producer of the film version of Matt Wagner s Mage, teams with rising star and Eisner Award-nominee J. Alexander (Queen and Country) for a vampire epic of global proportions. Most of the living have fled the U.S., but a group of scientists remain behind, working on a cure. Now that they ve succeeded, a military operation is launched from the President s current offices in the U.S. Embassy in London, to save the cure from the encroaching undead-but the real motivations of the military remain in question.Формат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C163E07CAFFE045E1289DF0F26E4F40D19C70B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673849   (576880)
-
-Рэнди Пауш, Джефри Заслоу | Последняя лекция (2009) [DJVU, FB2, MOBI]
-
-
->>Художественная литература
->>Классика, Проза, Поэзия
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Что в нашей жизни действительно важно, а что - лишь бестолковая суета? Как надо жить, что делать, чтобы потом не жалеть о потерянном напрасно времени, несбывшихся мечтах, нереализованных возможностях? Очень часто мы не задумываемся об этом, плывем по течению, барахтаемся в рутине с ощущением, что впереди - масса времени. Но иногда условия игры резко меняются...
- Рэнди Пауш написал  Последнюю лекцию , когда узнал, что жить ему осталось несколько месяцев. И она в считаные дни стала национальным бестселлером (   Читать дальше...   )Жанр: Зарубежная прозаФормат: DJVU, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8521B41235BEA2069A00C23DF970B20764D6DB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673683   (576879)
-
-Google Earth Pro 7.1.1.1871 [Ru Multi] + Portable by PortableAppZ
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Google Earth - свежая сборка популярного клиентского ПО для работы с трехмерной моделью Земли, созданной на основе спутниковых снимков высокого разрешения. Используются оригинальные возможности по изменению масштаба изображений (иногда вплоть до отдельных домов), и многое другое, включая определение координат обьекта. Карту можно поворачивать под любым углом; большая часть карты - это обычные 2D-фотографии, но некоторые объекты (населенные пункты) представлены в виде трехмерных моделей. Приложение Google Планета Земля предоставляет вам все богатство фотографической, географической и астрономической информации.Язык интерфейса: Ru Multi
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673664   (576878)
-
-Объезд   Detour (2013) WEB-DLRip [VO]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Попав под оползень, Джексон Олдер оказывается пленником своего автомобиля. Оставшись без надежды на спасение, он вынужден бороться за свою жизнь…Жанр: ТриллерРежиссер: Уильям ДикерсонПродюсер: Дайан Бекер, Кэрри Легран, Мелани МиллерАктеры: Нил Хопкинс, Бри Грант, Джон Форест, Птолеми Слокам, Дэб СнайдерПеревод: Любительский одноголосый (den904)Продолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D992391CBF4697400C809C7BB6CE53A31521B0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673520   (576877)
-
-Ключи к антивирусам Касперского 27.06.2013
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Антивирусные программы и утилиты от Касперского на сегодняшний день наиболее распространенный софт в русскоязычном интернете. К сожалению, как известно за все положено платить, это касается и юзания антивируса Касперского. Все сводится к покупке лицензионных ключей для Касперского, дающие доступ к базам обновления. При отсутствии ключей, возможности антивирусов резко ограничиваются и 100% безопасность компьютера уже никто гарантировать не может. Если вам нужна гарантированная защита, тогда вы на правильном пути.Язык интерфейса: Ru
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673374   (576876)
-
-Adobe InCopy CC (v9.0) DVD [RUS ENG]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Компания Adobe полностью отказалась от распространения своих продуктов на DVD-дисках за фиксированную стоимость и перешла на распространение их по сети по ежемесячно оплачиваемой подписке. Не всем это оказалось по нраву. Среди противников новых порядков и я, ваш покорный слуга. Во многом благодаря этому, вы можете, имея эту сборку, пользоваться, как и раньше DVD-редакцией с разово применяемым лекарством!
-
-Adobe InCopy CC - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign CC для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy CC идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
-
-Adobe InCopy CC входит в состав Creative Cloud. Поэтому его пользователям доступны все последние обновления, а доступ к новым версиям предоставляется с момента их выпуска. Улучшите свои навыки и освойте новые инструменты благодаря большой и постоянно пополняемой коллекции обучающих видео. (   Читать дальше...   )Язык интерфейса: Русский   Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673831   (576875)
-
-Michel Sardou - Les grands moments (1996) [FLAC|Lossless]<Chanson, Pop>
-
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comme d habitude [04:07]
- 02. Je vous ai bien eus [03:25]
- 03. La java de Broadway [04:09]
- 04. La vieille [03:23]
- 05. Les lacs du Connemara [06:02]
- 06. Je viens du Sud [04:02]
- 07. Etre une femme [04:14]
- 08. Il etait la (le fauteuil) [04:14]
- 09. Afrique adieu [06:40]
- 10. Vladimir Ilitch [04:41](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:16:15
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673588   (576874)
-
-Mozilla Firefox Hybrid 22.0 [Русский]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Новейшая версия гибридной сборки Firefox на основе финальной версии Firefox 22.0. Данная сборка в отличии от остальных, работает гораздо быстрее и стабильнее , так как собран без интеграции сторонних компонентов. Другими словами это чистая мультипрофильная сборка для обычного пользователя, все остальное оставлено на усмотрение своего хозяина. Firefox Hybrid легко настраивается, работает параллельно с другими версиями не меняя их настройки и может запускаться с различными режимами. Все режимы работают независимо друг от друга и у каждого своя папка хранения данных.
-
-(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 672465   (576873)
-
-Юбилейный посетитель   Հոբելյանական հաճախորդ   Anniversary Client (2012) WEB- ...
-
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Фильм представляет из себя классический конфликт между мужчиной и женщиной. Проснувшаяся в результате страстных любовных игр, женщина, не имея представления о намерениях героя, продолжает любезно и заботливо относиться к незнакомцу в тоже время уже и любимому.Режиссер: Ара ЕрнджакянАктеры: Луиза Нерсисян, Давит КацараваПеревод: ОтсутствуетПродолжительность: 01:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590E5F5C9313230C33EE6CC04983A3E041F8E6BF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673570   (576872)
-
-VA - В парке Чаир: Популярные песни и музыка 30-40x годов (1995) [MP3|320 кб с]<Retro>
-
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Для тебя, Рио Рита - оркестр п у М.Вебера
-02. Утомлённое солнце - П.Михайлов, джаз-оркестр п у А.Цфасмана
-03. Снова пою - В.Козин, джаз-оркестр п у Э.Кемпера
-04. Челита - К.Шульженко, джаз-оркестр п у Я.Скоморовского
-05. Люблю - Г.Виноградов, аккордеон-джаз п у Е.Розенфельда
-06. В парке Чаир - А.Погодин, оркестр п у С.Халаджиева
-07. Если можешь, прости - И.Юрьева, инструментальный ансамбль
-08. Брызги шампанского - оркестр п у Люиси
-09. Счастье моё - Г.Виноградов, аккордеон-джаз п у Е.Розенфельда
-10. В дальний путь - П.Михайлов, джаз-оркестр п у А.Цфасмана(   Читать дальше...   )Жанр: RetroПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4FCD9DE6B7BC6B803E26DC2DBD4DC7CFA20BCEA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 911987   (576871)
-
-Компьютеры Samsung тайно устанавливают приложение, отключающее службу Windows Update
-
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_911987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таким образом компания обеспечивает корректную работу аппаратного обеспечения.Компьютеры производства Samsung, работающие под управлением ОС Windows, автоматически устанавливают свои обновления, деактивирующие нативные обновления Windows. Проблема была обнаружена специалистом по безопасности, получившим статус Microsoft MVP, Патриком Баркером (Patrick Barker) в ходе (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 912473   (576870)
-
-Полтергейст   Poltergeist (2015) HDTVRip [H.264 720p-LQ] [Line]
-
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_912473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США, Канада   Fox 2000 Pictures, Ghost House Pictures, Metro-Goldwyn-Mayer (MGM), TSG Entertainment, Vertigo EntertainmentЖанр: Ужасы, ТриллерРежиссер: Гил КинанАктеры: Сэм Рокуэлл, Розмари ДеУитт, Саксон Шарбино, Кайл Кэтлетт, Кеннеди Клементс, Джаред Харрис, Джейн Адамс, Сьюзэн Хэйард, Николас Браун, Карен ИваниПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66CDF8F7A5488A1C55B60A2FBC3E457630A7C3D4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990601   (576869)
-
-John Lemke - Nomad Frequencies (2015) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Abstract, IDM
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Elsewhere (03:27)
-02. The Unwinding (06:57)
-03. At the Dust Boutique (04:55)
-04. Vessel (05:17)(   Читать дальше...   )Жанр: Experimental, Abstract, IDM, AmbientПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628357ABAD5DB539B1EAB4939FD8664846AE362B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990932   (576868)
-
-В теме. Труба зовёт (26.02.2016) SATRip
-
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия готовит новый маршрут поставки газа в Европу. Новый маршрут предполагает подачу топлива в Грецию, а оттуда в Италию.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F39287CFAB80FE71FB6B7E7230A00EBF17FD79F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990748   (576867)
-
-Футбол. Лига Европы 2015-2016. 1 16 финала. Ответный матч. Шальке 04 (Германия) - Шахтёр (Ук
-
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990748.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 февраля 2016, четверг. 21:00 МСК
-1 16 финала. 2-й матч
-
-Стадион: Фельтинс-Арена (Гельзенкирхен, Германия) , вместимость: 61973(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE9C6D6DDD45FBD58715C57132F12B97BA2C8CF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990955   (576866)
-
-Вести в 20-00. Большие Вести. Россия HD (26.02.2016) HDTVRip [720p-LQ]
-
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990955.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».В этом выпуске: Причина трагедии на шахте — взрыв метана. Спасательная операция в Воркуте. Недруги за бугром уже готовятся к осенним выборам в России. Владимир Путин на коллегии ФСБ определил для страны главные внешние и внутренние угрозы. За несколько часов до перемирия. Кто откажется сложить оружие, с теми борьба будет продолжена.Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9BEB2844BD65942F005C8F87500920E60FFA4B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990694   (576865)
-
-Thierry Lang - Guide Me Home (2000) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop, Cool>
-
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Prelude To Sadness [05:41]
- 02.In Your Own Sweet Way [02:40]
- 03.Guide Me Home  Jazz  [04:24]
- 04.The Days Of Wine and Roses [05:04](   Читать дальше...   )Жанр: Post-Bop, CoolПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BA7F9FCF9E12C67CDA681DBFBA0E31DB1B2C6F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990684   (576864)
-
-VA - Salvacion Ibiza (2003) [FLAC|Lossless|tracks + .cue] <House>
-
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam La More - Takin  Hold (6:00)
-02. Demetreus - Better Love (5:50)
-03. Noferini & DJ Guy - A Sunny Day (5:19)
-04. Gaudino feat. Crystal Waters - Destination Unknown (5:05)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23976FCC2A27E61CB5EDCEF7AF1753C09480DC7C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990631   (576863)
-
-Футбол. Лига Чемпионов 2015-2016. 1 8 финала. Первые матчи. Обзор. (24.02.2016) HDTVRip [H.264
-
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор первых матчей 1 8 финала Лиги Чемпионов.Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 00:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E22E6C27CDB09C98CFAB9B48C9403A791D1D2C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990701   (576862)
-
-Venetian Snares - Traditional Synthesizer Music (Alternative takes and bonus tracks) (2016)
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything About You Is Ambient (02:12)
-02. You And Shayna Slow Funk v2 (03:40)
-03. Your Bounce v1 (03:29)
-04. Magnificent Stumble v1 (04:14)(   Читать дальше...   )Жанр: Breakcore, Experimental, IDMПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E498A99D769F006651739B7B222BC890430F5C9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990608   (576861)
-
-Sinbreed - Master Creator (2016) [MP3|320 кб с] <Power Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creation of Reality
-02. Across the Great Divides
-03. Behind a Mask
-04. Moonlit Night(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21442780713F4EE14B8CE19D144DDFFF2D781832
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990380   (576860)
-
-Duke Ellington - The Blanton-Webster Band (1940-1942) 3CD, 1986, Bluebird Records[FLAC|Lossless|
-
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990380.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.You, You Darlin  [03:25]
-02.Jack The Bear [03:19]
-03.Ko-Ko [02:45](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 03:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4766F486F2DB9D1B34ED91A60BBFF4196E6E0145
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990157   (576859)
-
-VA - Electric Walls: Dance Floor Vol 2 (2016) [MP3|320 кб с] <Progressive House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blend - Illusion (6:49)
-02. Evgeny Svalov - One More Life (feat James Fulton) (6:05)
-03. Proff Kaspar Kochker - One More Request (August Rush remix) (7:26)
-04. Sebastian Weikum - Gimme (Deep Lark remix) (5:52)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E085835DC9584C4DDBC802F8BF40E0C31A7868
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990843   (576858)
-
-VA - World Dance Music (2004) [FLAC|Lossless|tracks + .cue] <Trance, World & Country>
-
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rahmaj - Fly to India (1:59)
-02. Gitan Suite - Spanish Dream (1:54)
-03. Lya Cannes - Vuela Vuela (3:00)
-04. Kariber - Mueve (3:29)(   Читать дальше...   )Жанр: Trance, Folk, World, & Country, PopПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4105AE9EFD27D4F3362A1B4929BC9A23598CB5B6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990605   (576857)
-
-Л. Н. Великович | Церковь и  народный капитализм  (1962) [DJVU]
-
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990605.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге разоблачаются стремления клерикалов использовать религию для идеологической защиты капитализма, для борьбы против идей коммунизма. Автор показывает, как религиозные организации США, Западной Германии, Италии, Франции и других буржуазных стран, пропагандируя теорию «народного капитализма», маскируют антинародную сущность капитализма. В книге характеризуются (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8EEE1580A107679CAF6E6A09D99C86DF68E8DBC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990769   (576856)
-
-VA - Winter Fragment: Relax Party (2016) [MP3|320 кб с] <Chillout, Lounge, Downtempo, Ambient>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990769.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelika - My Surreal Dream (Ambient Mix) 02:41
-002. Ferry Corsten Feat. Temperheart - Not Alone (Chill Version) 04:51
-003. Moonnight Feat. Natune - I Need A New Love 03:44
-004. Dreamman Feat. York - Moonrise On The Beach 07:45(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 10:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AFECB473D536BFF686A1338B2063DF07593FAB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990824   (576855)
-
-Время покажет с Петром Толстым. Россия и Украина: информационная война (26.02.2016) SATRip
-
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно на Украине прошел национальный отбор на Евровидение - зрители отдали свои голоса певице Джамале и песне  1944 , посвященной депортации крымских татар. Украинские чиновники отзывают прокатные удостоверения у российских кинофильмов. А в России выходит в прокат фильм  8 первых свиданий , продюсер которого известен своими антироссийскими высказываниями. (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3C0E6F0B361F3C35F3662FCC9A7F41144D208A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990749   (576854)
-
-Полиция США: вооружена и опасна (2016) HDTVRip [720p-LQ]
-
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990749.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате полицейского произвола ежедневно погибают два жителя Соединённых Штатов. Наибольшее число жертв – среди чернокожего населения, но и белым американцам не всегда удаётся найти общий язык со стражами порядка.
-Пытаясь понять, в чём корень проблемы, журналист Мигель Фрэнсис Сантьяго общается с пострадавшими от неоправданного применения силы со стороны полицейских (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйПродолжительность: 00:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CE820ABE5035F4D2A5911FDF44F525D4C79CED
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990759   (576853)
-
-Вечерний Ургант. Сезон №9. Выпуск №19 (2016.02.25) SATRip
-
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны.  Вечерний Ургант  с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEB7D9D5531CEA49835E05052131C0EB9CD5517
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990695   (576852)
-
-В. Л. Секистов (ред.) | Большая ложь о войне. Критика новейшей буржуазной историографии второй м
-
-
->>Разное (категория книг)
->>Историография
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990695.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются «новые» школы и направления современной буржуазной историографии. На большом фактическом материале авторы убедительно разоблачают реакционные взгляды американских, английских, французских и западногерманских буржуазных историков и мемуаристов, их фальсификацию главных проблем второй мировой войны.Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA275CD8EE326744368BC6A4BD9AE7130DFB0F2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990765   (576851)
-
-Человек и закон (26.02.2016) SATRip
-
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Украина це Европа? Денежное дерево или тайный рог изобилия верхушки украинской власти. Откровения премьера Яценюка – мол беспокоиться нечего,  деньги в стране есть!  - нынче дорогого стоят. Иначе ЧТО проматывал бы в казино сын министра МВД Украины Авакова? А его первый зам, беременная Эка Згуладзе, отбывавшая к мужу во Францию, пыталась вывезти  наличкой ! (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F413C22E0154186334CD3DB4899F237A7572A0F0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990702   (576850)
-
-Venetian Snares - Traditional Synthesizer Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Breakcore,
-
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamt Person v3 (01:57)
-02. Everything About You Is Special (03:47)
-03. Slightly Bent Fork Tong v2 (02:27)
-04. Magnificent Stumble v2 (04:21)(   Читать дальше...   )Жанр: Breakcore, Experimental, IDMПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5639E8BD1EB42A85A8F4641F26C63473B18DC1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673744   (576849)
-
-3D PageFlip Standard 2.7.0 [Ru En]
-
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-3D PageFlip – прекрасная программа, которая легко превратит ваши PDF-файлы в реалистичные цифровые 3D журналы. С программой 3D PageFlip Standard, вы можете создать потрясающие реалистичные интерактивные 3D журналы, каталоги, брошюры, газеты или электронные книги с переворачиваемыми страницами за несколько минут, без знания Flash   HTML или навыков программирования. Также вы можете сохранить вашу цифровую 3D публикацию он-лайн, оффлайн (на ПК, iPad’е и т.д.), или даже записать её на CD  DVD или даже на USB-флэшку.Язык интерфейса: En+Ru (by Boomer)
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673713   (576848)
-
-Transmission-Qt 2.80 [Ru Multi]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Transmission — простой и свободный BitTorrent-клиент.
-Transmission — свободное программное обеспечение, большей частью под лицензией GNU GPL с небольшими фрагментами под лицензией MIT.
-Transmission, в отличие от многих других BitTorrent клиентов, использует небольшое количество системных ресурсов. Проект нацелен на создание клиента с полезной функциональностью, без излишеств. По этой причине Transmission менее функционален, чем другие клиенты. Сохранение интерфейса простым и интуитивным на всех платформах является ключевой целью дизайна.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673782   (576847)
-
-Marvel Comics | Avengers vs X-men №12 [2012] [CBR]
-
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-«Avengers vs. X-Men» (рус. «Мстители против Людей-Икс») — ограниченная кроссовер-серия комиксов, издаваемых с апреля 2012 года издательством «Marvel Comics». Сюжет серии комиксов, состоящей из 12 номеров, разворачивается вокруг возвращения Феникса на Землю и последующей войны Мстителей и Людей-Икс друг с другом. В качестве сценаристов серии выступили Джейсон Аарон, Брайан Майкл Бендис, Эд Брубейкер, Джонатан Хикман и Мэтт Фрэкшен, а в качестве художников — Джон Ромита-младший, Оливье Койпел и Адам Куберт.Формат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE63A9F1BFEA54E1FC06296F10C077665A92C382
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 624631   (576846)
-
-VA - Lovely Relax Vol. 1-5 (2013) [MP3|320 кб с]<Relax, ChillOut, Instrumental>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_624631.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Girls Band - No Word (04:58)
-02. Capozio - Serenity (03:30)
-03. Miles Davis - Wait Till You See Her (04:03)
-04. Timothy Wenzel - Birka (03:24)
-05. Duke Ellington - Sentimental Lady (04:00)
-06. Fredrik Kronkvist - Piece Of Time (07:26)
-07. Joshua Redman - Easy Living (05:31)
-08. Kendrick Scott Oracle - Liberty Or Death (06:45)
-09. Jean-Paul Prat - Fete Dieu (06:35)(   Читать дальше...   )1. Blank & Jones (With Julian & Roman Wasserfuhr) — Mind Of The Wonderful (6:28)
-2. Vitodito — Fede (5:20)
-3. Omatar — Traumland (4:24)
-4. Telepopmusik — Swamp (2:05)
-5. Lunatick Project — Old Musical Box (3:52)
-6. Blank & Jones (With Julian & Roman Wasserfuhr) — Relax Your Mind (6:24)
-7. Rob Arthur — So Peaceful (4:00)
-8. The Greg Foat Group — Girl & Robot With Flowers (7:29)
-9. Дмитрий Mаликов — О Невыполненном (3:02)
-10. Diana Panton — And I Love Him (4:44)(   Читать дальше...   )Жанр: Relax, ChillOut, Instrumental (Compiled by deep000)Продолжительность: 03:13:25
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673662   (576845)
-
-Ubuntu Gnome 13.10 Saucy Alpha I [i386, amd64]
-
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_673662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел первый тестовый релиз Ubuntu GNOME 13.10, отличающийся от основного релиза DE, в котором вместо Unity используется традиционный Gnome. Комитет по техническому развитию Ubuntu (Ubuntu Tech Board) утвердил придание сборке Ubuntu с десктоп-окружением GNOME статуса официального ответвления от Ubuntu.
-
-Ubuntu — это разрабатываемая Canonical, основанная на ядре Linux операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках и серверах. Она содержит все необходимые программы, которые вам нужны: просмотр Интернета, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других.
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673868   (576844)
-
-Пророчество   The Prophecy (1995) HDRip
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Первая война ангелов против Бога, который отдал свою любовь людям, закончилась поражением мятежников. Но никто не знал, что архангел Гавриил развязал и вторую, которая до сих пор не окончена. Своим секретным оружием Гавриил решил избрать самих людей - ну кто кроме них лучше поднаторел в войне, обмане и т.д.? И вот он ищет на Земле самую черную душу... Самая черная душа оказалась у некого полковника, ранее служившего в Корее и прославившегося там своими зверствами. Но и лояльные Богу ангелы не сидят сложа руки. Ангел Симон отправляется на Землю, чтобы спрятать черную душу полковника (он как раз преставился). Гавриил идет по пятам... Начинают погибать  люди , вернее ангелы. Со стороны полиции подключается некий Томас, который ранее хотел стать священником, но прямо на посвящении круто изменил свое решение. Он-то и поставил все кусочки мозаики на место и понял истинные мотивы участников. А тем временем Симон успевает  вселить  душу полковника в девочку и геройски сложить голову под пытками Гавриила, (   Читать дальше...   )Жанр: Ужасы, Мистика, ТриллерРежиссер: Грегори УайденАктеры: Кристофер Уокен, Элиас Котеас, Вирджиния Мэдсен, Эрик Штолц, Эдам Голдберг, Стив Хитнер, Дж. С. Куинн, Морайа Шайнинг-Дав Снайдер, Аманда Пламмер, Вигго МортенсенПеревод: Профессиональный (многоголосый закадровый) МиксМедиаПродолжительность: 01:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48648A029556E5577F78BB7523095E253F62B61
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673633   (576843)
-
-Deepak Chopra s Leela [Wii] [PAL] [Multi 3] (2011)
-
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дипак Чопра — индийский врач и писатель, всемирно известный лидер в области психотелесной медицины и возможностей человеческого организма. Deepak Chopra’s Leela — первая видео-игра, на основе его идей и является  скорее серьёзным дополнение к йоге, нежели простой забавой.
-В основу игры положена древняя система чакр, в соответствии с которой человеческое тело имеет семь энергетических центров. Через каждый из них проходит поток жизненной силы, помогающий человеку поддерживать физический, психический, эмоциональный и духовный баланс. Игра содержит ряд визуальных образов, которые используются при медитации. Яркие фрактальные изображения в этой игре помогают работе с разными чакрами, а расслабляющая музыка, под которую можно двигаться, помогает снять стресс.
-Основные цели данной игры - построение баланса души, тела и разума, а также обучение управлению внутренней энергетикой организма.Разработчик: N-Fusion Interactive   Curious PicturesЖанр: Sport PuzlleЯзык интерфейса: Формат: WBFS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7876868A9A43B06AD042B384E6503DAE6567BE45
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673607   (576842)
-
-Солист   The Soloist (2009) BDRip [720p]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Журналист Стив Лопес встречает Натаниеля Айерса, бывшего виртуозного музыканта, вынужденного играть на виолончели на улицах Лос-Анджелеса. Лопес пытается помочь бездомному вернуться к нормальной жизни, и между ними возникает уникальная дружба, которая меняет судьбу обоих.Производство: Великобритания, США, ФранцияЖанр: Драма, Биография, МузыкаРежиссер: Джо Райт   Joe WrightАктеры: Джейми Фокс, Роберт Дауни мл., Кэтрин Кинер, Том Холландер, Лиза Гэй Хэмилтон, Нелсан Эллис, Рэйчел Харрис, Стивен Рут, Лоррейн Туссен, Джастин МартинПеревод: ДублированныйЯзык субтитров: Русский (форс.), Украинский, АнглийскийПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673525   (576841)
-
-Евгений Грин | Искусство соблазнения девушек (пикап, соблазнение) [2013] [MP3]
-
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Очень подробный тренинг для новичков в теме соблазнения. Детальный разбор действий от знакомства, получение секса и особенности построения отношений.
-Серьезным плюсом данного тренинга является большое количество ответов на вопросы участников. Они покрывают все типовые вопросы как новичков, так и опытных.
-Рассматриваются все этапы соблазнения:
-1) знакомство с девушкой
-2) вызвон на свидание
-3) успешное проведение свидания
-4) доведение до секса
-5) модели построения отношений
-В VIP блоке разобрано, как навыки соблазнения внедряются на практике. Дан пошаговый алгоритм.Жанр: Соблазнение, вебинар
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A3E8D4C840E24DFC41E9C22E78EDC7DCF0A7C1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 321274   (576840)
-
-Звонят, откройте дверь (1965) DVDRip
-
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_321274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об удивительных открытиях двенадцатилетней девочки, которая по заданию любимого вожатого ищет в городе зачинателя пионерского движения. Знакомясь с самыми разными людьми, с миром сложных человеческих отношений, она незаметно взрослеет, ей открываются неведомые прежде чувства...Производство: СССР   МосфильмЖанр: Драма, СемейныйРежиссер: Александр МиттаАктеры: Елена Проклова, Ролан Быков, Владимир Белокуров, Виктор Косых, Ольга Семенова, Сергей Никоненко, Олег Ефремов, Люсьена Овчинникова, Ия Саввина, Антонина МаксимоваПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E3A117A5C7D3C8FC0298BC0B45C837CCD55A2F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673641   (576839)
-
-Проекты - Dancing Night [AEP]
-
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд-шоу, в котором вы с легкостью можете добавить свои фотографии или видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79ED8A9E1ACE741DDF5091BEE11257E9E57BDF58
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673900   (576838)
-
-Оборотень: Зверь среди нас   Werewolf: The Beast Among Us (2012) BDRip
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в небольшой деревушке девятнадцатого века. Молодой человек, изучающий врачебное дело под руководством местного доктора, решает вступить в ряды охотников за оборотнями, когда жители деревни начинают гибнуть один за другим от лап неведомого зверя. Кто он, этот монстр? Один из жителей деревни или нечто совершенно неведомое? Человек днем, чудовище ночью.Жанр: Триллер, УжасыРежиссер: Луи МорноАктеры: Стивен Бауэр, Эд Куинн, Ниа Пиплз, Стивен Ри, Золтан Бутуч, Рэйчел ДиПилло, Ана Улару, Адам Кроусделл, Гай Уилсон, Разван ГеоргиуПеревод: Дублированный + Любительский (двухголосый закадровый) den904 & DeadSnoЯзык субтитров: Русский, АнглийскийПродолжительность: 01:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0290082FF8A76FDA3BCE7D1D6B2ECB376CEBC8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673750   (576837)
-
-Почемучка (2012) DVBRip (4 сезон: 23-26 серии)
-
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Новые серии программы. Старый мудрый Процессор и два его верных помощника, Бит и Байт, снова с нами! Кроме того, в программе появились новые герои: вечно всё забывающая, не всегда оперативная Память, мудрый, много повидавший Контроллер и хитрый, озорной Вирус. Вместе с другими, уже знакомыми нам персонажами, они помогут зрителям заглянуть в удивительный мир компьютеров (   Читать дальше...   )Производство: Россия, ООО  Пилот Тэ Вэ , ВГТРКЖанр: Детский, ОбучающийРежиссер: Родион СоловьёвПеревод: ОтсутствуетПродолжительность: 4 x ~ 00:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487AB6B3376962B99B53D11391B5E725D5766A51
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 912571   (576836)
-
-Next To None - A Light In The Dark (2015) [MP3|320 кб с]<NWOAHM, Progressive Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_912571.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Edge of Sanity
-2. You Are Not Me
-3. Runaway
-4. A Lonely Walk(   Читать дальше...   )Жанр: NWOAHM, Progressive MetalПродолжительность: 01:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80AC5CCCC0AB054B5B2D44918E0F9A59B6299DF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990455   (576835)
-
-В. Аристов-Литвак, А. Штейн | Выстрел на  Скороходе . Быковщина и ее уроки (1929) [DJVU]
-
-
->>Разное (категория книг)
->>Историография
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темой взят случай, имевший место в конце прошлого года на одном из круп­нейших заводов Ленинграда. Из низмен­ных побуждений, уволенный за злостные прогулы и недобросовестное отношение к производству рабочий Быков выстрелил в мастера Степанкова, которого он считал виновником увольнения с завода. Это происшествие произвело громаднейшее впечат­ление на рабочих как „Скорохода , (   Читать дальше...   )Жанр: История, политология, правоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1EFAF3C31D7F80483B3A6C4548130D2B083C9C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990792   (576834)
-
-VA - Sunrise Lovers Vol.2: 20 Relaxing Lounge Tunes (2016) [MP3|320 кб с] <Downtempo, Chillout
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UK One - Levitate
-02. Sarah Martin - Paradise
-03. James Walden - Maria Maria
-04. Lounge Surfers - Angel(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEBE10F93AA872249E6FC7BB2A9E14C5AD9A720
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990706   (576833)
-
-XX съезд. Годовщина (2016) HDTVRip [H.264 720p-LQ]
-
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что происходит со страной после ухода диктатора? Почему у населения запроса на десталинизацию нет, а у власти он есть? Как ведет себя политическая верхушка после смерти тирана? Личная, субъективная мотивация Хрущева и объективная польза для страны. Как сохранить старую систему без нового террора? Почему так мало желающих занять первый пост в стране после Сталина? (   Читать дальше...   )Телекомпания: Россия HDЖанр: ДокументальныйРежиссер: Николай СванидзеПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD0D672B197E50C02AD35DBCEF4DAA7CA1025DA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990743   (576832)
-
-Самые шокирующие гипотезы. Кто за это ответит?  (26.02.2016) SATRip
-
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990743.jpg" />
-</div>
-
-
-###  Подробнее
-
- Самые шокирующие гипотезы  - документальный проект телеканала  Рен ТВ ! Мы дадим новые ответы на старые вопросы и зададим свои. Факты, о которых долго молчали наши коллеги-журналисты, и независимая оценка событий, изменивших мир. Расследования самых сенсационных историй и свежий взгляд на, казалось бы, общеизвестные исторические факты. Поиск (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйРежиссер: Артемий ГринчевскийПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E297BA3BE7AEC28FE7D84E0B1D54817D4ABABFC1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990438   (576831)
-
-С.С. Кутателадзе, А.М. Рубинов | Двойственность Минковского и её приложения (1976) [DJVU]
-
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена одной из основных конструкций выпуклого анализа — математической дисциплины, сформировавшейся в последние годы в рамках функционального анализа. Теория двойственности Минковского излагается для важного и широкого класса объектов, охватывающего выпуклые и сублинейные функции; выпуклые, нормальные, выпуклые по Фаию и другие множества н т. п. Приводятся (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D0C50EEFBBC02655335F5E6BCB50E89B1461A0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990819   (576830)
-
-Право голоса.  Развод по-европейски?  (26.02.2016) SATRip
-
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990819.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Евросоюз трещит по швам. Многие европейские страны заявляют, что хотят закрыть свои границы из-за миграционного кризиса. На этом фоне Великобритания добилась особого статуса в составе ЕС, но при этом продолжает говорить об отделении от объединения. Сохранится ли Европейский союз в том виде, в каком он существует?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A229D59BC5D7554F6AC073A2957C001D3A499453
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990590   (576829)
-
-Now Or Never - II (2016) [MP3|320 кб с] <Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990590.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Voice Inside
-2. Sonic Ecstasy
-3. King for a Day
-4. I Shall Remain(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D36DD1D212DEE870AA96F2D469B2E79454E41F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990343   (576828)
-
-Созданы бесцветные наночернила, позволяющие печатать цветные изображения
-
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Большинство из нас не задумывается о красителях, используемых в чернилах или порошке для цветных принтеров. Однако, в некоторых случаях, и особенно, в случае цветных лазерных принтеров, красители содержат в своем составе достаточно токсичные и канцерогенные вещества. Это, в свою очередь, несет угрозу здоровью людей, которые работают в помещениях, где установлены (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990803   (576827)
-
-Алексей Слаповский | Анкета (2016) [MP3]
-
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой - интеллигент-зануда, неженат, без постоянной работы и увлечений (кроме одного - составление кроссвордов, чем и зарабатывает на пропитание), всю жизнь возлюбленный в одноклассницу - но удовлетворённый посещениями ее раз в неделю и меланхоличным наблюдением смены ее подруг и мужей... так вот этот герой под напором сестры решает жениться и найти работу. (   Читать дальше...   )Жанр: Остросюжетный романПродолжительность: 11:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF0120AF82C1E69DF3057DFD1BE939D847D2A3B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990610   (576826)
-
-О. Л. Вайнштейн | Западноевропейская средневековая историография (1964) [DJVU]
-
-
->>Разное (категория книг)
->>Историография
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача этой книги - дать на примере четырех крупнейших стран Западной Европы конкретную картину развития феодально-церковной историографии в VI-XIII вв. и ее упадка в XIV-XV вв. (первая часть книги), а далее показать, как в эпоху Возрождения, в процессе освобождения исторической мысли от мертвящего груза средневековых суеверий и богословско-схоластических представлений, (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC31D15D0D0EA429628CC1A26F21780AA0171D16
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990719   (576825)
-
-The New Black - A Monster s Life (2016) [MP3|320 кб с] <Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Time Coming
-02. Blockbuster Life
-03. With A Grin
-04. Send In The Clowns(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1C47BB035065EB87DE9E2F107387E7B17A9C1A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990423   (576824)
-
-А.Г. Кусраев, С.С. Кутателадзе | Субдифференциальное исчисление: теория и приложения (2007) [DJV
-
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990423.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии изложены важнейшие результаты нового раздела функционального анализа — субдифференциального исчисления. Изучаются способы построения выпуклых соответствий и операторов, проблемы продолжения отображений, принципы открытости соответствий и связанные с этим свойства выпуклых операторов. Выводятся основные правила вычисления субдифференциалов и преобразований (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0D71A30717AA17A7A85FAE2ED2A5E6A19E2DC0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990435   (576823)
-
-С.С. Кутателадзе | Основы функционального анализа (2006) [DJVU]
-
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990435.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии изложены основные разделы современного функционального анализа. Особое внимание уделено теории банаховых алгебр и функциональному исчислению, теории нетеровых операторов, теории двойственности локально выпуклых пространств, выпуклому анализу, принципам банаховых пространств, теории распределений и ряду смежных вопросов.
-Более двадцати лет книга служит (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C7E41EFF7043B83F64D9E6AB3370B6D4679C97
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990439   (576822)
-
-С.С. Кутателадзе (сост.) | Монады в общей топологии (Методические указания по курсу - Основы н
-
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даются сжатые нестандартные формулировки и схемы доказательств общетопологических утверждений, широко используемых в анализе.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0E5EC474E111E8A108006B9DCB61E5D2D6DAAB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990573   (576821)
-
-VA - Triumph Italo Disco (2015) [MP3|320 кб с] <Disco, ItaloDisco, Pop>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990573.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Azoto - Exalt - Exalt
-002. Amateon - Negative Zero
-003. Eurotix - Life As It Slips Away
-004. Fancy - A Voice In The Dark (Bringing The Light Mix)(   Читать дальше...   )Жанр: Disco, ItaloDisco, PopПродолжительность: 13:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E50256041B2FBE63AEDD93370AD2E769A37F8A6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990602   (576820)
-
-VA - Sentimental Watercolor: Relax Party (2016) [MP3|320 кб с] <Downtempo, Chillout, Lounge>
-
-
->>Неофициальные сборники
->>Instrumental New Age Meditative Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kenny Laakkinen & Michelle Bourve - Dein Weg
-002. Attilio Casati - Chill Your Mind
-003. Chriss De Vynal - Take Me Back to the Music
-004. Source - Framed Profile - Curt Clever Version(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023580228C9DB619D7CC2A4C0BCEF6F7A08EF03B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990910   (576819)
-
-Не спать! Выпуск №75 (2016.02.26) SATRip
-
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990910.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 апреля в 00.30 на телеканале ТНТ состоится премьера нового шоу «Не спать!» Это будут настоящие, жесткие юмористические бои без правил с возрастным рейтингом «18+». В роли ведущего выступит резидент Comedy Club Сергей Гореликов. А судить и определять победителей будут три рефери. Среди судей можно будет увидеть Павла Волю, Вадима Галыгина, Тимура Батрутдинова, (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Вадим Галыгин, Тимур БатрутдиновСубтитры: ОтсутствуютПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F086F577F2045FDF4A4EBDD2F953FAD90A4D82B2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990811   (576818)
-
-Журнал | Сваты. Заготовки №5 (5) (Сентябрь 2015) [PDF]
-
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах. Чтобы домашние заготовки на зиму удавались и получались легко, используйте собранные в этой рубрике надежные и проверенные тысячами хозяек рецепты. С этими (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEC7F1E7418BF75E5A1BD72138390C39AEFFA64
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990821   (576817)
-
-Александр Волков | Путешественники в третье тысячелетие (1960) [FB2]
-
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990821.jpg" />
-</div>
-
-
-###  Подробнее
-
-События, описанные в этой повести, происходили совсем недавно — несколько лет тому назад. Тогда Грише Челнокову и его одноклассникам было по 12–13 лет. Естественно, что эти ребята будут жить в третьем тысячелетии, то есть в 2001 году. «Путешественники в третье тысячелетие» — так шутливо называл их учитель Иван Фомич. А пока это пионеры-пятиклассники, ваши ровесники. (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE050BB7F897D35C808171B2FC1A45E3C89C02B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990548   (576816)
-
-Журнал | Дом в саду №2 (Февраль 2016) [PDF]
-
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении  высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39DDB7E31E88B93269EF10E2874B5B8343AE5E1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673718   (576815)
-
-Xilisoft Video Converter Ultimate 7.7.2.20130619 [En Ru] RePack by elchupacabra
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Xilisoft Video Converter Ultimate - мощный и универсальный видео конвертер. Поддерживает большинство популярных видео форматов, в том числе DVD, VCD, SVCD, MOV, RM, AVI, MPEG, MPEG1, MPEG2, MPEG4, WMV, 3GP и других, извлечение аудио из видео в MP2, MP3, AC3, RA, M4A, OGG, AAC и другие форматы, пакетный режим конвертирования, предварительный просмотр во встроенном проигрывателе, выбор и настройка аудио и видео кодеков, настройка параметров конвертирования, простой и удобный интерфейс.Язык интерфейса: En Ru
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673532   (576814)
-
-Картинки - Живые фотографии [GIF]
-
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Живые фотографии всегда завораживают четкостью изображения и ненавязчивым движением, которое отличает их от обычных гифок.Формат: GIFРазрешение файлов: 338х608-800х319
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A281A6D39D3A1C7D0FD88D0573B305035C5F6B4C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673800   (576813)
-
-Порочные игры   Stoker (2013) BDRip [H.264] [AVO]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-После смерти отца к девушке и её эмоционально неустойчивой матери приезжает их загадочный дядя.Производство: Великобритания, США   Fox Searchlight Pictures, Indian Paintbrush, Scott Free ProductionsЖанр: Триллер, Драма, ДетективРежиссер: Пак Чхан Ук   Park Chan WookАктеры: Миа Васиковска, Мэттью Гуд, Николь Кидман, Дэвид Элфорд, Пег Аллен, Лорен Э. Роман, Филлис Соммервиль, Хармони Корин, Лукас Тилл, Олден ЭйренрайкПеревод: Авторский одноголосый, закадровыйОзвучка   Автор перевода: А. ДольскийСубтитры: ОтсутствуютПродолжительность: 01:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13156AC00435B668AE3E05C80A0BFC23BB4E1032
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673518   (576812)
-
-Секс по дружбе   Friends with Benefits (2011) HDRip [H.264]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня — сотрудник кадрового агентства, которую преследуют фобии в отношениях с обязательствами. Однако, эти проблемы оказываются надуманными, после того как она встречает редактора глянцевого журнала. Он, в свою очередь, устал от женщин, которые мечтают вступить с ним в связь. Таким образом, созданы все условия для бурного романа и столкновения характеров (   Читать дальше...   )Производство: СШАЖанр: Мелодрама, Комедия, ДрамаРежиссер: Уилл ГлакАктеры: Джастин Тимберлэйк, Мила Кунис, Патришия Кларксон, Дженна Элфмэн, Брайан Гринберг, Ричард Дженкинс, Вуди Харрельсон, Нолан Гоулд, Энди Сэмберг, Шон Уайт, Эндрю Флеминг, Катрин Рейтман, Кортни Хенгелер, Маси Ока, Тия Сиркар, Кристофер Т. Вуд, Эмма Стоун, Лили Мирожник, Рупак ДжиннПеревод: ДублированныйЯзык субтитров: Русские (форсированные), английскиеПродолжительность: 01:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C98516CD854B951ADD47A9458E56C870B5D47F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 670480   (576811)
-
-Волкодав (2006) BDRemux
-
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Он был обречен на гибель, но выжил, чтобы отомстить за истребление своего рода. Последний человек из племени Серых Псов стал могучим воином, называющим себя Волкодав.
-
-Избежав смерти в подземных рудниках, Волкодав пускается в путь в сопровождении своего спутника, Нелетучего Мыша. Волкодав одержим желанием покарать Людоеда, уничтожившего деревню Серых Псов.
-
-Добравшись до замка заклятого врага, Волкодав жестоко расправляется с Людоедом. Там же он освобождает двух пленников, мудреца Тилорна и рабыню Ниилит. Вместе с ними Волкодав попадает в город Галирад, переживающий смутные времена. Кнес Галирада, стремясь спасти город от разорения, сватает свою дочь Елень за молодого воина Винитара, обещающего защиту Галираду.
-
-Юной кнесинке предстоит дальняя дорога в земли будущего мужа. Она просит Волкодава стать ее телохранителем в опасном путешествии. Согласившись служить кнесинке, Волкодав оказывается втянутым в водоворот таинственных событий, проливающих свет на истинную цель поездки...Жанр: Фэнтези, Боевик, ПриключенияРежиссер: Николай ЛебедевАктеры: Александр Бухаров, Оксана Акиньшина, Александр Домогаров, Игорь Петренко, Юозас Будрайтис, Резо Эсадзе, Артем Семакин, Наталья Варлей, Татьяна Лютаева, Анатолий БелыйПродолжительность: 02:21:29
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673544   (576810)
-
-К чуду   К удивлению   To the Wonder (2012) BDRip [720p]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-После посещения Мон-Сент-Мишеля Марина и Нил возвращаются в Оклахому, где начинаются проблемы. Нил заводит роман с Джейн, а Марина изменяет мужу с Чарли. Оба — и Нил, и Марина — просят наставлений у отца Куинтаны, священника, который сам страдает от невозможности жить собственной жизнью из-за постоянного погружения в жизни своих прихожан…Производство: США   Redbud PicturesЖанр: Драма, МелодрамаРежиссер: Терренс МаликАктеры: Бен Аффлек, Ольга Куриленко, Рэйчел МакАдамс, Хавьер Бардем, Татьяна Чилин, Ромина Монделло, Тони О’Ганс, Чарльз Бэйкер, Маршалл Белл, Кэйси УильямсПеревод: Многоголосый закадровый, любительскийОзвучка   Автор перевода:  Пираты Язык субтитров: Английский (PGS)Продолжительность: 01:52:35
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673759   (576809)
-
-Отвязные каникулы   Spring Breakers (2012) BDRip [H.264]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Четыре ученицы колледжа были лучшими подругами, начиная со школьной скамьи. Теперь они живут в скучном общежитии и жаждут приключений. Впереди весенние каникулы, и очень хочется провести их весело и незабываемо. Девчонки решают подзаработать денег, чтобы хватило оторваться по полной. Правда, способ заработка денег героини выбирают не совсем обычный. Судьба сводит (   Читать дальше...   )Производство: США   Muse Productions, O  Salvation, Division FilmsЖанр: драма, комедияРежиссер: Хармони КоринАктеры: Джеймс Франко, Эшли Бенсон, Ванесса Энн Хадженс, Селена Гомес, Рэйчел Корин, Гуччи Мэйн, Хизер Моррис, Эшли Лендцьон, Эмма Холцер, Ли ИрбиПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9872452FCE2DCCE464BCD0CCBB1CA1A2BFDA54
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673674   (576808)
-
-Стрелок   Skytten (2013) BDRip [H.264] [VO]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-События фильма разворачиваются в Копенгагене в течение пяти дней. Население возмущено тем, что новое правительство нарушило обещания, которые они давали перед выборами. И теперь датские компании совместно с Соединенными Штатами начинают разработку нефтяных скважин в Гренландии. В центре событий оказывается олимпийский стрелок, ныне работающий геофизиком, который (   Читать дальше...   )Производство: Дания   Nordisk Film A SЖанр: Триллер, Драма, КриминалРежиссер: Аннетт К. ОлесенАктеры: Карстен Бьорнлунн, Ким Бодния, Марина Бурас, Кеннет Кармон, Мари-Луиза Конинк, Оле Дюпон, Ида Двингер, Трине Дюрхольм, Камилла Готтлиб, Кристиан ХалкенПеревод: Одноголосый закадровый, любительскийОзвучка   Автор перевода: viRysСубтитры: ОтсутствуютПродолжительность: 01:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE88B1AE10B7646F94CCC19AD447C7D90E371B3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673896   (576807)
-
-Adobe Bridge CC (v6.0) x86-x64 DVD [Multilingual]
-
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Adobe Bridge CC - организационная программа, предназначение которой связать части Creative Cloud вместе, используя интерфейс, похожий на файловый менеджер, который был в ранних версиях Adobe Photoshop. Он доступен практически из всех прочих приложений Creative Cloud. Adobe Bridge CC упростит вашу работу и поможет поддерживать порядок.
-
-Adobe Bridge CC предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами XMP и IPTC, добавлять водяные знаки, выставлять рейтинг изображениям, централизованно устанавливать параметры цвета и, даже, работать с разными версиями файла.
-
-Файлы изображений могут быть представлены в виде превью различных размеров, слайд-шоу или списков. Каждая помеченная папка имеет кэш-файл для ускорения времени рендеринга изображений при просмотре превью. Кэш может располагаться как в одной центральной локации, так и (   Читать дальше...   )Язык интерфейса: Английский   Венгерский   Голландский   Датский   Испанский   Итальянский   Китайский (упрощенный)   Китайский (традиционный)   Корейский   Немецкий   Норвежский   Польский   Португальский  
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673644   (576806)
-
-Проекты - VideoHive - Wedding Rings - 4485655 [AEP]
-
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_673644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wedding Rings - проект для создания свадебного фото-видео слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F919BF6D1957ED219C9921E3E5C99BE914A3EF12
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990704   (576805)
-
-Журнал | Записки шеф-повара №1 (35) (Январь 2016) [DJVU]
-
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кулинарный журнал для всей семьи. В каждом номере более 70 вкуснейших рецептов. Закуски – необычные, но простые в приготовлении. Салаты – повседневные и праздничные. Супы – оригинальные и полезные. Горячие блюда – сытные и аппетитные. Выпечка – традиционная русская. Десерты – сладкие и воздушные. Напитки – согревающие и освежающие. А также мастер-классы по самым (   Читать дальше...   )Жанр: КулинарияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6887D5FD935BA4FBD8212EDE1EA13E1F57FA1BA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990433   (576804)
-
-А.Г. Кусраев, С.С. Кутателадзе | Записки по булевозначному анализу (1984) [DJVU]
-
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990433.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии дается изложение элементов булевозначного анализа. Особое внимание уделено технике изображения множеств и соответствий в подходящих моделях. Детально излагается аппарат спусков и подъемов, а также приводятся некоторые приложения к задачам анализа.
-Пособие предназначено для студентов старших курсов, специализирующихся в области функционального анализа.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6961AA3CC1E5089AE958F469A057E19AE079AA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990877   (576803)
-
-Последний морской министр империи (2003) DVB
-
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990877.jpg" />
-</div>
-
-
-###  Подробнее
-
-В русско-японской войне наша страна потеряла почти весь свой флот. Но в 1910-м году морским министром становится Иван Константинович Григорович, а уже через четыре года наш флот возвращается в Мировой океан....Телекомпания: Россия   Центр-студия национального фильма XXI векЖанр: ДокументальныйПродолжительность: 00:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E488CCFA16984AB7A63B857C1E4C0BFD1ACC8847
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990712   (576802)
-
-Журнал | Мой уютный дом №2 (Февраль 2016) [PDF]
-
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто высоко ценит комфорт, хочет сделать свой дом красивым, находится в постоянном поиске свежих интерьерных идей и решений. Оборудование дома и квартиры, практические советы по оформлению гостиной, спальни, кухни, ванной и детской комнат. Модные тенденции в дизайне интерьера. Эксклюзивные репортажи. Мебельные новинки со всего света. Интересные и стильные (   Читать дальше...   )Жанр: Строительство, ремонт, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C864018D37D4CA764135C99A12D6E8EB8C52DC2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990875   (576801)
-
-Все вернется (2014) WEB-DLRip [H.264 1080p-LQ] (серии 1-4 из 4)
-
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если человек случайно, невзначай совершает серьезную ошибку, должен ли он быть за это сурово наказан? Где критерий его вины? Кто возьмет на себя роль судьи? Наташа Корсунова молода, красива, умна. Она с удовольствием живет в любви, понимании и уважении. Она уверена в том, что мир создан специально для нее. Ее отец — уважаемый в городе врач, он помог появиться на (   Читать дальше...   )Производство: Украина    Star Media Жанр: мелодрамаРежиссер: Алексей ЛисовецАктеры: Леонид Громов, Андрей Кузичев, Валерия Федорович, Александра Кузенкина, Валентин Томусяк и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31264BC073D9B25AD8EB13521238565A3007EFE4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990545   (576800)
-
-VA - Duo.Tone (2003) [FLAC|Lossless|tracks + .cue] <Breakbeat, IDM, Industrial, Rhythmic Noise>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Mara s Torment - Invitations And Seductions (Version) (05:56)
- 02. L Ombre - Worthless (Displacer Remix) (04:23)
- 03. S:cage - Lifeless (07:14)
- 04. Lament Configuration - Kombinant Piece (05:00)(   Читать дальше...   )Тип издания: CD, Compilation |Жанр: Breakbeat, IDM, Industrial, Rhythmic Noise |Продолжительность: 01:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1265D271B5B16315D919B898621FC8381552414E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990864   (576799)
-
-Птица в клетке (2013) WEB-DLRip [H.264 1080p-LQ] (серии 1-4 из 4)
-
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о непростой судьбе обычной девушки Стеши Терновой. Оставшись сиротой в возрасте семи лет, она невольно винит себя в смерти родителей. Ей предстоит пройти много испытаний: брак с нелюбимым, вынужденный отказ от одного из своих сыновей, борьба за жизнь второго, побег из «золотой клетки». Cтеше придется искать пропавшую дорогостоящую икону и бороться за доброе (   Читать дальше...   )Производство: Украина    Star Media Жанр: мелодрама, драмаРежиссер: Анатолий ГригорьевАктеры: Екатерина Астахова, Александр Давыдов, Иван Стебунов, Михаил Жигалов, Юрий Мосейчук, Андрей Носыхин, Александра Платонова и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BD7F133F39B353C2F73C94326559EF4BBBBF43
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990796   (576798)
-
-Paul Sills - Devas 2 - Ocean Spirits (2016) [MP3|320 кб с] <New Age, Instrumental>
-
-
->>Other Styles
->>New Age Meditative Relax
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Necksa Rising
-02. Calming Tides
-03. Drifting On Waves
-04. Etheric Weavers(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E11AA97565918A6F86927FED93DA2B133D25EA2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990691   (576797)
-
-VA - Bass Killer 3 (2016) [MP3|320 кб с] <Electro House, Dubstep, Electro>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990691.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 12th Planet & LUMBERJVCK - Name Bran (Original Mix) (4:38)
-2. Alby Loud - El Senor Dinosaurio (Original Mix) (3:37)
-3. Autoerotique - AUH (Original Mix) (3:11)
-4. Avicii - Pure Grinding (iSHi Remix) (3:26)(   Читать дальше...   )Жанр: Electro House, Dubstep, ElectroПродолжительность: 01:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119A8288E016FE2981B2B22F7F9AE2DE3DAE7231
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990682   (576796)
-
-Журнал | Домашний очаг [Россия] №2 (Февраль 2016) [PDF]
-
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый номер Домашнего Очага содержит множество ценных практических советов от экспертов: врачей, диетологов, педагогов, юристов, дизайнеров. Наряду с советами профессионалов в издании представлены и обычные люди – женщины, которые решают самые сложные вопросы и делятся своим опытом.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF237E2F1941866086D33B3E51390E8D83075FAB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990696   (576795)
-
-Журнал | Арсенал охотника №2 (Февраль 2016) [PDF]
-
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общероссийское ежемесячное справочно-информационное издание, посвященное охоте и рыбалке. Подробные сведения об используемых оснастке, оружии, технических приспособлениях, а также много другой интересной информации.Жанр: Охота и рыбалкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F15C0A28D23578EA1AD281F2EF23DF68BCF0E3B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990783   (576794)
-
-Bad Company - The Original Bad Company Anthology (1999) 2CD, Compilation [MP3|320 кб с]<Rock,
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990783.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:15] 01. Can t Get Enough
-[03:47] 02. Rock Steady
-[04:59] 03. Ready For Love
-[04:47] 04. Bad Company(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 02:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C523F921F40B620AE79787B644004CDC1F200CA6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990795   (576793)
-
-BurnAware Professional 8.9 RePack (& Portable) by D!akov [Multi Ru]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990795.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895F70B06694FD9352A5CA8D3223ED76907D2A8F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990766   (576792)
-
-VA - Great 150: Euro Popular (2016) [MP3|192-320 кб с] <EuroDance, Pop, Club>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990766.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jess Glynne - Don t Be So Hard on Yourself 03:34
-002. Sia - Blinded By Love 03:47
-003. Coldplay - Adventure Of A Lifetime 04:19
-004. Dr. Dre Ft Snoop Dogg - The Next Episode (Dj Savin Remix) 04:24(   Читать дальше...   )Жанр: EuroDance, Pop, ClubПродолжительность: 09:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82547FF89456B564E1B82BF6AD06CD22302FE4C5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990825   (576791)
-
-Обои - Computer Desktop Wallpapers Collection 1443-1444 [JPG]
-
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Довольно известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
-В данный пак вошли выпуски 1443-1444.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CAFB48171816B9C95FF87AB0F5B38780E45557D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990714   (576790)
-
-Журнал | Мой уютный дом №3 (Март 2016) [PDF]
-
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто высоко ценит комфорт, хочет сделать свой дом красивым, находится в постоянном поиске свежих интерьерных идей и решений. Оборудование дома и квартиры, практические советы по оформлению гостиной, спальни, кухни, ванной и детской комнат. Модные тенденции в дизайне интерьера. Эксклюзивные репортажи. Мебельные новинки со всего света. Интересные и стильные (   Читать дальше...   )Жанр: Строительство, ремонт, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB9517259FE4E5858139F1618F027445D933519
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990554   (576789)
-
-Boris Blank - Selected (2015) [MP3|320 кб с] <Electronic, Jazz>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Time Tunnel (05:09)
-02. The Last Mile (04:59)
-03. I Feel It Like You (feat. Malia) (03:38)
-04. Random Tox (02:42)(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2825F5D855CD85FF54EFB4ED9265AF486E767D8C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990848   (576788)
-
-PopClip 1.5.5 [Multi Ru]
-
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-PopClip предлагает достаточно удобный способ работы с текстом в Mac OS X – такой же, как в iOS. Помимо копирования, вырезания и вставки, приложение позволяет выполнять быстрый поиск в Интернете, открывать ссылки и почтовые адреса в тексте, искать определения в словаре и даже исправлять неправильно написанные слова.
-
-PopClip появляется на экране при выделении мышью (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 февраля 2016Разработчик: Nicholas MooreПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D6C2B20B11D16E3820676ADBD5EAB6EB80D60F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990653   (576787)
-
-Картинки - Венецианский карнавал-3. 4783x2698 - 5760x3240 - 30 шт [JPG]
-
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть сборника фотографий 16:9, сделанных на карнавале в красивейшем из городов мира.Формат: JPGРазрешение файлов: 4783x2698 - 5760x3240
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326DED2C3C792D261BE5A5EF4EFD30A812F19304
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990662   (576786)
-
-С.Ф. Яцун и др. | Кинематика, динамика и прочность машин, приборов и аппаратуры (2012) [DJVU]
-
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приводятся основные положения теоретической механики, сопротивления материалов, теории механизмов и машин. Рассматриваются конкретные примеры решения прикладных задач.
-Разделы пособия содержат как теоретические положения, так и конкретные инженерные решения.Материалы справочного характера дают представление о техническом уровне и возможностях элементов конструкций (   Читать дальше...   )Жанр: Материаловедение, механикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69B21E6441F6302A6181F39BFBEE69518484F51
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673877   (576785)
-
-Матрица: Революция   The Matrix Revolutions (2003) BDRip [1080p] [hand made 60fps]
-
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока армия Машин пытается уничтожить Зион, его жители из последних сил держат оборону. Но удастся ли им предотвратить полное вторжение в город кишащей орды беспощадных машин до того, как Нео соберет все свои силы и положит конец войне?Жанр: Фантастика, Боевик, ПриключенияРежиссер: Энди Вачовски, Лана ВачовскиАктеры: Кеану Ривз, Кэрри-Энн Мосс, Хьюго Уивинг, Лоуренс Фишборн, Моника Беллуччи, Мэри Элис, Танвир К. Атвал, Гельмут Бакаитис, Кейт Бихан, Френсин Белл, Рэйчел Блэкман, Генри Блейсингейм, Йен Блисс, Дэвид Бауэрс, Зик Кастелли, Колин Чоу, Эсси Дэвис, Нона М. Гайе, Дион Хорстман, Лейчи Халм, Кристофер Кирби...Перевод: ДублированныйСубтитры: Русские, EnglishПродолжительность: 02:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F377CEFFC592CBDBB3B62955FB3542350FBA729
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673711   (576784)
-
-Джек – покоритель великанов   Jack the Giant Slayer (2013) BDRip [H.264]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-История начинается с похищения принцессы, что грозит нарушить хрупкий мир между людьми и великанами. Юный фермер возглавляет вылазку в царство гигантов в надежде спасти девушку.Производство: США   Bad Hat Harry Productions, Big Kid Pictures, Legendary PicturesЖанр: Фэнтези, ПриключенияРежиссер: Брайан СингерАктеры: Николас Холт, Юэн МакГрегор, Билл Найи, Стэнли Туччи, Иэн МакШейн, Уорвик Дэвис, Эдди Марсан, Юэн Бремнер, Элинор Томлинсон, Джон КассирПеревод: Дублированный (Лицензия Blu-Ray CEE)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (форсированные, полные), АнглийскийПродолжительность: 01:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E2A70EB4530ABDC7AAAD54D20D76DFA1A65371
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673783   (576783)
-
-Эффект колибри   Hummingbird (2013) WEB-DLRip [звук с CamRip]
-
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Бывший спецназовец Джоуи Джонс пытается начать новую жизнь. Он соглашается работать на азиатскую мафию. Но проникая все глубже в криминальный мир родного города, он понимает, что не может спокойно смотреть на творящееся в нем беззаконие. Когда от рук бандитов погибает его возлюбленная Изабель, Джоуи решает восстановить справедливость. Он начинает расследование, которое ведет его на самый верх преступного синдиката.Жанр: Триллер, драма, криминал, боевикРежиссер: Стивен НайтПродюсер: Гай Хили, Пол Уэбстер, Стюарт ФордАктеры: Джейсон Стэйтем, Ли Асквит-Коу, Вики МакКлюр, Йен Пири, Бенедикт Вонг, Сенем Темиз, Шиван Хьюлетт, Пол Блэкуэлл, Агата Бузек, Эдди РубенПеревод: ДублированныйПродолжительность: 01:40:23
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673330   (576782)
-
-Adobe InDesign CC (v9.0) DVD [RUS ENG]
-
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Компания Adobe полностью отказалась от распространения своих продуктов на DVD-дисках за фиксированную стоимость и перешла на распространение их по сети по ежемесячно оплачиваемой подписке. Не всем это оказалось по нраву. Среди противников новых порядков и я, ваш покорный слуга. Во многом благодаря этому, вы можете, имея эту сборку, пользоваться, как и раньше DVD-редакцией с разово применяемым лекарством!
-
-Adobe InDesign CC - профессиональный продукт для проектирования дизайна любых печатных или Интернет изданий. Adobe InDesign CC обладает всеми прогрессивными возможностями и инструментами машинной верстки, с помощью которых можно быстро и эффективно разрабатывать дизайн страниц любой сложности. Программа поддерживает импорт рисунков и текста из самых разнообразных форматов, включая PDF и XML файлы, предлагает большой набор инструментов для редактирования импортированных материалов, куда входит работа со слоями, каскадными стилями оформления, таблицами и шаблонами.
-
-Adobe InDesign CC представляет собой универсальное (   Читать дальше...   )Язык интерфейса: Русский   Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673446   (576781)
-
-Adobe Flash Professional CC (v13.0) DVD [RUS ENG]
-
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Компания Adobe полностью отказалась от распространения своих продуктов на DVD-дисках за фиксированную стоимость и перешла на распространение их по сети по ежемесячно оплачиваемой подписке. Не всем это оказалось по нраву. Среди противников новых порядков и я, ваш покорный слуга. Во многом благодаря этому, вы можете, имея эту сборку, пользоваться, как и раньше DVD-редакцией с разово применяемым лекарством!
-
-Adobe Flash Professional CC - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Flash Professional CC также позволяет работать с растровой, векторной а так же с трёхмерной графикой используя при этом GPU . Также поддерживает двунаправленную потоковую трансляцию аудио и видео. Для КПК и других мобильных устройств выпущена специальная «облегчённая» версия платформы Flash Lite, (   Читать дальше...   )Язык интерфейса: Русский   Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673747   (576780)
-
-Перекрестие   Crosshairs (2013) SATRip
-
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Джек Верлен — талантливый убийца, и он не видит ничего зазорного в своей профессии. Во время выполнения заказа на ликвидацию продюсера порнофильмов, изуродовавшего одну иммигрантку, он получает выгодное предложение от высокопоставленного банкира, от которого совсем не просто отказаться. А на следующий день на пороге его дома неожиданно появляется его бывшая, которая обращается к бывшему бойфренду с необычной просьбой…Жанр: Боевик, Триллер, ДрамаРежиссер: Ник ЛенцПродюсер: Ник Ленц, Даррен Уоррен, Грег КукАктеры: Роберт Сиэй, Марк Ролстон, Том Сайзмор, Джефф Парис, Коди Китчен, Люк Эдвардс, Мишель Ван Дер Уотер, Сильви Кас, Зитто Казанн, Бад Уотсон, Кэролин Стотс, Кристина Кулиш, Ребекка Беренс, Дрю Брилакис, Леви Филер, Грант Мэтис, Остин МелрозПеревод: Профессиональный (многоголосый)Продолжительность: 01:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362EBE4A17D910217C07186F7D3BC9DD08736E7C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673721   (576779)
-
-Фантом   Phantom (2013) HDRip
-
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Капитан советской подводной лодки держит в своих руках судьбу всего мира. Вынужденному покинуть свою семью, ему приходится возглавить секретную миссию окутанную тайной…Жанр: ТриллерРежиссер: Тодд РобинсонПродюсер: Джулиан Адамс, Пен Деншэм, Джон УотсонАктеры: Эд Харрис, Дэвид Духовны, Уильям Фихтнер, Лэнс Хенриксен, Джонатон Шек, Джейсон Бех, Дагмара Доминчук, Дерек Магияр, Шон Патрик, Флэнери Джейсон, Грей-СтенфордПеревод: Любительский (многоголосный) (Green Tea)   Авторский (одноголосый) (А.Дольский)Продолжительность: 01:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DF68727E988944FBDD401CE62CC3CCF27864DF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673701   (576778)
-
-Cryostasis: Sleep of Reason   Анабиоз: Сон Разума (2008) [Ru En] (1.0.2.608) RePack R.G.
-
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анабиоз: Сон Разума
-Мертвый холод, тьма одиночества и забвения — в замкнутом пространстве погибшего корабля остановилось время и замерло все, что некогда было живым и разумным. Блуждая в огромном лабиринте трюмов и отсеков, наводненных страхом и отчаянием, герою предстоит узнать драматическую историю капитана и его команды и, преодолевая соблазн погрузиться в летаргию (   Читать дальше...   )Тип издания: RePackРазработчик: Action FormsЖанр: Action (Shooter)   3D   1st PersonЯзык озвучки: Русский   АнглийскийЯзык субтитров: Русский   АнглийскийЯзык интерфейса: Русский   Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13160FFC397BC8F230ECDDCECE70AFF3E93050B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 535565   (576777)
-
-[Программа] (Android 2.3.3+) jetAudio Plus 3.2.0 - Музыкальный плеер  обновлено 28.06.13
-
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_535565.jpg" />
-</div>
-
-
-###  Подробнее
-
-jetAudio это музыкальный плеер с поддержкой BBE BBE ViVA Wide Reverb X-Bass и 10 полосным эквалайзером
-jetAudio для Windows это наилучший и больше всего загружаемый плеер (по версии CNET.COM) и, вы теперь можете слушать звук очень высокого качества на вашем Андроиде.
-Плеер воспроизведет все ваши файлы (.wav, .mp3, .ogg, .flac, .m4a, .mpc, .tta, .wv, .ape, .mod, .spx и др.) в наилучшем качестве с разнообразными эффектами и улучшалками такие BBE, BBE ViVA, Wide, Reverb, X-Bass.
-В плеере 32 настройки эквалайзера, (   Читать дальше...   )Разработчик: Team JetЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673530   (576776)
-
-MultiBoot USB - конструктор 20.06.13 [Ru]
-
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-MultiBoot USB - конструктор предназначен для создания Мультизагрузочной флешки, с которой вы сможите загрузить и установить операционные системы Windows 32 и 64 bit
-и восстановительно-реанимационных утилит непосредственно с USB накопителя.Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990490   (576775)
-
-Генрих Август Винклер | Веймар 1918-1933. История первой немецкой демократии (2013) [PDF]
-
-
->>Разное (категория книг)
->>Историография
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая монография известного немецкого историка Генриха Винклера, профессора новейшей истории Берлинского университета имени Гумбольдта, посвящена судьбам Веймарской республики - первого немецкого демократического государства. Центральной проблемой фундаментального исследования выступают альтернативы развития и границы свободы действий властных элит, политических (   Читать дальше...   )Жанр: ИсториографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3B12B8E2327DEEE248F0DECB15805FA0BC96F9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 683407   (576774)
-
-Hands Like Houses - 3 Альбома (2012-2016) [FLAC|Lossless|tracks+.cue]<Alt.Rock | Post-Hardcore |
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_683407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am
-02. Perspectives
-03. Colourblind
-04. New Romantics(   Читать дальше...   )Тип издания: ДискографияЖанр: Alt.Rock | Post-Hardcore | ElectronicПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80E63E820D5666D6064DAFEF8221BE6B61D330B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990866   (576773)
-
-XMedia Recode 3.3.0.0 + Portable [Multi Ru]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990866.jpg" />
-</div>
-
-
-###  Подробнее
-
-XMedia Recode - видеоконвертер с функциями редактора (обрезка по времени, изменение размера кадра и др.), позволяет конвертировать практически любые видео и аудио файлы в один из форматов, который воспроизводится на телефонах, плеерах и других портативных носителях. Программа простая и удобная в использовании, поддерживает следующие мультимедийные форматы: 3GP, 3GPP, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFA6ECC63BE0B68762D50E8E049C8C9CF8713AB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990830   (576772)
-
-Обои - LIFEstyle News MiXture Images. Wallpapers Part 916-917 [JPG]
-
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
-В данный пак вошли выпуски из серии 916-917.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A370AB8E85834D20796904864A50E5A51BB41571
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990890   (576771)
-
-Все к лучшему (2015) WEB-DLRip [H.264 1080p-LQ] (серии 1-4 из 4)
-
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще недавно жизнь Анны была вполне благополучна: на работе она считалась лучшей сотрудницей, дома заботилась о стареньком отчиме и воспитывала 15-летнего сына Родиона, подающего надежды скрипача. И вдруг, в один миг все пошло прахом. С работы уволили по статье из-за интриг завистников, отчим скоропостижно скончался, не успев оставить завещание, и его родной сын Борис (   Читать дальше...   )Производство: Россия    ТВЦ Жанр: мелодрамаРежиссер: Алексей ПраздниковАктеры: Ольга Филиппова, Константин Соловьев, Денис Пьянов, Наталья Иохвидова, Вадим Яковлев, Наталья Щербакова, Василий Щипицын, Геннадий Меньшиков, Алексей Лонгин, Геннадий Смирнов и др.Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F077E131B2BDF51339A63AB2AD021B2CCB052FB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990775   (576770)
-
-А.М. Заездный, И.В. Гуревич | Основы расчетов радиотехнических цепей (1968) [DJVU]
-
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990775.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены вопросы теории и расчета различных линейных цепей, колебательных контуров и электрических фильтров, цепей с распределенными постоянными. Впервые излагаются вопросы применения теории графов к расчету линейных электрических цепей.
-     Отличие настоящего издания от первого заключается, главным образом, в существенном расширении материала по применению (   Читать дальше...   )Жанр: РадиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A93C1981263A2C501677AE626BDE5B257B1914
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990616   (576769)
-
-Алексей Евтушенко | Бой на вылет [сборник] (2016) [FB2]
-
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990616.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «Бой навылет» впервые собраны под одной обложкой двадцать три рассказа и две повести, которые были написаны Алексеем Евтушенко в период с 1991 года по 2016-й. Герои этих историй действуют в космосе и на Земле; в настоящем, прошлом и будущем; мире параллельном, сказочном и даже потустороннем. Надеемся, вы их полюбите.Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A2FB298C23CD297F53A336C18B9835223E6B07
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990420   (576768)
-
-Calibre - Shelflife 4 (2016) [MP3|320 кб с] <Drum & Bass>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Latin Way (5:12)
-02. Space Time (feat Cleveland Watkiss) (5:39)
-03. Model Way (5:38)
-04. Salsoul (6:45)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21385962AC284E7DC75DA7E35B13E9B83761224
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990869   (576767)
-
-Минус один (2014) WEB-DLRip [H.264 1080p-LQ] (серии 1-4 из 4)
-
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лена и Вася счастливо женаты, у них двое детей. Но бытовой конфликт приводит к череде событий, заканчивающихся грандиозной ссорой супругов. В пылу скандала они заявляют, что прекрасно проживут друг без друга. И получают такую возможность в самом буквальном смысле: теперь Лена живет в мире, в котором нет Васи, а Вася — в мире, в котором нет Лены. Все остальное остается (   Читать дальше...   )Производство: Россия    Star Media Жанр: мелодрамаРежиссер: Игорь РойзманАктеры: Иван Стебунов, Татьяна Казючиц, Артём Григорьев, Ольга Дибцева, Мария Болонкина, Афина Кондрашова и др.Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CDDB7E27231EB5DFA2FC611A63F77DEDDA854C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990784   (576766)
-
-SRWare Iron 48.0.2550.2 + Portable [Multi Ru]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безопасный, удобный и быстрый в работе браузер на основе исходного кода проекта Chromium. Обладая интерфейсом и многими функциями, знакомыми пользователям по Google Chrome, SRWare Iron отличается своей политикой по отношению к безопасности и конфиденциальности. В нем отсутствуют какие-либо «следящие» модули, в чем неоднократно обвинялся браузер от Google.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFEC4F5DD81F641E16D105C37CC2CB0F890E560
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990587   (576765)
-
-VA - Autumn Blues: Rock Version (2016) [MP3|320 кб с] <Rock Blues>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990587.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jack Bruce & Clem Clempson - Send For Me
-002. The Bluesland Horn Band - Cold Heart
-003. Zakiya Hooker, Johnnie Johnson & Bobby Murray - I Want To Hug You
-004. Bernie Marsden - Place In My Heart(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 10:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF8175CAD2A01CBC64B7C0E52E6B6758E090A0E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990709   (576764)
-
-Журнал | UPgrade №7 (757) (февраль 2016) [PDF]
-
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990709.jpg" />
-</div>
-
-
-###  Подробнее
-
-UPgrade – самый популярный еженедельный компьютерный журнал России. В нем рассматривается самые интересные новинки компьютерного железа, даются многочисленные полезные советы и рекомендации, как сделать работу на компьютере удобной и эффективной. Искрометный юмор авторов не даст вам заскучать, даже читая о сложных вещах!Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7625BD62ED35157342A0088638DD814892C4216
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990734   (576763)
-
-Mozilla Firefox 45.0 beta 10 (x86 x64) [Ru]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99CA6F579E5BCF05AFF871B685A57CC14BA94C00
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990731   (576762)
-
-Елена Атай | Узнай по лицу характер и будущее (2015) [PDF]
-
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Характер, привычки, склонности, таланты, стиль мышления, способы принятия решений – все это можно увидеть на лице человека и понять, какой путь в жизни, в отношениях, в профессии для него правильный, смоделировать оптимальное будущее. Это издание откроет вам тайны современной физиогномики, поможет не только освоить основные принципы и механизм чтения по лицам, но (   Читать дальше...   )Жанр: Самосовершенствование, социальная психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77DA982BB91306A5E350311256D27EDC993E1C6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990655   (576761)
-
-Картинки - Красоты пляжей Малибу-3. 4663x2622 - 10000x5625 - 17 шт [JPG]
-
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть сборника обоев с видами скалистого побережья Тихого океана.Формат: JPGРазрешение файлов: 4663x2622 - 10000x5625
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F829FFA4B24106AA36EAB80868D2600612C20CE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990710   (576760)
-
-Е. Ененко | Платки, шарфы, парео. 68 способов подчеркнуть свою элегантность (2012) [PDF]
-
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Платки и шарфы – это прекрасное украшение, способное создать стильный и запоминающийся образ. Оригинально завязанный платок и шарф в мгновение ока изменят ваш стиль. Благодаря этой красивой книге вы научитесь завязывать платки, шарфы и парео самыми разнообразными способами. С помощью пошаговых иллюстраций сделать это можно будет легко и просто.Жанр: Дом и семья, на досугеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CA94BA9A107105BF35B2FF281EB0E36BCECA24
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990865   (576759)
-
-Птица в клетке (2013) WEB-DLRip [H.264 720p-LQ] (серии 1-4 из 4)
-
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о непростой судьбе обычной девушки Стеши Терновой. Оставшись сиротой в возрасте семи лет, она невольно винит себя в смерти родителей. Ей предстоит пройти много испытаний: брак с нелюбимым, вынужденный отказ от одного из своих сыновей, борьба за жизнь второго, побег из «золотой клетки». Cтеше придется искать пропавшую дорогостоящую икону и бороться за доброе (   Читать дальше...   )Производство: Украина    Star Media Жанр: мелодрама, драмаРежиссер: Анатолий ГригорьевАктеры: Екатерина Астахова, Александр Давыдов, Иван Стебунов, Михаил Жигалов, Юрий Мосейчук, Андрей Носыхин, Александра Платонова и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9F657DDC529FE31332F275AC38F27A50380BD8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990431   (576758)
-
-Г.П. Акилов, С.С. Кутателадзе | Упорядоченные векторные пространства (1978) [DJVU]
-
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена теории упорядоченных векторных пространств— одному из наиболее актуальных разделов современного функционального анализа. В ней дается систематическое независимое изложение математического аппарата соответствии, упорядоченных множеств, пространств Канторовича и связанных с ними линейных операторов. Особое внимание уделено прикладным аспектам упорядоченных (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2277AB03A9BF30A429FAFC1821BBCD580329551F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990604   (576757)
-
-VA - Заводной музон в дальнюю дорогу 2 (2016) [MP3|256 кб с] <Pop, Dance>
-
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S E V E R - С Тобой Или Одному (One Love) 03:36
-02. Selena Gomez ft Fetty Wap - Same Old Love 03:25
-03. Мохито - Слезы Солнца 03:24
-04. Jakwob Feat. Rationale - No Place Like Home 03:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F85F29A3132BD3BE2F7F6A3DE0E367B2048072
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990767   (576756)
-
-Н. А. Перфильева, В. С. Журавлева (ред.) | Египет. Справочная карта (1981) [JPG, PDF]
-
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990767.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Египта с административным делением (масштаб 1:2 000 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными (утеряна).(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7B8F75CBA7210AB378E23226CDA7A71C8467FE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990908   (576755)
-
-Верю - не верю. Филиппины (26.02.2016) SATRip
-
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любители путешествий, Андрей Бедняков зовет вас в увлекательный тур по невероятным странам! В места, где раньше никто и никогда не был. В уголки планеты, которые хранят вековые тайны. По городам, о которых вы нигде больше не узнаете. Бородатый ведущий с прекрасной эрудицией проведет эксклюзивную экскурсию по местам вашей мечты. О каждом из них он расскажет пять интересных (   Читать дальше...   )В этом выпуске: Несмотря на то, что Филиппины находятся в Азии, здесь не покидает ощущение, что где-то за углом находится арена для корриды. Это бывшая испанская колония. И от испанцев здесь остались не только песо. Андрей Бедняков расскажет пять историй, но только одна из них, по традиции, окажется неправдой.Телекомпания: Пятница!Жанр: ТелепередачаПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7425FE822FA7A856A88FE428487E2B58D240A40
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 984627   (576754)
-
-Саскачеван   Saskatchewan (1954) DVDRip [H.264] [VO]
-
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_984627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пересекая границу на «земли Великой Матери» после разгрома Кастера, сиу сформировали альянс с кри, что заставило королевскую конную полицию конфисковать их оружие и боеприпасы. Красные Куртки транспортируют конфискованное оружие в отдаленный форт терпя столкновения с индейцами на этом пути.Производство: Канада, США   Universal International Pictures (UI or U-I)Жанр: Приключения, ВестернРежиссер: Рауль УолшАктеры: Алан Лэдд, Шелли Уинтерс, Дж. Кэролл Нейш, Хью О’Брайан, Роберт Дуглас, Джордж Дж. Льюис, Ричард Лонг, Джей Сильверхилс, Антонио Морено, Фрэнк ЧейзПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CADE66837F698C6882D6371A636E4C9F44EA6C1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990536   (576753)
-
-Л. Н. Колосова (ред.) | Дания. Общегеографическая карта (1989) [JPG, PDF]
-
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990536.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Дании с административным делением (масштаб 1:750 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2131AC5D57307FF6323E6EFFECAD3E2CDF2E5F2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990640   (576752)
-
-Прокофьев - Piano Sonatas nos. 2 & 9, Pieces (Svyatoslav Richter) (2012) [FLAC|Lossless|trac
-
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata no. 2 in D minor, op. 14
-01 (1) Allegro ma non troppo
-02 (2) Scherzo. Allegro marciato
-03 (3) Andante(   Читать дальше...   )Жанр: Классическая музыка, Classical, Modern, Romanticism, Piano, SonataПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE49BF7553D266B6C819E31B83CDF2398DD9172
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990429   (576751)
-
-Е.И. Гордон, А.Г. Кусраев и др. | Инфинитезимальный анализ (2001) [PDF]
-
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инфинитезимальный анализ — один из наиболее разработанных разделов, составляющих нестандартные методы анализа. В его рамках получили строгое обоснование метод неделимых и монадология, восходящие к глубокой древности. В монографии подробно излагаются теоретико-множественные формализмы, позволяющие использовать актуальные бесконечно большие и бесконечно малые величины. (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0637561EA3581BC9167C3121BE1634966A16B4B0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990644   (576750)
-
-С. Иванова (сост.) | Пироги и пирожки. Закрытые и открытые, маленькие и большие (2014) [PDF]
-
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рецепты пирогов из бисквитного, песочного и слоеного теста
-Пироги закрытые с фруктами, ягодами и овощами
-Преимущества песочного теста
-Что можно добавить, чтобы улучшить вкусовые качества пирога(   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B23C877B0F6E84179CFA49ED9370B5EB91800EF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990857   (576749)
-
-Тайна в их глазах   Secret in Their Eyes (2015) BDRip [576p] iPad
-
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привычное течение жизни дружной команды федералов нарушает страшная трагедия: жестоко убита дочь следователя Джесс… Доказательств недостаточно, и подозреваемого приходится отпустить. Но Рэй, напарник Джесс, безнадежно влюбленный в их начальницу, не оставляет попыток докопаться до истины. И вот спустя десятилетие появляется шанс раскрыть тайну гибели девушки. У правосудия, (   Читать дальше...   )Производство: СШАЖанр: Триллер, детективРежиссер: Билли РэйАктеры: Чиветель Эджиофор, Николь Кидман, Джулия Робертс, Дин Норрис, Альфред Молина, Джо Коул, Майкл Келли, Зои Грэм, Патрик Дэвис, Эйлин ФогартиПеревод: Дублированный (iTunes)Субтитры: Английские,  Английские SDH (полные, отключаемые)Продолжительность: 01:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61687078AD52D3397469F103ACCA3E1456B8D05
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 186658   (576748)
-
-Discovery: Понимание: Лёд   Understanding: Ice (1998) TVRip
-
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_186658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во власти льда создавать и разрушать ландшафты, давать и отбирать жизнь. Жизнь безо льда невозможна, но только в последние годы ученые начали постигать его суть.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990958   (576747)
-
-BurnAware Professional 8.9 RePack (& Portable) by KpoJIuK [Multi Ru]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский   Английский   Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8359DD7B83AEE75F405EC571BBA05851FE677DF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 186652   (576746)
-
-Discovery: Понимание: Тоннели   Understanding: Tunnels (2004) TVRip
-
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_186652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная жизнь человека теснейшим образом связана с тоннелями, по которым проходит энергия и вода, транспортные линии коммуникации.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990876   (576745)
-
-Все вернется (2014) WEB-DLRip [H.264 720p-LQ] (серии 1-4 из 4)
-
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если человек случайно, невзначай совершает серьезную ошибку, должен ли он быть за это сурово наказан? Где критерий его вины? Кто возьмет на себя роль судьи? Наташа Корсунова молода, красива, умна. Она с удовольствием живет в любви, понимании и уважении. Она уверена в том, что мир создан специально для нее. Ее отец — уважаемый в городе врач, он помог появиться на (   Читать дальше...   )Производство: Украина    Star Media Жанр: мелодрамаРежиссер: Алексей ЛисовецАктеры: Леонид Громов, Андрей Кузичев, Валерия Федорович, Александра Кузенкина, Валентин Томусяк и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413485FD4F84E23545E37918FA880A30703D0E1A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 186630   (576744)
-
-Discovery: Понимание: Астероиды   Understanding: Asteroids (2004) TVRip
-
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_186630.jpg" />
-</div>
-
-
-###  Подробнее
-
-65 миллионов лет назад падение астероида на Землю привело к планетарной катастрофе, в результате которой вымерли динозавры. Возможно ли  повторение трагедии и что мы можем противопоставить этой угрозе?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 186677   (576743)
-
-Discovery: Понимание: Дорожное движение   Understanding: Traffic (2004) TVRip
-
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_186677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничто не вызывает у человека столько раздражения, сколько дорожные пробки, способные вывести из себя кого угодно. О проблемах дорожного движения.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990884   (576742)
-
-Эленора Валкур | Цикл «По Праву Дара и Крови» [2 книги] (2016) [FB2]
-
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авантюрные, искрометные романы в стиле фэнтези с неожиданными поворотами, неподражаемым юмором, яркими героями, любовными треугольниками, конечно, драконами и борьбой за свободу и справедливость.
-
-Юная героиня романа Мия Погорельская много лет скрывала истину о своем королевском происхождении. Но обстоятельства складываются таким образом, что оставаться в тени больше (   Читать дальше...   )Жанр: Героическая фантастика, Фэнтези про драконов, Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECDC305106CF09B3BD7768FDE01AC58351C8645
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990841   (576741)
-
-Обои - 100 Best Wallpapers 6 1920x1080 [JPG]
-
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990841.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 Best Wallpapers в формате Full HDФормат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7255C66B21E1ABA6F835A0CC80B353B571106657
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990812   (576740)
-
-Проекты - RocketStock - Decorum [AEP]
-
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF485C541D14003C84FDC2D55D41E72E18D8356
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990650   (576739)
-
-Slimjet 8.0.1.0 Portable by CheshireCat [Multi Ru]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slimjet - быстрый и безопасный веб-браузер на основе Chromium и движка Blink с набором удобных функций, которые позволяют упростить веб-серфинг при посещении любимых сайтов в Интернете и загрузки различного веб-контента.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30770930159F8E4AD3847F999580228C5B0E463
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990791   (576738)
-
-WinUtilities Professional Edition 12.32 [Multi Ru]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990791.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinUtilities Pro – это знаменитый набор инструментов для оптимизации и ускорения работы Вашего компьютера. Более 20  инструментов (26) для увеличения производительности и стабильности работы компьютера. Программа предлагает лёгкий и простой в использовании интерфейс, разделённый на категории.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BEB388438B7E703417DE14AB8F66EBD77D0F6D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990676   (576737)
-
-Звуковые библиотеки - Bluezone Corporation - Deep Tech Minimal [WAV, AIFF]
-
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bluezone Corporation предлагает новую коллекцию сэмплов - Deep Tech Minimal. Если Вам нужен богатый источник звукового контента для стилей Deep House, Tech House and Minimal House, то этот набор то, что вам нужно. В составе 59 музыкальных петель, петли ударных, электронной перкуссии, синтезаторов, а также 38 одиночных сэмплов. Есть еще и 16 звуковых эффектов.Формат: WAV, AIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A24DE86CB701F8BED5BE75FEAFF1F110D788E7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 186447   (576736)
-
-Discovery: Понимание: Шансы в жизни   Understanding: The Oddsin Life (1999) TVRip
-
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_186447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удача - случайность с хорошим исходом, неудача - та же случайность, но с противоположным результатом. Может ли человек не зависеть от случайностей?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674257   (576735)
-
-VA - Club Storm Champion (2013) [MP3|320 кб с]<House, Trance, Progressive>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Ottaviani With Eric Lumiere - Love Will Bring It All Around 05:13
-02. Denis Sender & Artem Dultsev Feat Anet - A Life Lived (Radio Edit) 03:01
-03. Danilo Ercole - Player One (Gai Barone Remix) 08:17
-04. Damian Wasse - Night Of Love (Original Mix) 06:56
-05. Dart Rayne And Yura Moonlight And Sarah Lynn - Silhouette (Dub Mix) 06:23
-06. Dezza - California 14 (Radio Edit) 03:45
-07. Farhad Mahdavi - First Kiss (Chill Out Mix) 06:40
-08. John Tejada - Somewhere (Original Mix) 07:12
-09. Jerome Feat. Ace Young - Dont Walk Away (Radio Edit) 03:16
-10. Lemon3 - Takedown (Frankox Taking It Down Remix) 05:15(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 07:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C5CF12A0EA72FFD4E5112F7F4607289E3E1397
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674057   (576734)
-
-VA - City Cafe Lounge (2013) [MP3|320 кб с]<Lounge, Trip-Hop, Jazzy>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Tosca feat. Stephan Graf Hadik Wildner - Rolf Royce
-02. Zofka - Parfum Vanille
-03. Gabin feat. Z-Star - Slow Dancin  Dans La Maison
-04. Massivan - 2B@1 With The World
-05. JoJo Project - Volcano
-06. Louie Austen - One Night In Rio
-07. Variety Lab - London In The Rain
-08. Naomi - How Many Loves
-09. Smooth - Smooth
-10. Shirley Bassey - Love Story (Where Do I Begin) (Away Team Mix)(   Читать дальше...   )Жанр: Lounge, Trip-Hop, JazzyПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780C527891F4C5E64323E773746BC99CAC686815
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674003   (576733)
-
-Sundial Aeon - Wolfsberg (2012) [FLAC|Lossless]<Psybient, Ambient, Downtempo>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfsberg (Original Mix) (9:17)
- 02. Wolfsberg (Crankshaft Remix) (6:22)
- 03. Wolfsberg (Remix Feat. L-Wolf) (8:28)
- 04. Wolfsberg (Kadasarva Remix) (8:59)
- 05. Wolfsberg (Itoa Remix) (9:47)
- 06. Wolfsberg (Lackluster Bodily Rigidity Remix) (4:09)
- 07. Wolfsberg (Sonic Saturation Remix) (5:42)
- 08. Iced Melancholy Spectacle (X-Ceed Remix) (Bonus Track) (5:04)Жанр: Psybient, Ambient, DowntempoПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674303   (576732)
-
-MediaCoder 0.8.23.5530 [Ru Multi]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-MediaCoder является универсальным программным медиа транскодером, активно развивающимся и поддерживающимся с 2005 года.  Он соединяет большинство ультрасовременных аудио видео технологий в одно решение с самыми обширными параметрами, позволяющими Вам брать полный контроль над Вашим транскодированием. MediaCoder позволяет увеличить компрессию видео- и аудиофайлов для уменьшения размеров файла, способен извлекать аудиотреки из видеофайлов, предоставляет возможности для конвертирования видео в VCD DVD-форматы, может производить конвертирование аудио без заметной потери качества, умеет создавать копии CD  на лету . Позволяет проводить пост обработку, может обработать различные задания в пакетном режиме, вести аудио фильтрацию (ресемплинг, нормализация уровня и т. д.).Язык интерфейса: Русский Multi
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674111   (576731)
-
-VA - Markus Schulz - Global DJ Broadcast Top 20 June 2013 (2013) [MP3|320 кб с]<Trance>
-
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Harry Square - Royal Flush (Original Mix)
-02. Digital X - Raptor (Original Mix)
-03. Orjan Nilsen - Violetta (Original Mix)
-04. Hypnotic State - Jovian Planet (Original Mix)
-05. Vinny Troia - Fade Into You (Jerome Isma-ae & Ilan Bluestone Remix)
-06. Rex Mundi - Hidden Treasures (Original Mix)
-07. Lange - Risk Worth Taking (Radio Edit)
-08. Dave Schiemann - Heartless (Original Mix)
-09. Cosmic Gate - Storm Chaser (KhoMha Remix)
-10. Phulk D - Beyond (Andrew K Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A4F36B0D3FBEAADD4A99767D57095B1DA54E03
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674082   (576730)
-
-Lionville - 2 Альбома (2011, 2012) Japanese Edition [FLAC|Lossless]<Melodic Hard Rock, AOR>
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_674082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here By My Side [4:15]
-02. With You [4:58]
-03. Centre Of My Universe [4:23]
-04. Thunder In Your Heart [3:36]
-05. The World Without Your Love [5:00]
-06. Power Of My Dreams [4:57]
-07. No End In Sight [4:26]
-08. The Chosen Ones [4:28]
-09. Over And Over Again [3:38]
-10. Dreamhunter [4:09](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674051   (576729)
-
-EmEditor Professional 13.0.3 Final [Ru Multi]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-EmEditor это быстрый, легкий, расширяемый, легкий в использовании текстовый редактор для Windows.
-EmEditor быстро запускается и легко выполняет все операции. В скорости запуска, открытии файлов, поиска и замены EmEditor превосходит большинство других текстовых редакторов. EmEditor поддерживает юникод (UTF-16, UTF-8 и UTF-7) и множество международных кодировок.
-EmEditor Professional способен открывать очень большие файлы — до 248 Гбайт или до 2,1 миллиарда строк — даже на ПК со скромным объёмом памяти, открывая часть файла с помощью управления крупными файлами. Есть возможность вертикального выделения текста. Для EmEditor доступны подключаемые плагины.Язык интерфейса: Русский Multi
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990496   (576728)
-
-Abjective - Into The Labyrinth (2016) [MP3|320 кб с] <IDM, Experimental, Ambient>
-
-
->>Electronic
->>IDM
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seraphim Separator (03:09)
- 02. Into The Labyrinth (05:51)
- 03. esSense (03:42)
- 04. Summoning Of The Muse (06:07)(   Читать дальше...   )Жанр: IDM, Experimental, AmbientПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438ED10C73AE156082F9F13308D73FD4498D47ED
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990627   (576727)
-
-Евгений Сухов | По следам гениального грабителя (2016) [MP3]
-
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банда Степана Шабанова совершает ограбление крутого московского банка. Преступники действуют по наводке, и все проходит без сучка без задоринки. «Шабановцам» удается вынести из хранилища партию алмазов стоимостью в несколько миллионов долларов и беспрепятственно скрыться. Но удача на этом заканчивается. Вскоре одного из участников банды арестовывают, а на остальных (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB10E853653D251CD294FF30CEBFE5B1859DB44C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 988559   (576726)
-
-Импровизация   Камеди Клаб   Комеди Клаб   Comedy Club (12.02.2016) WEB-DL [H.264 720p]
-
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_988559.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморПродолжительность: ~ 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039824D4381551451501E7FC1B3310A30D242888
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990924   (576725)
-
-Голос. Дети (2016.02.26) HDTV [H.264 1080i] (сезон 3, выпуск 2)
-
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990924.jpg" />
-</div>
-
-
-###  Подробнее
-
- Первый канал  представляет премьеру третьего сезона музыкального проекта  Голос. Дети . Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес  Первого канала , музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в слепых (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79539B570159126250846CB67B7CED0B8718515B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990808   (576724)
-
-Елена Савчук | Эколифтинг лица: как выглядеть на 10 лет моложе (2015) [FB2]
-
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как продлить молодость лица легко и безопасно? Об этом вы узнаете из книги-практикума Елены Савчук «Эколифтинг лица: как выглядеть на 10 лет моложе». Книга написана на основе личного авторского опыта и раскрывает секреты, с помощью которых Елене удалось значительно улучшить собственное отражение в зеркале.
-В книге вы найдете набор простых и эффективных приемов эколифтинга, (   Читать дальше...   )Жанр: Красота и здоровье, косметические процедурыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E669495E2C35210A179ABD6557222F26F2C628C1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990846   (576723)
-
-Терри Пратчетт и др. | Наука Плоского мира. Книга 2. Глобус (2016) [FB2]
-
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приклю… ой, извините, научные изыскания многоуважаемых волшебников Незримого Университета на забавном Круглом мире продолжаются.
-
-Увлекшись изучением законов, по которым существует «ошибка эксперимента», волшебники не сразу заметили, что чудаковатая планета населена не менее интересными «существами». Что впрочем, неудивительно – последние вовсю прятались от эльфов. (   Читать дальше...   )Жанр: Зарубежное фэнтези, Книги про волшебников, Юмористическое фэнтезиПеревод: Артем АгеевФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4CA6390E2CAEAF923A54FDBFA3297D8DF3D1A7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990753   (576722)
-
-Роман Глушков | Пленники Диргана (2016) [FB2]
-
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Ржавый Клык».
-
-Далекое будущее…
-Планета Дирган покрыта вечными льдами и заселена кровожадными тварями. Попытки ее колонизировать с треском провалились, колонисты бежали в ужасе и отказались возвращаться. Именно на эту проклятую планету в результате кораблекрушения занесло космического скитальца Ржавого Клыка и его товарищей. Клыку выживать не (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA830C9180C51C6B3FA4AB466FBA2542EB356F17
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990556   (576721)
-
-Звуковые библиотеки - Bluezone Corporation - Drum and Bass DJ Tools [WAV, REX2, AIFF]
-
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bluezone Corporation возвращается с новым набором передовых барабанов и басов, DJ Tools для производителей которые ищут тщательно отобранные звуки ударных.Формат: WAV, REX2, AIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB509DE63D15BDF4867F4421D653A874E935840
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990636   (576720)
-
-А.Байжанова (ред.) | Учимся готовить пироги и другую выпечку (2015) [PDF]
-
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга создана для тех, кто хочет научиться легко и с удовольствием работать с различными видами теста, мастерски владеть искусством выпечки и баловать своих близких домашними пирогами, пирожками и булочками! Здесь вы найдёте рецепты всех основных видов теста и множество идей для их употребления. Все рецепты распределены по трём уровням сложности, это поможет (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2EC824722889F522C75C49933A1E8A25127E7C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990946   (576719)
-
-Эдуард Асадов | Полное собрание стихотворений в одном томе [сборник] (2016) [FB2]
-
-
->>Художественная литература
->>Классика, Проза, Поэзия
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любое из стихотворений Эдуарда Асадова – торжество смелых и благородных чувств, борьба за бескомпромиссную, трепетную и чистую любовь.
-Книга представляет собой полное собрание стихотворений, уже более полувека любимых читателями.Жанр: ПоэзияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFC832308555306B042C577AF391E2011191919
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990851   (576718)
-
-Александр Мустафин | Биология. Для выпускников школ и поступающих в вузы (2015) [DJVU]
-
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Включает в себя краткий теоретический материал по всем темам ЕГЭ по биологии (цитологии, размножению и развитию организмов, основам генетики и селекции, эволюции и экологии, ботанике, зоологии беспозвоночных и позвоночных, анатомии и физиологии человека). Обращено внимание на органическую взаимность биологии и медицины. Помимо фактического материала содержит элементы (   Читать дальше...   )Жанр: БиологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7805F06CD391C8584DAA8D4F155179AB70091105
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990823   (576717)
-
-Звуковые библиотеки - Bluezone Corporation - Tech House World [WAV, AIFF]
-
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет, созданный AV-продакшн студии состоит из сложных петель, ориентированных на минимализм Tech-House. Tech House World обеспечивает прочную основу для получения оригинальных композиций. Подходящие стили FOT, такие как: Deep, Tech и Tribal House, Minimal, Techno и Trance.Формат: WAV, AIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F72D4B5B0E28C59F238E9566CEBB3ECEC41D22
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990873   (576716)
-
-Проекты - Pond5 - Steam Presentation - 37519691 [AEP]
-
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361DE372073331784FFF3374F54AD9E4AF6A44A5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990716   (576715)
-
-Сердцеедки   Heartbreakers (2001) BDRip [H.264 720p] [hand made 60fps]
-
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_990716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очаровательная интриганка Макс Коннерс и ее прилежная ученица (она же — дочь) Пейдж — отличная команда. Некоторые матери учат своих дочерей музыке, танцам и этикету, а Макс передала Пейдж все, что узнала сама за многие годы об авантюрах, мошенничестве и обольщении. Отсутствие капитала, по их мнению, — лишь временное явление, легко поправимое при помощи мужчин...Производство: США   Metro-Goldwyn-Mayer (MGM)Жанр: Мелодрама, комедия, криминалРежиссер: Дэвид МиркинПеревод: Дублированный, профессиональный (многоголосый закадровый)Язык субтитров: Русский (Full), Английский (Full)Продолжительность: 02:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BC6B2C48BC3734593E1B571137292AA33E6BDC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990703   (576714)
-
-Как заниматься любовью по-английски   How to Make Love Like an Englishman (2014) AC3 5.1 [hand
-
-
->>Остальное
->>Звуковые дорожки и субтитры
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма вращается вокруг профессора Кембриджского университета, избравшего в качестве своего девиза изречение уайльдовского лорда Генри из «Портрета Дориана Грея»: «Единственный способ отделаться от искушения - уступить ему». Но однажды в жизни героя появляется молодая женщина, ради которой он решает пересмотреть личные приоритеты и подавить гедонистические (   Читать дальше...   )Жанр: Мелодрама, КомедияПеревод: Дублированный(центральный канал line)Продолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B314750F68F43FAD5B1FE5B0643063173E674703
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990872   (576713)
-
-Минус один (2014) WEB-DLRip [H.264 720p-LQ] (серии 1-4 из 4)
-
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лена и Вася счастливо женаты, у них двое детей. Но бытовой конфликт приводит к череде событий, заканчивающихся грандиозной ссорой супругов. В пылу скандала они заявляют, что прекрасно проживут друг без друга. И получают такую возможность в самом буквальном смысле: теперь Лена живет в мире, в котором нет Васи, а Вася — в мире, в котором нет Лены. Все остальное остается (   Читать дальше...   )Производство: Россия    Star Media Жанр: мелодрамаРежиссер: Игорь РойзманАктеры: Иван Стебунов, Татьяна Казючиц, Артём Григорьев, Ольга Дибцева, Мария Болонкина, Афина Кондрашова и др.Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F6C16A7FD383B62E3DAE9DFAEB8DCB5E28D584
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990931   (576712)
-
-Рецепты азиатской кухни v1.2.1 [Ru Multi]
-
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990931.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нашей кулинарной книге собраны наиболее интересные и вкусные рецепты азиатской еды. Присутствуют такие кухни как:
-* Японская кухня
-* Китайская кухня
-* Вьетнамская кухня(   Читать дальше...   )Тип издания: Free и Ad-Free (удалена реклама)Релиз состоялся: 20.02.2016Разработчик: ObertechПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский   Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B83F35CDC0119D25A8F69143CABA87928CFC56
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990414   (576711)
-
-Чапаев (1934) DVDRip [H.264] [hand made colored]
-
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990414.jpg" />
-</div>
-
-
-###  Подробнее
-
-По повести Дмитрия Фурманова.
-Василий Иванович Чапаев (Борис Бабочкин), командир 25-ой дивизии Красной армии, готовится к решающему сражению с отборными частями каппелевцев, возглавляемых опытным кадровым офицером, полковником Бороздиным (Илларион Певцов). Партия присылает ему на помощь Дмитрия Фурманова (Борис Блинов) – молодого, но образованного и умного комиссара, (   Читать дальше...   )Производство: СССРЖанр: Военный, Драма, ПриключенияРежиссер: Георгий Васильев, Сергей ВасильевАктеры: Борис Бабочкин, Борис Блинов, Варвара Мясникова, Леонид Кмит, Илларион Певцов, Степан Шкурат, Вячеслав Волков, Николай Симонов, Борис Чирков, Сергей Васильев, Георгий Жженов, Михаил Ростовцев, Андрей Апсолон, Степан Крылов, Георгий Васильев, Михаил Гипси, Виктор Яблонский, Э. Галль, Константин НазаренкоПродолжительность: 01:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D6EE0DF74A84321554B792F8DAF549717C2AF6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990853   (576710)
-
-Роберт Сальваторе | Компаньоны (2016) [FB2]
-
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман межавторского цикла «The Sundering».
-
-Погибший в Гаунтлгриме Бренор Боевой Молот попадает в Ируладун, волшебный лес богини Миликки, и с изумлением встречает там давно умерших Кэтти-бри, Реджиса и Вульфгара. Кэтти-бри, уже долго находящаяся в Ируладуне вместе с Реджисом, объясняет, что богиня дарует им всем второй шанс: они родятся вновь, чтобы оказать (   Читать дальше...   )Жанр: Зарубежное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC0F9B707F486FABBE0B19553F1AFB6BBAABC59
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 455952   (576709)
-
-Миссия для героев. Пожарные 2   Missione eroica. I pompieri 2 (1987) DVDRip
-
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_455952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда пожарников Италии передана под командование одного полностью сумасшедшего эксперта из Америки, однажды решающего погасить скважину нефти с помощью нитроглицерина.Производство: Италия   C.G. Silver Film, Maura International Films, ReteitaliaЖанр: КомедияРежиссер: Джорджо КапитаниАктеры: Паоло Вилладжо, Лино Банфи, Массимо Болди, Кристиан Де Сика, Тео Теоколи, Люк Меренда, Франка Гонелла, Франка Сканьетти, Кларита Гатто, Коррадо ОльмиПеревод: Одноголосый закадровыйПродолжительность: 01:28:37
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 671488   (576708)
-
-Hayley Westenra - Hushabye (Deluxe Edition) (2013) [MP3|320 кб с]<Classical Crossover, Сel
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Little Horses (03:41)
-02. Hushabye Mountain (03:09)
-03. Dream A Little Dream (03:22)
-04. Sleep On (Feat. Catrin Finch) (02:29)
-05. Twinkle Twinkle (03:47)
-06. Go To Sleep (01:55)
-07. Brahms Lullaby (03:17)
-08. Goodnight My Angel (03:41)
-09. All Through The Night (04:02)
-10. Baby Mine (03:55)(   Читать дальше...   )Жанр: Classical Crossover, СelticПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674063   (576707)
-
-Advanced Batch Converter 7.6 [Ru Multi]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Расширенный пакетный конвертер делает именно то, что предполагает его название, а именно позволяет вам легко конвертировать несколько графических файлов нажатием одной кнопки. Более того вы также можете редактировать изображения непосредственно в Расширенном пакетном конвертере, для получения различных эффектов (изменение размера, поворот, флип, зеркало, обрезка, фильтры, водяные знаки, эффекты морфинга , работа с цветом и т.д.).
-Программа поддерживает 44 форматов файлов в которые вы можете конвертировать: bmp, dib, rle, gif, jpg, jpeg, tif, tiff, png, pcx, pcc, dcx, tga, wmf, emf, ico, pbm, jng, jp2, j2k, ps, eps, pdf, wbmp, psd, wap, raw, pcd, cin, dot, dpx, fits, fpx, hdf, miff, pict, sgi, sun, vicar, viff, hdp, wdp, xbm and xpm. Исходный файл может быть практически любого формата, так как программа имеет поддержку для более чем 180 типов файлов.
-Преобразование изображений становится все более необходимым в современном мире мультимедиа и эта программа - мощный вариант для выполнения подобных задач.Язык интерфейса: Русский Английский Немецкий
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673426   (576706)
-
-VA - Dubstep radiohits vol.1 (2013) [MP3|128 кб с]<Dubstep>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Aerosmith - Dream On (Daphutur Bootleg) [00:05:09]
-02 .Bassnectar - Color Storm [00:07:24]
-03. BluprintZ - AFTER [00:05:09]
-04. Cyberoptics - Geisha - Total Recall Remix [00:04:36]
-05. DemonDubz - Fi-Tek [00:02:31]
-06. Digital Insomnia - Jack Nife [00:04:32]
-07. Direct - I Think I m Gonna Die [00:06:18]
-08. Drey Songz - Nothing (Kexx Remix) [00:03:16]
-09. DUBSurce - Squeeze [00:04:44]
-10. Ganja White Night - Kali Mist (feat. MC Xander) [00:06:20](   Читать дальше...   )Жанр: DubstepПродолжительность: 02:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80F5F27372C14116C3C2382A5F53E08E334F1E5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673925   (576705)
-
-DVDFab 9.0.4.7 Final RePack by elchupacabra [Ru En]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-DVDFab – многофункциональное приложение для копирования оптических дисков с возможностью гибкой обработки видеопотока. Способна копировать, разбивать, пережимать и конвертировать DVD-диски. Уберет любую защиту с диска и при желании пережмет диск большой емкости и вместит его в обыкновенную пустую DVD болванку с минимальными потерями качества (DVD9->DVD5) или разобьет фильм на два диска с полным переносом его меню, удалит всю рекламу, запишет только фильм и т.д.
-Имеет понятный многоязычный интерфейс.
-
-(   Читать дальше...   )Язык интерфейса: Русский,Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674213   (576704)
-
-Bola - Soup (1998) [Original Release] [FLAC|Lossless]<IDM, Downtempo, Ambient>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Glink (07:06)
-02. Versivo (07:51)
-03. W.I.K. (05:46)
-04. Forcasa 1 (06:29)
-05. Forcasa 2 (04:49)
-06. Forcasa 3 (05:25)
-07. Pendulus (05:45)
-08. Amnion (09:32)
-09. Aguilla (06:24)
-10. Whoblo (013:51)Жанр: IDM, Downtempo, AmbientПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673833   (576703)
-
-Armin van Buuren - A State Of Trance 619 (2013) [MP3|256 кб с]<Trance>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Alex M.O.R.P.H. feat. Sue McLaren - From The Universe With Love (Steve Brian Remix)
- 02. Luke Bond feat. Stephy – Holding On
- 03. Shogun feat. Tania Zygar – Find Me
- 04. Armin van Buuren – Pulsar
- 05. Vast Vision - Shadow (Digital X Remix)
- 06. The Blizzard & Daniel van Sand feat. Julie Thompson - Made For You (Gal Abutbul Remix)
- 07. Almer - Things We Do (LTN Remix)
- 08. Illuminor - Misplaced Me
- 09. Aneym & Nitrous Oxide – BelieverЖанр: TranceПродолжительность: 01:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E114CED4CF78D62B13A0903FEEF37F309CB8DC69
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673898   (576702)
-
-Spain - 2 альбома (1995-2012) [FLAC|Lossless]<Indie Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_673898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only One [05:44]
-02. Without A Sound [05:03]
-03. Because Your Love [03:39]
-04. I m Still Free [04:19]
-05. I Love You [06:06]
-06. All I Can Give [05:42]
-07. Walked On The Water [04:37]
-08. Sevenfold [04:36]
-09. Miracle Man [03:54]
-10. Falling [05:53](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673860   (576701)
-
-Flotsam And Jetsam - Ugly Noise (2013) [FLAC|Lossless]<Thrash Metal>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Ugly Noise 4:10
-02. Gittyup 3:09
-03. Run And Hide 5:28
-04. Carry On 4:19
-05. Rabbits Foot 4:17
-06. Play Your Part 5:29
-07. Rage 3:24
-08. Cross The Sky 4:44
-09. Motherfuckery 3:07
-10. I Believe 2:53(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673715   (576700)
-
-VA - Miles Espanol: New Sketches of Spain (2011) [FLAC|Lossless]<Jazz, Latin>
-
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Chano Dominguez - Spantango [10:25]
-02. Sonny Fortune - Flamenco Sketches [07:10]
-03. Nino Joseles - Tirititran Catalan [04:56]
-04. John Scofield - El Swing [07:01]
-05. Gonzalo Rubalcaba - Momento [05:15]
-06. Edsel Gomez - Teo   Neo [08:59]
-07. Nino Joseles - Beautiful Love [07:31]
-08. Lou Marini - Solea [07:14]Жанр: Jazz, LatinПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674284   (576699)
-
-Ben Wolfe - From Here I See (2013) [FLAC|Lossless]<Jazz>
-
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01.  The Good Doctor  (6:33)
-02.  Angela  (6:32)
-03.  Baby Tiger  (6:25)
-04.  Interlude  (1:47)
-05.  So Lovely  (5:41)
-06.  Mellow As You Please  (4:39)
-07.  Lovely Lady  (2:02)
-08.  Who s Lily?  (4:09)
-09.  How You Love  (6:22)
-10.  Two-Beat Numba  (5:57)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674195   (576698)
-
-VA - Toolroom Records: Ibiza 2013 (2013) [MP3|~245 кб с (V0)]<Tech House, Deep House, Prog
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie Disco Squad - Werkk
-02. Hot Since 82 - Mr Drive
-03. Citizen - Stronger With You (Waze & Odyssey Street Tracks Remix)
-04. Breach - Let s Get Hot
-05. Eats Everything - Hevvie
-06. Doorly - Drongoism
-07. Jay Lumen - Spin Like Fire
-08. Mike Vale Feat. Stella Mercury - Don t Give A Damn (Wehbba Mix)
-09. UMEK & Mike Vale - Fluid Feel
-10. Pete & The Fox - Identity(   Читать дальше...   )Жанр: Tech House, Deep House, Progressive HouseПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDBFBCFDF1BA36C35D6149DBC1C4AFA0ACA4250
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674089   (576697)
-
-VA - Electro Life 26 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Progressive House>
-
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Acsourse - Circles (Original Mix) (4:37)
-02. Andalo ft. St.James - Touch The Sky (Club Edit) (5:32)
-03. Antonio Mellifluous ft. Andrew Mastilias & Syntheticsax - Concert Lovers (Radio Edit) (3:13)
-04. Avicii - X You (Original Version) (6:51)
-05. Bootik & Silvertongue - In My Head (Original Mix) (4:46)
-06. DJ Shevtsov & VIA Sirius - Дыши глубже (Original Mix) (6:01)
-07. Flo Rida - Let It Roll (Pavel Velchev Remix) (4:24)
-08. Fort Minor - Whered You Go (Adam Young & Owl City Remix) (3:42)
-09. Helsinki pres. Bass Camp - The Crown (DJ JIM Remix) (5:34)
-10. Jack Holiday & Mike Candys - Children (Radio Edit) (3:05) ...Жанр: Electro House, Progressive House, House, DubstepПродолжительность: 01:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4AE2BC9A1890FF7885FBAFD52BBAAA520C5BC7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674194   (576696)
-
-Advanced Installer 10.3 Build 51779 RePack by loginvovchyk [Ru]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Advanced Installer - это мощное и простое в использовании средство для создания программ установок в формате MSI   EXE за считанные минуты. Решение Advanced Installer основывается на использовании стандартных открытых форматов. Файлы проектов сохраняются в формате XML, что упрощает их интеграцию с системами управления исходными текстами. Advanced Installer - профессиональный инструмент для создания MSI-установщиков приложений под операционные системы Windows.
-Программа крайне проста в использовании (для своего уровня), все взаимодействие с ней осуществляется через удобный интерфейс, так что вам не придется изучать большое количество документации и писать сложных скриптов - каждое действие логично и интуитивно выполняется через систему внутренних команд. Созданные проекты сохраняются в формате XML для дальнейшего использования. Если к примеру взять в сравнение Wise, InstallShield и другими программами для создания MSI-пакетов, Advanced Installer имеет гораздо более понятный интерфейс, с помощью которого Вы создадите (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 989995   (576695)
-
-Двенадцать стульев   Dvanact kresel (1933) DVDRip [H.264] [hand made colored] [POL]
-
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_989995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пражский парикмахер Фердинанд Зуплатко получает письмо, в котором сообщается, что умершая в Варшаве тетушка оставила ему наследство. Бросив все, Фердинанд уезжает в Польшу, но в пустом доме, который, к тому же, был заложен, находит только 12 потрепанных стульв. Не долго думая, он отдает стулья в антикварный магазин, а ночью находит записку, в которой тетушка сообщает (   Читать дальше...   )Производство: ПольшаЖанр: Комедия, Приключения, Мьюзикл, КриминалРежиссер: Мартин Фрич, Михал ВашыньскиАктеры: Власта Буриан, Адольф Дымша, Зула Погоржельска и др.Перевод: ОтсутствуетЯзык субтитров: РусскийПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EADE0602EA733A1FF232057926ECDD398DEA7FD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990800   (576694)
-
-Discovery. Техногеника. Ледоколы (2016) HDTVRip [720p-LQ]
-
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_990800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техногеника — это серия документальных фильмов, каждый из которых посвящен одному из наиболее значимых для России и уникальных в мировом контексте памятников (или объектов) технического инженерного искусства, объектов, значение которых для развития нашей страны переоценивать невозможно, объектов, создание которых обогатило опыт всей человеческой цивилизации.
-Наш (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FE02093AB4FE8BAF7E794791AEFF0070BA4CB1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990657   (576693)
-
-Звуковые библиотеки - Bluezone Corporation - Advanced Minimal Techno [WAV]
-
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Minimal Techno предлагает Вам Minimal и Techno сэмплы с массивной дозой Electro. Новый сборник звуков от Bluezone Corporation дает богатое и комплексное звучание, основанное на стилях Electro и Fidget House. В наборе содержатся 291 петель и сэмплов, включая ударные, музыкальные петли, перкуссию, синтезаторы, звуковые эффекты и одиночные сэмплы.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963A2812D2723747802475BC8FCDE1DDACBCB496
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990891   (576692)
-
-Все к лучшему (2015) WEB-DLRip [H.264 720p-LQ] (серии 1-4 из 4)
-
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще недавно жизнь Анны была вполне благополучна: на работе она считалась лучшей сотрудницей, дома заботилась о стареньком отчиме и воспитывала 15-летнего сына Родиона, подающего надежды скрипача. И вдруг, в один миг все пошло прахом. С работы уволили по статье из-за интриг завистников, отчим скоропостижно скончался, не успев оставить завещание, и его родной сын Борис (   Читать дальше...   )Производство: Россия    ТВЦ Жанр: мелодрамаРежиссер: Алексей ПраздниковАктеры: Ольга Филиппова, Константин Соловьев, Денис Пьянов, Наталья Иохвидова, Вадим Яковлев, Наталья Щербакова, Василий Щипицын, Геннадий Меньшиков, Алексей Лонгин, Геннадий Смирнов и др.Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38E30839D1DBA10C6C32CBC6CAC455A79058062
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990600   (576691)
-
-The Qemists - Warrior Sound (2016) [MP3|320 кб с] <Drum & Bass, Alternative, Breaks, Drumstep,
-
-
->>Electronic
->>Drum n Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our World (0:58)
-02. Jungle (feat. Hacktivist) (3:35)
-03. Run You (4:22)
-04. Anger (feat. Kenta Koie) (4:28)(   Читать дальше...   )Жанр: Drum & Bass, Alternative, Breaks, Drumstep, Electro, HouseПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E2D164A364869D08D294B2BCD14A177539AF78
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990863   (576690)
-
-Проекты - VideoHive - Cowboy Style Opener [AEP]
-
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу в стиле дикого запада.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A08CC7A3F623ACD965589E3808503C1F5071D18
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990801   (576689)
-
-Aiseesoft Blu-ray Player 6.3.20 RePack by D!akov [Ru En]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Blu-ray Player - универсальный в работе  все в одном , медиа проигрыватель для PC. Он способен воспроизвести разные Blu-ray диски с очень высоким качеством. Этот удивительный плеер, может воспроизводить не только blu-ray диски, но и все популярные видео и аудио форматы, а также ISO-образы. Он надежен и прост в применении.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A3DA76060B06C3906FDA2DB23F7D70A6901FD1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990620   (576688)
-
-Альбина Сидорова (ред.) | Учимся готовить завтраки (2016) [PDF]
-
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990620.jpg" />
-</div>
-
-
-###  Подробнее
-
-О пользе завтрака известно всем: это первый прием пищи, который зарядит вас энергией и даже задаст настроение. Поэтому не стоит пренебрегать завтраком или обходиться сухими бутербродами. Мы научим вас вкусным и полезным утренним блюдам, которые легко готовить и приятно есть! А для стопроцентного вдохновения мы снабдили рецепты «вкусными» фотографиями и подробно описали (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A440A2F47D270DA5E00D50F6DD403FD40DC2ECB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990892   (576687)
-
-Журнал | Радиоаматор №2 (263) (февраль 2016) [PDF]
-
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Радиоаматор» - увлекательный путеводитель в мир радио для тех, кто ради увлечения либо по роду своей профессиональной деятельности работает в эфире, занимается разработкой и ремонтом разнообразных радиоэлектронных устройств. Это журнал для тех, кто привык работать со схемой на столе и с паяльником в руках, кто своим призванием считает практическую радиоэлектронику. (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5BE8B63BB64620B4903D595C9F2813F9E17881
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990151   (576686)
-
-Ночь в музее 2   Night at the Museum: Battle of the Smithsonian (2009) BDRip [H.264 1080p]
-
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990151.jpg" />
-</div>
-
-
-###  Подробнее
-
-кспонаты Музея Естественной истории живут обычной жизнью. По коридорам бегает скелет динозавра, герои гражданской войны сражаются друг с другом, древние люди добывают огонь, миниатюрные ковбои выясняют отношения с древними Римлянами, Теодор Рузвельт философствует о смысле жизни и ухаживает за индианкой. Никто из этой разношерстной компании даже не представляет, что (   Читать дальше...   )Производство: США, КанадаЖанр: Фэнтези, комедия, приключенияРежиссер: Шон ЛевиАктеры: Бен Стиллер, Эми Адамс, Оуэн Уилсон, Хэнк Азария, Робин Уильямс, Кристофер Гест, Ален Шаба, Стив Куган, Джон Бернтал, Билл ХейдерПеревод: ДублированныйЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498A1D1BB1A2C2C20C67EA513132739719F205FA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 370039   (576685)
-
-Discovery: Каннибализм. Последний запрет   Cannibalism. The Last Taboo (2002) SATRip
-
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_370039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расследование телеканала Discovery посвящено теме каннибализма. Что заставляло древних людей есть себе подобных? По словам академика Брэдфордского университета, доктора Тимоти Тайлора, люди достаточно недавно отказались от практики поедания друг друга.  Мне кажется, что именно тот факт, что мы живем в мире, где приобретение еды не является проблемой, и есть (   Читать дальше...   )Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FA23F584016141E6B93E5FAB5A83A7A84826203
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990806   (576684)
-
-Векторный клипарт - Festive Fireworks [EPS]
-
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фейерверк в векторе.
-25 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3824ABC2E82DFBD6AD06C1A16D29332D41C0FB04
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990622   (576683)
-
-Дьявол   Diablo  (2015) BDRemux [H.264 1080p] [EN   EN, Fr Sub]
-
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вестерн о молодом ветеране с «поствоенным» стрессовым расстройством. Отправившись по следу похищенной жены, он снова сталкивается с теми ужасами, которые пережил на фронте.Производство: США, Канада, Space Rock Studios, Diablo MovieЖанр: боевик, триллер, приключения, вестернРежиссер: Лоуренс РёкАктеры: Скотт Иствуд, Уолтон Гоггинс, Камилла Белль, Адам Бич, Хосе Суньига, Ци Ма, Жоаким ди Алмейда, Дэнни Гловер, Грег Лосон,  Уильям БеллоПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французскийПродолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D9CE25B6DE4E556C1DE74D567F1047A8E9B271
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 186672   (576682)
-
-Discovery: Понимание: Авиа-диспетчерская служба   Understanding: Air Traffic Control (2004) TV
-
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_186672.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире каждые четыре секунды в  воздух поднимается самолет. В небе пилот подчиняется голосу авиа-диспетчера. Во время одной рабочей смены этот человек берет на себя ответственность за жизни большего числа людей, чем хирург за всю свою практику.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990894   (576681)
-
-Алекс Ланг | Пробуждение (2016) [FB2]
-
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Мир в Кубе».
-
-Недалекое будущее…
-Игровая индустрия развивается бешеными темпами. Суперпопулярным стал Мир в Кубе. За вознаграждение игроки со стажем предлагают обычным его пользователям свою помощь: прохождение квестов, добыча артефактов, решение сложных вопросов. Такие люди называют себя хэлперами. Однажды одному из них, по имени Ал, предложили (   Читать дальше...   )Жанр: Боевая фантастика, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DFA08FD5ECDF2DC5686617B70170341BBC972A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990833   (576680)
-
-Голос. Дети (2016.02.26) SATRip (сезон 3, выпуск 2)
-
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990833.jpg" />
-</div>
-
-
-###  Подробнее
-
- Первый канал  представляет премьеру третьего сезона музыкального проекта  Голос. Дети . Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес  Первого канала , музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в слепых (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:408272F4EF1DACA74B7E742257C9AE704F85C6AC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990780   (576679)
-
-Импровизация   Камеди Клаб   Комеди Клаб   Comedy Club (26.02.2016) SATRip (выпуск 4)
-
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990780.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64F59C5A5FB8D86CBBB681D1C38D6EBD456F4107
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990959   (576678)
-
-Импровизация   Камеди Клаб   Комеди Клаб   Comedy Club (26.02.2016) WEB-DL [H.264 720-LQ
-
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990959.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1117A8B8135FAA5F6F2E8CE718D46412B18C0E20
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990035   (576677)
-
-Кто-то теряет, кто-то находит!   Finders Keepers, Lovers Weepers! (1968) DVDRip [H.264] [VO]
-
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_990035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два джентльмена решают взять кассу стриптиз-бара, владелец которого, Пол Локвуд, любит проводить свое свободное время с проститутками, а еще у него есть жена — бывшая стриптизерша, которая после очередной ссоры с полупьяным супругом сбегает от него танцевать стриптиз в его же стриптиз-бар, кассу которого решили взять два джентльмена…Производство: США   Eve Productions Inc.Жанр: Драма, Криминал, ЭротикаРежиссер: Расс МайерАктеры: Энн Чэпман, Пол Локвуд, Гордон Весткурт, Дункан МакЛеод, Роберт Раделсон, Лэвэлл Роби, Жан Синклер, Джои Дюпрез, Памела Коллинз, Джон ФурлонгПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BF104B0A96A9B72C2E513ADA7961047A82679F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 990893   (576676)
-
-Антон Брежестовский | Ван Гог и хомячки, и еще 38 вкусных ломтиков английского на каждый день (201
-
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_990893.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом уникальном учебном пособии ключевые грамматические темы и лексические тонкости представлены в виде мини-уроков, которые можно освоить за 10-15 минут. Многолетний преподавательский опыт и тонкое чувство юмора позволяют автору просто и занятно рассказывать обо всем, что нужно знать, чтобы говорить по-английски. Понятные объяснения, запоминающиеся примеры и эффективные (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F08B07799BA613E0E3A71D7FA9AB05A5A1615E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 659649   (576675)
-
-X-In June - 2 albums (2012-2013) [MP3|~260 кб с (V0)]<EBM, Elektro-Pop>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_659649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven On Earth
-02. Holy Parter
-03. Under The Cowl
-04. Howling Creatures
-05. Summer s End
-06. The Thief
-07. Mechanical Soul
-08. Desert Planet
-09. Stones Of Victim
-10. Revolution(   Читать дальше...   )Жанр: EBM, Elektro-PopПродолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B1F9C72CF33F9810CD59EDB32D96775831A4E1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674233   (576674)
-
-LS · Банк 2.00 от 28.06.2013 [Ru]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Учет операций по банку организации или индивидуального предпринимателя.
-Осуществляется выписка платежных поручений и требований, а также ввод выписок по банку с одновременной разноской по корр.счетам. В наличии печать ведомостей расшифровки по дням и клиентам, оборотная ведомость и ведомость операций.Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 673899   (576673)
-
-Kalmah - Seventh Swamphony (2013) [FLAC|Lossless]<Melodic Death Metal>
-
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Seventh Swamphony (05:10)
-02. Deadfall (03:51)
-03. Pikemaster (05:03)
-04. Hollo (07:20)
-05. Windlake Tale (04:28)
-06. Wolves On The Throne (04:35)
-07. Black Marten s Trace (04:45)
-08. The Trapper (06:02)Жанр: Melodic Death MetalПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674200   (576672)
-
-CPU-Z 1.65.0 Portable by loginvovchyk [Русский]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется  разогнанность  процессора. Кроме того, информация о кэшах первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием скрывают неодинаковую «начинку» – различные ядра с разными степпингами, возможностями, разными частотами при одинаковом рейтинге, произведенные по разным техпроцессам и т. д. Часть этих данных можно было бы получить, изучив надписи на крышке процессора, но они, как правило, надежно скрыты в системном блоке под кулером и слоем термопасты. Поэтому значительно более удобным способом получения подобной информации будет применение утилиты CPU-Z.
-
-(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 674000   (576671)
-
-Mac Blu-ray Player 2.8.8.1274 Final [Ru Multi]
-
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Blu-ray Player – это лучший, всемирно известный Blu-ray-плеер, который легко и на высокой скорости проигрывает все медиа форматы. С помощью уникальной технологической инновации AirX, Blu-ray Player может легко проигрывать любое Blu-ray видео на iPhone   iPad   iPod touch. Выдающаяся возможность расшифровки и простой интуитивно понятный интерфейс позволят вам получить настоящее удовольствие от просмотра видео в качестве Blu-ray HD.
-
-(   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-нет
 ```
 
 #Mybot  @nnmclub_mybot

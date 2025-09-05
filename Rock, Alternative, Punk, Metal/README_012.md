@@ -1,4 +1,277 @@
 
+###  Публикация: 1130354   (446707)
+
+Uriah Heep - Look At Yourself (1971) 2CD, Remastered, 2017, Sanctuary Records [FLAC|Lossless|ima
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1130354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look At Yourself 5:10
+02. I Wanna Be Free 4:00
+03. July Morning 10:33
+04. Tears In My Eyes 4:59(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DEE4FD4EB96A4E46F329B107E038FABF2E67B37
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1130726   (446705)
+
+Abyssphere - На Пути К Забвению (2017) [MP3|320 Kbps] <Dark Metal, Doom Metal, Melodic Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1130726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Двери
+2. Прозрение
+3. Один Во Тьме
+4. Carthago Delenda Est(   Читать дальше...   )Жанр: Dark Metal, Doom Metal, Melodic MetalПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC6A6443EE541AAB4646F810A0800192F997C70
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1130384   (446691)
+
+Deep Purple - Infinite (2017) +6 bonus tracks [FLAC|Lossless|image + .cue] <Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1130384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time For Bedlam 04:35
+02. Hip Boots 03:23
+03. All I Got Is You 04:42
+04. One Night In Vegas 03:23(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2CFED80ABB755D7593449F130FE464DB5F6958
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 829789   (446686)
+
+Mob Rules - Timekeeper: 20th Anniversary Boxx (2014) [MP3|320 кб с]<Melodic Power Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+CD 1 - THE BEST:
+Продолжительность: 00:52:22
+01. Temple Fanfare 2:24
+02. Pilot of Earth 2:49
+03. Black Rain 5:42
+04. Among The Gods 7:33
+05. In The Land Of Wind and Rain 6:05
+06. Hollowed Be Thy Name 5:49
+07. Last Farewell 5:31
+08. Lord Of Madness (Live) 5:32(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B783BAC4ED7A417B940039B4CACD981A02DF7221
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 830064   (446673)
+
+House Of Lords - The Best of the Ballads (2014) [MP3|320 кб с]<Melodic Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Of Love
+02. Am I The Only One
+03. All The Way To Heaven
+04. What s Forever For
+05. Another Day From Heaven
+06. Precious Metal
+07. It Ain t Love
+08. Inside You
+09. Love Don t Lie
+10. Jealous Heart(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD1FFBE7AA35FF5525327A81F954CE244F6B4C1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1129997   (446606)
+
+Dire Straits & Mark Knopfler - Private Investigations (The Best Of) (2005) [FLAC|Lossless|im
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1129997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultans of Swing [05:48]
+02. Love Over Gold [06:18]
+03. Romeo & Juliet [06:00]
+04. Tunnel of Love [08:10](   Читать дальше...   )Жанр: RockПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F813F2FE58ADAE8A2ECC10C64D6A4F37323394
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1227503   (446584)
+
+Neuraxis - Asylon (2011) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1227503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	 Reptile 
+02.	 Asylum 
+03.	 Savior and Destroyer 
+04.	 By the Flesh (   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE08653D2E91860180F2AA1D7CDFB46433CCBC0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1227497   (446579)
+
+Universe Infinity - Rock Is Alive (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Hard R
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_1227497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Give All Your Love
+02. Catch of My Life
+03. Company s Coming
+04. She Can t Get Enough(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25B2A5480696463E81ACBB76D872E8E93FFD54A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1227499   (446576)
+
+Inquisition - Demonic Ritual In Unholy Blackness (2018) [FLAC|Lossless|image + .cue] <Black Meta
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1227499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Astral Path To Supreme Majesties
+02 - Embraced By The Unholy Powers Of Death And Destruction
+03 - The Realm Of Shadows Shall Forever Reign
+04 - Desolate Funeral Chant(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC868D93C4298D15A48FE58098FC88B165E1BF81
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1227416   (446574)
 
 Witherfall - Nocturnes and Requiems (2017) Japanese Ed. Reissued, 2018 [FLAC|Lossless|image + .c
@@ -30685,292 +30958,6 @@ The Devin Townsend Band - 2albums (2003-2006) [MP3|320kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1D5FDD05132F32FA086803F6657269A5911FAC6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 840543   (414833)
-
-Otherwise - True Love Never Dies (2012) [MP3|320 кб с]<Alternative  Heavy Metal  Hard Rock
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. I 00:36
-02. Die For You 03:11
-03. Lighthouse 04:16
-04. Scream Now 03:38
-05. Don t Be Afraid 03:48
-06. Vegas Girl 02:51
-07. II 00:49
-08. Silence Reigns 03:29
-09. I Don t Apologize (1000 Pictures) 04:02
-10. Crimson 03:57(   Читать дальше...   )Жанр: Alternative  Heavy Metal  Hard RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B50140B7F94DC17773BDD9169614C316F818345
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 582925   (414788)
-
-Seventh - Decide (2002) [MP3|128 кб с]<Alternative>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_582925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deliverance (4:59)
-02. Lifeless (4:30)
-03. Darken (4:25)
-04. Overdose (4:22)
-05. Dialated (4:13)
-06. I m Gonna Fly (4:03)
-07. Abnormal (4:02)
-08. Decide (3:55)
-09. Realize Me (3:34)
-10. Seventh - My Life (3:21)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347015522A9E7701F47B3D1836BE03678CC0C507
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 840736   (414776)
-
-Fifth Angel - Time Will Tell (1989) Reissue  2000, Collectables Records  [MP3|320 кб с]<Ha
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-Группа Fifth Angel была основана в предместьях Сиэтла в конце 1983-го года благодаря стараниям гитариста Джеймса Бёрда (англ. James Byrd), вокалиста Теда Пайлота (англ. Ted Pilot) и барабанщика Кена Мэри (англ. Ken Mary). Изначальный состав был доукомплектован с приходом в группу Эда Арчера (англ. Ed Archer) в качестве ритм-гитариста и басиста Кенни Кэя (англ. Kenny Kay).01. Cathedral (04:08)
-02. Midnight Love (04:38)
-03. Seven Hours (04:51)
-04. Broken Dreams (04:56)
-05. Time Will Tell (04:24)
-06. Lights Out (04:05)
-07. Wait For Me (04:48)
-08. Angel Of Mercy (04:32)
-09. We Rule (03:33)
-10. So Long (04:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796FFE50BE2AB6A3D43938B8049FA5B1F06C7361
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 840533   (414775)
-
-Otherwise - Peace at All Costs (2014) [MP3|320 кб с]<Alternative  Heavy Metal  Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. IV (1:08)
-02. Love & War (3:23)
-03. Darker Side Of The Moon (2:55)
-04. Demon Fighter (3:30)
-05. Coming For The Throne (3:11)
-06. Never Say (3:59)
-07. The Other Side Of Truth (3:10)
-08. All The Pretty Things (3:35)
-09. Walk Away (3:26)
-10. For The Fallen Ones (3:06)(   Читать дальше...   )Жанр: Alternative  Heavy Metal  Hard RockПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F210343628D3C35479B551E4F42D6B99B0342B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 840564   (414769)
-
-Downfall of Gaia - 4 Альбома (2010-2014) [MP3|320 кб с]<Screamo, Neocrust, Dark Hardcore, Post
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_840564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2010 - Epos
-2012 - Suffocating in the Swarm of Cranes
-2013 - Downfall Of Gaia
-2014 - Aeon Unveils The Thrones Of DecayЖанр: Screamo, Neocrust, Dark Hardcore, Post MetalПродолжительность: 03:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32C28A0CC8CB284656D8720611310D4D64631D0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 927606   (414745)
-
-Eisregen - 2 EP, 1 альбом (2014 - 2015) [MP3|320 кб с]<Dark Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_927606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2014 - Flötenfreunde (EP)
-2015 - Brummbar (EP)
-2015 - MarschmusikЖанр: Dark MetalПродолжительность: 01:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8CAC6339EDB06B1DA30CA12C99F6AA90FEF750
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 927791   (414743)
-
-The Damned - Les Genies du Rock - Gun Fury (1995) [MP3|320 кб с]<Goth Rock, Punk>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_927791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Generals (3:26)
-02.  Dozen girls (4:36)
-03.  Disguise (3:30)
-04.  Take that (2:51)(   Читать дальше...   )Жанр: Goth Rock, PunkПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE12859D05E0841DE2D29E45B833D79A58D84183
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 927560   (414742)
-
-Stiv Bators - Les Genies du Rock - Sonic Reducer (1994) [MP3|320 кб с]<Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_927560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  It s Cold Outside (2:54)
-02.  Make Up Your Mind (2:20)
-03.  Ready Anytime (3:00)
-04.  I ll Be Alright (2:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF1858995F25883EDC5270704FC04C80C4A5C8F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 927797   (414741)
-
-The Doobie Brothers - Les Genies du Rock - First Album (1993) [MP3|320 кб с]<Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_927797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Excitement (T. Johnston) (4:00)
-02.  Coke can changes (T. Johnston) (3:24)
-03.  Runaround ways (P. Simmons) (2:46)
-04.  Quicksilver princess (T. Johnston) (2:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53FDDAD42CD9B4F34ECE7E3A0CF74C04910C6A1E
 ```
 
 #Mybot  @nnmclub_mybot

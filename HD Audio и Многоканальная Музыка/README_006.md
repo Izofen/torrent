@@ -1,4 +1,118 @@
 
+###  Публикация: 1411408   (102867)
+
+Nasty - Menace (2020) [FLAC|Lossless|WEB-DL-24bit-96kHz|tracks] <Hardcore Punk, Beatdown Hardcor
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1411408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ultimate [00:02:31]
+02 Bulletrain [00:00:47]
+03 Menace [00:02:18]
+04 Be Careful [00:02:38](   Читать дальше...   )Жанр: Hardcore Punk, Beatdown HardcoreПродолжительность: 00:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579939F1DEF46F46CB5F4E3B28EF1ACA3BBEFACD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1573604   (102628)
+
+Teen Suicide - honeybee table at the butterfly feast (2022) [FLAC 2.0|48 24|WEB-DL|tracks] <Po
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1573604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. you were my star [00:01:01]
+02. death wish [00:02:44]
+03. get high, breathe underwater (#3) [00:03:51]
+04. unwanted houseguest [00:03:33](   Читать дальше...   )Жанр: Pop, Rock, Alternative & IndieПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A5B36E06763CC7093FC9106AA00FB26327ECF8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1573524   (102620)
+
+Machine Head - ØF KINGDØM AND CRØWN & Bonus Tracks (2022) [FLAC 2.0|48 24|WEB-DL|tracks] <Groo
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1573524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exterøceptiøn (4:46)
+02. Arrøws In Wørds Frøm The Sky (Acoustic) (5:54)Жанр: Groove, Thrash Metal, Nu-MetalПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B7C3125FC26D9098C17F51DDD2181A17AA4155
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1411975   (102579)
+
+Valeria Валерия - The Taiga Symphony (1991) [FLAC 2.0|96 24|image +.cue|Vinyl-Rip] <Blues Ro
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1411975.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Sky Belongs To Me	4:44
+A2 I Will Travel On	4:52
+A3 Song Of The City (Happening To Me)
+A4 Stay With Me(   Читать дальше...   )Жанр: Blues Rock, BalladПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393696120A072AC574012AEE0372B80B8E3A6414
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1411920   (102522)
 
 Omega - Elo Omega Kisstadion  79 (1979) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Prog Rock,
@@ -28820,122 +28934,6 @@ Henry Hall - I Feel Amazing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90B7B260C7059EB151A9928AB07E66996FCC4CE2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1663156   (28005)
-
-Soft Riot - No. (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Minimal Wave>
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1663156.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Linked Between Two Minds (5:03)
-2. Crashing Into Tomorrow (5:02)
-3. It Never Takes Long To Say No (4:38)
-4. Shouldering (5:06)(   Читать дальше...   )Жанр: Post-Punk, Minimal WaveПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990840AA8CDCC887544F11118BBE464E27CFB3F9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1663183   (27965)
-
-Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/96|image + .cue|Viny
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1663183.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Inspection
-A1 Blaydon Races
-A2 Shirley Bassey Showcase
-A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр: Brass & Military, MarchesПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1663172   (27964)
-
-The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1663172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphabet City (3:44)
-02. Deep End (Paul’s in Pieces) (4:29)
-03. Weird Goodbyes (feat. Bon Iver) (5:03)
-04. Turn off the House (4:35)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BCA0E5193A9AD9D3B7F99C4FA4769BD18598A9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 125709   (27923)
-
-Андрей Сапунов и группа «Лотос» - Лотос - 1987, FLAC
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_125709.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Белый день (А. Сапунов / С. Андреев)
-2. Немного счастья на двоих (А. Сапунов / И. Фрадкина)
-3. Евпатория (А. Сапунов / И. Фрадкина)
-4. Свежий ветер (А. Сапунов / И. Фрадкина)(   Читать дальше...   )Жанр: RockПродолжительность: 33:54 + допись 07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D5BFEA2D03555F715280E87ADC472F26DC420F
 ```
 
 #Mybot  @nnmclub_mybot

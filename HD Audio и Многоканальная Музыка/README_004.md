@@ -1,4 +1,121 @@
 
+###  Публикация: 1108172   (498444)
+
+Ochre - Beyond the Outer Loop (2017) [FLAC|Lossless|WEB-DL-24Bit|tracks] <IDM, Techno, Ambient>
+
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1108172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anaphora (04:26)
+ 02. Rowing to the Riverhead (03:21)
+ 03. Adaptation (02:11)
+ 04. Out of the Gyre (03:45)(   Читать дальше...   )Жанр: IDM, Techno, AmbientПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D32D1414C5C9093896C8048931AD5124A20AA5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1108388   (498419)
+
+Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192 24|image+.cue|Vinyl-Rip] <Disco>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1108388.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧЕРРОНЕ ЖАН-МАРК (Cerrone Jean Marc) (р. в 1952, Сен-Мишель, Франция), французский композитор, продюсер и барабанщик.
+     Хотя слушателю 1990-х годов это имя едва ли говорит о многом, два десятилетия назад, во времена диско-бума конца 70-х, он был одним из самых продуктивных и изобретательных творцов европейской танцевальной музыки: как композитор, продюсер и барабанщик (   Читать дальше...   )Альбомы:
+1976 - Love In C Minor
+1977 - Cerrone s Paradise
+1977 - Cerrone III - SupernatureЖанр: DiscoПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1207999   (498156)
+
+Queen - The Game (1980) [FLAC 2.0|192 24|image + .cue|Vinyl-Rip] <Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1207999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play The Game (3:30)
+02. Dragon Attack (4:19)
+03. Another One Bites The Dust (3:34)
+04. Need Your Loving Tonight (2:49)(   Читать дальше...   )Производство: EMI Records - EMA 795Жанр: RockПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917FEFB453720A6BF0F4E87012394F4F45DA796B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1207147   (498115)
+
+Lindsey Stirling - Brave Enough (2016) [FLAC 2.0|192 24|image+cue|Vinyl-Rip] <Modern Classical
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1207147.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lost Girls
+2. Brave Enough
+3. The Arena
+4. The Phoenix(   Читать дальше...   )Жанр: Modern Classical, Dance-pop, DubstepПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9E73B1F759B061B09727E85848AA367F1C36DB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1208378   (497218)
 
 Within Temptation - Hydra (2014) [FLAC 2.0|192 24|image + cue|Vinyl-Rip] <Rock>
@@ -29171,122 +29288,6 @@ Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1380517   (189842)
-
-Suzanne Vega - An Evening of New York Songs and Stories (2020) [FLAC|24 44.1|Lossless|WEB-DL|t
-
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1380517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marlene on the Wall
-02. Luka
-03. So How Many People Are Here from out of Town? 
-04. New York Is a Woman(   Читать дальше...   )Жанр: Pop, Folk RockПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D44A1DA410C8DD75F1E63BAC0786DE475B5495
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1380624   (189799)
-
-The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1380624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss You (4:49)
- 02. When the Whip Comes Down (4:21)
- 03. Imagination (4:39)
- 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1380819   (189513)
-
-Andy Williams - Showstoppers. Recorded 1965 (1974) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip] <Po
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1380819.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 On The Street Where You Live
-A2 I ve Grown Accustomed To Her Face
-A3 I Could Have Danced All Night
-A4 Get Me To The Church On Time(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CC122481EBADF9A26BC30B274DDFBE5072DCCD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1380696   (189487)
-
-Frank Sinatra - Some Nice Things I ve Missed (1974) [FLAC 2.0|192 24|image +.cue|Vinyl-Rip]
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1380696.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. You Turned My World Around
-Kaempfert, Rehbein, Carnes, Ellingson
-A2. Sweet Caroline
-Diamond(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D96B1159D7CBF242F59C47AC06928BA6D7CF77F
 ```
 
 #Mybot  @nnmclub_mybot

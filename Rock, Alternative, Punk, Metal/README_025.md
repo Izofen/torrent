@@ -1,4 +1,265 @@
 
+###  Публикация: 1547743   (136627)
+
+Sigma Eleven - Hope (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1547743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redemption (01:24)
+02. Save Me or Kill Me (04:43)
+03. I Love Heavy Metal (04:55)
+04. Dreams of Sorrow (04:09)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551FEEC95CA0D75CC3951520C45C4E8D9F908230
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1547791   (136626)
+
+Cruella - Rampage (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1547791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rampage (05:47)
+02. Leave Me Alone (04:57)
+03. Dopemestic Violence (04:28)
+04. Zombie March (March into Fire) (06:09)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B328E390F9DDC9C49A793B6329F04BADB835557C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1547813   (136624)
+
+Demonauta - Low Melodies About Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Met
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1547813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinto
+02. Ashes
+03. Evil Minds
+04. Garbage Breeder(   Читать дальше...   )Жанр: Stoner Rock, Doom Metal, Heavy Fuzz RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969B6045E4EFD02C7F10F9519B880936E4B32AB9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1547714   (136615)
+
+Crashdiet - Automaton (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1547714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Automaton
+02. Together Whatever
+03. Shine On
+04. No Man s Land(   Читать дальше...   )Жанр: Hard Rock | GlamПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0CF840DFB8FA27D19D55E06391A21601F8DE3B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1547930   (136613)
+
+Vaginal Kebab - From Ibiza With Gore (2021) [FLAC|Lossless|image + .cue] <Goregrind>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1547930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sargantanas Gigantes Devorando Guiris
+02. From Ibiza With Gore
+03. Arranqué Mi Sistema Nervioso Por El Clítoris
+04. Vomito Craneal, Cagada Vertebral(   Читать дальше...   )Жанр: GoregrindПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DA13C0D5BBF43AD0F35B80DB2213CD68AF82BC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1547872   (136610)
+
+АЛЬТАВИСТА - Редкий зверь (2022) [MP3|320 Kbps] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1547872.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Киров-Сыктывкар
+2. Одному никак
+3. Кожа
+4. Все могут друг без друга(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2018EF44A13987C2E856EEC0E6E2F116B6AAA5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1547777   (136586)
+
+В. Сюткин и Телефон - Лучшие Песни - 82-85 г.г. (1995) [FLAC|Lossless|tracks + .cue] <Rock & Rol
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1547777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Автобус 86
+02. Футбол
+03. Мода
+04. Объявления(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F5517FD177043C2BDEBC38BCF59B83DAD0FC2E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1547798   (136561)
+
+The William Loveday Intention - Paralysed by the Mountains (2022) [FLAC|Lossless|WEB-DL|tracks]
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1547798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paralysed by the Mountains [04:07]
+02. Becoming Unbecoming Me [03:15]
+03. Stood Upon a Chair [03:04]
+04. Too Many Things That Mean Too Much To Me (Blues) [03:16](   Читать дальше...   )Жанр: Garage Rock, Psychedelic, Blues RockПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611807A31F156A1ED87D4F263A051FF4CBAEE850
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1547797   (136558)
+
+The William Loveday Intention - Early Demos, Vol. 1 (Vipers Tongue) (2022) [FLAC|Lossless|WE
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1547797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Make Me Die (Take 1) [00:02:44]
+02. Cave [00:02:41]
+03. I m Hanging By a Tenuous Thread [00:03:30]
+04. I Don t Like the Man I Am (Take 1) [00:04:03](   Читать дальше...   )Жанр: Garage Rock, Psychedelic, Blues RockПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E30C00066961A359FCC638AE956FFE80018E4A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 618545   (136505)
 
 Телевизор - 4 альбома (1985-1990) Переиздание от  Геометрия , 2011-2012 [FLAC|Lossless|image
@@ -28704,267 +28965,6 @@ Profetus - Saturnine (Demo) (2007) [FLAC|Lossless|image + .cue] <Funeral Doom Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B30CD83F05193DC6C2A688DC81EAE26A54D9FB6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1559976   (126670)
-
-Arttu Wiskari - Sirpaleet (2014) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock, Schlager>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1559976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: Remu Aaltonen (0:10)
-02. Kun me diskossa suudeltiin (3:44)
-03. Sirpa (feat. Ulpu) (3:25)
-04. Meidän suku on oudompi kuin teidän (3:48)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, SchlagerПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF546901570FCB7C49BE64D22AB7CFDF6550C3F2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1560051   (126669)
-
-Space Druids - 3 Relise (2019-2022) [MP3|320 Kbps] <Vintage Space, Psychedelic Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1560051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Speed [00:04:53]
-02. Zygote [00:05:16]
-03. Astronomy [00:01:07]
-04. Afraid of Space [00:03:47](   Читать дальше...   )Жанр: Vintage Space, Psychedelic RockПродолжительность: 3 CD, 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FF9351CB36670824BC3324BAB305B5FE67EAED
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1559910   (126665)
-
-Space Druids - Paradox Paradigm (2022) [FLAC|Lossless|WEB-DL|tracks] <Vintage Space, Psychedelic
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1559910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Light Speed (00:04:53)
-02 - Zygote (00:05:16)
-03 - Astronomy (00:01:07)
-04 - Afraid of Space (00:03:47)(   Читать дальше...   )Жанр: Vintage Space, Psychedelic RockПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D13EC2DD5CD4AC594320D9D4CC90D2FB5783BE2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1559796   (126661)
-
-Thobbe Englund - From the Wilderness (2015) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1559796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildborn
-02. Stormy Nights
-03. A Lonely Hunter
-04. Life from Death(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0523F6308E91497237349E9DD324A7E40AC16DCF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1559472   (126637)
-
-Final Light (Perturbator X Johannes Persson) - Final Light (2022) [MP3|320 Kbps] <Atmospheri
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1559472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Will Bear Your Name (6:09)
-02. In the Void (8:58)
-03. It Came with the Water (7:17)
-04. Final Light (8:33)(   Читать дальше...   )Жанр: Atmospheric Sludge, Post-MetalПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5E61FA66A1F01BD27567AE25F4B9AE17522D81
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1604524   (126619)
-
-Hath - All That Was Promised (2022) [FLAC|Lossless|tracks + .cue] <Death Metal, Black Metal, Pro
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1604524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Million Violations
-02 - Kenosis
-03 - Lithopaedic
-04 - Iosis(   Читать дальше...   )Жанр: Death Metal, Black Metal, Progressive MetalПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B400C2262FA29D67D82BDD82C8C9C405936DE00B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1604606   (126612)
-
-Elvis Presley - Forever In Love (1997) 2CD, Compilation [FLAC|Lossless|tracks + .cue]<Rock n<1
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1604606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wooden Heart
-02. Sentimental Me
-03. Fever
-04. For The Millionth And The Last Time(   Читать дальше...   )Жанр: Rock n RollПродолжительность: 02:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1139D062F53B040A6BDC1A496995D756B18CCDAA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 752277   (126605)
-
-Wulfgar - With Gods And Legends Unite (2007) [FLAC|Lossless]<Death Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_752277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro [02:13]
-02.  Cleansed By Fire [04:41]
-03.  Weapons Of Flesh [04:15]
-04.  Heimdall s Horn [03:53](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168A648E005E785A1FA007CD655B7C84A74D9230
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1560123   (126398)
-
-Lorekeeper - The Beastiary (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1560123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Green Lich (00:05:25)
-02 - Bog Creature (00:04:30)
-03 - Centipede Queen (00:04:15)
-04 - Mycoloth (00:03:11)(   Читать дальше...   )Жанр: Stoner MetalПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F6E5FE837ADD477B43EDD549A13ED700E64F645
 ```
 
 #Mybot  @nnmclub_mybot

@@ -1,4 +1,316 @@
 
+###  Публикация: 854468   (303209)
+
+Shades Before Dawn - Blinded By The Inability To See Beyond (2014) [MP3|320 кб с]<Progressive
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Departures 04:31
+02. Somewhere Out Of The Reach 04:03
+03. Blinded By The Inability To See Beyond 03:31
+04. On The Streets Of New York City 03:54
+05. Riding A Metalhead s Truck 03:08
+06. Arrivals 05:32
+07. Before The Dawn 04:18
+08. A Few Seconds After 02:56
+09. Theater Of Tragedy (Falling To Pieces) 04:37
+10. Slaying The Slayer 02:43(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7125BA05F2CFF879389BB10619A628653ACE7B44
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854871   (303206)
+
+Sirens Over Sumeria - Sirens Over Sumeria (2014) [MP3|320 кб с]<Progressive Metalcore>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854871.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cipher
+2. Sovereign
+3. Phase I: Revelation
+4. Phase II: Paradise Or Perdition
+5. Phase III: Vox Populi
+6. Black Horse Sex Cartel
+7. Medicine Man
+8. Hypocrites & Heretics
+9. For Answer
+10. FactionЖанр: Progressive MetalcoreПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8610C8F1B5BDA5E26E6567BC92C3D712DF57D750
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854932   (303205)
+
+Stormcast - Frame Of Mind (2014) [FLAC|Lossless]<Atmospheric Melodic Black Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Executioner
+02. Wishful Bliss
+03. New World Order
+04. Of Flesh And Stone
+05. Withdrawn
+06. In Entropy
+07. Immune
+08. DysthimiaЖанр: Atmospheric Melodic Black MetalПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C719BE632A735EC8F8AD71106D05E944606C447
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854572   (303202)
+
+Starkill - Virus Of The Mind (2014) [MP3|320 кб с]<Melodic Death Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854572.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Be Dead Or Die
+2. Winter Desolation
+3. Breaking The Madness
+4. Virus Of The Mind
+5. Skyward
+6. Before Hope Fades
+7. Into Destiny
+8. God Of This World
+9. My Catharsis
+10. ConvergenceЖанр: Melodic Death MetalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C7DE77B192E026525F0C3EEABFF6412CDF286D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 853677   (303200)
+
+Beitthemeans - Head Held High (2011) [MP3|320 кб с]<Southern Rock  Hard Blues Rock  Stoner
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_853677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:24]
+02. Head Held High [03:54]
+03. The Ballad of Jack Hatchet [02:56]
+04. Pots in the Kitchen [03:05]
+05. All My Kinfolk [02:53]
+06. God Wears a Houndstooth [02:10]
+07. Tombstone Heart [06:49]
+08. Virginia Healer [03:22]
+09. Black Water [04:11]
+10. Ain t No Use [03:20]Жанр: Southern Rock  Hard Blues Rock  StonerПродолжительность: 00:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BEEE41766CD01FC110225CE3CA2774CE42F9AEC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854650   (303197)
+
+Zed Yago - Pilgrimage (1989) [FLAC|Lossless]<Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pilgrim s Choir [02:10]
+02. Pilgrimage [04:29]
+03. The Fear Of Death [05:42]
+04. Pioneer Of The Storm [04:11]
+05. Black Bone Song [05:10]
+06. Rose of Martyrdom [04:38]
+07. The Man Who Stole The Holy Fire [04:45]
+08. Achilles Heel [03:57]
+09. The Pale Man [04:51]
+10. Omega Child [04:04](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8CC87AAF6395423C1EC6E3FE64EFA60DD8E075
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854347   (303196)
+
+Stallion - Rise and Ride (2014) [MP3|320 кб с]<Heavy Metal Speed Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise and Ride
+02. Wild Stallions
+03. Streets Of Sin
+04. Stigmatized
+05. Canadian Steele
+06. Bills To Pay
+07. Watch Out
+08. The Right One
+09. The Devil Never Sleeps
+10. Wooden HorseЖанр: Heavy Metal Speed MetalПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E392A25D6C5DE8ACC46CAB46D9FC3BF5B200ED
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854870   (303195)
+
+Atlas Losing Grip - Currents (2015) [MP3|320 кб с]<Melodic Punk Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinking Ship
+02. The Curse
+03. Cynosure
+04. Shallow
+05. Nemesis
+06. Closure
+07. Kings And Fools
+08. Cast Anchor
+09. Unknown Waters
+10. The End(   Читать дальше...   )Жанр: Melodic Punk RockПродолжительность: 01:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA707645A22994767C8B7028BA83A7262F0BC244
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 854977   (303194)
+
+Alltheniko - Fast And Glorious (2014) [WavPack|Lossless]<Power Speed Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_854977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tank Of Death (04:53)
+02. Fast And Glorious (04:47)
+03. KaiserSteel (05:32)
+04. Holy War, Holy Fighters (04:54)
+05. Scream For Exciter (04:30)
+06. Spirit Of War (04:35)
+07. Power To Rebel (06:42)
+08. The Arenas God (04:33)
+09. Power And The Glory I.U.W.S. (Saxon cover) (05:18)Жанр: Power Speed MetalПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD97FFB160E6E00C0094946ABDA7C9CADF95AEB7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 854590   (303193)
 
 Stonehouse - Stonehouse Creek (1971) [MP3|320 кб с]<Hard Rock>
@@ -28745,267 +29057,6 @@ Giraffe Tongue Orchestra - Broken Lines (2016) [MP3|320 Kbps] <Progressive Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6B31BC4F25314A871045511DCF633FED0AAB1D6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1087196   (276841)
-
-Тёплая Трасса - Азбука (2016) [MP3|320 Kbps] <Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1087196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Простая жизнь
-02. Под распахнутым небом
-03. Европа
-04. Солнце встаёт (посвящение Русской поэзии)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F205698ACBFBEF0FF2360BE5BCAE149AD15E27
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1194753   (276784)
-
-Nitzinger - Nitzinger (1972) Reissue, CD [MP3|320 Kbps] <Southern Rock, Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1194753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L.A. Texas Boy 2:28
-02. Ticklelick 2:44
-03. No Sun 3:40
-04. Louisiana Cock Fight 3:34(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F1C626B1015C17E2FC94FD63DFCFA5E14A64EA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1194799   (276783)
-
-Tom Robinson Band - Rising Free (the very best of TRB) (1997) Compilation, EMI [MP3|320 Kbps
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1194799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2-4-6-8 Motorway
-02. I Shall Be Released
-03. Don t Take No For An Answer
-04. Glad To Be Gay(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD27E73CFE831AF76AA00D2D495BABB308033F87
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1194735   (276775)
-
-Skarlett Riot - Sentience (2016) EP [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1194735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voices 4:19
-02. Scream At Me 3:26
-03. Empty Inside 4:08
-04. Feel 4:40(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BF3C055756D12263457A005425BD06DE09E25D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1194738   (276734)
-
-Skarlett Riot - Regenerate (2017) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1194738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break 4:59
-02. Closer 3:33
-03. Stand Alone 4:07
-04. What Lies Beneath 3:38(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1500F196CEC7D2167E7758BB4CC027C42C221D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1087205   (276596)
-
-Hollower - Forking Paths (2016) EP [MP3|320 Kbps] <Progressive, Technical Metalcore>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1087205.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Encompassed
-2. Awakened
-3. Jane Doe
-4. Disconnect(   Читать дальше...   )Жанр: Progressive, Technical MetalcoreПродолжительность: 00:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0160836242662C09229940F0607C86FBB31C719
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1087338   (276587)
-
-Captain Ivory - No Vacancy (2016) [MP3|320 Kbps] <Classic Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1087338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Light (04:09)
-02. No Vacancy (04:55)
-03. Skinning The Hand (05:17)
-04. Cascades Of Spain (04:53)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307DA7B89087552B1DEB8E301FB79DAB589D8546
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1087083   (276578)
-
-Joe Brown - The Ukulele Album (2013) 2CD Deluxe Edition [FLAC|Lossless|image + .cue] <Country Ro
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1087083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Rock Candy Mountain (Harry Kirby McClintock)
-02. Lay Down Sally (Eric Clapton)
-03. That s What Love Will Do (Trevor Edward Peacock)
-04. Henry VIII (Trad arr. Joe Brown)(   Читать дальше...   )Жанр: Country RockПродолжительность: 01:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8032B7B2B463D8F35BF70503816524FD1AC48907
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1086924   (276577)
-
-The Neal Morse Band - The Similitude of a Dream (2016) 2CD [FLAC|Lossless|image + .cue] <Crossov
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1086924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Day (1:42)
-02. Overture (5:51)
-03. The Dream (2:28)
-04. City Of Destruction (5:11)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 01:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B049E26AF84AF0B468DC7B29565410B7E28159
 ```
 
 #Mybot  @nnmclub_mybot

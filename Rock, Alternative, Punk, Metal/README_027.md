@@ -1,4 +1,265 @@
 
+###  Публикация: 1611538   (116664)
+
+The Schizophonics - 3 Albums (2017-2022) [MP3|320 Kbps] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1611538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2017 - Land of the Living
+2019 - People in the Sky
+2022 - Hoof ItЖанр: RockПродолжительность: 3 CD, 01:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BCD7770E5B9ABA7A25278473A15BE8023AFD3F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1611824   (116663)
+
+...and Oceans - As in Gardens, So in Tombs (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1611824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - As in Gardens so in Tombs (04:16)
+02 - The Collector and His Construct (04:36)
+03 - Within Fire and Crystal (05:51)
+04 - Carried On Lead Wings (05:13)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF8A1BE637C31522AAFF9977847447EDE5264A0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1611953   (116662)
+
+Konfirmat - 2 Albums (2019-2023) [MP3|320 Kbps] <Industrial Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1611953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horrorland [00:05:23]
+02. Flamme [00:04:47]
+03. Befreien [00:04:33]
+04. Aus Weissen Dornen [00:03:56](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 2 CD, 01:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7170C1376C7397E46B2851B98665B83979FA572A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1611876   (116661)
+
+ВЕНЫ - В ожидании плохого настроения (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1611876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В ожидании [00:04:27]
+02. Пожар [00:03:44]
+03. Дождь [00:04:15]
+04. Перебор [00:03:11](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B6FF94DEC406264937AFBBA1D4311BC39F2ADA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1611721   (116659)
+
+Solstice - 3 Albums (2013-2022) [MP3|320 Kbps] <Neo-Progressive, Folk Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1611721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2013 - Prophecy
+2020 - Sia
+2022 - Light UpЖанр: Neo-Progressive, Folk RockПродолжительность: 3 CD, 02:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4CF9D43ABAEFFE88F15DEFB311728F12CC2BC0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1611493   (116658)
+
+The Iron Bees - 2 Albums (2015-2023) [MP3|320 Kbps] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1611493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ТОП ТОП ТОП (2023 Remastered Version) [00:01:40]
+02. Дай мне косарь [00:02:57]
+03. Жора (2023 Remastered Version) [00:03:40]
+04. Пару пива, сигарета [00:02:41](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6143EADCD0BA6F7FB143C8167F0DCF027661F929
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1611528   (116655)
+
+Печать-Бюро - Субботняя ночь (2023) [MP3|320 Kbps] <New Wave>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1611528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Тишина [00:04:04]
+02 - Окна [00:03:24]
+03 - Душа [00:02:59]
+04 - Запах домов [00:02:57](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C29B5FA6E48FDFD2A48B8DA920B6B01D06195EC
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1611861   (116654)
+
+Земля Ветров - На Одной Волне (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1611861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Встуление [00:01:52]
+02. Вместе с нами [00:03:48]
+03. На одной волне [00:03:24]
+04. Не считая лет [00:04:17](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE4B04C190D325DA0D0D69ABE2181E15DC31B25
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1611537   (116651)
+
+DegrodTeam - Поеб... (2023) [MP3|320 Kbps] <Pop Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1611537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Поеб...[00:01:33]
+02 - 2121 [00:02:32]
+03 - Электричка [00:02:42]
+04 - Какое-то название, забыл (Типа медляк, посвящается Ей) [00:02:16](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7D6FE49CEDF3C92FF0C91CDB7E627D970BCE66
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1611451   (116650)
 
 Shiningstar - Songs of the Northern Lands - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
@@ -28715,268 +28976,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C0A0C7EBE9FB5EB3A27A556606CAAF4D42A3761
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1410637   (105744)
-
-Театр  Этериус  - Песнь о Довакине (2015) [MP3|320 Kbps] <рок-опера>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1410637.jpg" />
-</div>
-
-
-###  Подробнее
-
- Песнь о Довакине  - рок-опера основанная на сюжете игры The Elder Scroll s V: Skyrim (действие оперы происходит в популярной фэнтези-вселенной «Древних Свитков»). В центре повествования  драконорожденный , которому выпала судьба спасти мир от древнего ужаса - драконов.
-Думаю, те, кто хоть раз играл в Скайрим, оценят это произведение =)01. Закон Империи (5:17)
-02. Висельник (3:07)
-03. Ривервуд (5:31)
-04. Пророчество (1:46)(   Читать дальше...   )Жанр: рок-операПродолжительность: 01:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCB0894381844F01AD8D374453AAFDB7ADBFD25
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1572274   (105696)
-
-Пикник - Весёлый и злой (2022) [MP3|320 Kbps] <Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1572274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Играй, струна, играй
-2. Дивись же, какими мы стали!
-3. Только не плачь, палач
-4. Сквозь одежды(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2EC9A2E91415CCDBB44A096081220E23FBB3BF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1499859   (105640)
-
-Mainline - The Unholy Idol (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1499859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanctum
-02. Out of the Shadows
-03. The Red Line
-04. A Distant Memory(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BBD17B3F3846D0A82EC1D6DC85DF041D51D9AC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1499990   (105638)
-
-Азон - Без флагов и границ! (2020) [MP3|320 kbps] <Punk Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1499990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вперёд (03:14)
-02. Стрелять (03:33)
-03. Нам нужен враг (03:56)
-04. Рок (02:27)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FD932ABCA9F94D98F1E033187AFD72BF77D06C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1500007   (105636)
-
-Rape Tape - Людоеды (2021) [MP3|320 kbps] <Post-Punk, No Wave, Psychedelic>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1500007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вырваны (06:39)
-02. Части тел (03:48)
-03. Из (03:56)
-04. Толпы (02:50)(   Читать дальше...   )Жанр: Post-Punk, No Wave, PsychedelicПродолжительность: 00:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4119924E05592B69DEC22B901E267B6CF4DBFA47
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1619650   (105633)
-
-Redemption - I Am the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1619650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am the Storm (4:28)
-02. Seven Minutes from Sunset (4:28)
-03. Remember the Dawn (8:26)
-04. The Emotional Depiction of Light (6:11)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4113860046A8F4F39F8E00912F46C2101A7A82CF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1500000   (105627)
-
-Блондинка КсЮ - Красота. Том 1 (2021) [MP3|320 kbps] <Punk Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1500000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Отпуск (02:33)
-02. Алые паруса (03:29)
-03. Лимонад (02:19)
-04. Scum (feat. Assanity) (02:57)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59730833356F3BE9B1B66D6961A735ADAF7F2B1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1499994   (105624)
-
-Stay Away - Синдром упущенных возможностей (2021) [MP3|320 kbps] <Punk-Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1499994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Взамен (03:34)
-02. Я не хочу возвращаться (04:01)
-03. Говно (02:34)
-04. Какой-то мудило что-то подсыпал в пиво (03:02)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4075ABCA1F0477B61A5D82B5D71B7871D567C95E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1619706   (105582)
-
-U2 - Songs Of Surrender (2023) 4 CD [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1619706.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. One
-02. Where The Streets Have No Name
-03. Stories For Boys(   Читать дальше...   )Жанр: Rock |Продолжительность: 02:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBE1E42EBBED09094DE01A3F562289CF218DE11
 ```
 
 #Mybot  @nnmclub_mybot

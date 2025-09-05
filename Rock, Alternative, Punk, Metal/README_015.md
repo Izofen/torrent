@@ -1,4 +1,265 @@
 
+###  Публикация: 1162045   (354726)
+
+Nebiros - Mas que vencedor (2008) [FLAC|Lossless|image + .cue] <Black Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1162045.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (Presagio) 02:10
+2. La gran ramera 04:01
+3. Enemigo oculto 05:18
+4. Ave Lucifer 06:21(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842C9B88C9128025E912D83781C8737424D57FAE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1248585   (354653)
+
+Therapy? - Cleave (2018) [MP3|320 Kbps] <Alternative Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1248585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wreck It Like Beckett
+02. Kakistocracy
+03. Callow
+04. Expelled(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D927264B3CF79DE73FBA52E0CEF5687EB2E6AE92
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1162136   (354604)
+
+Kasabian - For Crying Out Loud (2017) 2CD, Delux Edition [FLAC|Lossless|tracks+.cue] <Alternativ
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1162136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Underdog (06:09)
+ 02. Bumblebee (04:33)
+ 03. Shoot The Runner (03:50)
+ 04. Eez-eh (03:47)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C425A318E59E503D52BBC9E909A67EA7CFAFDD7A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1248587   (354501)
+
+Billy F Gibbons (Zz Top) - The Big Bad Blues (2018) [MP3|320 Kbps] <Blues Rock, Southern Roc
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1248587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missin’ Yo’ Kissin’ (Gilly Stillwater)
+02. My Baby She Rocks
+03. Second Line
+04. Standing Around Crying (Muddy Waters)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3501E5FF6A1E1B5216F4DDA303E2E02236EC14
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1248564   (354500)
+
+Monster Magnet - 14 albums (1990-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock,
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1248564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monster Magnet, пожалуй, самые яркие представители stoner metal, ретро-течения современной музыки, базирующегося на олдовом хард-роке. Модернизируя развернутые медитативные джемы и ультратяжелые риффы корифеев 70-х (Black Sabbath, Blue Cheer, Hawkwind и так далее), используя наработки спейс-рока, гранжа и психоделии, Monster Magnet проделали длинный путь, чтобы добиться (   Читать дальше...   )Список альбомов:
+1990 | Monster Magnet
+1991 | 25... Tab (EP)
+1991 | Spine Of God(   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Psychedelic Rock, Space Rock |Продолжительность: 13:28:01 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41140CEDBC6047FE381245FF3CE12824470024E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1162265   (354475)
+
+Septicflesh - Codex Omega (2017) Deluxe Edition [MP3|320 Kbps] <Symphonic Death Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1162265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dante s Inferno
+02. 3rd Testament
+03. Portrait of a Headless Man
+04. Martyr(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7051E1E9221495DB31FC958CF9456600A063C636
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1162270   (354474)
+
+Epica - The Solace System (2017) Mini-Album [MP3|320 Kbps] <Symphonic Power Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1162270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Solace System
+02. Fight Your Demons
+03. Architect of Light
+04. Wheel of Destiny(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA6DDE79AAB23B2DD6D652EDB91E36799A86922
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1060936   (354452)
+
+Markscheider Kunst - Хамелеон (2016) [MP3|320 Kbps] <Ska, Afro-cuban jazz>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1060936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Майк
+02. Вишнёвый сад
+03. Жара
+04. Зачем(   Читать дальше...   )Жанр: Ska, Afro-cuban jazzПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09FC2043ED41A852FD9BFF1EF8C7E324964B24C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 948642   (354411)
+
+Denner   Shermann - Satan s Tomb (2015) EP [FLAC|image+.cue]<Heavy Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_948642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satan s Tomb 04:54
+02. War Witch 04:54
+03. New Gods 06:03
+04. Seven Skulls 05:09Жанр: Heavy MetalПродолжительность: 00:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A03B0E6C48479D643E78CC7553859958C51264D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1162272   (354389)
 
 Motorhead - Under Cover (2017) [MP3|320 Kbps] <Heavy Metal>
@@ -28669,264 +28930,6 @@ magnet:?xt=urn:btih:6B2DE46C9CAD80F9A1BA323E972C8D60F4AD8193
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:367A5784215DB3FC626769003E6BA2B72DC8ABB8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1172332   (330733)
-
-Mystery Blue - Conquer The World (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1172332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conquer The World (04:28)
-02. Innocent Crime (04:51)
-03. Running With The Pack (03:59)
-04. Evil Spell (04:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F3E445118B0E1EB2D366652E80F03292827C00
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1172318   (330732)
-
-Oxiplegatz - Worlds and Worlds (1997) [APE|Lossless|image + .cue] <Avant-garde Black Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1172318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle of Species
-02. First Contact - Conflict
-03. Aftermath
-04. Quest(   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDE969EFF58229632D24D51202427E8A10406B2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1172308   (330731)
-
-Helker - Resistir (2008) [FLAC|Lossless|image + .cue] <Power Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1172308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resistir
-02. Basurero Nuclear
-03. Contra la Corriente
-04. Nunca Más(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AFF5AE7005B6B45E1F0345BACA7BDB2E6EBC7E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1172311   (330730)
-
-Helker - En Algun Lugar Del Circulo (2013) [FLAC|Lossless|image + .cue] <Power Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1172311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuevo Circo Romano
-02. Redencióm
-03. Fantasmas Del Pasado
-04. Al Final Del Camino(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897DBD993A2BB794659F638579312C19ECEBDDCD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1172309   (330728)
-
-Helker - A.D.N. (2010) [FLAC|Lossless|image + .cue] <Power Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1172309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arde Dentro Nuestro
-02. Tus Mentiras
-03. Falsos Profetas
-04. Igual Que A Vos(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF513B22DA1FD462AD1A3446B302206DF0B5B6F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1172342   (330727)
-
-Infinity - Hybris (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1172342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arousing the Sleeping SerpentЖанр: Black MetalПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6879A4AE3146BF12A0460C8BCCED9A474FF2582
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1172394   (330726)
-
-Hydra - Land Of Money (1975) Reissue, 1999, Capricorn Records [MP3|320 Kbps] <Rock, Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1172394.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Little Miss Rock N  Roll
-2. The Pistol
-3. Makin  Plans
-4. Land Of Money(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19411C65C9823EC663B5AC5064872D9487F12A86
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1172346   (330723)
-
-Loudness - Super Best (2013) japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1172346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Let It Go
-02 Black Star Oblivion
-03 S.D.I.
-04 Rock n Roll Gypsy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F25118B07FCA0D1157B490F531F4DA440DE581
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1172509   (330669)
-
-Gamma Ray - Alive  95 (1996) 2CD, Japanese Edition, 2017, Remastered, Ear Music [FLAC|Lossless
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1172509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Return (4:02)
- 02. Changes (5:23)
- 03. Insanity & Genius (4:10)
- 04. Last Before The Storm (4:12)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed MetalПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CAFCBB1B2D1724185E610BE317A64A9DAC4735
 ```
 
 #Mybot  @nnmclub_mybot

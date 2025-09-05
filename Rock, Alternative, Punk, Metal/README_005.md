@@ -1,4 +1,313 @@
 
+###  Публикация: 790173   (638799)
+
+Ram Jam - The Very Best Of (1990) [MP3|320 кб с]<Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_790173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Betty
+02. Let It All Out
+03. Keep Your Hands On The Wheel
+04. Right On The Money
+05. All For The Love Of Rock N Roll
+06. 404
+07. High Steppin 
+08. Overloaded
+09. Hey Boogie Woman
+10. Too Bad On Your Birthday(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B8F71C13B79BF149B0E2C3B3CECDA48DE5D266
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 789872   (638770)
+
+Martin Barre - Away With Words (2013) [MP3|320 кб с]<Progressive Rock, Instrumental>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+(3:10) 01. At First Light - Moths
+(6:04) 02. Its My Round - Requiem
+(3:15) 03. One Brown Mouse - Fatcat
+(6:11) 04. Air (Lament Of The Spalpeen - Martin s Jig - Hymn 43)
+(1:12) 05. All Bars Hold
+(3:44) 06. Pussy Wilow
+(4:14) 07. Snapshot - Paparazzi
+(4:54) 08. Long Ago - Home
+(4:06) 09. Fire At Midnight - From The Ashes
+(3:05) 10. Protect And Survive(   Читать дальше...   )Жанр: Progressive Rock, InstrumentalПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D590BA5CA3A689D6FF216B4A0049D0BF8C9DA8
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 789674   (638756)
+
+Marty Friedman (ex-Megadeth) - Inferno (2014) [MP3|320 кб с]<Speed Metal Heavy Metal S
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Inferno
+02. Resin
+03. Wicked Panacea (feat. Rodrigo y Gabriela)
+04. Steroidhead (feat. Keshav Dhar)
+05. I Can t Relax (feat. Danko Jones)
+06. Meat Hook (feat. Jørgen Munkeby)
+07. Hyper Doom
+08. Sociopaths (feat. David Davidson)
+09. Lycanthrope (feat. Alexi Laiho & Danko Jones)
+10. Undertow(   Читать дальше...   )Жанр: Speed Metal Heavy Metal ShredПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04EAF7F4C9CDA8D1E3342797F87CDA36635A802
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 789960   (638748)
+
+Рогатые Трупоеды - Забодаю И Съем (2014) [MP3|320 кб с]<Death Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+1. Svn Shines Vpon Our Hornz
+2. For The Horde!
+3. Кровавый Жульен (О том, как банда мелких небритых жуликов обнесла делянку Дядюшки-Тролля, и чем всё это закончилось)
+4. Rock n Roll Maggots
+5. Bilbo Baggins (The True Story Of The Shire Cannibal)
+6. Zombie Blooz
+7. Забодаю И Съем
+8. Пираты Харибдского Моря
+9. Chez Sasha (Bière & Cochonnaille – L interlude)
+10. Пиво & Колбаса(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6355588642FCB0D355DE7761FDCD45176E6993
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 790104   (638746)
+
+Amorphous Androgynous - The Cartel Remixe (2014) [FLAC|Lossless|WEB-DL]<Psychedelic Rock, Experi
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. The Chaser (Black Light Cinema Remix of ‘The Chase’) (4:06)
+ 02. City of Regrets (Broadcast of Variants Remix of ‘Regrets & Last Respects’) (5:49)
+ 03. Where Does The Evil Go? (feat. Alisha Sufit) (3:02)
+ 04. Tunnel Visions (DJ Food Remix of ‘Tunnel Sequence’) (8:30)
+ 05. Anadolu Dub (Lost in Edit Remix of ‘An Ocean of Regret’) (4:46)
+ 06. Billionaire (The Amorphous Androgynous Remix of ‘Billion Breaks’) (3:04)
+ 07. Bugged (Virgil Howe Remix of ‘The Bug’) (3:42)
+ 08. The Watched Man (The Amorphous Androgynous Remix of ‘The Watcher’) (3:19)
+ 09. Wasped (Cranium Pie’s Baking Research Station Remix of ‘The Wasp’) (5:13)
+ 10. 1 000000 (Cranium Pie’s Baking Research Station Remix of ’1,000,000 Stashed’) (3:28)(   Читать дальше...   )Жанр: Psychedelic Rock, ExperimentalПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F395D0578CA43913903EE4CAA9DCA72194B37E3F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 790162   (638718)
+
+Blue Cheer - Outside Inside (1968) [MP3|320 кб с]<Hard Psychedelic Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_790162.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Feathers From Your Tree
+2. Sun Cycle
+3. Just A Little Bit
+4. Gypsy Ball
+5. Come And Get It
+6. (I Can t Get No) Satisfaction
+7. The Hunter
+8. Magnolia Caboose Babyfinger
+9. BabylonЖанр: Hard Psychedelic Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABFF757F2F525D8DF20AE603ED98E6FF6354F38
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 789812   (638712)
+
+H.E.A.T - Tearing Down The Walls (2014) [FLAC|Lossless]<Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Point Of No Return (5:17)
+02. A Shot At Redemption (3:51)
+03. Inferno (3:45)
+04. The Wreckoning (1:03)
+05. Tearing Down The Walls (3:33)
+06. Mannequin Show (3:43)
+07. We Will Never Die (3:50)
+08. Emergency (4:11)
+09. All The Nights (4:09)
+10. Eye For An Eye (3:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078077B91A6A9EE9A07061E3E1B10FB401795D82
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 790074   (638706)
+
+The Rockets - Rocket Roll (1982) [MP3|320 кб с]<Hard Rock, Rock-n-Roll>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_790074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rollin  By The Record Machine
+02. Rock  N  Roll Girl
+03. Gonna Crash
+04. (I Wanna) Testify
+05. Gimme Your Love(   Читать дальше...   )Жанр: Hard Rock, Rock n RollПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D20D28E44C21C0FCEA3B7A27545553C9F505AB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 608236   (638539)
+
+Infant Annihilator - The Palpable Leprosy of Pollution (2012) [MP3|320 кб с]<Technical Deathco
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_608236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Born Porn (2:18)
+02. Infant Annihilator (2:58)
+03. Devotion to the Child Rape Syndicate (3:12)
+04. Anal Prolapse Suffocation (3:03)
+05. Whorespawn (Bloodline Defiled) (3:00)
+06. Embryonic Fetish (3:52)
+07. Immeasurable Foetal Mutilation (3:37)
+08. Torn From the Womb (4:09)
+09. Cuntcrusher (5:00)
+10. Pinned Down and Fisted (2:45)(   Читать дальше...   )Жанр: Technical DeathcoreПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1DA7862BC9026B72665E75B6B00133DE14A671B
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 790439   (638487)
 
 Hannah Aldridge - Razor Wire (2014) [MP3|320 кб с]<Rock, Country, Pop Rock>
@@ -33347,296 +33656,6 @@ Status Quo - Blue For You (1976) Original Recording Remastered [MP3|320 кб с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86392FAAB29C561165124D149A81D3538F8B394E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 531660   (609478)
-
-WhoCares (Ian Gillan & Tony Iommi) - WhoCares (2012) [FLAC|Lossless]<Hard Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. WhoCares   Out Of My Mind (5:18)
-02. Black Sabbath   Zero The Hero (7:37)
-03. Ian Gillan Feat. Tony Iommi, Ian Paice & Roger Glover   Trashed (4:04)
-04. M. Rakintzis Feat. Ian Gillan   Get Away (First Time On A Gillan CD) (4:44)
-05. Iommi Feat. Glenn Hughes   Slip Away (Rare Track) (5:26)
-06. Gillan   Don t Hold Me Back (4:38)
-07. Ian Gillan   She Thinks It s A Crime (Limited 7 -vinyl B-side, First Time On CD) (3:56)
-08. Repo Depo Feat. Ian Gillan   Easy Come, Easy Go (2012 Remix, Previously Unreleased) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:35:34
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 527164   (609474)
-
-Rob Zombie - Mondo Sex Head (Deluxe Edition) (EP) (2012) [MP3|236 kbps] <Electronic
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_527164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder Kiss  65 (JDevil Number Of The Beast Remix) (03:49)
-02. Living Dead Girl (Photek Remix) (07:00)
-03. Let It All Bleed Out (Document One Remix) (04:40)
-04. Foxy, Foxy (Ki:Theory Remix) (03:43)
-05. More Human Than Human (Big Black Delta Remix) (04:06)
-06. Dragula (+++ Remix) (04:30)
-07. Pussy Liquor (Ki:Theory Remix) (03:22)
-08. Lords Of Salem (Das Kapital Remix) (07:09)
-09. Never Gonna Stop (Drumcorps Acid Remix) (03:26)
-10. Superbeast (Kraddy Remix) (04:21)(   Читать дальше...   )Жанр: Electronic   Alternative Metal   Industrial MetalПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D7C0CE5533AF23C97C1C73B6FA31A363923B9A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 641991   (609421)
-
-Avril Lavigne - Here s To Never Growing Up (2013) Single [MP3|320 кб с]<Pop, Pop-Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Here s To Never Growing Up (03:34)Жанр: Pop, Pop-RockПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2C29D5ADD3819F82041352FFF700E344C64CBE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 641832   (609419)
-
-Фестиваль(К.Никольский) - Счастлив певец  (1981) Ремастеринг 2011 [MP3|320 кб с]<Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Один взгляд назад
-02. Мой друг - художник и поэт
-03. Ночная птица
-04. Поиграй со мной гроза
-05. Счастлив певец
-06. Кружится, кружится карусель
-07. Зеркало мираЖанр: RockПродолжительность: 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318A3BCCD3FD5C637CAD03828CE47825E24ECC31
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 812939   (609394)
-
-Accept - Blind Rage (2014) [MP3|320 кб с]<Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_812939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stampede
-02. Dying Breed
-03. Dark Side Of My Heart
-04. Fall Of The Empire
-05. Trail Of Tears
-06. Wanna Be Free
-07. 200 Years
-08. Bloodbath Mastermind
-09. From The Ashes We Rise
-10. The Curse(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2E24E308760923EAC981C19DFD6F376B8CFBFB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 641424   (609338)
-
-Bastille - Bad Blood (2013) [MP3|320 кб с]<Indie, Electronic, Alternative>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-1. Pompeii (3:35)
-2. Things We Lost In The Fire (4:01)
-3. Bad Blood (3:33)
-4. Overjoyed (3:26)
-5. These Streets (2:55)
-6. Weight Of Living Pt. II (2:55)
-7. Icarus (3:45)
-8. Oblivion (3:16)
-9. Flaws (3:39)
-10. Daniel In The Den (3:09)(   Читать дальше...   )Жанр: Indie, Electronic, AlternativeПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1E67774716D7539BB61B99422D9104A2000052
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 531604   (609280)
-
-Saralee - Darkness Between (2006) [FLAC|Lossless]<Gothic Metal, Love Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_531604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everytime [00:03:29]
-02. Loneliness O.D [00:04:20]
-03. Black & Hollow [00:03:13]
-04. Falling Star [00:03:40](   Читать дальше...   )Жанр: Gothic Metal, Love MetalПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 531668   (609263)
-
-Anthony Phillips & Andrew Skeet - Seventh Heaven (2012) [APE|Lossless]<Progressive & Art-Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-1. Credo In Cantus (Instrumental)
-2. Sojourn
-3. Speak Of Remarkable Things
-4. Nocturne
-5. Long Road Home
-6. The Golden Leaves Of Fall
-7. Credo
-8. Under The Infinite Sky (Guitar Ensemble Version)
-9. The Stuff Of Dreams
-10. Old Sarum Suite(   Читать дальше...   )Жанр: Progressive & Art-Rock |Продолжительность: 00:51:08
-
-## Скачать торент
-```bash
-нет
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 531353   (609258)
-
-Tempestuous Fall - The Stars Would Not Awake You (2012) [FLAC|Lossless]<Epic Funeral Doom Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_531353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old & Grey (10:39)
-02. Beneath a Stone Grave (14:09)
-03. Marble Tears (13:16)
-04. The Stars Would Not Awake You (10:56)
-05. A Cold Stale Goodbye (14:33)Жанр: Epic Funeral Doom MetalПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-нет
 ```
 
 #Mybot  @nnmclub_mybot

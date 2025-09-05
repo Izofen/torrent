@@ -1,4 +1,120 @@
 
+###  Публикация: 1205521   (502183)
+
+Sasha Malkovich - Practical Levitation (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1205521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Practical Levitation 12:58
+02. Erleuchtete Wahrnehmungen 18:50
+03. Sensitive Dub 15:00
+04. White Smoke 09:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44971BF2429BA315652632AC281EA168FC138077
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1105072   (502164)
+
+VA - EDM Invasion 5 (2017) [MP3|320 Kbps] <House, Electro House, Progressive>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1105072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Phun & Key - System Crash (Radio Edit)  3:05
+02.  Ronny Rox - Let s Go (Radio Edit) (feat. Tony T)  3:06
+03.  Ali Deger & Blackjax - I m Spartacus (Radio Edit)  3:44
+04.  Derek Faze - Escape (feat. Avari) (Radio Edit)  3:30(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 02:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE45FBC802BD64863523A879AD71E9CFB0383DCA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1204975   (502146)
+
+VA - Nothing But... Total Trance Selections Vol.01 (2018) [MP3|320 Kbps] <Trance>
+
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1204975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  IF  -  Classic Universe (Radio Edit)  4:38
+02.  Steve Allen & Patrick Dreama  -  Sensei (Extended Mix)  5:49
+03.  First Sight  -  Tailspin (Extended Mix)  6:17
+04.  DJ Deraven  -  My Soul Cries (Original Mix)  7:28(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1930B33CD55C56C9B8E2B4FD4C70F9A8EB85E81
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1205456   (502144)
+
+VA - A New Year Of Vocal House Vol.2 (2018) [MP3|320 Kbps] <House>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1205456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Space Roosters feat. Dee Dee  -  Let Go (Radio Mix)  2:59
+02.  Laurenzo Tozzi  -  Let Me Be Your Baby (Dave Gate Remix)  4:30
+03.  Soul-Ty  -  Let The Sunshine  3:04
+04.  No Panties Allowed  -  Let s Dance Tonight (Radio Version)  3:28(   Читать дальше...   )Жанр: HouseПродолжительность: 03:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8735BD6445F018E10262A1079B42F78C83ED16F4
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1205563   (502132)
 
 Robert Rich - The Biode (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -28792,122 +28908,6 @@ Erik Wøllo (Erik Wollo) - Infinite Moments (2018) Projekt [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F22DEC6273A3936A326F1E0FB50DB9C6541BB7E1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1279844   (471244)
-
-VA - Paul Oakenfold: Sunset At Stonehenge (2019) [MP3|320 Kbps] <House, Deep House, Electronic>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1279844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Oakenfold - Sunset At Stonehenge (Continuous Mix) 1:19:23
-02. U2 - Love Is All We Have Left 2:43
-03. The Grid - Floatation (Subsonic Grid Mix) 7:06
-04. Empire Of The Sun - We Are The People 4:28(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 03:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC30D46EEB7FA48A400D34E210EFE30607072A9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1222690   (471226)
-
-Moonbootica - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Club House>
-
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1222690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonbootica & BONDI - Lost & Found (4:28)
-02. Moonbootica & Jack Beauregard - Covered in Gold (6:12)
-03. Moonbootica & BONDI - Trippin  (4:17)
-04. Moonbootica feat. Nneka - Do Not Do Me (Like Dis) (4:11)(   Читать дальше...   )Жанр: Club HouseПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3511CFF0448D16A3D68EF49B24BBB551CF03E4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1222700   (471222)
-
-VA - Body and Soul-House (2018) [MP3|320 Kbps] <Funky, Club House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1222700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Quin feat. Kubik LeFunk – Freak (VIP) (5:15)
-02. Hannah Wants – Dot Com (5:33)
-03. Archie B – Gassed Up (6:13)
-04. Eric Prydz – Woz Not Woz (Club Mix) (7:10)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60C6094FA053948D3861531935FBA170C2C1A6B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1279892   (471167)
-
-VA - Night Flight Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge, Electronica>
-
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1279892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Butler - Cloud No 9 (Original Mix)
-02. Martin Liege - Baby Come On (Original Mix)
-03. Roberto Sol & Florito feat. Ines Prados - Asi Es (Remix)
-04. Svendaq - Each Moment (Original Mix)(   Читать дальше...   )Жанр: Downtempo, ChillOut, Lounge, ElectronicaПродолжительность: 02:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E261865DB50CCD3FCA4379A51A61613211CE4D
 ```
 
 #Mybot  @nnmclub_mybot

@@ -1,4 +1,261 @@
 
+###  Публикация: 1400526   (151766)
+
+Wildness - Wildness (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1400526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Inside My Head (03:54)
+02. Stranger (03:21)
+03. Shadowland (04:37)
+04. Alibi (05:09)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1285DAD2289A0EDCDEA359A41BB68996645768
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1400509   (151753)
+
+Thundermother - Heat Wave (2020) [MP3|320 Kbps] <Hard Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1400509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud and Alive (03:56)
+ 02. Dog from Hell (03:38)
+ 03. Back In  76 (03:34)
+ 04. Into the Mud (03:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6968B90D0E33FFC8965C83DD6FD19CD5A8E3FD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1400474   (151748)
+
+Капитанский ром - Блуждающий огонь (2020) EP [MP3|320 Kbps] <Horror Punk, Folk Punk>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1400474.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Блуждающий огонь
+2. Казнь пирата
+3. Исполнитель желанийЖанр: Horror Punk, Folk PunkПродолжительность: 00:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6033EE7717317BB81E7B55881D4C0034DDF9EF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1538092   (151741)
+
+VA - Free & Easy - 100 Soft Rock Deluxe (2022) [MP3|320 Kbps] <Rock, Soft Rock, Pop Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1538092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starship – Nothing s Gonna Stop Us Now (04:30)
+02. Fleetwood Mac – Dreams (2018 Remaster) (04:17)
+03. The Goo Goo Dolls – Iris (04:49)
+04. The Doobie Brothers – What a Fool Believes (03:39)(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 06:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42D4FA0F23C0DCA29B6BB5BEBF3751327BB18DA
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1538324   (151736)
+
+VA - Soft Rock Love (2022) [MP3|320 Kbps] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1538324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Big Love (2018 Remaster) (3:42)
+02. Chris Rea - Your Warm and Tender Love (4:33)
+03. Coldplay - Everglow (4:42)
+04. Pretenders - I ll Stand By You (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4D4836396B12B27F4FAA5C19930E5C0E2BCBE7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1686827   (151704)
+
+Till The Dirt - Outside The Spiral (2023) [FLAC|Lossless|image + .cue] <Death Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1686827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starring Role [00:03:57]
+02. Outside The Spiral [00:03:58]
+03. Privilege [00:04:21]
+04. As it Seems [00:04:36](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E36A2CE5F06C3728C4153B96B809FF5E91583D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1400466   (151701)
+
+Kansas - The Absence of Presence (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1400466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Absence Of Presence (08:22)
+02. Throwing Mountains (06:21)
+03. Jets Overhead (05:17)
+04. Propulsion 1 (02:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7737EAED7A46723D9C1D424F0B9B3139A9C31714
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1538421   (151615)
+
+The Karma Effect - The Karma Effect (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1538421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steal Your Heart
+02. Doubt She s Coming Back
+03. Mercy
+04. Stand(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F42ED77E64D7150D33F9C9D23D64281B618B102
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 581475   (151612)
+
+The The    TheThe (Matt Johnson) - 13 альбомов (1981-2002) [MP3|160-320 кб с] <Post-Punk
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_581475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Post-Punk, Alternative, New WaveПродолжительность: 00:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0852A064C6714408B270C8BB8EBD9119823ED967
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1538443   (151606)
 
 True Strays - Heart of the Matter (2022) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy Metal, Blue
@@ -28737,267 +28994,6 @@ Bonedryver - Valley Of Bones (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AFCA66A0547AA2470C0FD6B278960EEE4C2E19A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1547743   (136627)
-
-Sigma Eleven - Hope (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1547743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redemption (01:24)
-02. Save Me or Kill Me (04:43)
-03. I Love Heavy Metal (04:55)
-04. Dreams of Sorrow (04:09)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551FEEC95CA0D75CC3951520C45C4E8D9F908230
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1547791   (136626)
-
-Cruella - Rampage (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1547791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rampage (05:47)
-02. Leave Me Alone (04:57)
-03. Dopemestic Violence (04:28)
-04. Zombie March (March into Fire) (06:09)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B328E390F9DDC9C49A793B6329F04BADB835557C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1547813   (136624)
-
-Demonauta - Low Melodies About Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Met
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1547813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinto
-02. Ashes
-03. Evil Minds
-04. Garbage Breeder(   Читать дальше...   )Жанр: Stoner Rock, Doom Metal, Heavy Fuzz RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969B6045E4EFD02C7F10F9519B880936E4B32AB9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1547714   (136615)
-
-Crashdiet - Automaton (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
-
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1547714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automaton
-02. Together Whatever
-03. Shine On
-04. No Man s Land(   Читать дальше...   )Жанр: Hard Rock | GlamПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0CF840DFB8FA27D19D55E06391A21601F8DE3B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1547930   (136613)
-
-Vaginal Kebab - From Ibiza With Gore (2021) [FLAC|Lossless|image + .cue] <Goregrind>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1547930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sargantanas Gigantes Devorando Guiris
-02. From Ibiza With Gore
-03. Arranqué Mi Sistema Nervioso Por El Clítoris
-04. Vomito Craneal, Cagada Vertebral(   Читать дальше...   )Жанр: GoregrindПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DA13C0D5BBF43AD0F35B80DB2213CD68AF82BC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1547872   (136610)
-
-АЛЬТАВИСТА - Редкий зверь (2022) [MP3|320 Kbps] <Rock>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1547872.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Киров-Сыктывкар
-2. Одному никак
-3. Кожа
-4. Все могут друг без друга(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2018EF44A13987C2E856EEC0E6E2F116B6AAA5
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1547777   (136586)
-
-В. Сюткин и Телефон - Лучшие Песни - 82-85 г.г. (1995) [FLAC|Lossless|tracks + .cue] <Rock & Rol
-
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1547777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Автобус 86
-02. Футбол
-03. Мода
-04. Объявления(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F5517FD177043C2BDEBC38BCF59B83DAD0FC2E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1547798   (136561)
-
-The William Loveday Intention - Paralysed by the Mountains (2022) [FLAC|Lossless|WEB-DL|tracks]
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1547798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paralysed by the Mountains [04:07]
-02. Becoming Unbecoming Me [03:15]
-03. Stood Upon a Chair [03:04]
-04. Too Many Things That Mean Too Much To Me (Blues) [03:16](   Читать дальше...   )Жанр: Garage Rock, Psychedelic, Blues RockПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611807A31F156A1ED87D4F263A051FF4CBAEE850
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1547797   (136558)
-
-The William Loveday Intention - Early Demos, Vol. 1 (Vipers Tongue) (2022) [FLAC|Lossless|WE
-
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1547797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Make Me Die (Take 1) [00:02:44]
-02. Cave [00:02:41]
-03. I m Hanging By a Tenuous Thread [00:03:30]
-04. I Don t Like the Man I Am (Take 1) [00:04:03](   Читать дальше...   )Жанр: Garage Rock, Psychedelic, Blues RockПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E30C00066961A359FCC638AE956FFE80018E4A
 ```
 
 #Mybot  @nnmclub_mybot

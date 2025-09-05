@@ -1,4 +1,126 @@
 
+###  Публикация: 1136048   (428186)
+
+Omnimar - Poison (2017) [MP3|320 Kbps] <Synth-pop, Synthwave, Darkwave>
+
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1136048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Poison 1:40
+02	I Go On On My Own 4:06
+03	Out Of My Life 5:55
+04	I Wanna Know Now 4:15(   Читать дальше...   )Жанр: Synth-pop, Synthwave, DarkwaveПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E09FE7EB4C189396D78ABD57C15A1E84249278
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 921745   (428118)
+
+Jean-Michel Jarre - Remix EP [1] (2015) [MP3|320 кб с]<Electronic, Ambient, Synth-pop>
+
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_921745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquistador (JMJ Rmx) (3:50)
+ 02. Glory (Radio Mix) (2:54)
+ 03. Glory (Steve Angello Remix) (5:53)
+ 04. Zero Gravity (Above And Beyond Remix) (7:20)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-popПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709FB2A72E409198C078D98D1718ADA9170E7195
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1135903   (427987)
+
+VA - Monstercat Uncaged, Vol. 1 (2017) [MP3|320 Kbps] <Drum & Bass, Drumstep, Dubstep>
+
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1135903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rogue, Stonebank & Slips & Slurs - Unity
+ 02. Dirtyphonics & Bassnectar - Watch Out
+ 03. Wolfgang Gartner & Aero Chord - Borneo
+ 04. Unlike Pluto - Everything Black (feat. Mike Taylor)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5374C3EBE76C9B70E3F2049767D48B72ECBE0B51
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 835519   (427908)
+
+Calvin Harris - Motion (2014) [MP3|320 кб с]<Electropop, Electro House, Nu Disco, Dance>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Faith
+02. Under Control (w  Alesso Feat. Hurts)
+03. Blame (feat. John Newman)
+04. Love Now (feat. All About She)
+05. Slow Acid
+06. Outside (feat. Ellie Goulding)
+07. It Was You (w  Firebeatz)
+08. Summer
+09. Overdrive (w  Ummet Ozcan)
+10. Ecstacy (feat. Hurts)(   Читать дальше...   )Жанр: Electropop, Electro House, Nu Disco, DanceПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AED60388F0E08C3EC343E7B5A497A555C7D54EF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 921392   (427846)
 
 The Chemical Brothers - Born in the Echoes (2015) Deluxe Edition [FLAC|tracks+.cue]<Electronic,
@@ -29766,134 +29888,6 @@ Node - Node Live (2018) DiN [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-Schoo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC8B35000BE06C066BEACE5DD62B023F5A1A9AC0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1152324   (383901)
-
-VA - Ori Uplift & Rich Triphonic - Uplifting Only 232 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1152324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afternova - The One
-02. Kaimo K & Sarah Russell - Be My Guide
-03. Etasonic - Farewell Forever
-04. Sylvia Tosun & Pino Benji - Lost in a Feeling (Digital X Extended Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75DD964897ED4B904E8E6F3B793A7BEA83E3811
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 738332   (383882)
-
-VA - House Your Pool Party (2013) [MP3|320 кб с]<House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-001. Addy - Ethnic
-002. Saeed Younan - Clockin
-003. DJ Ortzy & Jean Pierre - The Night (NY Mix)
-004. Saeed Younan - House Is (feat. Mustafa Akbor)
-005. Omid S - La Masalla
-006. Sideburn - Soleil
-007. Alexander Fog - Interface
-008. Redondo & Sideburn - Lacuna
-009. Gino Russo - Dream Life
-010. Sebastian Ledher & Patrick M - Zumba Ea(   Читать дальше...   )Жанр: HouseПродолжительность: 02:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34D8DF454B65F9277C07B86C2173CAF0E48CA06
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 738075   (383877)
-
-VA - Hope Recordings Presents XV (1998-2013) (2013) [MP3|320 кб с]<House, Progressive Hous
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-01. Kastis Torrau - Hero (Original Mix) (07:29)
- 02. Leftfield - Song of Life (Betoko Mix) (07:39)
- 03. Kastis Torrau - Monster (Original Mix) (07:20)
- 04. Nick Warren - La Fabrica (Warehouse Mix) (06:43)
- 05. Black - Fields of Gold (Original Mix) (08:00)
- 06. Simply City - Zero Distance (Original Mix) (08:20)
- 07. Simply City - Breaking (Dave Angel Rework) (08:02)
- 08. Paul Hazendonk - Slack Tide (Original Mix) (08:19)
- 09. Nick Warren - Devil s Elbow (Max Cooper Remix) (09:16)
- 10. Nick Warren - Buenos Aires (Santiago Teillagorry & Luis Bondio Mix) (08:54)(   Читать дальше...   )Жанр: House, Progressive House, Deep HouseПродолжительность: 01:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB410146CE241833545B06E0166BE8AF278C8CD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1239422   (383868)
-
-VA - Summer Grooves Vol.5 (Deep House & Ibiza Chill Out Beach Tunes) (2018) [MP3|320 Kbps] <
-
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1239422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernon - Islands In The Deep Sun (Ibiza Beach House Groove) 5:03
-02. Cuetec - Cascades (Original Mix) 6:31
-03. Dave Neville - Jazzy House (Chillhouse Mix) 6:09
-04. Beatwork - Do It Again (Cool House Edit) 6:47(   Читать дальше...   )Жанр: Downtempo, Deep, ChiillHouse, LoungeПродолжительность: 02:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D12C1C48C8DBE2636DF3353E7AE5BAA6C27EB6
 ```
 
 #Mybot  @nnmclub_mybot

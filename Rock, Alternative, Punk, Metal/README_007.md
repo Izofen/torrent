@@ -1,4 +1,268 @@
 
+###  Публикация: 983567   (581935)
+
+Пикник - Иероглиф (1995) [APE|Lossless|image + .cue] <Rock , Goth Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_983567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 	Остров 	        04:50
+2. 	Иероглиф 	        05:42
+3. 	Праздник 	        04:30
+4. 	Ты Вся Из Огня 	04:20(   Читать дальше...   )Жанр: Rock , Goth RockПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3207C1E09A051A072D5C71F189BE18C0ED5888AB
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 983613   (581931)
+
+Megadeth - Dystopia (2016) Japanese Edition [MP3|320 кб с] <Thrash Metal>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_983613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Threat Is Real
+02. Dystopia
+03. Fatal Illusion
+04. Death From Within(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C52AB3A3751CC2FE6D2DEAB6B2520378382E53
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 668284   (581803)
+
+PJ Harvey - 5 альбомов (1995-2007) [FLAC|Lossless]<Alternative Rock, Indie Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_668284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil (2:58)
+02. Dear Darkness (3:10)
+03. Grow Grow Grow (3:23)
+04. When Under Ether (2:25)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:33:57
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 668471   (581800)
+
+Аквариум - Снежный Лев (1996) [FLAC|Lossless]<Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_668471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+нет
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 321856   (581796)
+
+Fort Royal - Ловите ведьму (1995) [MP3|320 kbps]<Hard rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+01. Мисс Китти (4:26)
+02. Не впускай зверя в дверь (5:11)
+03. Безумие (3:53)
+04. Ловите ведьму (4:21)
+05. Злая богиня (5:09)
+06. Ты такой как я (3:00)
+07. Тень (3:12)
+08. Любовь моя - гильотина (5:16)
+09. Слеза раздора (3:14)
+10. Никого не слушай (3:37)Жанр: Hard rockПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1707ABF50CABA1FCF82361AD17AEE51157FA1F4A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 984284   (581781)
+
+Status Quo - Piledriver (1972) 2CD, remaster, 2016, Vertigo, Japan [FLAC|Lossless|image + .cue]
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_984284.jpg" />
+</div>
+
+
+###  Подробнее
+
+BBC Sounds Of The Seventies 1972
+01. Don t Waste My Time   BBC Sounds Of The Seventies 1972 (4:24)
+02. Oh Baby   BBC Sounds Of The Seventies 1972 (4:26)
+03. Unspoken Words   BBC Sounds Of The Seventies 1972 (5:06)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A462A32E2B4C6705DAA3B8419F54107B3D298EE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 984305   (581748)
+
+Status Quo - Hello! (1973) 2CD, remaster, 2016, Vertigo, Japan [FLAC|Lossless|image + .cue] <Cla
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_984305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roll Over Lay Down (5:44)
+02. Claudie (4:04)
+03. Reason For Living (3:44)
+04. Blue Eyed Lady (3:54)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB000FF8A778D47A6C8A91085B4CE37378F7CED6
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 984325   (581747)
+
+Suede - Night Thoughts (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Art Rock, Britpop
+
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_984325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Are Young (04:17)
+02. Outsiders (03:54)
+03. No Tomorrow (03:52)
+04. Pale Snow (02:43)(   Читать дальше...   )Жанр: Alternative Rock, Art Rock, BritpopПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D1BCCFBF08B7E5F6199D8AA147B2FEB892F200
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 984315   (581723)
+
+Status Quo - Rockin  All Over The World (1977) 2CD, remaster, 2016, Mercury, Japan [FLAC|Lossl
+
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_984315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Time (4:46)
+02. Can t Give You More (4:16)
+03. Let s Ride (3:03)
+04. Baby Boy (3:13)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E642A79E2C865B91ECC1DCF9DD74E089A6B4D4A9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 984308   (581715)
 
 Striker - Stand in the Fire (2016) [MP3|320 кб с] <Heavy Metal, Power Metal>
@@ -30762,272 +31026,6 @@ Eklipse - A Night in Strings (2012) [FLAC|Lossless]<Instrumental Symphonic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36E3F4A614A182A429E85512ADAAC822AF08C9A3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 699658   (552852)
-
-Black Sabbath - The Complete 70 s Replica CD Collection (1970-1978) 8CD Box Set  2001, Castl
-
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_699658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1970 Black Sabbath
-1970 Paranoid
-1971 Master of Reality
-1972 Volume 4
-1973 Sabbath Bloody Sabbath
-1975 Sabotage
-1976 Technical Ecstasy
-1978 Never Say Die!Жанр: Hard Rock, Heavy MetalПродолжительность: 05:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDC4A107BB5A35C0FD342FD242221455B89EA95
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1018241   (552812)
-
-Aftershok - Detonate (2016) [MP3|320 кб с] <Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1018241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude To Fear
-02. Enter The Dark
-03. Hang  Em High
-04. The World United(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B380EF74B8F02095E0DC122B79D0413D009FEA
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1018059   (552811)
-
-Agonizer - Visions Of The Blind (2016) [MP3|320 кб с] <Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1018059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Alone
-02. Devil
-03. Pieces
-04. Haze(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81CCB995EC2BB35CB7BE464AFE40BB4F94F18B58
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1018252   (552810)
-
-Stairway - Power and Glory (2016) [MP3|320 кб с] <Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1018252.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lucy Fuhr
-2. 1917   Fatherless Child
-3. Overture 1418
-4. A Mind Insane(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BB5C791197E4E80DA76FDC4E7C2A7DD4DF70DE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1018254   (552801)
-
-Assassin - Combat Cathedral (2016) [MP3|320 кб с] <Thrash Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1018254.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Back From The Dead
-2. Frozen Before Impact
-3. Undying Mortality
-4. Servant Of Fear(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D9369F3626A3620F8D5493541BFE811631E0BF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1018238   (552787)
-
-Lonewolf - The Heathen Dawn (2016) [MP3|320 кб с] <Speed Metal, Heavy Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1018238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Call to Wolfes
-02. Wolfsblut
-03. Demon s Fire
-04. Keeper of the Underwolrd(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D967A995A5D7941021400F89AC69B4FFF17FB2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1018025   (552785)
-
-Rialto - Rialto (1998) [APE|Lossless|image + .cue] <Alternative Rock, Brit Pop>
-
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1018025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Monday Morning 5:19	[04:50]
-02.	Dream Another Dream	[03:30]
-03.	Broken Barbie Doll	[04:19]
-04.	Summer s Over	[04:39](   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF389FD2F360F04148230F3ED2EC71E7178D3A9
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1018150   (552779)
-
-Suidakra - Realms Of Odoric (2016) [MP3|320 кб с] <Epic Metal, MDM, Viking Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1018150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Realm
-02. The Serpent Within
-03. The Hunter s Horde
-04. Creeping Blood(   Читать дальше...   )Жанр: Epic Metal,MDM,Viking MetalПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC500EF9962050D0D47CF8EC6BFC7C2F131175E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1018240   (552778)
-
-Visionatica - Force Of Luna (2016) [MP3|320 кб с] <Symphonic Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1018240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Visions (Intro)
-02. Swamp Of The World
-03. Lilith
-04. She Wolf(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7EABA5FB3EA8FCC5EF7CE5A0B6E8E6D2EA79A7C
 ```
 
 #Mybot  @nnmclub_mybot
