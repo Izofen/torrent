@@ -1,4 +1,175 @@
 
+###  Публикация: 1817820   (761509)
+
+Windows 11 PRO 24H2 26100.6584 Update 19 by Ghost Spectre [En]
+
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрано из официального образа.
+— Superlite эта версия уже настроена - для опытных пользователей - подходит для игр и стриминга.
+— Compact это нетронутая версия, без изменений, только удаление приложений/ненужных программ - для обычных пользователей - подходит для работы в офисе, ноутбуков, планшетов, серверов и т. д.
+(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE622A7408E05E56A7ED84F5191E37AE5B9E05DD
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1817339   (761224)
+
+Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6332 [Ru]
+
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_10_business_editions_version_22h2_updated_aug_2025_x64_dvd_566d3f78
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
+Установлены обновления по 10 сентября 2025 года включительно(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAD9D5936E3287872F71A4D4AC4D8D5B83C9F48
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1817342   (761198)
+
+Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.6584 [Ru]
+
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_11_business_editions_version_24h2_updated_aug_2025_arm64_dvd_b513c599
+ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
+Установлены обновления по 10.09.2025(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12551F90DD973048533A9DC59B4E000B49997A2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1816569   (760734)
+
+Windows 10 (v22h2) x64 HSL/PRO by KulHunter v27 (esd) [Ru]
+
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_22h2_
+updated_aug_2025_x64_dvd_65bb5415.iso
+Отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4F1E793D120B787C9E5545ECF3FB19F2D49EF5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1816570   (760732)
+
+Windows 10 (v22h2) x64 PRO by KulHunter v27 (esd) [En]
+
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MSDN: en-us_windows_10_consumer_editions_version_22h2_
+updated_aug_2025_x64_dvd_65bb5415.iso
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217B33F1DC6A9EE9C83A15BAA3B4239A6A73FD99
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1816239   (760720)
+
+Draftable Desktop 25.9.0 Repack [En]
+
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение для сравнения документов для настольных компьютеров. Сравнивайте документы PDF, Word, PowerPoint и Excel на своем компьютере. Для сравнений не используется Интернет, и ваши документы никогда не покидают ваш компьютер. Для безопасной совместной работы используйте сравнение в формате PDF и преимущества защищенного паролем.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BE274F87616085F874476BC9A84981B0B463AF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1813525   (759374)
 
 Microsoft Windows 11 [10.0.26100.4946], Version 24H2 (Updated August 2025) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -26945,164 +27116,6 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1518 (Updated Oct 2020) Ори
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEDFEB531B47601B35AF9D5B819C0EC34E672CFE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1579878   (89145)
-
-Microsoft Windows 11 [10.0.22621.525], Version 22H2 (Updated September 2022)  - Оригинальные обр
-
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1579878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как  операционную систему как службу , которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0017533B8AD68F1BCA642E1A3694A44A34D7CA66
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1579877   (89117)
-
-Microsoft Windows 11 IoT Enterprise [10.0.22621.525], Version 22H2 (Updated September 2022)  - О
-
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1579877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 IoT Enterprise - это полная версия Windows 11, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 11 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 11 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF98C9D9025A278E18916D42A5515DF5B56D0C8B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1579879   (89058)
-
-Microsoft Windows 11 [10.0.22621.525], Version 22H2 (Updated September 2022)  - Оригинальные обр
-
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1579879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как  операционную систему как службу , которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A154655425DB006EFF8E1CBC97DF8B1988FE352
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1418302   (88646)
-
-Microsoft Windows 10.0.19041.572 Version 2004 (Updated Oct 2020) - Оригинальные образы от Micros
-
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1418302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.572.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E071558DC1478285D788A9D2A01C7ED61082EC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1503232   (87520)
-
-Microsoft Windows x64 Release by StartSoft 02-2021 [Ru]
-
-
->>ОС Windows
->>Сборки Windows - всё в одном
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1503232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютеры Windows 7 sp1, Windows Embedded 8.1 Industry Enterprise, Windows 10 21H1 и Windows 11 21H2 с архитектурой разрядности x64 bit. В ее состав входит загрузочный образ ISO который предназначен для записи на флешку размером от 32 Гигабайт и выше.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F44E17D94E2235E2374C9D84D878BBD78FEF60
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1503644   (86755)
-
-Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Оригинальные образы от
-
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1503644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1288.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC35437942A49B58C71D3D0264FB9B36759598B
 ```
 
 #Mybot  @nnmclub_mybot

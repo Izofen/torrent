@@ -1,4 +1,298 @@
 
+###  Публикация: 1081496   (310287)
+
+GonjaSufi - Callus (2016) [FLAC|Lossless|Web-DL|tracks] <Experimental, Lo-Fi, Abstract Hip-Hop>
+
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1081496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Maker (3:10)
+02. Maniac Depressant (1:56)
+03. Afrikan Spaceship (3:25)
+04. Carolyn Shadows (2:46)(   Читать дальше...   )Производство: Warp Records – WARP278Жанр: Experimental Electronic, Lo-Fi, Psychedelic, Trip Hop, Abstract Hip-HopПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7C9F55A7E1B2B86D90C4ECD2B2529075DA58EF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 964998   (310255)
+
+Arno Hoddinghaus (A R N O , ARNO, Höddinghaus) - Discography (1994-2014) [FLAC|Lossl
+
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_964998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abbey 1 (39:05)
+ 02. Abbey 2 (21:23)Тип издания: CD, WebЖанр: Ambient, New Age |Продолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B9DDC4BEA273ACF93357B48B2B6195780A366D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 852264   (310102)
+
+Nibana - Ask The Universe (2014) [FLAC|Lossless|WEB-DL] <Downtempo, Psybient, Slow Trance>
+
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_852264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uchuu (10:46)
+  02. Far Eden (06:53)
+  03. Near Babel (06:38)
+  04. Icarus Dream (Tribute to Yngwie Malmsteen) (07:15)
+  05. Our Eyes (08:21)
+  06. The Most Astounding Fact (08:51)
+  07. I Am a Soul (09:18)
+  08. Ya av Eah (06:28)
+  09. Our Eyes (Sephira Remix) (07:29)
+  10. Owari Da (09:19)Жанр: Downtempo, Psybient, Slow TranceПродолжительность: 01:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD2BA381A061F8408C50C399762494082816033
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 965110   (309965)
+
+VA - Uplifting Only - Fan Favorites 2014 - 2015 (Mixed by Ori Uplift) (2015) Abora Recording
+
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_965110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mhammed El Alami & illitheas & Johannes Fischer - New Rise (Intro Mix) (8:41)
+02. illitheas - Sapphire Sky (Radio Edit) (3:44)
+03. New World - Giver of Life (Radio Edit) (5:44)
+04. Ahmed Romel - Saudade (Original Mix) (7:43)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 09:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E04EB4ECABB50824EC87A139EEBBD83FA77039C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1189796   (309936)
+
+VA - Amsterdam. The End Of Year Album (Mixed by Three Drives) (2017) [MP3|320 Kbps] <Trance,
+
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1189796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  F.G. Noise & Andrew Manning  -  Amsterdam (Original Mix)  8:45
+02.  Brent Rix  -  Lunar Halo (Original Mix)  7:03
+03.  Marco Mc Neil  -  Discovery (Original Mix)  7:58
+04.  Fabrice  -  Northern Lights (Original Mix)  6:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0791B3BD42E6A169346F78BBA8816BAB46ECF1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1189946   (309933)
+
+VA - The Best Of Suanda True (Mixed by Tom Exo) (2017) [MP3|320 Kbps] <Trance>
+
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1189946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Attila Syah - Malang Rain (Extended Mix)
+02 Tom Exo - Skywatch (Extended Mix)
+03 Nomosk - Duel (Original Mix)
+04 F.G. Noise & Tom Exo - Skyworld (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8FB7FDC4EB2BD0F883BCBFF0F54F7A02800930
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1189742   (309932)
+
+VA - Transcendental Ambience: Chilled and Relaxing Music Playlist (2017) [MP3|320 Kbps] <Downtem
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1189742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dee Theo Project  -  Adventure  7:58
+02.  David Lintern  -  Embryonic  4:00
+03.  Stefano Barzan  -  Art Beat  2:23
+04.  James Hirman  -  The Serenade Of The Sea  5:24(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 02:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B392D2F2AFDB60CDBDCF9E772DDDCE23A815A9FE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1189858   (309929)
+
+Lustmord - Maschinenfest (October 2 2011) (2017) Vaultworks [FLAC|Lossless|tracks+.cue] <Dar
+
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1189858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behold (05:59)
+02. Atone (04:41)
+03. Ambivalence (09:01)
+04. Godless (04:28)(   Читать дальше...   )Жанр: Dark Ambient
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218E69E323A1A2BCC16AAF7E400E3F5FC5B86420
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1189737   (309926)
+
+Deep Woods - Balancing Act: A Yoga Journey (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Do
+
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1189737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeply Rooted (original mix) 07:15
+02. Dark Leaves Fall (original mix) 06:57
+03. Focused Contemplation (original mix) 07:54
+04. Determination (original mix) 07:16(   Читать дальше...   )Жанр: Electronica, DowntempoПродолжительность: 02:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760E9C4BEE466AF426B0C23BC3C57D995C0AC642
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1189800   (309902)
+
+VA - Post Workout Stretching: Music Chillout After Your Workout (2017) [MP3|320 Kbps] <Downtempo
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1189800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caner Soyberk - Sunshine
+02. Gualtiero Cesarini - My Guitar
+03. Andrea Marcelli - Sunset in Rio
+04. The Zen Agent - Spirits(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B881829AC85BECFF7778077CF3AD454854012C4A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 965439   (309632)
 
 Colombo - Abandoned Factory II (2015) [MP3|320 кб с] <Breaks>
@@ -28720,296 +29014,6 @@ Nostromosis - My Way (The Next Step) (2018) [FLAC|Lossless|WEB-DL|tracks] <Goa T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7DD0D1FAF07286B8B7199F95E26ACBF5B427891
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1195023   (273741)
-
-VA - Goa Psy Trance - 2018 Top 40 Hits Psychedelic Fullon Trance Progressive Techno Dance (2017)
-
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1195023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ovnimoon feat. Ascent & The Key  -  Spiritual Transformations (Original Mix)  7:37
-02.  BPM  -  The Tribe (Original Mix)  9:23
-03.  Aum Lab  -  Birth Of The Prophet (Original Mix)  8:07
-04.  Virtual Light  -  Castlevania (Remix)  6:44(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 04:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8556AAD8938579FF0AB9EBB51FD75A8C516F6746
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1292282   (273660)
-
-Her - Her (2018) [MP3|320 Kbps] <House, Alternative Rock, Indie>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1292282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Choose
-02. Five Minutes
-03. Icarus
-04. Blossom Roses(   Читать дальше...   )Жанр: House, Alternative Rock, IndieПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926A949EF5560E8F78069D1F965E3FC471FCBB0E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1292113   (273654)
-
-Current Value - Far Layer EP (2019) Othercide Records [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass
-
-
->>Electronic
->>Drum n Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1292113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dispelling Of Fear (feat. Coresplittaz) (05:54)
- 02. Ferromagnetic (04:51)
- 03. Photoelectric (04:27)
- 04. Far Layer (08:08)Жанр: Drum & Bass, AmbientПродолжительность: 00:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9A0BB5AE7EBCC21EBAA52F98978C2D87C1BDF4
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 934467   (273412)
-
-VA - FreeZone vol. 1-7 (1994-2001) SSR Records [FLAC|Lossless|tracks+.cue]<Downtempo, Ambient, F
-
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_934467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Of Apples - Prairie Oyster (05:04)
- 02. Audiomontage Vs Shur-I-Kan - The Freezone (07:17)
- 03. The Ananda Project Feat. Terrance Downs - Justice, Mercy (06:02)
- 04. dZihan & Kamien - Nargileh (05:01)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Future Jazz Downtempo AmbientПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3962E389D47896D82A1111991EE2A97F858133D7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1291944   (273374)
-
-Argus - Pure Love | Pure Chill​-​out Vol​.​1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chil
-
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1291944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Argus feat. Mina - The Invisible Sun - 07:24
-02. Argus & Ascent - Strong Connection - 06:51
-03. Argus - Feelings - 07:04
-04. Argus - Questions - 07:36(   Читать дальше...   )Жанр: Ambient, Chillout, PsychillПродолжительность: 02:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20F732CA7071E9D8DB6E40385806C023827848E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 969230   (273201)
-
-Harold Budd & Hector Zazou - Glyph (1995) MTM [FLAC|tracks +.cue]<Trip Hop, Ambient>
-
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_969230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandas In Tandem (5:46)
-02. You And Me Against The Sky (4:12)
-03. And Then She Stepped Aside (4:58)
-04. Around The Corner From Everywhere (4:51)(   Читать дальше...   )Жанр: Trip Hop, AmbientПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3854870677A077830FF5689259FEE9811E640572
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1273114   (273183)
-
-VA - Addicted 2 House, Vol. 30 (2018) [MP3|320 Kbps] <House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1273114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alaia & Gallo, J8Man - Hot 4 U
-02. Popcorn Poppers, Kiki Doll - The Leader (Radio Edit)
-03. Massivedrum - Don t Stop (Radio Edit)
-04. Kid Massive feat. Rebecca King Vanilla Ace Remix - H(   Читать дальше...   )Жанр: HouseПродолжительность: 01:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689DF06FC48661A85C824080720B72D8E0071B86
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1273027   (273178)
-
-VA - Ouie First X (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1273027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid Pauli & Nico Stojan – Sample Junkies (07:54)
-02. Kerala Dust - Maria | Acid Pauli & Nico Stojan Remix (07:41)
-03. David Mayer – The Girl with No Name (05:57)
-04. Jonathan Kaspar – Mera | Strip Down (06:01)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6AE3465068D874CCEC03E9EBB6DFDD9E2358D2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1272969   (273173)
-
-Kennelklubben - Kennelklubben (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1272969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Höghusmiljonär (05:09)
-02. 414 (04:14)
-03. Svarta Moln (04:10)
-04. Allt Som Nånsin Fanns (04:09)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E98E2F9222B5E636890908C1F0E51D32121196
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1292363   (273165)
-
-VA - Trancespotting Vol.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1292363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindsoundscapes - Grasping Life (Radio Cut) 3:19
-02. Con Phillips - Varanasi (Radio Cut) 3:51
-03. Unit Of Trance - Reserve (Radio Edit) 3:28
-04. Brent Rix - Desert Sun (Original Mix) 3:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2A5583C0393F55B6DDE969147656B615E5A66B
 ```
 
 #Mybot  @nnmclub_mybot

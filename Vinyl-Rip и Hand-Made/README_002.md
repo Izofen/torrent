@@ -1,4 +1,206 @@
 
+###  Публикация: 1150283   (136175)
+
+Валерий Леонтьев - Песни Раймонда Паулса (1984, 1986) 2LP Reissue [FLAC 2.0|96 24|image+.cue|V
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1150283.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Гиподинамия · Hypodynamics
+A2 Притяжение Любви · Attraction Of Love
+A3 Три Минуты · Three Minutes
+A4 Карусель · Merry-Go-Round(   Читать дальше...   )Жанр: Pop, Soul, DiscoПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D5ADDF7308AA30995A703AF22BFAD4D0C85D26
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1150965   (136166)
+
+The Beatles - The Beatles Hits (1991) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Beat, Rock & Roll
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1150965.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Michelle
+A2 In My Life
+A3 What Goes On
+A4 Run For Your Life(   Читать дальше...   )Жанр: Beat, Rock & RollПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F7117FBF0628A8A67A947F0FB16B1DE452A755
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1548628   (136098)
+
+Triosphere - Studio Albums (3 releases) (2006-2014) hand made [restored, declipped] [FLAC |1
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1548628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triosphere — норвежская Power Progressive Metal группа из Тронхейма, созданная в 2004 году вокалисткой и басисткой Идой Хаукланд и гитаристом Мариусом Сильвером Бергесеном.2006 - Onwards
+2010 - The Road Less Travelled
+2014 - The Heart of the MatterЖанр: Power Progressive MetalПродолжительность: 02:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D71D32F46155D77744B0DB554E85F5A157A2AE
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1162379   (136022)
+
+Pat Boone · Пэт Бун - April Love · Любовь В Апреле (1986) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1162379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовные Письма На Песке
+02. Звездная Пыль
+03. Они Не Могут Взять Это У Меня
+04. Бернадина(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422090CFC33B88B77F7BAE68016AA78C0083C5F0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1171052   (136010)
+
+VA - XXXL Европейский 3 (2000) [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1171052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modjo - Lady (Hear Me Tonight)
+02. Spiller - Groovejet (If This Ain t Love) (Radio Edit)
+03. Billie Piper - Day & Night
+04. Camilla Brinck - Bye Bye forever(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1162073   (136009)
+
+Argo  Арго - Discophonia Дискофония (1981) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Synth-po
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1162073.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A1
+A2 A2
+A3 A3
+A4 A4(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5137EDBBB84445E7956DAAAABB28F35A3E8041
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1172599   (136003)
+
+VA - Heavenly Bodies: Original Motion Picture Soundtrack (1988) [FLAC 2.0|96 24|image+.cue|Vin
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1172599.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bonnie Pointer - The Best In Me
+A2 Sparks - Breaking Out Of Prison
+A3 The Tubes - Out Of Control
+A4 Cheryl Lynn - At Last You`re Mine(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, SoundtrackПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1314976   (136000)
 
 Middle Of The Road - It s the Middle Of The Road (1973) [FLAC 2.0|192 24|image +.cue|Vinyl-R

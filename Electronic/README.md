@@ -1,4 +1,293 @@
 
+###  Публикация: 1819102   (761765)
+
+Markus Schulz - Global DJ Broadcast World Tour: Luminosity at Beachclub Fuel (2025-09-18) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1819102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dosem - Digital Futures
+02. Frenckel & Ton TB - Dark Cloud
+03. Woo York featuring Mark Tarmonea - Feeling (Korolova Remix)
+04. Rebūke - Glow(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE41CC7BC0DE58C09F44B261EFDD2272239A566F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1818018   (761619)
+
+Knorkator - Weltherrschaft für alle! (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Comedy Metal, Oli>
+
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1818018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ISMUS [00:02:41]
+02. Unkraut [00:03:39]
+03. Das Unheil [00:04:22]
+04. Buchstabe 2025 [00:04:08](   Читать дальше...   )Жанр: Industrial Metal, Comedy Metal, OliПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5276CD9E366F69827EBDF348D52AD54D97CFA185
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1818242   (761569)
+
+VA - Ibiza Afterlight - Chillout Soundscapes (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1818242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Random Classes - Reversed Thoughts (04:30)
+ 02 - Gamma Orionis - Next Stages (04:16)
+ 03 - Ritscher - Quick Adjustment (04:28)
+ 04 - Koronisia - Sudden Appearance (04:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA66C4C2B3576EE7AC5406E9C514064EF2E4A459
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1817203   (761252)
+
+Soul Central ft. Abigail Bailey - Time After Time (2007) [FLAC|Lossless|tracks] <Deep House>
+
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Time After Time (Soul Central Vocal Mix) 9:40
+02 Time After Time (Yoruba Soul Mix) 6:39
+03 Time After Time (Yoruba Soul Dub) 5:23Жанр: Deep HouseПродолжительность: 00:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923C1B8099F5CCD45A9ECE8A696DA32B5255A728
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1817042   (761046)
+
+VA - Summertime Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Feel So Good (7:10)
+02. Sharapov - Don't Cry (Toly Braun Remix) (3:21)
+03. Elegant Ape - Cheater (2:59)
+04. Abee Sash - When I First Saw You (Mant Deep Remix) (4:44)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481283F4AA89ED9E3014162BBEDE90AD3919965C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1816677   (760852)
+
+VA - D.Trance 111 (2025) [MP3|320 Kbps] <Trance>
+
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Re:Locate - Just a Dream [03:14]
+02. Afterus - Dreamwalking (Extended Mix) [05:29]
+03. Eximinds - Rising from the Depths (Extended Mix) [04:42]
+04. F.G. Noise - Revive (Extended Mix) [07:04](   Читать дальше...   )Жанр: TranceПродолжительность: 04:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89D248EF275D1B6F6A0118DABB85F9361E2D876
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1816640   (760850)
+
+VA - Tomorrowland Belgium (2025) [MP3|320 Kbps] <House, Trance, Techno>
+
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prodigy - Voodoo People (ALOK & Olly James Remix)
+02. Dustin Zahn - Stranger (To Stability) W/Nari & Milani - Atom (Blast Beat GO Acappella) W/AC/DC - Thunderstruck
+03. Tiga vs. Audion - Let's Go Dancing (ID Remix) W/Fred again.. & Skepta & PlaqueBoyMax - Victory Lap
+04. Anyma & Adam Sellouk - Girls M.I.A(   Читать дальше...   )Жанр: House, Trance, TechnoПродолжительность: 100:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C9A8A4870445BA6643ADE4C2380CE9EED02572
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1816453   (760751)
+
+VA - Ori Uplift - Uplifting Only Episode 656 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kvaii – Tenderness In Dreams (Intro Mix)
+02. Rinaly – Alchemy
+03. KayZen – I’ve Waited All My Life
+04. CO1N & Darkingz – Winter Sea (Darkingz Remix) (Breakdown Of The Week)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5585065EF9FF2E8B72D99FB8A7115338E0E2055
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1816451   (760750)
+
+VA - Armin van Buuren - A State Of Trance 1241 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darren Tate vs. Jono Grant – Let The Light Shine In (Nitrous Oxide Remix)
+02. Armin van Buuren ft. Malou – Everything I Wanted
+03. MORTEN & David Guetta – Lucky
+04. Nitrous Oxide & Vintage & Morelli – Faith (N2O Boosted Mix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9956DE26982E5AD3726EE5FF22CDBD79810B345C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1816128   (760577)
+
+VA - 25 Years Of Anjuna Mixed By CRi (2025) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Electronic>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Sun In Your Eyes (Original Mix) [4:52]
+02. Lane 8 feat. Lulu James - Loving You (Original Mix) [4:02]
+03. Ben Böhmer - After Earth (Original Mix) [7:38]
+04. YOTTO - Personal Space (Extended Mix) [6:52](   Читать дальше...   )Жанр: Deep House, Melodic House & Techno, ElectronicПродолжительность: 02:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89639531E806208E08FC26B8F803C1595A18DB1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1816008   (760485)
 
 VA - Magic Deep-House, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -28640,296 +28929,6 @@ Bill Leeb - Model Kollapse (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM  Electro  I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:358E66862247B87A848BB5DD884CB21FE8CB92EC
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1749260   (722123)
-
-VA - Armin van Buuren - A State Of Trance 1190 (2024) [MP3|320 Kbps] <Trance, Progressive, Electroni
-
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1749260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond ft. Richard Bedford – Heart Of Stone
-02. MEDUZA ft. HAYLA – Another World
-03. AYU – Move
-04. MORTEN & ARTBAT ft. Bonn – Hollow(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0482AC329A5B22493FBC5384A5905107E81CA2A3
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1749277   (722093)
-
-VA - Milk & Sugar Beach Sessions 2024 [MP3|320 Kbps] <House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1749277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yves Murasca - De Mi Corazón (Original Mix) (2:22)
-02. Tyler Stone - Movin On (Original Mix) (6:23)
-03. Scott Diaz - We Reminisce (Original Mix) (6:10)
-04. Miguel Migs - I Can Feel It (Piano Love Mix) (5:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721A099D045ED4F41CDDFEBA37E79D58C2A479BF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1749017   (722071)
-
-Ashbury Heights - Ghost House Sessions, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1749017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Bitter Flavour [00:04:09]
-02. You and Me Apart From the World [00:05:22]
-03. The Good the Bad and the Birds [00:03:36]
-04. Cry Little Sister [00:04:26](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3046BC60CDCB53FFA622C43FD5E02942A5377AE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748705   (721968)
-
-VA - Trance 2024, Vol. 7 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
-
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila & Richard Durand - Nebula (Original Mix) [4:12]
-02. BiXX & Stargazers & Sarah Russell - A River Runs Through Me (Original Mix) [3:32]
-03. Stoneface & Terminal - Sun & Soul (Original Mix) [3:52]
-04. Kaimo K & Ellie Lawson - Till I Found You (Original Mix) [3:35](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C2E4B0DF930E249EDF1257C88F602BFD411B52
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748676   (721959)
-
-VA - Uplifting Only Top 15: September 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting
-
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astral Zephyrus - Lune (Intro Mix) [5:46]
-02. HALIENE & Maratone - Make It To Tomorrow (Astuni & Manuel Le Saux Extended Remix) [6:37]
-03. Deme3us - You (Extended Mix) [7:09]
-04. DreamLife & Drunk Breeze - Rurouni Kenshin (Extended Mix) [7:08](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27C3E8CBB4D13CAD42F5F8E7B93E831A031C0FF
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748823   (721915)
-
-VA - Lebanon Arabic Ethnic Deep House Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nouri Fateh - Aah-W-Noss (6:30)
-02. Rachid Fairuz - Habiby Da (4:30)
-03. Burak Abulso'oud - Paro (5:41)
-04. Sanjay Lamjarred - Min Awel Dekika (5:45)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC008E2A7C184EB0A784934D4F371CF23F48F6E0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748615   (721888)
-
-Galaxy Observer - Through the Solar System (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey Begins (1:05)
-02. The Solar System (5:09)
-03. Martian Spaceship (5:35)
-04. Strange Signal (5:06)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A655B8C0690ACF66B9BF25154AC2B940CCF5B10
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748245   (721887)
-
-Symphony of Unity - The Countdown to Tomorrowland Brasil, São Paulo, Brazil (2024-08-29) [MP3|320 Kb
-
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kölsch ft. Troels Abrahamsen - All That Matters (ARTBAT Remix) (Live Orchestal Version)
-02. The Temper Trap - Sweet Disposition (John Summit & Silver Panda Remix) (Live Orchestal Version)
-03. Armin van Buuren ft. Susana - Shivers (Live Orchestral Version)
-04. Sebastian Ingrosso & Tommy Trash ft. John Martin - Reload (Live Orchestral Version)(   Читать дальше...   )Жанр: VariousПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66867FAC16E299DDB719971DB9C71C418FD589B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748169   (721758)
-
-Ultravox - Lament (1984) Deluxe Edition, 2024, Chrysalis Records [MP3|320 Kbps] <Synthpop, New Wave>
-
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White China (2024 Remaster) (03:52)
-02. One Small Day (2024 Remaster) (04:33)
-03. Dancing With Tears In My Eyes (2024 Remaster) (04:40)
-04. Lament (2024 Remaster) (04:41)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 6 CD, 06:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BFAA9C3B0FF9426339C6C4F102CC6825F6125D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1748031   (721757)
-
-VA - Kontor Top of the Clubs Vol. 100 (4LP) (2024) [MP3|320 Kbps] <Electronic, Dance, Club, House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1748031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris - Feel So Close (Extended Mix) [05:30]
-02. ATB - 9 PM (Till I Come) (9 PM Mix) [06:08]
-03. FISHER - Losing It [04:08]
-04. Swedish House Mafia feat. Pharrell - One (Your Name) (Vocal Mix) [05:51](   Читать дальше...   )Жанр: Electronic, Dance, Club, HouseПродолжительность: 02:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6077D600574EEE2F5325AA7FEA5E63532654BB
 ```
 
 #Mybot  @nnmclub_mybot

@@ -1,4 +1,237 @@
 
+###  Публикация: 684896   (568251)
+
+Styx - Grand Illusion (1977) [FLAC 2.0 24 192|image (Vinyl-Rip)]<Progressive Rock>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+A1. The Grand Illusion [4:39]
+A2. Fooling Yourself [5:31]
+A3. Superstars [4:04]
+A4. Come Sail Away [6:11]
+B1. Miss America [5:05]
+B2. Man In The Wilderness [5:50]
+B3. Castle Walls [6:00]
+B4. The Grand Finale [2:00]Жанр: Progressive RockПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6505D116A4A638D3660539C646711A4BE8BA433A
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 684807   (568154)
+
+Алексей Рыбников - Звезда И Смерть Хоакина Мурьеты (1978) 2LP [FLAC 2.0 24 96|tracks (Vinyl-
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+23. Клятва Хоакина (1:34)
+24. Месть Хоакина (2:31)
+25. Вторая ария Смерти (3:41)
+26. Воспоминание о Родине (1:27)
+27. Шествие к могиле Тересы (2:07)
+28. Эпилог (1:44)Жанр: Рок-операПродолжительность: 00:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72128B3BD9CBE0989130F6D940446C3C1935766
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1000790   (568028)
+
+Electric Light Orchestra - Time (1981) [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Progressive Ro
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1000790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (1:15)
+02. Twilight (3:37)
+03. Yours Truly, 2095 (3:17)
+04. Ticket to the Moon (4:07)(   Читать дальше...   )Производство: Jet Records - 25AP 2111(JT)Жанр: Progressive RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9F84897677346A07E5D1305DA4DE691DA79362
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 685142   (567988)
+
+ABBA (Bjorn, Benny, Agnetha & Frida) - Waterloo (1974) [FLAC 2.0 24 192|image (Vinyl-Rip
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+A1 Waterloo [2:47]
+A2 Sitting In The Palmtree [3:40]
+A3 King Kong Song [3:16]
+A4 Hasta Manana [3:13]
+A5 My Mama Said [3:17]
+A6 Dance (While The Music Still Goes On) [3:16]
+B1 Honey, Honey [2:57]
+B2 Watch Out [3:48]
+B3 What About Livingstone [2:58]
+B4 Gonna Sing You My Lovesong [3:42](   Читать дальше...   )Жанр: Disco PopПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA831736BC7CBC1409BAF3908A74F0DC1339D57
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 685265   (567642)
+
+ABBA - The Album (1977) [FLAC 2.0 24 192|image (Vinyl-Rip)]<Disco Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+A1 Eagle 5:49
+A2 Take A Chance On Me 4:00
+A3 One Man One Woman 4:32
+A4 The Name Of The Game 4:56
+B1 Move On 4:43
+B2 Hole In Your Soul 3:45
+ The Girl With The Golden Hair  - 3 Scenes From A Mini-Musical -
+B3-A Thank You For The Music 3:51
+B3-B I Wonder (Departure) 4:32
+B3-C I m A Marionette 4:06Жанр: Disco PopПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246AAEF6CB0445576B5C65EB46759510F44A4FA0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 685314   (567630)
+
+ABBA - Super Trouper (1980) [FLAC 2.0 24 192|image (Vinyl-Rip)]<Disco Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+A1 Super Trouper [4:12]
+A2 The Winner Takes It All [4:54]
+A3 On And On And On [3:41]
+A4 Andante, Andante [4:39]
+A5 Me And I [4:58]
+B1 Happy New Year [4:26]
+B2 Our Last Summer [4:22]
+B3 The Piper [3:28]
+B4 Lay All Your Love On Me [4:37]
+B5 The Way Old Friends Do [3:24]Жанр: Disco PopПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5185B505EE7C1AA31EAE5A0A5F7C184C901B4F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 685280   (567629)
+
+ABBA - Voulez - Vous (1979) [FLAC 2.0 24 192|image (Vinyl-Rip)]<Disco Pop>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
+</div>
+
+
+###  Подробнее
+
+A1 As Good As New [3:26]
+A2 Voulez-Vous [5:12]
+A3 I Have A Dream [4:47]
+A4 Angeleyes [4:25]
+A5 The King Has Lost His Crown [3:38]
+B1 Does Your Mother Know [3:15]
+B2 If It Wasn t For The Nights [5:12]
+B3 Chiquitita [5:27]
+B4 Lovers (Live A Little Longer) [3:33]
+B5 Kisses Of Fire [3:19]Жанр: Disco PopПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44648A52BDA7A5C6BC8F7FDA07DEA50C03605BF5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 685194   (567594)
 
 Lester Paul Orchestra - Tenor Saxophone Mood Collection (1975) 2LP Japan, RCA Records [FLAC 2.0
@@ -29282,208 +29515,6 @@ VA - Rock Remakes Part two - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B58CB75A67DFA0E67077CD05B20CF9AF1F09A1D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1150283   (136175)
-
-Валерий Леонтьев - Песни Раймонда Паулса (1984, 1986) 2LP Reissue [FLAC 2.0|96 24|image+.cue|V
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1150283.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Гиподинамия · Hypodynamics
-A2 Притяжение Любви · Attraction Of Love
-A3 Три Минуты · Three Minutes
-A4 Карусель · Merry-Go-Round(   Читать дальше...   )Жанр: Pop, Soul, DiscoПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D5ADDF7308AA30995A703AF22BFAD4D0C85D26
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1150965   (136166)
-
-The Beatles - The Beatles Hits (1991) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Beat, Rock & Roll
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1150965.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Michelle
-A2 In My Life
-A3 What Goes On
-A4 Run For Your Life(   Читать дальше...   )Жанр: Beat, Rock & RollПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F7117FBF0628A8A67A947F0FB16B1DE452A755
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1548628   (136098)
-
-Triosphere - Studio Albums (3 releases) (2006-2014) hand made [restored, declipped] [FLAC |1
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1548628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triosphere — норвежская Power Progressive Metal группа из Тронхейма, созданная в 2004 году вокалисткой и басисткой Идой Хаукланд и гитаристом Мариусом Сильвером Бергесеном.2006 - Onwards
-2010 - The Road Less Travelled
-2014 - The Heart of the MatterЖанр: Power Progressive MetalПродолжительность: 02:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D71D32F46155D77744B0DB554E85F5A157A2AE
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1162379   (136022)
-
-Pat Boone · Пэт Бун - April Love · Любовь В Апреле (1986) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1162379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любовные Письма На Песке
-02. Звездная Пыль
-03. Они Не Могут Взять Это У Меня
-04. Бернадина(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422090CFC33B88B77F7BAE68016AA78C0083C5F0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1171052   (136010)
-
-VA - XXXL Европейский 3 (2000) [FLAC 2.0|44,1 16|image+.cue|MC-Rip] <Pop>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1171052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modjo - Lady (Hear Me Tonight)
-02. Spiller - Groovejet (If This Ain t Love) (Radio Edit)
-03. Billie Piper - Day & Night
-04. Camilla Brinck - Bye Bye forever(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1162073   (136009)
-
-Argo  Арго - Discophonia Дискофония (1981) [FLAC 2.0|96 24|image+.cue|Vinyl-Rip] <Synth-po
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1162073.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A1
-A2 A2
-A3 A3
-A4 A4(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5137EDBBB84445E7956DAAAABB28F35A3E8041
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1172599   (136003)
-
-VA - Heavenly Bodies: Original Motion Picture Soundtrack (1988) [FLAC 2.0|96 24|image+.cue|Vin
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1172599.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bonnie Pointer - The Best In Me
-A2 Sparks - Breaking Out Of Prison
-A3 The Tubes - Out Of Control
-A4 Cheryl Lynn - At Last You`re Mine(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, SoundtrackПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
 ```
 
 #Mybot  @nnmclub_mybot

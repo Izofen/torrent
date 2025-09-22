@@ -1,4 +1,291 @@
 
+###  Публикация: 1408234   (112898)
+
+VA - Kate Miles - Voice Of Suanda (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1408234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don t Let Me Fall (Extended Mix)
+02. Home (Aimoon Extended Remix)
+03. Like A Miracle (Denis Kenzo Extended Remix)
+04. Your Love (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBDC33A779834EBEB9883EF2A4DA30546D64A2C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1229966   (112643)
+
+VA - Electronic Saviors • Industrial Music To Cure Cancer - Discography 12 Releases (2010-2021)
+
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1229966.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010 - Electronic Saviors (5CD)
+2012 - Electronic Saviors Volume II • Recurrence (8CD)
+2014 - Electronic Saviors Volume III • Remission (6CD)
+2016 - Electronic Saviors Volume IV • Retaliation (6CD)(   Читать дальше...   )Жанр: Industrial, EBM, Dark Electro, Noise, Darkwave, MetalПродолжительность: 57:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3263AA0AA7A376FFE8E363A8DBB5F7C8967590B0
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 224726   (112513)
+
+Tomcraft - 4 Альбома (2002 - 2007) [FLAC, APE|Lossless]<House, Electro, Ambient, Breaks, Progres
+
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_224726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: House, Electro, Ambient, Breaks, Progressive, TechnoПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9850AD38E0381FE6DFDE453988EA9FBC3C547D72
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1614852   (112482)
+
+VA - Black Hole House Music 02-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1614852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT - Mercury & Solace (Helsloot Remix) [03:39]
+02. Siskin - Always You [02:45]
+03. Ton TB - Electronic Malfunction (Yurie Remix) [03:52]
+04. JES - Awaken (Elypsis Remix) [03:37](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912D2E6461BE4759C24DB7BA0F653991AB115053
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1614821   (112475)
+
+VA - Black Hole Trance Music (02-23) (2023) [MP3|320 Kbps] <Trance>
+
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1614821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somna - Hold You [02:48]
+02. LTN - Lone Wolf [02:56]
+03. Ram - Where I Want To Be [03:15]
+04. Markus Schulz - Prestwick [03:24](   Читать дальше...   )Жанр: TranceПродолжительность: 01:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130DD79798D0F6C1C8D648E10754D71F26F2E93D
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1614781   (112472)
+
+Monflame - Voyager (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1614781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Dark [00:01:51]
+02. Play [00:03:27]
+03. Soma Dreams [00:03:51]
+04. Last Summer [00:04:07](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF66A4A788D720EEB2E0F9B35AB5BDBC7AF6B11
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1451096   (112415)
+
+Timmy Trumpet - SINPHONY Radio 001-077 (2021-2022) [MP3|320 Kbps] <Electro House, Hardstyle, Big
+
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1451096.jpg" />
+</div>
+
+
+###  Подробнее
+
+SINPHONY Radio 001
+01. Nick Strand & Mio & LUM!X - Annie Are You Ok (LUM!X Remix)
+02. Tom Westy - Tell Me
+03. Keanu Silva - Turn It Up(   Читать дальше...   )Жанр: Electro House, Hardstyle, Big RoomПродолжительность: 77:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7326B8005A51D175E1A16C1D2CDBB6F36A7F4C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1614785   (112307)
+
+Yello - Yell40 Years — Non-Album Songs & Remixes (2022) 2 x CD, Compilation [FLAC|Lossless|image
+
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1614785.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. XS (First Ever Version) 5:22
+02. L.T. Splash 2:47
+03 There Is No Reason 3:57(   Читать дальше...   )Жанр: Synth-pop, Progressive HouseПродолжительность: 02:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04C370DDC0B458743869BC3FBA03DE581F54B8F
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1570036   (112282)
+
+Pet Shop Boys - Introspective (1988) [OGG|485 Kbps] <House, Synthpop>
+
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1570036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left To My Own Devices	8:16
+02. I Want A Dog	6:15
+03. Domino Dancing	7:40
+04. I m Not Scared	7:23(   Читать дальше...   )Жанр: House, SynthpopПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE82642626A6F9B4E95AF96AB0F63878D688E11
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1569930   (112277)
+
+Proxyon - Proxyon (1989) [OGG|485 Kbps] <Synthpop>
+
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1569930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Guards                      	6:45
+02. Space Travellers                  	5:20
+03. Space Hopper                        6:18
+04. Space Fly (Magic Fly)         	6:40(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B7B73E400E699FA3FE70EDDAF4795673773750
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1570069   (112274)
 
 Pet Shop Boys - Please (1986) [OGG|485 Kbps] <Synthpop>
@@ -28551,296 +28838,6 @@ VA - FSOE 700 - Rise Up (Mixed by Fuenka & Paul Denton) (2021) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:937490DAD0D0164C14AD174C63D6A61786682B70
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1674089   (53258)
-
-Nicolas Barnes - Liquid Tools (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
-
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1674089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Tools
-02. Brick Sky
-03. Free Will
-04. Hard Case(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 01:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B321B76BA3D2599425934E21D4FAE818BFCABF6
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1516939   (53186)
-
-VA - Techno Club Vol. 64 (Mixed by Talla 2XLC, Alessandra Roncone & Madwave) (2021) [MP3|320
-
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1516939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC & Clara Yates - Shadow Left Behind (Extended Mix) (6:19)
-02. Hemstock & Mercurial Virus - Tibira (Extended Mix) (6:11)
-03. Ruben De Ronde & That Girl - Lose Yourself (Jimmy Chou Extended Mix) (6:24)
-04. BiXX & Eryon Stocker - Petrichor Effect (Extended Mix) (7:29)(   Читать дальше...   )Жанр: TranceПродолжительность: 09:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682D3C08FD4CDF3D67E7D7AC9D4EC5F36B9236C8
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1674222   (53118)
-
-††† (Crosses) - Goodnight, God Bless, I Love U, Delete (2023) [FLAC|Lossless|tracks + .cue]
-
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_009/save_picture_1674222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pleasure (04:16)
-02. Invisible Hand (03:54)
-03. Found (03:25)
-04. Light as a Feather (03:09)(   Читать дальше...   )Жанр: Synthpop, Experimental, Electronic RockПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389CC70E4A9E1D10F7A92D47394756AF33874D35
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1595865   (52722)
-
-VA - Remix Rockets (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1595865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chantola, J-Junior -  Don t You Know (Hector Sawiak Remix)  (8:08)
-02.  Thorin -  Ancient Times (Chris M Progressive Mix)  (10:14)
-03.  21Street -  Mind Bender (Phony Orphants Remix)  (7:00)
-04.  Zas, Sanze, Mindgamers -  Soul To Soul (Fab Code Remix)  (7:24)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C1E855224D65601E2AAA84D2143D60B38BBEF2
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1674160   (52623)
-
-VA - Solarstone Presents Pure Trance 10 (Mixed By Solarstone) (2023) [MP3|320 Kbps] <Trance,
-
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_1674160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stoneface & Terminal - Lose My Need (Robert Nickson Chillout Intro Mix) (Mixed) [1:49]
-02. Solarstone & Aquarius - Arpeggiator Shards (Mixed) [6:13]
-03. Pablo Gargano - The Breeze (Mixed) [4:47]
-04. Macker - Arrakis (Mixed) [7:08](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 07:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6956C98BDB4DF98739D23D760C863D43EC4FCB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1517268   (52619)
-
-Hodel - Live @ Monday Bar (God Rave The Queen Cruise), Tallink Silja, Sweden (2021-11-06) [M
-
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1517268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto vs. Mark Norman - Flight 643 Overkill (Hodel s AMS Intro Mash)
-02. Randy Katana - Play Gemini Louder (Hodel s Phat Mash)
-03. Divini & Warning vs. Fable - 4LB Nightshift (Hodel Mashup)
-04. Armin vs. M.I.K.E. - Intruder (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327B3B7ABECD6B558BE14C53327DB6858A2E3030
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1517284   (52617)
-
-Tim van Werd - Live @ Pyramid of Austerlitz, Netherlands (2021-12-09) [MP3|320 Kbps] <Progressiv
-
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1517284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim van Werd - Come Back To Me
-02. Delhia De France, Anyma, Janus Rasmussen - Claire (feat. Delhia De France)
-03. Eel1ke Kleijn - Mont Saint-Michel
-04. Tim van Werd - Tell It All(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD5CB21ABA51E412BF923809D30711739ED5E9E
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1674697   (52541)
-
-Darude - Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Dance>
-
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1674697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer Together [4:12]
-02. Outlaws [2:58]
-03. Nobody Listens [3:07]
-04. Breathe [3:00](   Читать дальше...   )Жанр: Electronic, Trance, DanceПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BECBC5C0F18C7916E5ECE30F264E12AF952308
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1516898   (52488)
-
-Siouxsie And The Banshees - Once Upon A Time The Singles (1981) Remaster, 1992, Geffen Records
-
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1516898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hong Kong Garden [2:55]
-02.Mirage [2:49]
-03.The Staircase (Mystery) [3:06]
-04.Playground Twist [3:02](   Читать дальше...   )Жанр: New Wave, Goth RockПродолжительность: 00:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3694C4FA0F112320775D160952279714EF07B1C7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1517232   (52406)
-
-VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossless|WEB|track
-
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_003/save_picture_1517232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woody Van Eyden & Rene Ablaze - All My Life (Extended Mix) (6:54)
-02. Kenny Palmer - Zandalar (Extended Mix) (6:00)
-03. Ferrin & Low - Breeze (Woody van Eyden Extended Remix) (7:00)
-04. TrancEye - From The Ashes (Extended Mix) (6:51)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01A5330474CFDC8B1DA500C2A7CAE5B4F5988EB
 ```
 
 #Mybot  @nnmclub_mybot

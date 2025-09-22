@@ -1,4 +1,294 @@
 
+###  Публикация: 1222446   (471807)
+
+VA - Spring Tube Journey. UK (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House
+
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1222446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subalpine - Sweet Love (Original Mix) (5:57)
+02. Subalpine - Dusk (Original Mix) (5:49)
+03. Mysteria (UK) - Illusion (Original Mix) (5:34)
+04. Mysteria (UK) - Sunrise (Original Mix) (6:10)(   Читать дальше...   )Жанр: Progressive House, Deep House, Chill HouseПродолжительность: 01:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401F98F410FE8F4971A2EB4811FBE12798CA01C7
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1222464   (471803)
+
+VA - The Real Silent Mode (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1222464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klasse Xxi - Waldesdunkel 6:05
+02. Hear My Soul - Black Forest 4:44
+03. Andere Orte - Grand Central 4:00
+04. Klausies - Slushaj 5:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926999ED2C4DCD488E526DD91C97F349C30238BF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 907098   (471630)
+
+VA - House of Love Vol. 1 (2015) [MP3|320 кб с]<House, Deep House>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_907098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renee Alexandre - Relax (03:17)
+02. Magic Elements - Funky Doobiest (03:30)
+03. Island Beats - Intercontinental (03:37)
+04. Deep Alchemy - No Fusion (03:39)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E457D7EB34A50F51EF74B752D59A7DEF447050C5
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1123678   (471478)
+
+Blank & Jones - Milchbar: Seaside Season 9 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Loun
+
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1123678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - My Island
+02. Blank & Jones with Zoe Dee - Adios Ayer
+03. Cantoma - Sea of Blue
+04. Zee Erf feat. Francesca Mondi - Southern Freeez (Mudd s Mix for Emma)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAACE20C30B8C80AB108A2993CAB80A801D3613
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1279950   (471290)
+
+VA - Festival Anthems Vol.4 (2019) [MP3|320 Kbps] <Trance>
+
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1279950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - New Era (Suanda 150 Anthem) (Extended Mix)
+02. Frainbreeze - #Dvrk5ide (Extended Mix)
+03. Ruslan Radriges - Revival (Extended Mix)
+04. Adip Kiyoi - Start With A Dream (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA4D9B6C5DE90A8FD3BAF3E954D85CF11E87891
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1279933   (471289)
+
+VA - JOOF 20 Years (Mixed by Gary Delaney & Facade & Daniel Lesden) (2018) [MP3|320 Kbps] <P
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1279933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Delaney – JOOF 20 Years - Mixed by Gary Delaney (Continuous DJ Mix)
+02. Facade – JOOF 20 Years - Mixed by Facade (Continuous DJ Mix)
+03. Daniel Lesden – JOOF 20 Years - Mixed by Daniel Lesden (Continuous DJ Mix)
+04. Monojoke – Hollow Child (Original Mix)(   Читать дальше...   )Жанр: Progressive House,TranceПродолжительность: 11:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E901980BCDA19C1F6477172BBFF7C6B55F0099
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1279882   (471288)
+
+VA - Nothing But...Tech House Essentials, Vol.07 (2019) [MP3|320 Kbps] <Tech House>
+
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1279882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GAWP - Blocker (Original Mix)
+02. Hott Like Detroit - Groovers (Dub Mix)
+03. Fachini - Keep Holding (Original Mix)
+04. Black V Neck - Listen To My Flute(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BF280374615AD4D11B20A4D270D74800B4687C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1279959   (471286)
+
+VA - Nicholson - Glorious (The Album) (2019) [MP3|320 Kbps] <Trance>
+
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1279959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholson - Toward The Light (Feat. Jennie Osborn) (Original Mix)
+02. Nicholson - Society (Original Mix)
+03. Nicholson & Emoiryah - In The Need (Original Mix)
+04. Nicholson - Shut Them Down (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D497DFE00126DDEF837B82F6F3A814C74B54D72E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1279749   (471285)
+
+Manet - Devour (2017) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Post Rock>
+
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_008/save_picture_1279749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norwegian Horror Saga
+02. Delirious And Devoured
+03. Doctor Schnabel Von Rom
+04. Vendredi Noir(   Читать дальше...   )Производство: Dark Jazz Records – DJR 001Жанр: Ambient, Dark Ambient, Dark Jazz, Doom Jazz, Post RockПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732A90F7251BBAA669A66830586A54A5BC08DC37
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1279871   (471256)
+
+Erik Wøllo (Erik Wollo) - Infinite Moments (2018) Projekt [FLAC|Lossless|WEB-DL|tracks] <Amb
+
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1279871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinite Moments Pt. 1 (11:12)
+ 02. Infinite Moments Pt. 2 (11:24)
+ 03. Infinite Moments Pt. 3 (09:49)
+ 04. Infinite Moments Pt. 4 (05:50)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22DEC6273A3936A326F1E0FB50DB9C6541BB7E1
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1279844   (471244)
 
 VA - Paul Oakenfold: Sunset At Stonehenge (2019) [MP3|320 Kbps] <House, Deep House, Electronic>
@@ -29645,296 +29935,6 @@ VA - Terrace Lounge Session (2015) [MP3|320 кб с]<Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2BE8200DBC409B2267DA8DAAB3EB099D98F0DAD
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 921735   (428463)
-
-SuryaDemaH - The Seven Cities of Love (2015) [MP3|320 кб с]<Ambient, Downtempo, Psychill, Psyt
-
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_006/save_picture_921735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attars Remedy
-02. Ancient Ceremony
-03. We Are The World
-04. Allahveysi(   Читать дальше...   )Жанр: Ambient, Downtempo, Psychill, Psytrance, EthnicПродолжительность: 01:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3168DF3024F7E517486C5DB992C63EDB91A1E9F0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 574619   (428408)
-
-Avicii - 28 Релизов (2008-2012) [MP3|320 кб с]<Progressive House, Trance>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_574619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive House, TranceПродолжительность: 00:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9902F3FD43E4B00A887F2A605A219FF95BA939
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 921817   (428375)
-
-Steven Solveig - Soulwalker (2015) [FLAC|tracks|WEB-DL]<Downtempo, Balearic, Lounge, ChillOut>
-
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_921817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Answers (03:46)
-02. Calm Days (02:41)
-03. Ocean Waves (03:39)
-04. Far and Away (03:36)(   Читать дальше...   )Жанр: Downtempo, Balearic, Lounge, ChillOutПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42DA4E0F3150D778184877AD02FA9855A8696CF1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1232521   (428325)
-
-VA - The Best Of Critical Uprising 001 (2018) [MP3|320 Kbps] <Trance>
-
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1232521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Allen Watts - Limitless (Original Mix)
-02.Allen Watts - Polarize (Original Mix)
-03.Anna Lee - Endeavour (Craig Connelly Remix)
-04.Dub Tek - Fantasy (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27EF68210BBFC434A21073E214CAD559FCC0B323
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1232531   (428324)
-
-VA - Underground Trance Essentials Vol. 01 (2018) [MP3|320 Kbps] <Trance>
-
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1232531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depka - Look Back (Eddie Sender Remix)
-02. R-Cross - Ray of Sun (Original Mix)
-03. James De Torres - Chimera (Original Mix)
-04. Diarent - Sunrise (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE05E3AC3082A280B37A4A143A99DD36B3412047
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1232502   (428317)
-
-VA - Best Charts: Summer Of Dance (2018) [MP3|320 Kbps] <Deep House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1232502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr Luke - Like This Like That (Born In 70s Mix) 8:10
-02. Max Gazeta - Koshka (Original Mix) 8:13
-03. Silver Disco - Detroit (Original Mix) 4:32
-04. Bonsugi - Good Time (Original Mix) 4:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E74C8A9C4AE07F112FE97A5B264680BFF311FAB
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1136094   (428289)
-
-VA - Melodic Vocal Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
-
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1136094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Susana - Only Summer Knows (Radio Edit) 4:12
-02.  Alan Morris & Elles de Graaf - Calm The Night (Ferrin & Morris Edit) 4:05
-03.  Stargazers & Fenna Day - Soul From Harm (F.G. Noise Edit) 3:55
-04.  Myde & Ellie Lawson - Feeling It All (Radio Edit) 3:47(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00C87DDEA3A95C746C3529ED568DE5FA998BDA7
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1135666   (428283)
-
-Erasure - World Be Gone (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New-Wave>
-
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_004/save_picture_1135666.jpg" />
-</div>
-
-
-###  Подробнее
-
-17-й студийный альбом британского электронного дуэта ERASURE!
-«World Be Gone» следует за диском «The Violet Flame» (2014) и продолжает дальнейшее празднование 30-летия группы.
-Лонгплей включает 10 новых треков, написанных, исполненных и спродюсированных самими Erasure и сремикшированных Мэтти Грин (Matty Green).
-(   Читать дальше...   )01.  Love You To The Sky 4:26
-02.  Be Careful What You Wish For! 3:21
-03.  World Be Gone 3:40
-04.  A Bitter Parting 3:13(   Читать дальше...   )Жанр: Synthpop, New-WaveПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AD2D11370ECFDD25E07DB9B07E1DC1E8DAF29D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1232513   (428278)
-
-VA - Ibiza Opening Party 2018 (Deluxe Version) [MP3|320 Kbps] <House, Tech House, Deep House>
-
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_005/save_picture_1232513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sounds Fine - Colours (Original Mix) 5:54
-02. MKVG - I Can Give (Original Mix) 5:47
-03. Mack Jack - Marimba (Original Mix) 3:38
-04. Martin Zoom - Above You (Extended Mix) 4:12(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129558B2B68B03ADB7E90FDC5C8698D9DB93BFE1
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1232423   (428271)
-
-Stardance - Stars Challenge (2017) [MP3|320 Kbps] <Spacesynth>
-
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1232423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can t Stop To Dance (06:06)
-02. Empire s Attack (05:50)
-03. Space Battle (07:03)
-04. Supreme Powers (06:04)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD8744A9CFF40D5BC72C6AE1C4B50D2D9911ADAA
 ```
 
 #Mybot  @nnmclub_mybot

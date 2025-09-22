@@ -1,4 +1,91 @@
 
+###  Публикация: 1817637   (761431)
+
+Инкогнито - Самурай (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817637.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Январь
+2. До тебя
+3. Лжец
+4. Самурай(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9A293382D2B9AE5F4245C18168A725334D518E
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1817639   (761429)
+
+Сектор Газовой Атаки - Никогда не сдавайся (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817639.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Суть
+2. Друг
+3. Тень пятиэтажек
+4. Вопреки(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E9EE565DCCA7A72E55F39DAC349185331703BF
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1817523   (761309)
+
+Гарик Сукачёв - 65 лет. Король Проспекта Live (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро Live (1:39)
+02. Ночной полёт Live (3:56)
+03. Король проспекта Live (4:07)
+04. Право на выбор Live (6:19)(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04EE3E782F9C2A7BFC82F620A6EFBF22D448565
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1808803   (757445)
 
 Би-2 - Это не бомбы, а просто летний гром (2025) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -30113,93 +30200,6 @@ magnet:?xt=urn:btih:22838FD42F8A268E92406D39CAFA0F5BDDF69F0B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA1381F8B9611FF7FDE897D33695ACACA26AC59F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1188239   (313832)
-
-ГильZа - Яестьлюбовь (2017) [FLAC|Lossless|image + .cue] <Rock, Alternative>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1188239.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Яестьлюбовь
-2. Голуби
-3. Вместе
-4. Три тысячи(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAC1066D64C2BD347DE0DD0FF45446A3124165B
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1188299   (313548)
-
-Bloodrain - De Vermis Mysteriis (2001) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1188299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бессмертный (Undead) 03:55
-02. De Vermis Mysteriis 04:49
-03. Зов (The Call) 04:11
-04. Путь скорби (The Path of Grief) 03:53(   Читать дальше...   )Жанр: Thrash Metal, Black MetalПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE4B2CBD4729AD63861F22A862F7E42B1ABAF7D
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1188417   (313523)
-
-Тиран - Apocalyptic Tales (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200save_picture_1188417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agony In Hate
-02. Crawling Pile
-03. Entropy
-04. Metal Messiah(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1684D8FAA79DAE31840A013DBD466CF7AA0E2248
 ```
 
 #Mybot  @nnmclub_mybot

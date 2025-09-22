@@ -1,4 +1,204 @@
 
+###  Публикация: 1818227   (761589)
+
+Taetre - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1818227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Taetre - метал-руппа из Гётеборга, Швеция, образована в 1995 году, распалась в 2009.1997 - The Art
+1999 - Out of Emotional Disorder
+2002 - Divine Misanthropic MadnessЖанр: Melodic Death/Thrash MetalПродолжительность: 01:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC54EACDF18F00A3E974E980B3645C56A5A69288
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1818224   (761588)
+
+Caliban - Studio Albums (16 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1818224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caliban - металкор-группа из Германии, образованная в 1997 году в Хаттингене.1998 - Caliban (EP)
+1999 - A Small Boy And A Grey Heaven
+2001 - Vent
+2003 - Shadow HeartsЖанр: MetalcoreПродолжительность: 12:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44898F5A8576B2844B0872DE6E0C84E71638F224
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1818225   (761587)
+
+Tonix - Santo Domingo (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk, Country>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1818225.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dar Bara Manen Ser (Under The Moon Of Love)
+A2 Tornerai Tornero
+A3 Forever
+A4 Sen Jag Fann Dej (We Made Love)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB8B3BCF52FAB37BC9F26F76880FCF5D21E3C13
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1817647   (761407)
+
+Hypermass - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hypermass - метал-группа из Норвегии, образована в 2012 году.2015 - Clouded Visions (EP)
+2022 - Empyrean
+2025 - Apparition Day (EP)Жанр: Melodic Death MetalПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329A08C375C03CEF7AA5D5BDB9528FC389639EC2
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1817348   (761207)
+
+Orchestra Electrecord + Grupul vocal «Cantabile» - Non Stop Dancing I (1971) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Jazz-Funk, Soul, Disco>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aa Venus
+Ab Sugar, Sugar
+Ac Ob-La-Di, Ob-La-Da
+Ad Tzuri, Tzuri(   Читать дальше...   )Жанр: Jazz-Funk, Soul, DiscoПродолжительность: 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD390D04CFE8A254AE87D3CE107E50B0042370C
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1817052   (761095)
+
+Skyharbor - Studio Albums (3 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1817052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skyharbor - рок-группа из Индии, образованная в 2008 году2012 - Blinding White Noise: Illusion & Chaos
+2014 - Guiding Lights
+2018 - Sunshine DustЖанр: Progressive MetalПродолжительность: 02:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0474B38978AAD1728E56BA52E6D21D1EBE9AC7E9
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
+###  Публикация: 1816290   (760678)
+
+TesseracT (& Daniel Tompkins) - Studio Albums (7 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent>
+
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://a123bot.cloudpub.ru/download/picture/picture_010/save_picture_1816290.jpg" />
+</div>
+
+
+###  Подробнее
+
+TesseracT - британская рок-группа из города Милтон-Кинс, образованная в 2003 году. Группа считается одним из пионеров джент-направления в прогрессивном метале.2011 - One
+2013 - Altered State
+2015 - Polaris
+2018 - SonderЖанр: Progressive Metal, DjentПродолжительность: 06:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0640E4329519E4EA9CC5590F1471C2D8B94E0866
+```
+
+#Mybot  @nnmclub_mybot
+
+---------------------------------------------------------------------------------------------------------------
+
 ###  Публикация: 1815862   (760415)
 
 Huntress - Studio Albums (4 releases) (2010-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
@@ -29306,239 +29506,6 @@ B4. Suite Madame Blue [6:36]Жанр: Progressive RockПродолжительн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A6D0C6C77DB1A6723558B4068DECE40FAD25B9C
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 684896   (568251)
-
-Styx - Grand Illusion (1977) [FLAC 2.0 24 192|image (Vinyl-Rip)]<Progressive Rock>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-A1. The Grand Illusion [4:39]
-A2. Fooling Yourself [5:31]
-A3. Superstars [4:04]
-A4. Come Sail Away [6:11]
-B1. Miss America [5:05]
-B2. Man In The Wilderness [5:50]
-B3. Castle Walls [6:00]
-B4. The Grand Finale [2:00]Жанр: Progressive RockПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6505D116A4A638D3660539C646711A4BE8BA433A
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 684807   (568154)
-
-Алексей Рыбников - Звезда И Смерть Хоакина Мурьеты (1978) 2LP [FLAC 2.0 24 96|tracks (Vinyl-
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-23. Клятва Хоакина (1:34)
-24. Месть Хоакина (2:31)
-25. Вторая ария Смерти (3:41)
-26. Воспоминание о Родине (1:27)
-27. Шествие к могиле Тересы (2:07)
-28. Эпилог (1:44)Жанр: Рок-операПродолжительность: 00:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72128B3BD9CBE0989130F6D940446C3C1935766
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 1000790   (568028)
-
-Electric Light Orchestra - Time (1981) [FLAC 2.0|192 24|image + .cue|Vinyl-Rip]<Progressive Ro
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/picture_002/save_picture_1000790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (1:15)
-02. Twilight (3:37)
-03. Yours Truly, 2095 (3:17)
-04. Ticket to the Moon (4:07)(   Читать дальше...   )Производство: Jet Records - 25AP 2111(JT)Жанр: Progressive RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9F84897677346A07E5D1305DA4DE691DA79362
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 685142   (567988)
-
-ABBA (Bjorn, Benny, Agnetha & Frida) - Waterloo (1974) [FLAC 2.0 24 192|image (Vinyl-Rip
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-A1 Waterloo [2:47]
-A2 Sitting In The Palmtree [3:40]
-A3 King Kong Song [3:16]
-A4 Hasta Manana [3:13]
-A5 My Mama Said [3:17]
-A6 Dance (While The Music Still Goes On) [3:16]
-B1 Honey, Honey [2:57]
-B2 Watch Out [3:48]
-B3 What About Livingstone [2:58]
-B4 Gonna Sing You My Lovesong [3:42](   Читать дальше...   )Жанр: Disco PopПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA831736BC7CBC1409BAF3908A74F0DC1339D57
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 685265   (567642)
-
-ABBA - The Album (1977) [FLAC 2.0 24 192|image (Vinyl-Rip)]<Disco Pop>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-A1 Eagle 5:49
-A2 Take A Chance On Me 4:00
-A3 One Man One Woman 4:32
-A4 The Name Of The Game 4:56
-B1 Move On 4:43
-B2 Hole In Your Soul 3:45
- The Girl With The Golden Hair  - 3 Scenes From A Mini-Musical -
-B3-A Thank You For The Music 3:51
-B3-B I Wonder (Departure) 4:32
-B3-C I m A Marionette 4:06Жанр: Disco PopПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246AAEF6CB0445576B5C65EB46759510F44A4FA0
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 685314   (567630)
-
-ABBA - Super Trouper (1980) [FLAC 2.0 24 192|image (Vinyl-Rip)]<Disco Pop>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-A1 Super Trouper [4:12]
-A2 The Winner Takes It All [4:54]
-A3 On And On And On [3:41]
-A4 Andante, Andante [4:39]
-A5 Me And I [4:58]
-B1 Happy New Year [4:26]
-B2 Our Last Summer [4:22]
-B3 The Piper [3:28]
-B4 Lay All Your Love On Me [4:37]
-B5 The Way Old Friends Do [3:24]Жанр: Disco PopПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5185B505EE7C1AA31EAE5A0A5F7C184C901B4F
-```
-
-#Mybot  @nnmclub_mybot
-
----------------------------------------------------------------------------------------------------------------
-
-###  Публикация: 685280   (567629)
-
-ABBA - Voulez - Vous (1979) [FLAC 2.0 24 192|image (Vinyl-Rip)]<Disco Pop>
-
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://a123bot.cloudpub.ru/download/picture/200Нет картинки" />
-</div>
-
-
-###  Подробнее
-
-A1 As Good As New [3:26]
-A2 Voulez-Vous [5:12]
-A3 I Have A Dream [4:47]
-A4 Angeleyes [4:25]
-A5 The King Has Lost His Crown [3:38]
-B1 Does Your Mother Know [3:15]
-B2 If It Wasn t For The Nights [5:12]
-B3 Chiquitita [5:27]
-B4 Lovers (Live A Little Longer) [3:33]
-B5 Kisses Of Fire [3:19]Жанр: Disco PopПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44648A52BDA7A5C6BC8F7FDA07DEA50C03605BF5
 ```
 
 #Mybot  @nnmclub_mybot
