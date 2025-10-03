@@ -3,7 +3,7 @@
 Вождь краснокожих / Le Grand chef / The Big Chief (1959) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11229.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:3A40E4B93DD519D54BDD9E133C2752F9612E6A29
 Вождь краснокожих / Le Grand chef (1959) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11297.jpg" />
@@ -51,7 +51,7 @@ magnet:?xt=urn:btih:1EEA89810C0B2AEE28F18C18F297B24C6ADAC3F6
 Тайна фермы Мессе / Героин / La Horse (1970) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11300.jpg" />
@@ -75,7 +75,7 @@ magnet:?xt=urn:btih:81FB669F8CD14F0E081258CEACAC8F2F04FAC99D
 Тайна фермы Мессе / Героин / La Horse (1970) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11306.jpg" />
@@ -99,7 +99,7 @@ magnet:?xt=urn:btih:7C8F60B2E1A019309F31A58D8F397A7F56138644
 Невинность Лизетт / The Innocence of Lizette (1916) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11309.jpg" />
@@ -123,7 +123,7 @@ magnet:?xt=urn:btih:E7121E5D4178305ECA4D5507D81733E90D6343CA
 Дело для настоящих мужчин (1983) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11326.jpg" />
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:FBDDC09177F38ED8B05DA9AA7473A60E23D69088
 Давай поженимся (1982) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11327.jpg" />
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:8690164733ED0EE980E1629D0EB12F6F922C237C
 Радуница (1984) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11329.jpg" />
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:DCDF9BC7FED54BCAC3D3EFBB4C9AB597EC1B0EE0
 Психо / Psycho (1960) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit] [Uncut Edition]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11336.jpg" />
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:D63E909C3AED6EDAFD84CE1E49BD5ADFE71A609B
 Поющие под дождем / Singin' in the Rain (1952) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11337.jpg" />
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:4B2EC25A0156F828E9FA22B6116EF263D6799775
 Балбесы / The Goonies (1985) BDRip [H.265/1080p] [10-bit] [30th Anniversary Edition]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11341.jpg" />
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:B2507A4F0E3DD8E7167EB537F2900ECB66DE6838
 Клеопатра / Cleopatra (1934) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11344.jpg" />
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:A6F8EF1529917FE3279E0AA935F9DCF8C20EE679
 Иллюзия убийства / F/X (1985) BDRip [H.265/1080p] [10-bit] [US Transfer] [Kino Lorber]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11346.jpg" />
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:AEAED454F689E9B2C7CD21A333AA4F21627C7008
 Василий и Василиса (1981) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11376.jpg" />
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:624AD25268CD75119B537DE3E51E4973F9FB0A4C
 Амангельды (1939) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11397.jpg" />
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:FF0CF24D84673C953ED41BEAA30605E176C408CF
 Паучонок, или Безумнейшая история из когда-либо рассказанных / Spider Baby or, the Maddest Story Ever Told (1967) BDRip [H.264/720p] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11490.jpg" />
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:AB3F42A27DF580580A627E447A75472F0662DABF
 Паучонок, или Безумнейшая история из когда-либо рассказанных / Spider Baby or, the Maddest Story Ever Told (1967) BDRip [H.264] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11501.jpg" />
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:6F74C2058C36AEAA383E20BC436D0C5163E28799
 Иду искать (1966) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11506.jpg" />
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:79190D34B6775D5933DAF898DD33271F2955F083
 Небывальщина (1983) DVDRemux
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11515.jpg" />
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:BFC0E8EB5B2B60703791E61C8470B7DAFB313B52
 Мою жену зовут Вернись / Ma femme s'appelle reviens (1982) BDRip [H.264/720p] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11517.jpg" />
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:4CC6FCD53B88B2FA4A44C15A8FB548C704997DAB
 Бестия / Il bestione (1974) DVDRip [H.264] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11518.jpg" />
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:284C570D631F8C446CF56EEFF7AEBBA68508110F
 Мою жену зовут Вернись / Ma femme s'appelle reviens (1982) BDRip [H.264] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11523.jpg" />
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:45E38D3D137892F19E76B24F8B06A1791595C2F6
 Хотите — любите, хотите — нет... (1988) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11524.jpg" />
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:3E9E555BD1BD83569B671F71EE2FFDE14F61E5AE
 Внимание! Всем постам... (1985) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11540.jpg" />
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:405F6B10E4C3BDFC1ED6A4298FA71D7D0F15A9A1
 Двое на острове слез (1986) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11583.jpg" />
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:DBEFC43F9BA4AD1F9F195334A75697BE630E6F95
 Великолепие в траве / Splendor in the Grass (1961) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11599.jpg" />

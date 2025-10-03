@@ -3,7 +3,7 @@
 Старый сыр и цветочный аромат / Gammel Ost og Blomsterduft (1916) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7029.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:608634B61E8CE7CC56627E01FAC960EBC4590683
 Две англичанки и континент / Les Deux anglaises et le continent (1971) BDRip [H.264/720p] [MVO] [Режиссёрская версия]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7057.jpg" />
@@ -51,7 +51,7 @@ magnet:?xt=urn:btih:ACE1E34A9DA111409A3A611E5EC6AD0D845FE2A1
 Ночь живых мертвецов / Night of the Living Dead (1968) BDRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7157.jpg" />
@@ -75,7 +75,7 @@ magnet:?xt=urn:btih:7C650557E97C3342191F98CF1A6E3D25A9BEFD13
 На следующий день / The Day After (1983) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7168.jpg" />
@@ -99,7 +99,7 @@ magnet:?xt=urn:btih:CC50BB7B4C2DA4CE5BA0488018536A9224A0B996
 Сын Годзиллы / Son of Godzilla (1967)  [BDRip / 1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7169.jpg" />
@@ -123,7 +123,7 @@ magnet:?xt=urn:btih:A9B9BFDE32CD3CA7DD409817746EA237F72EB9F1
 Две англичанки и континент / Les Deux anglaises et le continent (1971) BDRip [H.264] [MVO] [Режиссёрская версия]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7257.jpg" />
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:A3FFCE4CF0838BDCFB981C743275FEEBB76257F6
 Виз / The Wiz (1978) BDRip [H.265/1080p] [10-bit]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7291.jpg" />
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:60F9D5E7C3B669EDA5130C2F9EB6D42431C4ED91
 Иван Васильевич меняет профессию (1973) BDRip  [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7294.jpg" />
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:9FD41F683C849FC4669FF1E1BCBCBD1CCF250FF4
 Приветствие джаггера / The Salute of the Jugger (1989) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7338.jpg" />
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:D0F0A879AC65A5692AC768080FF91EF22658125E
 Искушение Б. (1990) DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7353.jpg" />
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:C3FFE0D45277349C2BC7AB1936C7A34E61F8B19C
 Большая игра / Le grand jeu (1954) DVDRip [H.264] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7354.jpg" />
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:EA8B7E6AAD81E9C146C1F5CB040B7735F382CCFE
 Иван Грозный. Сказ второй: Боярский заговор (1945) BDRemux [H.264/1080i]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7373.jpg" />
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:673A90F10264FF3429CBF25F249F37DAF006A07C
 Кубанцы (1939) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7458.jpg" />
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:6BAFF1487FCD328219C60D02399C774517864CBB
 Мы не ангелы / We're No Angels (1989) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7496.jpg" />
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:DF91D97B4FD75A6C20704B3B482F1B9335397D4E
 Победитель дракона / Dragonslayer (1981) UHD BDRip [H.265/1080p] [10-bit]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7513.jpg" />
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:DC69DFBF1E0D7AC307459F7AA9F12798EA936492
 Мы не ангелы / We're No Angels (1989) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7522.jpg" />
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:98302F3EA346FFF94909F237F230BB1562C47D76
 Смертоносные газы / Les gaz mortels (1916) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7637.jpg" />
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:F7FF865BF908A7D27A2B6FB7DA2E45CE2A43BB74
 Убийство случайное и преднамеренное / Mord und Totschlag (1967) BDRip [H.264/720p] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7722.jpg" />
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:A0C0E5224DFFA9438A3AF875911A0596074561FA
 Длинный, короткий, кот / Il lungo, il corto, il gatto (1967) WEB-DLRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7740.jpg" />
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:77BEFA57DF403B90BD40256CAD33FEB7057721AB
 Убийство случайное и преднамеренное / Mord und Totschlag (1967) BDRip [H.264] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7741.jpg" />
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:E7F903F9BC7310B8458E3E97E46D369E2304EBCE
 Приговорённые к пожизненному / Condenados a vivir (1972) BDRip [H.264] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7748.jpg" />
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:4BDAA2AA96FC280D4BBF77E64E81B13A2C9BBF25
 Золото Маккенны / Mackenna's Gold (1968) BDRip [H.265/1080p] [10-bit] [FRA Transfer]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7787.jpg" />
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:A410005EF45821DFC0881AB94C650386276780B1
 Капля крови, чтобы умереть любя / Una gota de sangre para morir amando (1973) BDRip [H.264/720p] [AVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7880.jpg" />
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:8C4A09A9B0DD4BC5523E5752654D85969DBD92E1
 Сезар и Розали / Cesar et Rosalie (1972) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7881.jpg" />
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:1187CA99934921B0A9FDC2277E4B8936E5DCFFC4
 Сезар и Розали / Cesar et Rosalie (1972) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7907.jpg" />
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:7A6460FC3BCACF477D5E1741648783DB2181DE3E
 Истребители (1939) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_7911.jpg" />

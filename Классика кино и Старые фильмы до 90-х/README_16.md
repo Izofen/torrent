@@ -3,7 +3,7 @@
 Кобра / Cobra (1986) UHD BDRip [H.265/1080p] [10-bit] [Arrow Films]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10851.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:C2DB30348A2702B1DE1EDD4FB6758F458C5C2350
 Одиноким предоставляется общежитие (1983) DVDRemux
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10893.jpg" />
@@ -51,7 +51,7 @@ magnet:?xt=urn:btih:244591F62CD2A52C723C6CAB9356AED72895557A
 Я, бабушка, Илико и Илларион (1962) DVD5
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (DVD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10957.jpg" />
@@ -75,7 +75,7 @@ magnet:?xt=urn:btih:0404A13EF559A98E7CA558348445BE2EB30BD77E
 Могила льва (1971) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10978.jpg" />
@@ -101,7 +101,7 @@ magnet:?xt=urn:btih:01C91F1263D798DB0CE1E7A77129869CED823D56
 Инопланетянка из Лос-Анджелеса / Alien from L.A. (1988) BDRip [H.265/1080p] [10-bit] [US Transfer] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10998.jpg" />
@@ -125,7 +125,7 @@ magnet:?xt=urn:btih:4390F9C2ED2338BF49F84F4E7CFB946EDD4C0BA2
 Завтра была война (1987) WEBRip [H.264/1080p-LQ]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11019.jpg" />
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:716234B1FD2BE7EA452BA0278A83A64988A3A683
 Жил певчий дрозд / Iko shashvi mgalobeli (1970) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11074.jpg" />
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:DB5A38C960B512C994406C3060C60CD012024B87
 Шейн / Shane (1953) BDRip [H.264] [AVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11081.jpg" />
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7354FA70A36236379CC24075D5C93F84AE6A530B
 Эффи Брист Фонтане / Fontane Effi Briest (1974) BDRip [H.264] [MVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11085.jpg" />
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:79C79CA9111CE6503F62E15D0D1C5AA2EDE2C8CD
 Речная крыса / The River Rat (1984) WEB-DLRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11092.jpg" />
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:552CC3567AED315FEE94D0BA774175562DD22AC9
 Похищение "Савойи" (1979) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11099.jpg" />
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:178DE255E4779BB5F3D9CC9E812212C3960B536F
 Шла собака по роялю (1978) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11103.jpg" />
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:1CEA3324EC3B21721DD5A94BFD9E9AA7E7BE6188
 Аленка (1961) DVB
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11106.jpg" />
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:5DFD0C0EEC68EA86814B8223DD0FCDA44FFB0741
 Потому что люблю (1974) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11107.jpg" />
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:8E5B5DFA052B289B6F6C7C242C733FA00716E733
 12 стульев (1971) BDRip [H.264/1080p] (серии 1-2 из 2)
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11109.jpg" />
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:889408558D9C39D52022EEEDA54A74F4BA894B66
 Три тигра против трёх тигриц / Tre tigri contro tre tigri (1977) DVDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11118.jpg" />
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:8118BA6CA3D2B3D98C3665E3692706445625D1A5
 Воры в законе (1988) WEB-DL [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11130.jpg" />
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:CE400C90E64E46AB1C565971B43F7A41067A6261
 Блондинка за углом (1984) DVD5
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (DVD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11154.jpg" />
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:44140C8E7CDA4C0B0218234F9D494A3C67E87B81
 Дожди по всей территории (1978) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11170.jpg" />
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:9F244456497E3560569A73EB8E43CF0A85A98B9C
 Санта Фе / Santa Fe (1951) BDRip [H.264] [DVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11171.jpg" />
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:4E09DDE29771C928F7A60C2592FDDD1F86931672
 Вечерние посетители / Les Visiteurs du soir (1942) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11189.jpg" />
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:5CC680E053799AC6B4C652FB3D2321C7176E98B9
 Обочина (1978) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11194.jpg" />
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:E8522EE45D4E128184B8BAB5F3A25742C2B3677D
 Дерзость (1971) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11197.jpg" />
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:F9DBB2BE868A1DD58278E0544BD9E2CD778AA6F9
 Воздушная дорога в Китай / High Road to China (1983) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11203.jpg" />
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:C817AE8BDDDA272EB9DE0BCC4181B066F89708A2
 Катерина из России / Caterina di Russia (1963) DVDRip [VO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11204.jpg" />
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:51A80244E80CFF5AA38092919A22811372AF65DA
 Пьяный рассвет / Tequila Sunrise (1988) BDRip [H.265/1080p] [10-bit] [US Transfer]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11223.jpg" />

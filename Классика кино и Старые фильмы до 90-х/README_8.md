@@ -3,7 +3,7 @@
 Сказки / Fairy Tales (1978) BDRip [H.264] [EN / RU Sub]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5603.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:DFFD76E1AC32A0968F6F4373115018CDFF482E84
 Сказки / Fairy Tales (1978) BDRip [H.264/720p] [EN / RU Sub]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5604.jpg" />
@@ -51,7 +51,7 @@ magnet:?xt=urn:btih:CA5F37BC8CF15318EC62FF1C608E1644317BD86F
 Трудно быть богом / Es ist nicht leicht, ein Gott zu sein (1989) DVDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5607.jpg" />
@@ -76,7 +76,7 @@ magnet:?xt=urn:btih:2F0C2EA039702A69D7E9DE4FFCA09588C499CB8A
 Был месяц май (1970) DVDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5647.jpg" />
@@ -100,7 +100,7 @@ magnet:?xt=urn:btih:BA9290F353834A940FA96E0B33A2E0E30D621808
 Коллежский регистратор / Станционный смотритель (1925) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5665.jpg" />
@@ -125,7 +125,7 @@ magnet:?xt=urn:btih:17EC42EECC5907F4F137859D5807ABF236A2D3AF
 Ревизоры поневоле (1954) HDTV [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5684.jpg" />
@@ -149,7 +149,7 @@ magnet:?xt=urn:btih:D23205B2E21801FDB3C82FE42FA740FA0352A6A0
 Узы крови / Bloodline (1979) BDRip [H.264/720p][Театральная версия]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5687.jpg" />
@@ -173,7 +173,7 @@ magnet:?xt=urn:btih:DB8131EA83BA16CC2A3E84D4B3251B7D6B79302F
 Путешествие в ад / Tourist Trap (1979) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5711.jpg" />
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:305B3B40C7BCE0688F0FC43204928F9F0AD6EEC9
 Сегодня увольнения не будет (1958) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5713.jpg" />
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:9829C0DD19D81488BE7FA847B3E662CCE01CAEF8
 Узы крови / Bloodline (1979) BDRip [H.264][Театральная версия]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5721.jpg" />
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:8E7720BC972D0896B2E1351123680640E7A73555
 Тайны моря / A Sea Mystery (1916) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5788.jpg" />
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:2B4156B782AE6958F279686DF44FD67EAF841EAC
 Пик сезона / High Season (1987) DVDRip [DVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5882.jpg" />
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:742693B68517B549509862807FE526B5429C4B1F
 Бархатные ручки / Mani di velluto (1979) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5898.jpg" />
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:B25E57E64FEE200ABD79DE358EC42B71F059224A
 Шаг навстречу (1975) [H.264] DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5918.jpg" />
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:960A11F08684D4F19F5847F61027EB0DD3289FA0
 Анатомия любви / Anatomia milosci (1972) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5926.jpg" />
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:C0B4178717BD4984EAF430E60620E800D0B65290
 Как хорошо жить / Che gioia vivere (1961) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5976.jpg" />
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:836B63FE9683269C1CF8CF829EAAADF2F877DB63
 Как хорошо жить / Che gioia vivere (1961) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5980.jpg" />
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:4F92466C791274CEA56C5AA0379530F174881A63
 Стэнли и Айрис / Stanley & Iris (1990) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5986.jpg" />
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:0B793F78023E8C8361C2D6DCAC356451F6758458
 На игле / Trainspotting (1996) BDRip [H.264/1080p] [Criterion Collection]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6034.jpg" />
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:43868E9D887BA3A69125EBC6EDF5298CB17A4893
 Восхождение (1976) Blu-ray [H.264/1080p] [Criterion Collection]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6058.jpg" />
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:6C6E99F0FE60855D71A9F3B6D6A09C24E3C85C47
 Аста Нильсен. Балерина / Balletdanserinden (1911) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6095.jpg" />
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:D9D85A1A25D3675AB1093DA6946DD86DBF76253B
 Стэнли и Айрис / Stanley & Iris (1990) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6120.jpg" />
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:C5A28E4921737B7EE1FF2E97936C1DF7A204D02C
 Вздувайте горны / Кузнецы / Первые ласточки (1925) WEBRip [H.264/1080p-LQ]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6141.jpg" />
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:91E2675D296938289AAAE42F91CA56B1C6F02ABE
 Комендант птичьего острова (1939) DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6149.jpg" />
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:89785E7A699EEF325C1140BC4CE9869ADB700FF6
 Пьянь / Barfly (1987) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6293.jpg" />
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:2332615CBFD6CB43C0DC842DD01561007364C959
 Джефф / Jeff (1969) WEB-DLRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6296.jpg" />

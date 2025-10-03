@@ -3,7 +3,7 @@
 Я, ты, он, она / Je tu il elle (1975) BDRip [H.264/720p] [FR / RU Sub]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4588.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:4F3A76E608C04A452B591EB643DCCAFDF01904A8
 Стенька Разин / Понизовая вольница (1908) DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4650.jpg" />
@@ -52,7 +52,7 @@ magnet:?xt=urn:btih:80C6029247861D5F4B3C33EE4AFBAC2B9BB49685
 Луна 44 / Moon 44 (1990) BDRip [H.265/1080p] [10-bit]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4718.jpg" />
@@ -77,7 +77,7 @@ magnet:?xt=urn:btih:FC17D85B98431198D6BFF684527AE0C57947084E
 Джентльмены удачи (1971) BDRemux [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4740.jpg" />
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2F66BFDFFEBDBA25828F4B23093FDEA9CE6AD9CF
 Аста Нильсен. Азбука любви / Das Liebes-ABC (1916) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4786.jpg" />
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A551AA29383080DD652EFFE5D6E976B0324DE7BB
 Лучшие годы нашей жизни / The Best Years of Our Lives (1946) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4798.jpg" />
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F4776EB8069887786101A365E5747FEBE8F3F135
 Осквернитель праха / Intruder in the Dust (1949) BDRip [H.264/720p] [AVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4810.jpg" />
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:9A2D30AFE2A576E170B8C0A7C83B81581F7FDFC4
 Мастер кунг-фу / Маленькая любовь / Kung-fu master! / Le petit amour (1988) BDRip [H.264/720p] [DVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4819.jpg" />
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:671A870E0E3361CC104A65FBFE82FD725A51E054
 Мастер кунг-фу / Маленькая любовь / Kung-fu master! / Le petit amour (1988) BDRip [H.264] [DVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4821.jpg" />
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F564A31B977DB850C6433858BB222949E753ECB4
 Молчание ягнят / The Silence Of The Lambs (1991) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision 7.6, 10-bit] [GBR Transfer, Arrow Films]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4859.jpg" />
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:73903BEAF848FA8F88CA737EF35754E7C0876E37
 Подранки (1976) DVD5
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (DVD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4875.jpg" />
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:23EAB0386502409A5A59E9648ECB16346FFF8FDA
 Ключ без права передачи (1976) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4880.jpg" />
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:7425944B97BA8C868FB30283B15211CECF417707
 Приходите завтра... (1962) WEB-DLRip [H.264/720p] (Цветная версия)
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4889.jpg" />
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:1E409EE8CFD58A01AC20BA4DBBB1D87926EB8AF1
 Боярин Орша (1909) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4920.jpg" />
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:FEE27511182AF48D12E06928F1B0637B0CB20820
 Джейн Б. глазами Аньес В. / Jane B. par Agnes V. (1988) BDRip [H.264] [DVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4934.jpg" />
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:610A21B864223835543B0D38EE20EAC143ACE16D
 Томпсон 1880 / Thompson 1880 (1966) DVDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4938.jpg" />
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:6866E18A07D24C8600E7AB9CA1A100A711D58BCC
 Джейн Б. глазами Аньес В. / Jane B. par Agnes V. (1988) BDRip [H.264/720p] [DVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4939.jpg" />
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:A882E7F3C9630C3393966C79BB52560E002CB791
 Зелёный фургон (1959) DVDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5016.jpg" />
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:D5F66593412748BFA9B6FA92306AEB9B4E616240
 Экипаж машины боевой (1983) DVDRemux
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5023.jpg" />
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:4A6FBEC8D7A502E7DC65246F5263372B2D094703
 Аста Нильсен. Подопытный кролик / Das Versuchskaninchen (1916) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5124.jpg" />
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:A2259C696CC57B2C169CDE559E3D60228297C219
 Медвежья свадьба / Последний Шемет (1925) WEBRip [H.264/1080p-LQ]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5413.jpg" />
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:0644348FF15DFCCBFA525C8EB73044A4B9F2550D
 Ночь кометы / Night of the Comet (1984) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5422.jpg" />
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:8E3E779EBD41636F8E20DEA8A9C4E57673505B4A
 Хочу жениться / The Matrimaniac (1916) DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5484.jpg" />
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:961ED192A23A923F4119F29916304F375DA49065
 Внезапный страх / Sudden fear (1952) BDRip [H.264] [MVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5492.jpg" />
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:D0B37D83489C11DB26A27C189576E891E9E801B1
 Внезапный страх / Sudden fear (1952) BDRip [H.264/720p] [MVO]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5499.jpg" />
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:F052ECCAF062A1349873FC7830E30EDAF81F8E46
 Смертельная ловушка / Deathtrap (1982) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Demo/Beta версии Игр
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5564.jpg" />
