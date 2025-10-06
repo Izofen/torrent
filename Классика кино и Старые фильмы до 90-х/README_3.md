@@ -1,3 +1,27 @@
+###  Публикация: 1818547   (2336) от 17.09.2025
+
+Рокки / Rocky (1976) BDRip [H.265/1080p] [10-bit] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Филадельфия. Рокки Бальбоа — молодой боксёр, который живёт в захудалой квартирке и еле сводит концы с концами, занимаясь выбиванием долгов для своего босса Тони Гаццо и периодически участвуя в боях. Каждый его унылый день похож на предыдущий, и особо радужных перспектив не наблюдается. Но однажды удача наконец улыбается парню, когда ему поступает неожиданное предложение (   Читать дальше...   )Производство: США, / Metro Goldwyn Mayer, United ArtistsЖанр: драма, спортРежиссер: Джон Г. ЭвилдсенАктеры: Сильвестр Сталлоне, Талия Шайр, Берт Янг, Карл Уэзерс, Бёрджесс Мередит, Тэйер Дэвид, Джо Спинелл, Джимми Гамбина, Билл Болдуин, Аль СильваниПеревод: Многоголосый (Киномания), одноголосый (А.Гаврилов)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C116AF301EE060ED7729880472B9F96E030F27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818492   (2349) от 17.09.2025
 
 Бой после победы (1972) WEBRip [H.264/1080p] (2 серии)
@@ -6,7 +30,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2349.jpg" />
 </div>
 
 
@@ -32,7 +56,7 @@ magnet:?xt=urn:btih:1DCDDF8B16144E45571D51273FE9C01A3C2013B9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2356.jpg" />
 </div>
 
 
@@ -56,7 +80,7 @@ magnet:?xt=urn:btih:BC7A745BF32F80D7EE33D1C805E1958FFD44FC53
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2363.jpg" />
 </div>
 
 
@@ -81,7 +105,7 @@ magnet:?xt=urn:btih:122F83E389DC861D06ED687F9C2AC1D3BD2B2934
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2383.jpg" />
 </div>
 
 
@@ -105,7 +129,7 @@ magnet:?xt=urn:btih:0E9939A47C3421DC2CDE23F06010C1664D5CBC4D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2384.jpg" />
 </div>
 
 
@@ -129,7 +153,7 @@ magnet:?xt=urn:btih:C17D78E70B068C23813517262C194AF0AEBC231B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2385.jpg" />
 </div>
 
 
@@ -153,7 +177,7 @@ magnet:?xt=urn:btih:4F13AAE78097780D9A24B7E383258441403F8914
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2395.jpg" />
 </div>
 
 
@@ -177,7 +201,7 @@ magnet:?xt=urn:btih:2342B9F680FB438FA23FD88CCB6D12B71C48030D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2401.jpg" />
 </div>
 
 
@@ -201,7 +225,7 @@ magnet:?xt=urn:btih:093CCE2E43091B587D72ECAE86C538062361E5BC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2452.jpg" />
 </div>
 
 
@@ -225,7 +249,7 @@ magnet:?xt=urn:btih:7CC8F368DBD41C487D8FE0391547B4ECDC4BF86A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2458.jpg" />
 </div>
 
 
@@ -250,7 +274,7 @@ magnet:?xt=urn:btih:DBC179D5FE8442225B4B3F04F320398AB83FC848
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2459.jpg" />
 </div>
 
 
@@ -274,7 +298,7 @@ magnet:?xt=urn:btih:2C3E6AD7C8085B7B695DC1D215AB10A3F71B49C6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2473.jpg" />
 </div>
 
 
@@ -298,7 +322,7 @@ magnet:?xt=urn:btih:D2ACD4FC1D294DA0408969234806EEB1917AB035
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2476.jpg" />
 </div>
 
 
@@ -322,7 +346,7 @@ magnet:?xt=urn:btih:950AB0626FD1F5CDBB28D1352B5DF66478B64BA3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2482.jpg" />
 </div>
 
 
@@ -346,7 +370,7 @@ magnet:?xt=urn:btih:20489496B36B3884A0FB84B08326769C32EB0943
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2493.jpg" />
 </div>
 
 
@@ -370,7 +394,7 @@ magnet:?xt=urn:btih:8472FED2493B86088938A88A2D783DF9D3DF74F6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2504.jpg" />
 </div>
 
 
@@ -394,7 +418,7 @@ magnet:?xt=urn:btih:ED5E43B43C4EC6211125311A3AE66E0E9F8B9552
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2513.jpg" />
 </div>
 
 
@@ -418,7 +442,7 @@ magnet:?xt=urn:btih:ACA6E4B0B4C2CDF51DC7FCA04523EF64CB8B6DC0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2519.jpg" />
 </div>
 
 
@@ -443,7 +467,7 @@ magnet:?xt=urn:btih:6961934AA6359A22962672586932840EE9437DFF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2526.jpg" />
 </div>
 
 
@@ -467,7 +491,7 @@ magnet:?xt=urn:btih:79EB4FAF6026E7AABFBF1A73AED6B0D9D667ED62
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2581.jpg" />
 </div>
 
 
@@ -491,7 +515,7 @@ magnet:?xt=urn:btih:C41357D715F9B8CFDE9D69D04F40918CFCF68B22
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2597.jpg" />
 </div>
 
 
@@ -515,7 +539,7 @@ magnet:?xt=urn:btih:FD760F571E67EBA3A9FD67801629E3DD1A7B58F5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2610.jpg" />
 </div>
 
 
@@ -539,7 +563,7 @@ magnet:?xt=urn:btih:A1AF9CDCDD3940804D3E3B99776E4DBDDE6CCE9E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2642.jpg" />
 </div>
 
 
@@ -564,7 +588,7 @@ magnet:?xt=urn:btih:5BEE1F80278C51D2830E6F634C7328C19A80C2B0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2643.jpg" />
 </div>
 
 
@@ -588,7 +612,7 @@ magnet:?xt=urn:btih:84F4237C365ACBCD64C470C08B219711961944F2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2671.jpg" />
 </div>
 
 
@@ -599,31 +623,6 @@ magnet:?xt=urn:btih:84F4237C365ACBCD64C470C08B219711961944F2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D66DC230E505B1383B61C34695A422B8994527D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818166   (2739) от 14.09.2025
-
-Яков Протазанов. Уход великого старца (1912) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немой художественный фильм Якова Протазанова и Елизаветы Тиман по мотивам свидетельств о последнем периоде жизни Льва Николаевича Толстого.
-Лев Толстой (Владимир Шатерников) в последний период своей жизни разрывается между своими убеждениями, согласно которым он и его семья должны отказаться от собственности, и любовью к жене Софье Андреевне (Ольга Петрова), которая (   Читать дальше...   )Производство: Российская империя / Торговый дом "П. Тиман и Ф. Рейнгардт"Жанр: драма, короткометражка, немое киноРежиссер: Яков Протазанов, Елизавета ТиманАктеры: Владимир Шатерников, Ольга Петрова, Михаил Тамаров, Елизавета ТиманСубтитры: русские (интертитры)Продолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AA28BD5C05A9DE30ED22BF9567E4C9245AB1C9
 ```
 
 

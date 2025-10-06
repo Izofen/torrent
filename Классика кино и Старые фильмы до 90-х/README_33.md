@@ -1,3 +1,75 @@
+###  Публикация: 1795624   (19237) от 05.05.2025
+
+Под десятью флагами / Sotto dieci bandiere (1960) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальная история, развернувшаяся на фоне Второй мировой войны. Британские военно-морские силы ведут охоту за немецким кораблем-рейдером «Атлантис», чтобы не позволить ему нарушать британские коммуникации, топить транспорт и торговые суда.Производство: Италия, США / Dino de Laurentiis CinematograficaЖанр: драма, военныйРежиссер: Дуилио КолеттиАктеры: Ван Хефлин, Чарльз Лотон, Милен Демонжо, Джон Эриксон, Сесил Паркер, Фолько Люлли, Алекс Николь, Лайам Редмонд, Элеонора Росси Драго, Джон ЛиПеревод: Одноголосый любительский (iDimo)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336ADD5523F4FD1F471CE83949734F4E70243706
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795582   (19238) от 05.05.2025
+
+Отель «Захер» / Hotel Sacher (1939) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19238.jpg" />
+</div>
+
+
+###  Подробнее
+
+На кануне нового, 1914 года, венский отель "Захер" принимает именитых гостей. По обыкновению, в его отдельных кабинетах собираются представители высших австрийских кругов для обсуждения важных, но не публичных вопросов. В новогоднюю ночь сюда стекаются высшие сановники, представители посольств дружественных государств - России, Франции, Германии, Великобритании, (   Читать дальше...   )Производство: Германия / Deutsche Mondial Film, Universum Film (UFA)Жанр: драма, мелодрамаРежиссер: Эрих ЭнгельАктеры: Сибилла Шмиц, Вилли Биргель, Вольф Альбах-Ретти, Эльфрида Датциг, Хедвига Бляйбтрой, Херберт Хюбнер, Лео Пойкерт, Карл Гюнтер, Эльфи Майерхофер, Роза Альбах-РеттиПеревод: Одноголосый любительский (porcellus)Язык озвучки: Русский, НемецкийСубтитры: русскиеПродолжительность: 01:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C01BB7495486C9B5D367C04EF84A0CC70B665AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795544   (19240) от 05.05.2025
+
+Мужчина, женщина и ребенок / Man, Woman and Child (1983) WEB-DLRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состоятельная супружеская пара из Калифорнии столкнулась с серьезной проблемой. Их семейное счастье поставлено под угрозу, когда неожиданно приезжает ребенок мужа от случайной, молодой девчушки, о существовании которого законная жена ничего не знала.Производство: США / Gaylord Productions Inc.Жанр: драмаРежиссер: Дик РичардсАктеры: Мартин Шин, Блайт Даннер, Крэйг Т. Нельсон, Дэвид Хеммингс, Натали Нель, Морин Андерман, Себастьян Дунган, Арлин Макинтайр, Мелисса Френсис, Билли ДжейнПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18D49FDF2233FD26823A846AD7B6ACAA7BA0B73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795614   (19247) от 05.05.2025
 
 Мистер-Твистер (1969) WEBRip
@@ -6,7 +78,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19247.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:64A511F886A517847886CAEAAEDEF197E2245BDB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19248.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:A0E85EEFABA66472BCF955CCF2AE2CF0836D6A8A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19289.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:7DE2FD447C393FF76D9727EF0CA96468CFE0D0AC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19294.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:1A588F7B64E065616AEFEB74927EDAC035E30DEC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19309.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:8E00801055399DE3E6B0E75741D0222CAD2304BC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19332.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:FACCEA8D983AE209DAF704EEB45DEE3D0318CAF6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19337.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:0F4896A3414667DC2B7DB85F1437A59A7FA75E4C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19349.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:E4EEB8CFF95CFAC3595BDD164F724923304AC034
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19350.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:659B4C0824918224B687A6209ED9553D146FB19B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19353.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:DD7BD5294478AEDDFA2EC21CAFCACFC12813BD5D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19359.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:70884213A2CC718228C7305429B6976F87E1C688
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19360.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:8189646C3DB7929B6BAD16090D6545F04725569B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19365.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:4952FAF515E9F0182471E937AF81A883DFA0BA0D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19373.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ magnet:?xt=urn:btih:F72B6FCCF58A9FCC839F52FB9FC8F796EB541532
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19374.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ magnet:?xt=urn:btih:86D07B126BAC62051B1EF286558BDE73A6889A11
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19379.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:07AE705E40F9332B072B7793105C6FA6A78B34DD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19382.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ magnet:?xt=urn:btih:36FA6B88D39C5211F374654913079D87FAA60A16
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19412.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:5A264D101A010B4C14DC91B666C7216A021F1CE7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19437.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:23A4E3B7B4AAC42A47C43A1D4EA788950600F699
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19462.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:55479CE2EACE4F19BA0EAE74FDEE44AC285AAE1A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19464.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ magnet:?xt=urn:btih:B3F27A3098394F0728AE4A76809CC51C812A1C4C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19465.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ magnet:?xt=urn:btih:5EC12E9D1CA201896AF5C6E2FFEEBC3DB8F7D756
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19468.jpg" />
 </div>
 
 
@@ -549,80 +621,6 @@ magnet:?xt=urn:btih:5EC12E9D1CA201896AF5C6E2FFEEBC3DB8F7D756
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:096A22CEC7B19289122D998DF86D9DD182C289D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792465   (19473) от 03.05.2025
-
-Дульсинея Тобосская (1980) DVDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19473.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти Дон-Кихота прошло семь лет. Он стал легендой. Но какова была дальнейшая судьба его верного оруженосца, а главное — Дамы его сердца, которая звалась Дульсинеей Тобосской? Создатели фильма предлагают свою версию событий, случившихся в далеком прошлом, — столь же фантастическую, сколь и реальную.Производство: СССР, МосфильмЖанр: мюзикл, мелодрамаРежиссер: Светлана ДружининаАктеры: Наталья Гундарева, Борис Плотников, Александр Назаров, Валентина Талызина, Армен Джигарханян, Борислав Брондуков, Екатерина Дурова, Татьяна Пельтцер, Елена КамбуроваПродолжительность: 2 x ~ 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C83B8CFD076726F3EF07ABD786915F42ECF6CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795227   (19474) от 03.05.2025
-
-Сильные духом (1967) WEBRip [H.264/1080p] (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19474.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам книг Д.Н. Медведева.
-18 сентября 1942 года обер-лейтенант Пауль Вильгельм Зиберт, он же - советский разведчик Николай Иванович Кузнецов, впервые появился в городе Ровно - столице оккупированной фашистами Украины. Бои шли под Воронежем и Ростовом. Немецкая артиллерия продолжала обстреливать Ленинград. Дивизии Гитлера вышли к Волге. До Победы оставалось (   Читать дальше...   )Производство: СССР / Свердловская киностудияЖанр: приключения, военныйРежиссер: Виктор ГеоргиевАктеры: Гунар Цилинский, Иван Переверзев, Евгений Весник, Люсьена Овчинникова, Юрий Соломин, Вия Артмане, Виктория Фёдорова, Александр Галевский, Юрий Боголюбов, Юрий ВолковСубтитры: отсутствуютПродолжительность: 02:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFA078F5EA882686F66651EFB6C6B1FE607F7BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795193   (19493) от 03.05.2025
-
-Кровавый спорт / Bloodsport (1988) UHD BDRip [AV1/2160p] [4K, HDR, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19493.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Гонконге должны состояться подпольные соревнования по восточным единоборствам, к которым готовится и один из американских военнослужащих. В свое время, будучи ребенком, он стал приемным сыном японца - учителя каратэ, достиг совершенства путем упорных тренировок и в знак успеха получил священный японский меч.
-Он самовольно оставляет воинскую часть и отправляется (   Читать дальше...   )Производство: США / Cannon InternationalЖанр: драма, спорт, биография, боевикРежиссер: Ньют АрнольдАктеры: Жан-Клод Ван Дамм, Боло Йен, Форест Уитакер, Дональд Гибб, Леа Эйрс, Норман Бёртон, Рой Чяо, Рэни Гилл, Филип Чань, Пьер РафиниПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, Авторский, Одноголосый любительскийЯзык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAEDEBBDD258A5E7F993C6E257869E51FA16E82
 ```
 
 

@@ -6,7 +6,7 @@ Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13410.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Warhammer 40.000: Dawn of War – Dark Crusade (2006) [Ru] (1.20) Repack EXROW
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13614.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13637.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13874.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14347.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Warhammer 40,000: Rites of War (1999) [En] (1.1) License GOG
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14532.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License А
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14783.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:BF2DBEA1736BD3AA631CF6CB010642AEE04BE44D
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15176.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ RollerCoaster Tycoon 3 (2006) [Ru/Multi] (1.0) License GOG [Complete Edition]
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15246.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hitman 2: Silent Assassin (2002) [En] (1.01) License GOG
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15510.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18945.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Warlords III: Darklords Rising (1998) [En] (1.0.2) License GOG
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19408.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Cannon Fodder (1993) [En] (1.01) License GOG
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19589.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19621.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Elder Scrolls IV: Oblivion (2007) [Ru/En] (1.2.0416cs/dlc) Repack dixen18 [G
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19645.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:8B94FB189FD927913B5D7E70675E51604FECB890
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19678.jpg" />
 </div>
 
 
@@ -449,6 +449,176 @@ magnet:?xt=urn:btih:8B94FB189FD927913B5D7E70675E51604FECB890
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F412A20B53B3FD1CA85F326849A4F236D0344CB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804412   (65662) от 29.06.2025
+
+Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
+
+>>Win Старые Игры
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш герой – канонический частный сыщик сороковых годов XXI века – в бизнесе добрый десяток лет. Из окна его конторы открывается вид на Чандлер Авеню, на облике которой, как и на всём Сан-Франциско, сказалась минувшая война, по улицам ходят как обычные люди, так и мутанты, обезображенные радиацией. Но от этого дел у рядового частного детектива становится не меньше.Тип издания: LicenseРазработчик: Access SoftwareЖанр: Приключенческие игрыЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97966C8E16FB10E2C11D11F6BF220FE7DEE7516
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804456   (65664) от 29.06.2025
+
+Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
+
+>>Win Старые Игры
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игрок врывается в жизнь бывшего частного детектива Текса Мёрфи. На дворе 2042 год, последствия Третьей мировой войны, полуразрушенный город Сан-Франциско, радиация, мутанты, бомжи и мертвенно-бледная луна. Жизнь частного детектива мало похожа на жизнь счастливого человека: любовь отвернулась от нашего героя, работы нет, а бурбон стал его единственным другом. И, как (   Читать дальше...   )Тип издания: LicenseРазработчик: Access SoftwareЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BEE977EA12231AB6669AB85AF755E65EE02BB7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803747   (65795) от 25.06.2025
+
+Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Trek: Judgment Rites, продолжение игры Star Trek: 25th Anniversary, состоит из восьми новых захватывающих эпизодов, действие которых происходит после окончания пятилетней миссии. Вы - капитан Джеймс Т. Кирк, и вместе со своей командой вы посетите загадочные миры и встретите странных противников в обстоятельствах, неподвластных логике. Неужели это древний триплан (   Читать дальше...   )Тип издания: LicenseРазработчик: Interplay Entertainment Corp.Жанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCB36DFC2A225E59EF0F440CA767C41184C9241
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803857   (65796) от 25.06.2025
+
+Questron II (1988) [En] (1.2) License GOG
+
+>>Win Старые Игры
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение классической игры Questron от SSI для Apple II и духовный родственник Legacy of the Ancients от EA, Questron II продолжает историю спустя годы после окончания предыдущей игры. На этот раз Mesron the Great Wizard отправляет вас в путешествие в прошлое, чтобы помешать Безумным Колдунам создать Книгу Злой Магии. Отличный сюжет, головоломки и множество приятных (   Читать дальше...   )Тип издания: LicenseРазработчик: SSIЖанр: Ролевые игры, ФентезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803705   (65800) от 25.06.2025
+
+Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
+
+>>Win Старые Игры
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warhammer 40,000: Dawn of War - Soulstorm - самостоятельное дополнение для популярной космической стратегии Warhammer 40,000: Dawn of War. Вместе с дополнением вам откроются две новые расы: Сестры Битвы и Темные Эльдары, а общее количество доступных армий увеличиться до девяти. Теперь вы сможете полностью окунуться в увлекательные сражения межпланетного масштаба (   Читать дальше...   )Тип издания: RepackРазработчик: Relic EntertainmentЖанр: Стратегии в реальном времениЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF4CA4D223ACBE10A6DFB1E38676340BE599A9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485969   (89925) от 21.04.2012
+
+Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
+
+>>Win Старые Игры
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже долгое время продолжается конфликт между официальными властями Индонезии, которых поддерживает США и повстанцами Восточного Тимора, возглавляемых жестоким Сухади Садано. Опасающийся покушений на свою жизнь, Садано предпринял превентивные меры – повсему миру отправлены верные ему люди, зараженные оспой и готовые в случае его смерти вызвать эпидемии этой болезни в крупнейших городах. В роли Сэма Фишера, героя игры «Tom Clancy's Splinter Cell: Pandora Tomorrow» и оперативника Агентства Национальной Безопасности вам предстоит отыскать всех людей Садано, а когда угроза биологической атаки будет нейтрализована – уничтожить главу повстанцев.Тип издания: RePackЖанр: Трехмерный стелс от третьего лицаЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486797   (90305) от 23.04.2012
+
+SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Альфа Ромео [Ru] (P) 2005
+
+>>Win Старые Игры
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Побеждает темперамент!
+По трассам солнечной Италии проносятся лучшие автомобили концерна Alfa Romeo. В напряженной борьбе пытаясь вырвать лидерство, гонщики готовы выложиться на полную, используя все свои силы и хитрые уловки.
+Инновационный подход к развитию характеристик водителя, возможность использовать во время гонки специальные способности, получать очки опыта и выигрывать аксессуары выделяют игру среди других гоночных игр и делают ее весьма привлекательной для любителей необычных гонок.Тип издания: ПираткаЖанр: Racing (Cars) / Arcade / 3DЯзык озвучки: n/a (отстутствует)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66FEE2ADD826DED3F324F13E2F6B0D8DEF6B9CF
 ```
 
 

@@ -1,3 +1,53 @@
+###  Публикация: 1807215   (11204) от 17.07.2025
+
+Катерина из России / Caterina di Russia (1963) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11204.jpg" />
+</div>
+
+
+###  Подробнее
+
+На одной из площадей Петербурга толпа окружает карету Их Императорских Высочеств Петра и Екатерины. Испугавшись, Пётр приказывает капитану казаков графу Орлову открыть огонь по толпе, но граф отказывается выполнять приказ Великого князя. За невыполнение приказа Орлов депортирован в Сибирь.
+Вскоре императрицы Елизаветы Петровны не стало, и началось короткое правление (   Читать дальше...   )Производство: Италия, Франция, Югославия / Roma Film, SNC, ЗагребфильмЖанр: драма, историяРежиссер: Умберто ЛенциАктеры: Хильдегард Кнеф, Серджо Фантони, Джакомо Росси Стюарт, Анджела Каво, Эннио Бальбо, Леонардо Ботта, Vera Besusso, Джанни Соларо, Энцо Фьермонте, Тина ЛаттанциПеревод: Одноголосый любительский (shachter58)Язык озвучки: Русский, ИтальянскийСубтитры: ОтсутствуютПродолжительность: 01:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A80244E80CFF5AA38092919A22811372AF65DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807206   (11223) от 17.07.2025
+
+Пьяный рассвет / Tequila Sunrise (1988) BDRip [H.265/1080p] [10-bit] [US Transfer]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающий криминальный триллер рассказывает историю двух давних друзей, чьи пути расходятся из-за преступного прошлого и роковой любви.
+В центре сюжета — Дейл МакКьюсик, опытный наркодилер, решивший завязать с криминалом, и его друг Ник Фриша, полицейский из управления по борьбе с наркоторговлей. Их крепкая дружба проходит серьёзное испытание, когда ФБР пытается (   Читать дальше...   )Производство: США / Cinema City Films, The Mount Company, Warner Bros.Жанр: триллер, драма, мелодрама, криминалРежиссер: Роберт ТаунАктеры: Мэл Гибсон, Курт Рассел, Мишель Пфайффер, Рауль Хулиа, Дж.Т. Уолш, Арлисс Ховард, Ари Гросс, Гэбриел Дэймон, Даниэль Сакапа, Эрик ТилеПеревод: дублированный неофициальный (Мост Видео, Варус Видео), профессиональный многоголосый (НТВ+), профессиональный двухголосый (Universal Channel), авторский (Василий Горчаков, Алексей Михалёв, Андрей Гаврилов, Леонид Володарский, Михаил Иванов)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7ADF40F1EAB9F5425B1B87B87EB768C285A450
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806838   (11229) от 17.07.2025
 
 Вождь краснокожих / Le Grand chef / The Big Chief (1959) BDRip [H.264/720p]
@@ -6,7 +56,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11229.jpg" />
 </div>
 
 
@@ -30,7 +80,7 @@ magnet:?xt=urn:btih:3A40E4B93DD519D54BDD9E133C2752F9612E6A29
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11297.jpg" />
 </div>
 
 
@@ -54,7 +104,7 @@ magnet:?xt=urn:btih:1EEA89810C0B2AEE28F18C18F297B24C6ADAC3F6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11300.jpg" />
 </div>
 
 
@@ -78,7 +128,7 @@ magnet:?xt=urn:btih:81FB669F8CD14F0E081258CEACAC8F2F04FAC99D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11306.jpg" />
 </div>
 
 
@@ -102,7 +152,7 @@ magnet:?xt=urn:btih:7C8F60B2E1A019309F31A58D8F397A7F56138644
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11309.jpg" />
 </div>
 
 
@@ -126,7 +176,7 @@ magnet:?xt=urn:btih:E7121E5D4178305ECA4D5507D81733E90D6343CA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11326.jpg" />
 </div>
 
 
@@ -150,7 +200,7 @@ magnet:?xt=urn:btih:FBDDC09177F38ED8B05DA9AA7473A60E23D69088
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11327.jpg" />
 </div>
 
 
@@ -174,7 +224,7 @@ magnet:?xt=urn:btih:8690164733ED0EE980E1629D0EB12F6F922C237C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11329.jpg" />
 </div>
 
 
@@ -246,7 +296,7 @@ magnet:?xt=urn:btih:4B2EC25A0156F828E9FA22B6116EF263D6799775
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11341.jpg" />
 </div>
 
 
@@ -294,7 +344,7 @@ magnet:?xt=urn:btih:A6F8EF1529917FE3279E0AA935F9DCF8C20EE679
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11346.jpg" />
 </div>
 
 
@@ -319,7 +369,7 @@ magnet:?xt=urn:btih:AEAED454F689E9B2C7CD21A333AA4F21627C7008
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11376.jpg" />
 </div>
 
 
@@ -343,7 +393,7 @@ magnet:?xt=urn:btih:624AD25268CD75119B537DE3E51E4973F9FB0A4C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11397.jpg" />
 </div>
 
 
@@ -369,7 +419,7 @@ magnet:?xt=urn:btih:FF0CF24D84673C953ED41BEAA30605E176C408CF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11490.jpg" />
 </div>
 
 
@@ -393,7 +443,7 @@ magnet:?xt=urn:btih:AB3F42A27DF580580A627E447A75472F0662DABF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11501.jpg" />
 </div>
 
 
@@ -417,7 +467,7 @@ magnet:?xt=urn:btih:6F74C2058C36AEAA383E20BC436D0C5163E28799
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11506.jpg" />
 </div>
 
 
@@ -441,7 +491,7 @@ magnet:?xt=urn:btih:79190D34B6775D5933DAF898DD33271F2955F083
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11515.jpg" />
 </div>
 
 
@@ -465,7 +515,7 @@ magnet:?xt=urn:btih:BFC0E8EB5B2B60703791E61C8470B7DAFB313B52
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11517.jpg" />
 </div>
 
 
@@ -489,7 +539,7 @@ magnet:?xt=urn:btih:4CC6FCD53B88B2FA4A44C15A8FB548C704997DAB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11518.jpg" />
 </div>
 
 
@@ -513,7 +563,7 @@ magnet:?xt=urn:btih:284C570D631F8C446CF56EEFF7AEBBA68508110F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11523.jpg" />
 </div>
 
 
@@ -537,7 +587,7 @@ magnet:?xt=urn:btih:45E38D3D137892F19E76B24F8B06A1791595C2F6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11524.jpg" />
 </div>
 
 
@@ -561,7 +611,7 @@ magnet:?xt=urn:btih:3E9E555BD1BD83569B671F71EE2FFDE14F61E5AE
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11540.jpg" />
 </div>
 
 
@@ -572,54 +622,6 @@ magnet:?xt=urn:btih:3E9E555BD1BD83569B671F71EE2FFDE14F61E5AE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:405F6B10E4C3BDFC1ED6A4298FA71D7D0F15A9A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442196   (11583) от 14.07.2025
-
-Двое на острове слез (1986) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды в небольшом поселке, где живет девушка Оля, остановились туристы. Оля влюбилась в Севу и забыла про Леонида, служившего в армии. Сева уехал, Ольга родила сына, вернулся Леонид и простил ей измену. Они поженились, жизнь стала налаживаться, но...Производство: СССР / БеларусьфильмЖанр: Драма, мелодрамаРежиссер: Виктор ДашукАктеры: Михаил Неганов, Светлана Рябова, Сергей Колтаков, Михаил Жигалов, Светлана Смирнова, Ричард Борткевич, Светлана Андропова, Александра Зимина, Мария Капнист, Андрей БубашкинСубтитры: ОтсутствуютПродолжительность: 01:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBEFC43F9BA4AD1F9F195334A75697BE630E6F95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806545   (11599) от 13.07.2025
-
-Великолепие в траве / Splendor in the Grass (1961) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канзас конца 20-х годов. Замкнутый мирок маленького городка, где царят суровые пуританские нравы. Любовь двух старшеклассников под запретом. Она не может ослушаться мать, твердящую о целомудрии до брака, он не решается пойти против воли отца, желающего во что бы то ни стало отправить сына в Йельский университет. Не найдя выхода чувствам, молодой человек заводит интрижку (   Читать дальше...   )Производство: США / Newtown Productions, NBI ProductionsЖанр: драма, мелодрамаРежиссер: Элиа КазанАктеры: Натали Вуд, Уоррен Битти, Пэт Хингл, Одри Кристи, Барбара Лоден, Зора Ламперт, Фред Стюарт, Джоэнна Рус, Джон МакГоверн, Жан Норрис, Мартин Бартлетт, Гэри Локвуд, Сэнди Дэннис, Кристал Филд, Марла АдамсПеревод: профессиональный многоголосый (HTB+), профессиональный двухголосый (Ульпаней Эльром), авторский (Алексей Медведев)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5EC347CCE891021F00CC36B205334FC44CB5BA
 ```
 
 

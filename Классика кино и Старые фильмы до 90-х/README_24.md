@@ -1,3 +1,75 @@
+###  Публикация: 1799943   (14786) от 13.06.2025
+
+Гараж (1979) WEBDLRip [H.265/2160p] [Реставрация Мосфильм]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14786.jpg" />
+</div>
+
+
+###  Подробнее
+
+На заседании гаражного кооператива предстоит выбрать четырех «крайних», которые должны сами отказаться от будущего собственного гаража. Но выбора, в общем-то, и нет — правление кооператива уже составило список сокращаемых, который собранию надо лишь утвердить.Производство: СССР / МосфильмЖанр: драма, комедияРежиссер: Эльдар РязановАктеры: Валентин Гафт, Ия Саввина, Лия Ахеджакова, Андрей Мягков, Георгий Бурков, Светлана Немоляева, Леонид Марков, Вячеслав Невинный, Анастасия Вознесенская, Глеб Стриженов и другиеСубтитры: русскиеПродолжительность: 01:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9018AB601176DDBEB526CC7D4BAFDEB7570F7DB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801733   (14814) от 12.06.2025
+
+Рита-надоеда / Rita la zanzara (1966) WEB-DLRip [H.264] [ITA / RU Sub]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлая музыкальная комедия о Рите, ученице лицея, которая влюблена в своего преподавателя музыки, профессора Паоло. Она замечает, что у него есть тайная жизнь: днём он учит классической музыке, а ночью поёт современные песни. Рита решает помочь ему, заменив его певицу-партнера Лиду. При этом она сталкивается с различными забавными ситуациями и, в конце концов, приводит (   Читать дальше...   )Производство: Италия, Mondial Televisione Film, TitanusЖанр: мюзиклРежиссер: Лина ВертмюллерАктеры: Рита Павоне, Джанкарло Джаннини, Пеппино Де Филиппо, Нино Таранто, Биче Валори, Тури Ферро, Милена Вукотич, Джуси Распари Дандоло, Лаура Эфрикиан, Мирелла Пампили, Паоло Панелли, Джино Брамьери, Марина Марфоглия, Сильвия ДионисиоПеревод: субтитрамиЯзык озвучки: итальянскийСубтитры: русские, английскиеПродолжительность: 01:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3990A0B25B0FC939AC8F06AFCF632FBE10D25E1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801708   (14842) от 12.06.2025
+
+Что случилось прошлой ночью / About Last Night... (1986) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет картины основан на пьесе Дэвида Мэмета 1974 года "Сексуальная извращённость в Чикаго (Sexual Perversity in Chicago)"... Денни повстречал привлекательную девушку Дебби. Молодые люди понравились друг другу с одного взгляда. Между ними завязываются отношения, крепнущие день ото дня... У Денни есть друг и коллега по работе Берни. У Дебби соседка по общежитию (   Читать дальше...   )Производство: США / TriStar Pictures, Delphi V ProductionsЖанр: драма, мелодрама, комедияРежиссер: Эдвард ЦвикАктеры: Роб Лоу, Деми Мур, Джеймс Белуши, Элизабет Перкинс, Джордж ДиЧенцо, Майкл Олдредж, Робин Томас, Донна Гиббонс, Меган Маллалли, Патриция Дафф, Розанна ДеСото, Сачи Паркер, Джо Греко, Ада Марис, Ребекка АртурПеревод: дублированный (Варус Видео), профессиональный многоголосый (1 канал), профессиональный двухголосый (Видеосервис), авторский (Леонид Володарский)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25467E2F9438A16795D76A8FD632791600AC39D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801698   (14849) от 12.06.2025
 
 Что случилось прошлой ночью / About Last Night... (1986) BDRip [H.264]
@@ -6,7 +78,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14849.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:DF290A66981967BA6EEF130D151A53789470F630
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14851.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:188567D25C57D17A2AA87B06EA40299C101614F4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14884.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:FC35AF8B421A5C41EAB6BE932CBCC03295429DB9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14920.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:5720AFDD07A1A4C8F0720B154B640E263F8C621E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14932.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:530B298A40C94C3136FC2B6CBD1E2F03AF401525
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14950.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:5CB4806A22AD635522B4441A69EA16733E9A93A8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14958.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:011644AC9F7C0919370EB3B54274CAAE8B3274D1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14977.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:1E6BF3E12A9A4C47F5FD72B553C50D5B64A7AE09
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15022.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:883DBC2AD04A8F12AA239BEA1A4E8542CE069AD3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15024.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:AA4FFA8A6E57C753F65E5EDAC123774F358C3FF4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15028.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:C904A6758AF782D322B08D61E2D40BB8E44FDED8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15029.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:F3129A18ABAB925952C3B1E90EAED506C61D97B5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15065.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:ED925AD126BA5FD42AD26A82D91DCD51557D42C2
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15179.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:E2F15917C605E794D4A35F86DB40CD74F1BE2E9D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15190.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:D8F8F9685EE0D92BB1057E8C4674335B9244419E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15200.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:2C8DCF487CA756EB3014D165F0986A31D051A3D7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15244.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ magnet:?xt=urn:btih:86EE808399C72A66D24B29E931C9B5B8A4044E80
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15263.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:DB61D765464B7131649B2DD1EF3DDEFBC36BA943
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15344.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ magnet:?xt=urn:btih:F310A486C1A397EE9E15D63B150FFB8C35190413
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15378.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:C07CCB730F36D353CF319AF51A35896D010C8CA5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15386.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ magnet:?xt=urn:btih:EC76879BAB587DFC32D08965EA041B6022736B31
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15393.jpg" />
 </div>
 
 
@@ -551,79 +623,6 @@ magnet:?xt=urn:btih:EC76879BAB587DFC32D08965EA041B6022736B31
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC09A723B9FA39B660A044414CF3A06AAEA38BC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800854   (15451) от 06.06.2025
-
-Даже после смерти / Hasta despues de muerta (1916) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редкий гость трекеров - аргентинское немое кино. Их и снято было немного, а сохранилось и того менее. А фильм интересен. В те времена мало кто снимал в таком стиле, тогда это было очень оригинально. Во-первых, вся история показана как рассказ-воспоминание одного из участников истории, происшедшей много лет назад. Во-вторых в фильме совмещены и забавные, почти комичные (   Читать дальше...   )Производство: АргентинаЖанр: драма, немое киноРежиссер: Эрнесто Гунче, Эдуардо Мартинес де ла ПераАктеры: Арджентино Гомез, Мария Фернанда, Ладрон де Гевара, Сильвия Пароди, Florencio Parravicini, Pedro Quartucci, Орфилия Рико, Энрике СерраноПеревод: немой с интертитрамиСубтитры: испанские (интертитры), русскиеПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E85B0D3BB3B74568046B5F83676EF9F597D2C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800829   (15462) от 06.06.2025
-
-Гибель сенсации / Робот Джима Рипля (1935) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по мотивам повести Владимира Владко «Идут роботы» («Ідуть роботарі»)... Учёный-идеалист Джим Рипль создаёт роботов для облегчения труда рабочих. Роботы оказываются очень эффективны, и капиталисты хотят полностью заменить ими рабочих на фабриках. Начинаются забастовки. Для усмирения рабочих капиталисты делают из роботов бесстрастных карателей. Изобретатель пытается (   Читать дальше...   )Производство: СССР / МежрабпомфильмЖанр: фантастика, драмаРежиссер: Александр АндриевскийАктеры: Николай Рыбников (II), Сергей Мартинсон, Владимир Гардин, Сергей Минин, Сергей Вечеслов, Анна Чекулаева, Владимир Орлов, Александра ХохловаЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 01:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE79062004401CC8271E50906B60864F4513897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800044   (15483) от 06.06.2025
-
-Парочка Баркли с Бродвея / The Barkleys of Broadway (1949) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие из лучших танцоров степа и эксцентричного танца супружеская пара Баркли Джош и Диана настолько успешны, что им даже нет времени поговорить друг с другом, репортеры и журналисты окружают их повсюду. Со стороны их жизнь кажется прекрасной, но нет.
-Диана считает себя не реализовавшейся драматической актрисой и грезит исполнить роль Сары Бернар в спектакле молодого (   Читать дальше...   )Производство: США / Loew's Inc.Жанр: мюзикл, комедияРежиссер: Чарльз УолтерсАктеры: Фред Астер, Джинджер Роджерс, Оскар Левант, Билли Бурк, Гэйл Роббинс, Жак Франсуа, Джордж Зукко, Клинтон Сандберг, Инез Купер, Кэрол БрюстерПеревод: Многоголосый профессиональный, ТК "Домашний"Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5764EC6B59895F71AD7E420E59D01EA431F2C83C
 ```
 
 

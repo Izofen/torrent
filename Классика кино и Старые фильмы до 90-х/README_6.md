@@ -1,3 +1,52 @@
+###  Публикация: 1816981   (3840) от 07.09.2025
+
+Аста Нильсен. К свету / Mod lyset (1919) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Избалованная светская девица Изабель выходит замуж за респектабельного человека, но позже оказывается, что он не тот за кого себя выдавал. Не выдержав позора, ее мать умирает. Переживая крах своей привычной легкомысленной жизни и подталкиваемая складывающимися обстоятельствами, Изабель решает примкнуть к евангелистам...
+Своеобразный фильм и тема непривычная по нынешним (   Читать дальше...   )Производство: Германия, Дания / Nordisk FilmЖанр: драма, немое киноРежиссер: Хольгер-МадсенАктеры: Аста Нильсен, Аугуста Блад, Фредерик Якобсен, Карл Шенстром, Алф Блютехер, Axel Boesen, Антон Де Вердье, Hans Dymsesen, Астрид Холм, Лилли ЯкобсонПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8778429B33243AEB5C90C1D197826381870DDAC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816918   (3869) от 07.09.2025
+
+Жемчужинки на дне / Perlicky na dne (1965) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина является сборником из пяти новелл, поставленных каждым из режиссёров по мотивам сюрреалистических произведений чешского писателя Багумила Грабала: «Смерть пана Балтазара», «Мошенники», «Дом радости», «Автоматический свет», «Романс».Производство: Чехословакия / Filmové Studio BarrandovЖанр: комедияРежиссер: Вера Хитилова, Яромил Йиреш, Иржи Менцель, ...Актеры: Павла Маршалкова, Фердинанд Крута, Фердинанд Крук, Жозефа Печлатова, Иван Выскочил, Ян Вала, Алоис Вачек, Богумил Грабал, Дана ВалтоваПеревод: любительский одноголосыйЯзык озвучки: русский, чешскийСубтитры: английскиеПродолжительность: 01:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF116809F3D04BA3D2D05A336E4EA6FF1728B077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816930   (3901) от 07.09.2025
 
 Жемчужинки на дне / Perlicky na dne (1965) BDRip [H.264/720p] [VO]
@@ -6,7 +55,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3901.jpg" />
 </div>
 
 
@@ -30,7 +79,7 @@ magnet:?xt=urn:btih:65991C441E97F2979F47C0B023083AC6ED0D44EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3912.jpg" />
 </div>
 
 
@@ -79,7 +128,7 @@ magnet:?xt=urn:btih:B9CF473F58C571A9F01E49D0A82D13F2B7B9D18A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3927.jpg" />
 </div>
 
 
@@ -103,7 +152,7 @@ magnet:?xt=urn:btih:CD570233B4E2C000BCE07457AE186D90D60940BA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3979.jpg" />
 </div>
 
 
@@ -128,7 +177,7 @@ magnet:?xt=urn:btih:15402143630FD4FC10DD28139389AF71933CD8E8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4050.jpg" />
 </div>
 
 
@@ -152,7 +201,7 @@ magnet:?xt=urn:btih:BEBE334CA020730C69DDDBE03EDBF24A8CCD1721
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4062.jpg" />
 </div>
 
 
@@ -176,7 +225,7 @@ magnet:?xt=urn:btih:28EEE24B654D0ABBDF8DBD8A75FA06B92B08EBB5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4097.jpg" />
 </div>
 
 
@@ -224,7 +273,7 @@ magnet:?xt=urn:btih:11312431CDD0B93E23DA7BC2BBF07F3545B09A52
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4142.jpg" />
 </div>
 
 
@@ -248,7 +297,7 @@ magnet:?xt=urn:btih:B61A4F926FF775B374D7C1C4800A386E760A379A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4161.jpg" />
 </div>
 
 
@@ -273,7 +322,7 @@ magnet:?xt=urn:btih:1FA7C30C95B24BB9B59B6FE99908BCD7464956DD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4276.jpg" />
 </div>
 
 
@@ -298,7 +347,7 @@ magnet:?xt=urn:btih:52F46CE20C67FA61D00DC438C70B0407781D4E7F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4310.jpg" />
 </div>
 
 
@@ -322,7 +371,7 @@ magnet:?xt=urn:btih:D5AED77919B7AE040FFBB388843071A77AEB2F3C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4349.jpg" />
 </div>
 
 
@@ -346,7 +395,7 @@ magnet:?xt=urn:btih:BF9DA15D2324767213B92FF6269BD93681A794DE
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4392.jpg" />
 </div>
 
 
@@ -372,7 +421,7 @@ magnet:?xt=urn:btih:C9A9D9E7B41168307F64824EE04CDADF4F389C58
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4425.jpg" />
 </div>
 
 
@@ -396,7 +445,7 @@ magnet:?xt=urn:btih:9DD0190AEC78547D120D1C37F562D561131AF466
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4433.jpg" />
 </div>
 
 
@@ -444,7 +493,7 @@ magnet:?xt=urn:btih:A1BE640FAFB42152E006E6A3361A983438B1B447
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4496.jpg" />
 </div>
 
 
@@ -468,7 +517,7 @@ magnet:?xt=urn:btih:D44249613A19FFA87AD7BB254E57D505A4B1E5FD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4499.jpg" />
 </div>
 
 
@@ -517,7 +566,7 @@ magnet:?xt=urn:btih:B9A5DB9597DBF7C009002C1579464ADBB349734E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4528.jpg" />
 </div>
 
 
@@ -541,7 +590,7 @@ magnet:?xt=urn:btih:5F6104747B9FE16C233BB608D2A448D3115345CE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4529.jpg" />
 </div>
 
 
@@ -565,7 +614,7 @@ magnet:?xt=urn:btih:471BC915124F00F3D7B0CBBC10904F3382338F73
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4545.jpg" />
 </div>
 
 
@@ -576,56 +625,6 @@ magnet:?xt=urn:btih:471BC915124F00F3D7B0CBBC10904F3382338F73
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACA089B313F59E2436CFF82AD0F3C7F665670521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814910   (4562) от 03.09.2025
-
-Мятежный «Орионъ» (1978) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина поставлена по роману Сергей Жемайтиса «Клипер «Орион».
-В 1917 году русский корабль «Орионъ» отправляется из английского порта в Россию, где уже началась революция. За время пути власть на «Орионе» поменяется три раза. Сначала корабль захватят немцы, потом анархисты, затем - монархисты...Производство: СССР / Киевская киностудия им. А. П. ДовженкоЖанр: приключения, историяРежиссер: Евгений ШерстобитовАктеры: Юрий Пузырёв, Леонид Яновский, Юрий Мочалов, Алексей Золотницкий, Анатолий Юрченко, Алексей Сафонов, Виктор Степаненко, Максим Данков, Владимир Бродский, Валерий ПанаринПродолжительность: 01:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8AD0275ACE8E402BA44CECECFDA76AF7685DA55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815877   (4567) от 03.09.2025
-
-Лучшие годы нашей жизни / The Best Years of Our Lives (1946) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа Маккинли Кантора «Прославление меня» (Glory for Me)...
-Фильм рассказывает о трёх офицерах американской армии, которые с войны вернулись домой. у Эла дома жена и двое уже подросших детей, которые как раз вступают во взрослую жизнь, он пытается наверстать упущенное, узнать их заваново и вновь завоевать семейную любовь и доверие, по возвращению его (   Читать дальше...   )Производство: США / Samuel Goldwyn CompanyЖанр: драма, мелодрама, военныйРежиссер: Уильям УайлерАктеры: Мирна Лой, Фредрик Марч, Дэна Эндрюс, Тереза Райт, Вирджиния Майо, Кэти О`Доннелл, Хоаги Кармайкл, Харольд Расселл, Глэдис Джордж, Роман Бонен, Рэй Коллинз, Минна Гомбелл, Уолтер Болдуин, Стив Кокран, Дороти Адамс (I)Перевод: дублированный (Мосфильм), профессиональный двухголосый ( HTB+), авторский (Алексей Медведев)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D68051F9877DFE83FE1200309FB1A2D353F6BB7
 ```
 
 

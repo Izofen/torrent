@@ -1,3 +1,52 @@
+###  Публикация: 1801104   (14157) от 19.06.2025
+
+В джазе только девушки / Some Like It Hot (1959) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда чикагские музыканты Джо и Джерри случайно становятся свидетелями бандитской перестрелки, они в срочном порядке смываются на поезде во Флориду, прикинувшись женщинами. Теперь они — Джозефина и Дафна, новенькие и хорошенькие инструменталистки женского джаз-бэнда.
+До поры до времени их маскировка срабатывает. Но вскоре любвеобильная солистка влюбляется в «переодетого» (   Читать дальше...   )Производство: США / MGM, The Mirisch Corporation, Ashton ProductionsЖанр: мелодрама, комедия, криминал, музыкаРежиссер: Билли УайлдерАктеры: Мэрилин Монро, Тони Кертис, Джек Леммон, Джордж Рафт, Пэт О’Брайен, Джо Э. Браун, Нехемия Персофф, Джоан Шоули, Билли Грэй, Джордж Э. Стоун и другиеПеревод: Дублированный (к/с им. Горького со вставками дубляжа ОРТ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78EF974F2C160AAB40FFE3BD0CCDF7603EF6F84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802662   (14201) от 18.06.2025
+
+Инициация: Тихая ночь, смертельная ночь 4 / Initiation: Silent Night, Deadly Night 4 (1990) BDRip [H.265/1080p] [10-bit] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина, объятая пламенем, падает с крыши книжного магазина. Ким хочет найти сенсационную историю, чтобы стать репортером, видит сюжет об этом происшествии в телевизионных новостях и начинает расследование.Производство: США / Silent Films Inc.Жанр: ужасыРежиссер: Брайан ЮзнаАктеры: Клинт Ховард, Нейт Хантер, Томми Хинкли, Хью Финк, Ричард Н. Гладштейн, Рэджи Бэннистер, Эллис Бисли, Глен Чин, Мод Эдамс, Джинн БейтсПеревод: авторский (Юрий Живов, Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106369F28B51FE39E0AA49FB15D704D1CE35B4C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802434   (14293) от 17.06.2025
 
 Чума зомби / The Plague of the Zombies (1966) BDRip [H.264/720p]
@@ -6,7 +55,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14293.jpg" />
 </div>
 
 
@@ -30,7 +79,7 @@ magnet:?xt=urn:btih:0D2DA0E060887410882B7EDCCC71D2351C748587
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14297.jpg" />
 </div>
 
 
@@ -54,7 +103,7 @@ magnet:?xt=urn:btih:989205F7A8F5CC9B556649551AC1A43348172E19
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14316.jpg" />
 </div>
 
 
@@ -78,7 +127,7 @@ magnet:?xt=urn:btih:2B4CB99EE0F5F3B09445055FB093110355FA42AF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14346.jpg" />
 </div>
 
 
@@ -102,7 +151,7 @@ magnet:?xt=urn:btih:F89DF0E9AB3E14624F316E79D72242860F59D284
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14351.jpg" />
 </div>
 
 
@@ -118,6 +167,30 @@ magnet:?xt=urn:btih:1F9F87417C7A9B2B6800F1F94E777DEBEDFDB3D0
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802379   (14409) от 16.06.2025
+
+Девушка из Пальса / Pigen fra Palls (1916) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная Элли живет в рыбацком городке Пальс как приемная дочь жадного торговца Брауна. Когда Браун без предупреждения повышает цену на горючее для лодок, местные рыбаки восстают. Ход событий приводит к огромному пожару нефти, смерти Брауна и захвату бедной Элли пиратами... И это еще не все приключeния; нескучная жизнь у девушки из Пальса!Производство: Дания / Nordisk Film KompagniЖанр: драма, мелодрама, приключения, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Алф Блютехер, Карен Касперсен, Emil Helsengreen, Фредерик Якобсен, Ове Кул, Agnes Lorentzen, Питер Нилсен, Arne WeelПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5E84870A47569259F464C8B4FD3386F6605DBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798967   (14419) от 16.06.2025
 
 Два бойца (1943) WEB-DLRip [H.264/720p]
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:1F9F87417C7A9B2B6800F1F94E777DEBEDFDB3D0
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14419.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:E19CA62382E03AABB14E8A58998FBA6B9775BDA4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14431.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ magnet:?xt=urn:btih:D8C9CAA7F8B9BC16FC1E6C50D15C145A42F2FDD8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14447.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ magnet:?xt=urn:btih:D4F38E500A01B5101A6F9115762B06BDBEDCBE77
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14500.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ magnet:?xt=urn:btih:DEEC409E88720FB849CC7D3D976FB312FDEB710F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14506.jpg" />
 </div>
 
 
@@ -271,7 +344,7 @@ magnet:?xt=urn:btih:8A5F302E30B95B6A3389E294038696A6343FF6EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14521.jpg" />
 </div>
 
 
@@ -295,7 +368,7 @@ magnet:?xt=urn:btih:BC9BFF24F5371E349B6B2027E76EE95B2BBB23B8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14523.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ magnet:?xt=urn:btih:90172E4FDF1F824D7935501DA935661388302A69
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14550.jpg" />
 </div>
 
 
@@ -416,7 +489,7 @@ magnet:?xt=urn:btih:64AB70116FDCFB4B6236A182EC4620EEC0846306
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14577.jpg" />
 </div>
 
 
@@ -440,7 +513,7 @@ magnet:?xt=urn:btih:2C3F56C5D1638CA1516C811C120CA77F8614C537
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14633.jpg" />
 </div>
 
 
@@ -465,7 +538,7 @@ magnet:?xt=urn:btih:81C3CDCB1549556780EE05231222E60DBADAFEC3
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14635.jpg" />
 </div>
 
 
@@ -489,7 +562,7 @@ magnet:?xt=urn:btih:FB38DF3E3C0D26D6EF14BEEF033309B0D6F2AC34
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14638.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ magnet:?xt=urn:btih:0DABF67C424815BF16749F5FCF4A6C1C390BEA93
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14737.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ magnet:?xt=urn:btih:4D258BDFDA66C678A5198F5CF11BF0B802CD910B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14755.jpg" />
 </div>
 
 
@@ -549,78 +622,6 @@ magnet:?xt=urn:btih:4D258BDFDA66C678A5198F5CF11BF0B802CD910B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93E403D921A1DC91DD711AB362FE68474463753D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799943   (14786) от 13.06.2025
-
-Гараж (1979) WEBDLRip [H.265/2160p] [Реставрация Мосфильм]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14786.jpg" />
-</div>
-
-
-###  Подробнее
-
-На заседании гаражного кооператива предстоит выбрать четырех «крайних», которые должны сами отказаться от будущего собственного гаража. Но выбора, в общем-то, и нет — правление кооператива уже составило список сокращаемых, который собранию надо лишь утвердить.Производство: СССР / МосфильмЖанр: драма, комедияРежиссер: Эльдар РязановАктеры: Валентин Гафт, Ия Саввина, Лия Ахеджакова, Андрей Мягков, Георгий Бурков, Светлана Немоляева, Леонид Марков, Вячеслав Невинный, Анастасия Вознесенская, Глеб Стриженов и другиеСубтитры: русскиеПродолжительность: 01:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9018AB601176DDBEB526CC7D4BAFDEB7570F7DB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801733   (14814) от 12.06.2025
-
-Рита-надоеда / Rita la zanzara (1966) WEB-DLRip [H.264] [ITA / RU Sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлая музыкальная комедия о Рите, ученице лицея, которая влюблена в своего преподавателя музыки, профессора Паоло. Она замечает, что у него есть тайная жизнь: днём он учит классической музыке, а ночью поёт современные песни. Рита решает помочь ему, заменив его певицу-партнера Лиду. При этом она сталкивается с различными забавными ситуациями и, в конце концов, приводит (   Читать дальше...   )Производство: Италия, Mondial Televisione Film, TitanusЖанр: мюзиклРежиссер: Лина ВертмюллерАктеры: Рита Павоне, Джанкарло Джаннини, Пеппино Де Филиппо, Нино Таранто, Биче Валори, Тури Ферро, Милена Вукотич, Джуси Распари Дандоло, Лаура Эфрикиан, Мирелла Пампили, Паоло Панелли, Джино Брамьери, Марина Марфоглия, Сильвия ДионисиоПеревод: субтитрамиЯзык озвучки: итальянскийСубтитры: русские, английскиеПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3990A0B25B0FC939AC8F06AFCF632FBE10D25E1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801708   (14842) от 12.06.2025
-
-Что случилось прошлой ночью / About Last Night... (1986) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет картины основан на пьесе Дэвида Мэмета 1974 года "Сексуальная извращённость в Чикаго (Sexual Perversity in Chicago)"... Денни повстречал привлекательную девушку Дебби. Молодые люди понравились друг другу с одного взгляда. Между ними завязываются отношения, крепнущие день ото дня... У Денни есть друг и коллега по работе Берни. У Дебби соседка по общежитию (   Читать дальше...   )Производство: США / TriStar Pictures, Delphi V ProductionsЖанр: драма, мелодрама, комедияРежиссер: Эдвард ЦвикАктеры: Роб Лоу, Деми Мур, Джеймс Белуши, Элизабет Перкинс, Джордж ДиЧенцо, Майкл Олдредж, Робин Томас, Донна Гиббонс, Меган Маллалли, Патриция Дафф, Розанна ДеСото, Сачи Паркер, Джо Греко, Ада Марис, Ребекка АртурПеревод: дублированный (Варус Видео), профессиональный многоголосый (1 канал), профессиональный двухголосый (Видеосервис), авторский (Леонид Володарский)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25467E2F9438A16795D76A8FD632791600AC39D
 ```
 
 

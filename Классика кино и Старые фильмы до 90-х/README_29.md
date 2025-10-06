@@ -1,3 +1,75 @@
+###  Публикация: 1795975   (17700) от 20.05.2025
+
+Потише, басы! / Doucement les basses (1971) HDTVRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17700.jpg" />
+</div>
+
+
+###  Подробнее
+
+После гибели жены в результате несчастного случая известный музыкант Симон Медьё становится священником и уезжает в отдалённую небольшую деревню. Спустя несколько лет в церкви появляется незнакомый мужчина, который представляется мужем погибшей жены Симона и сообщает ему, что женщина жива и приехала вместе с ним.Производство: Италия, Франция / Франция, Италия / Adel Productions, Medusa DistribuzioneЖанр: комедияРежиссер: Жак ДерэАктеры: Ален Делон, Натали Делон, Поль Мёрисс, Жюльен Гиомар, Андре Болле, Поль Пребуа, Миранда Кампа, Филипп Кастелли, Серж Даври, Карло НеллПеревод: Многоголосый профессиональный ("ФильмЭкспорт")Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2A11A5D257AB751D9F488CE343B36ECB70B7A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795959   (17709) от 20.05.2025
+
+Крестный отец 3 / The Godfather: Part III (1990) UHD BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заключительная часть знаменитой гангстерской эпопеи, в которой продолжается рассказ о делах «семьи» дона Корлеоне. Через двадцать лет после событий, описанных в предыдущей картине, Майкл Корлеоне решает заняться легальным бизнесом. Однако противодействие внутри клана заставляет его вспомнить об испытанных кровавых методах общения с противником, что приводит к трагическому (   Читать дальше...   )Производство: США / Paramount Pictures, Zoetrope StudiosЖанр: криминал, драма, триллерРежиссер: Фрэнсис Форд КопполаАктеры: Аль Пачино, Энди Гарсиа, Дайан Китон, Талия Шайр, Илай Уоллак, Джо Мантенья, София Коппола, Фрэнк Д’Амброзио, Джордж Хэмилтон, Бриджит ФондаПеревод: профессиональный многоголосый (Карусель / Киномания, BluRay / R5, Кравец / С.Р.И., Медиакомплекс, Первый канал, Так треба продакшн), профессиональный двухголосый (Премьер Видео Фильм, 1+1), любительский двухголосый, авторский (Андрей Гаврилов, Юрий Сербин, Юрий Живов, Михаил Яроцкий)Язык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские, английские (full, forced, SDH, SDH Colored)Продолжительность: 02:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3ACF4CECABC32BA4B61D530B41EB2DADDCF7AA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798082   (17725) от 20.05.2025
+
+Медсестра и большие маневры (Возмутительница спокойствия роты №9) / La soldatessa alle grandi manovre (1978) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медсестра прибывает в военную часть. Лечить здесь есть кого, чуть ли не каждый - ненормальный, и все озабоченные.Производство: Италия, Франция / Devon Film, Imp.Ex.Ci., Les Films Jacques Leitienne, Medusa DistribuzioneЖанр: КомедияРежиссер: Нандо ЦицероАктеры: Эдвиж Фенек, Ренцо Монтаньяни, Альваро Витали, Микеле Гаммино, Лучио Монтанаро, Энцо Монтедуро, Лино Банфи, Джанфранко Д’Анджело, Нино Терцо, Антонино Фаа Ди Бруно, Ренцо Оццано, Рита Ди Лерниа, Грация Ди Марца, Джимми иль ФеноменоПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, итальянскийСубтитры: ИтальянскиеПродолжительность: 01:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEC674C1E3C86C9F1294A8B0E89A222737CC750
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797914   (17758) от 19.05.2025
 
 Счастье / Le Bonheur (1965) BDRip [H.264] [VO]
@@ -6,7 +78,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17758.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:564D922C5296156CEA3BFD3C480EDFACB79E67E7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17766.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:03345D55D60869C09D92B3EF359FA01063EFFC45
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17783.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:65B65E512166EED85B1661EACEC53080964EF1BE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17792.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:39B8CFD59E55321508C0CC59120DCFF22E9AE80D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17798.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:459F38DBD945C45CED1ABB67AC524C0735F91C08
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17803.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:DCE5EF48508163DDF54D004725B36293F96E3BD6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17817.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:B726125DE653A797203A9C59BB6D04828BFE78E4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17832.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:08F18AAF7D306F90938E72038106E64E834F9F73
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17861.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:357471C287D3BD76111AD36E0D6370CEA66F2C88
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17863.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:059D48BDE7675958F0B9D1E375AACD13B5855B08
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17873.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:09530BBD13B6CFC296686C3DBEFF11C69C5DC3E4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17883.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ magnet:?xt=urn:btih:50894F39A517824FA50B8EA8FC5FC981843ED310
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17901.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:F762E66548A00653659D0D6F4CD07E269BC108D1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17905.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ magnet:?xt=urn:btih:5707CB74ACDCEDDA2BAD089FD6FDADB2F35D7E10
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17911.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:CCD42668F6043D37D180765D898F718E57CF13F0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17940.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:4C5FDA2EAAD8C50FD60B8459CC35B223C25B30D1
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17969.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:186271AB9A4A4804BA9F5E5191FF025F795DCCD9
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18011.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:B71D4988CBA40DBAB014F0C722C10E6B23457006
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18017.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ magnet:?xt=urn:btih:81356D30E39B7C89C58AC30A876884F6B47B8411
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18022.jpg" />
 </div>
 
 
@@ -551,79 +623,6 @@ magnet:?xt=urn:btih:81356D30E39B7C89C58AC30A876884F6B47B8411
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75D16F1DD019C0BF99DAA7CF153B15D5E1C3139
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797654   (18027) от 17.05.2025
-
-Плоть и пули / Flesh and Bullets (1985) BDRemux [H.264/1080p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое мужчин встречаются в баре в Лас-Вегасе и обнаруживают, что у них есть одна общая большая проблема - их жены. Они решают сделать что-то радикальное.Производство: США / T&A ProductionsЖанр: криминалРежиссер: Карлос ТобалинаАктеры: Гленн МакКэй, Гэйл Стерлинг, Мик Морроу, Сидни Хилл, Gina Tobalina, Ивонн Де Карло, Альдо Рэй, Сесар Ромеро, Корнел Уайлд, Шэрон КеллиПеревод: Авторский (Андрей Дольский)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5FB689AB8F69ED0C4B37340304381A7B0470DA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797631   (18039) от 17.05.2025
-
-Дух студента / School Spirit (1985) BDRemux [H.264/1080p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой парень Билли Бэтсон едет на свидание со своей девушкой. Он надеется на секс с ней, но у него нет ни одного презерватива. Тогда он едет за презервативами и находит их в придорожной закусочной. Теперь он спешит обратно и на большой скорости врезается своей машиной в большой грузовик и погибает.
-На небесах его воскрешают, но уже в виде духа, чтобы он смог встретиться (   Читать дальше...   )Производство: США / Chroma III Productions, New Horizons, T&A ProductionsЖанр: комедия, фэнтезиРежиссер: Алан ХоллебАктеры: Том Нолан, Элизабет Фокс, Ларри Линвилл, Роберта Коллинз, Майкл Миллер, Брайан Фришмен, Лесли Бреммер, Лоуренс Хэддон, Бич Дикерсон, Синтия ХаррисонПеревод: Авторский (Л. Володарский)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1CB98413A0B2A83E817E180E8B423A101A047E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797210   (18073) от 16.05.2025
-
-По улицам комод водили... (1978) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киноальманах состоит из новелл-шуток: "Грабеж среди бела дня" - о покупателе, доверившем обкатку своего новенького велосипеда ребенку; "С новинкой!" - о новом директоре большого гастронома, выясняющем у следователя меру наказаний за предполагаемое воровство; "На волоске" - о пожилом пассажире пригородного поезда, размечтавшемся о встречах (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: комедияРежиссер: Марк Генин, Николай КовальскийАктеры: Игорь Ясулович, Валерий Носик, Владимир Ивашов, Евгений Весник, Игорь Дмитриев, Наталья Вавилова, Семен Морозов, Савелий Крамаров, Наталья Селезнёва, Александр Демьяненко и др.Субтитры: отсутствуютПродолжительность: 01:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8209BE1E3D3AC31E55DB4093D170140177AD94
 ```
 
 

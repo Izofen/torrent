@@ -1,3 +1,52 @@
+###  Публикация: 951078   (8754) от 10.08.2025
+
+Двое в городе / Deux hommes dans la ville (1973) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немногословный, неустрашимый герой помогает бывшим преступникам. Не каждому из них под силу освоиться в новой жизни. Но он знает секреты людской психологии. Его подопечный удостоился внеочередной поддержки старшего друга, но у него остался непобедимый враг в полиции…Производство: Франция, Италия / Adel Productions, Medusa ProduzioneЖанр: Драма, КриминалРежиссер: Жозе ДжованниАктеры: Жан Габен, Ален Делон, Мимзи Фармер, Виктор Лану, Сесиль Вассор, Илариа Оккини, Гуидо Альберти, Малка Рибовска, Кристина Фабрега, Жерар Депардье, Робер Кастель, Альбер Ожье, Морис Барье, Пол Бюва, Габриэль Бриан, Жан-Пьерр ОнореПеревод: Дублированный, многоголосый закадровый, одноголосый закадровыйПродолжительность: 01:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D050A1889899C7F6A6C034A58572D6D216B427D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809812   (8792) от 09.08.2025
+
+Всегда хорошая погода / It's Always Fair Weather (1955) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8792.jpg" />
+</div>
+
+
+###  Подробнее
+
+1945 год. Три солдата Тэд Рили, Даг Холлертон и Энджи Валентин вернулись в родной Нью-Йорк с полей сражений, они клянутся в дружбе навек и договариваются что встретятся вновь через десять лет — 11 октября 1955. Проходят годы, друзья встречаются и понимают, что былой дружбы нет.
+Джеки Литон, ведущая телешоу и подруга одного из парней, решает помочь ребятам восстановить (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: мюзикл, драма, мелодрама, комедияРежиссер: Стэнли Донен, Джин КеллиАктеры: Джин Келли, Дэн Дейли, Сид Черисс, Долорес Грэй, Майкл Кидд, Дэвид Барнс, Джей С. Флиппен, Дэвид Адар, Бетти Арлен, Фил АрнольдПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFE36964C737060F5D27D23F00C48651CB389D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809047   (8803) от 09.08.2025
 
 Трое в лодке, не считая собаки (1979) DVDRip
@@ -6,7 +55,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_8803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8803.jpg" />
 </div>
 
 
@@ -54,7 +103,7 @@ magnet:?xt=urn:btih:A38772D9511522231590C26F543D8013B1D27897
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_8898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8898.jpg" />
 </div>
 
 
@@ -78,7 +127,7 @@ magnet:?xt=urn:btih:E1104C2EED5E510248B11214A87E6677680D812C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_8900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8900.jpg" />
 </div>
 
 
@@ -102,7 +151,7 @@ magnet:?xt=urn:btih:83FF82233AAC4EE13E662BCDEFAFA828ADB024C6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_8914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8914.jpg" />
 </div>
 
 
@@ -126,7 +175,7 @@ magnet:?xt=urn:btih:E7885071C9E97330E41D80755F3626FB3573FA30
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_8934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8934.jpg" />
 </div>
 
 
@@ -150,7 +199,7 @@ magnet:?xt=urn:btih:1DF55D72A7B85F9035CDA0A1C52FAA5446D014E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_8945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8945.jpg" />
 </div>
 
 
@@ -174,7 +223,7 @@ magnet:?xt=urn:btih:4AD527AFF1B672AEDD89649991113F2B39139AA6
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_8961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8961.jpg" />
 </div>
 
 
@@ -223,7 +272,7 @@ magnet:?xt=urn:btih:FCF3B51D184143B2DF21929C8CCD2FA0284A923C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9014.jpg" />
 </div>
 
 
@@ -247,7 +296,7 @@ magnet:?xt=urn:btih:BA264CA10FF5AAB924B4118051574D2B8872B33C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9140.jpg" />
 </div>
 
 
@@ -271,7 +320,7 @@ magnet:?xt=urn:btih:7838E26FFE4C435931E505FE321002CB01DC0C46
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9144.jpg" />
 </div>
 
 
@@ -295,7 +344,7 @@ magnet:?xt=urn:btih:8325EA0F6F1E106601902E41F362BEA45FE48CF8
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9149.jpg" />
 </div>
 
 
@@ -319,7 +368,7 @@ magnet:?xt=urn:btih:9731A7CCC42D90F15EB4295730BC0BE20996D81F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9157.jpg" />
 </div>
 
 
@@ -369,7 +418,7 @@ magnet:?xt=urn:btih:198DF1801E2E3D0517F5AB33C72C1988490F589B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9203.jpg" />
 </div>
 
 
@@ -394,7 +443,7 @@ magnet:?xt=urn:btih:00983CDEDF13C7CA2B1017ECDE7A130ACDBB5020
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9223.jpg" />
 </div>
 
 
@@ -418,7 +467,7 @@ magnet:?xt=urn:btih:24EFCF3CF39E5F056153A9C4AD44CF18A42C1434
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9235.jpg" />
 </div>
 
 
@@ -443,7 +492,7 @@ magnet:?xt=urn:btih:01C71CE76FE6977E8D5AEC43E70FD02104F8906D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9255.jpg" />
 </div>
 
 
@@ -468,7 +517,7 @@ magnet:?xt=urn:btih:0472A055F91C67E2052CE59459F2C19656F52EE8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9279.jpg" />
 </div>
 
 
@@ -493,7 +542,7 @@ magnet:?xt=urn:btih:868351D587DC518F01EF9A69FBAEC3E5AFAE2C0E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9281.jpg" />
 </div>
 
 
@@ -542,7 +591,7 @@ magnet:?xt=urn:btih:D95AE52B2284A50D29F7B75DD23AB5BEBCA05F4A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9306.jpg" />
 </div>
 
 
@@ -566,7 +615,7 @@ magnet:?xt=urn:btih:ED0B93E1995AF1531F5A228FA8E5A53B51A9E192
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9313.jpg" />
 </div>
 
 
@@ -577,54 +626,6 @@ magnet:?xt=urn:btih:ED0B93E1995AF1531F5A228FA8E5A53B51A9E192
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6963131368A47343AC98C337EC21173D9784C94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809184   (9385) от 04.08.2025
-
-Кин-дза-дза! (1986) BDRip (серии 1-2 из 2)
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прораб Владимир Николаевич Машков и не подозревал, что обычный путь до универсама за хлебом и макаронами обернется межгалактическим путешествием. А все эта встреча со странным босоногим человеком с каким-то маленьким устройством — «машинкой перемещения», как тот ее назвал. Владимир Николаевич нажал кнопку и оказался вместе со случайным попутчиком, студентом в кроличьей (   Читать дальше...   )Производство: СССР / МосфильмЖанр: фантастика, драма, комедияРежиссер: Георгий ДанелияАктеры: Станислав Любшин, Евгений Леонов, Юрий Яковлев, Леван Габриадзе, Ольга Машная, Ирина Шмелева, Лев Перфилов, Георгий Данелия, Александра Дорохина, Галина Данелия-Юркова и др.Субтитры: отсутствуютПродолжительность: 01:06:12 + 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BEAE9CE9AEB70BE1BF578254F67939B755B429
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806584   (9386) от 04.08.2025
-
-Дорогая Елена Сергеевна (1988) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_9386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приятно удивлена и обрадована была Елена Сергеевна, когда к ней неожиданно пришли гости - ее ученики. Она и представить себе не могла, какой драмой обернется для нее этот визит.Производство: СССР / МосфильмЖанр: триллер, драма, криминалРежиссер: Эльдар РязановАктеры: Марина Неёлова, Наталья Щукина, Федор Дунаевский, Дмитрий Марьянов, Андрей Тихомирнов, Эльдар РязановПродолжительность: 01:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D166F884886C22DFEED2FF92114F6056A9ABED2D
 ```
 
 

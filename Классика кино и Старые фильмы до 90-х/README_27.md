@@ -1,3 +1,75 @@
+###  Публикация: 1799325   (16580) от 28.05.2025
+
+Молот ведьм / Kladivo na carodejnice (1970) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на романе «Молоток для ведьм» Вацлава Каплицкого (1963)... XVII век. Инквизиция держит в страхе всю Европу. И простой люд и знать верят, что повсюду обитают ведьмы. Для скорого суда и расправы над колдуньями по городам и сёлам разъезжают жестокие мракобесы-инквизиторы. Не гнушаясь изощренными пытками и обманом, они повсюду устраивают азартную охоту (   Читать дальше...   )Производство: Чехословакия / Filmové Studio BarrandovЖанр: драма, историяРежиссер: Отакар ВавраАктеры: Владимир Шмерал, Эло Романчик, Йозеф Кемр, Соня Валентова, Бланка Валеска, Лола Скрбкова, Иржина Штепничкова, Мари Надемлейнска, Мириам Канторкова, Эдуард ЦупакПеревод: авторский (Юрий Сербин), любительский одноголосый (Алексей Яковлев)Язык озвучки: русский, чешскийСубтитры: нетПродолжительность: 01:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3757F8BED27789C9BB4A595AF66A1B0C30B9D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799528   (16590) от 28.05.2025
+
+Иди отсюда, не смеши меня / Vai avanti tu che mi vien da ridere (1982) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комиссар Паскуале Беллакьома имел в управлении репутацию недотепы, из-за чего ему никогда не поручали серьезных дел. Но однажды он случайно услышал ориентировку на опасного убийцу-трансвестита Андреа Марию Риттера, который был нанят для устранения арабского шейха Абаджана, планировавшего посетить Италию. Решив действовать на свой страх и риск, Паскуале отправляется (   Читать дальше...   )Производство: Италия / Cinemaster S.r.l.Жанр: комедия, триллерРежиссер: Джорджо КапитаниАктеры: Лино Банфи, Агостина Белли, Нандо Паоне, Крис Аврам, Альдо Массассо, Гордон Митчелл, Фабриция Кастаньоли, Люка Бьяджини, Пино Колицци, Анна Тереза РоссиниПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, итальянскийСубтитры: Русские, итальянскиеПродолжительность: 01:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE862498C6D0A9AAA72263626BD3EB9BB46D9408
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796550   (16614) от 28.05.2025
+
+Капитан / Le capitan / Captain Blood (1960) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16614.jpg" />
+</div>
+
+
+###  Подробнее
+
+1616 год. Сыну убитого Генриха IV Людовику XIII пятнадцать лет. Он еще мал, чтобы управлять страной. И королева-мать Мария Медичи назначает на пост регента Кончини, который жаждет сам получить трон и титул короля Франции. Молодой дворянин Франсуа, втянутый в эту интригу, искренне предан законному наследнику престола Людовику. Он прилагает все усилия, чтобы встретиться (   Читать дальше...   )Производство: Франция, Италия / Production Artistique et Cinematographique (PAC), Pathe Consortium Cinema, Da.Ma. CinematograficaЖанр: боевик, приключенияРежиссер: Андре ЮнебельАктеры: Жан Маре, Бурвиль, Эльза Мартинелли, Пьеретт Бруно, Лизе Деламар, Анни Андерсон, Ги Делорм, Жаклин Порель, Жан-Поль Коклен, Рафаэль ПаторниПеревод: Дублированный (Мосфильм), профессиональный многоголосый (CP Digital, РенТВ, DVD Magic), профессиональный одноголосый (Всеволод Абдулов)Язык озвучки: русский, французскийСубтитры: русские, английские, французскиеПродолжительность: 01:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCA13785795950A411A338BA1D7462BA2F55367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799353   (16660) от 27.05.2025
 
 Путешествие будет приятным (1982) DVDRip [H.264]
@@ -6,7 +78,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16660.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:1A992198E5FE2F4EC57B87EEFFDA75EE347DF28C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16665.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:26505BE0D9CB216E7F8432A6591A08BBE71C7558
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16668.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:D189F0C96B6EBF35EDBB8C558045D56D8DC1FCF7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16733.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:B26D47A71E77ECCEED189DE3C720102DD4E5A345
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16736.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:ADD0E084FEFA0C084F2541FAEFEADE5A025FF7F1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16816.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:DE8F2D44E58628749201C4A653347EB50B432B29
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16821.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:2DFE9998761E13A521FF1DCD0882BC31C0AB2D61
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16823.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:96AE446031F62E3498A60B2968C92689D73FEADA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16847.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:8DD6FC34BDC3EC9C676E82F9BCD900C48CC74F1F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16864.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:B591AD52780791B932BFF98B71DE8275A8574505
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16884.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:EA33BFEAB727C60DF61120903A074BF0B536C74D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16918.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ magnet:?xt=urn:btih:55684C7426B78D4E8CA5242F07C757FBD1F0406B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16949.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ magnet:?xt=urn:btih:1314C680DDA921E433B2E73B57A5ACA6EDCD93F0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16989.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ magnet:?xt=urn:btih:8CF8CBC51EFCB4C95FFB5E206F473B53067DDF1B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16998.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ magnet:?xt=urn:btih:570DD22C781AFA17760886394235345F7584093F
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17056.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ magnet:?xt=urn:btih:17D690D1A050671010F9B6068F07C2EAF404CC7C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17106.jpg" />
 </div>
 
 
@@ -488,7 +560,7 @@ magnet:?xt=urn:btih:75D5596CA9A3A4BCFA8E714C486296847D0AD182
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17109.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ magnet:?xt=urn:btih:81A80E8CA5A91ADECC9A24FF418FAC582C066FCF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17121.jpg" />
 </div>
 
 
@@ -536,7 +608,7 @@ magnet:?xt=urn:btih:10ACAE454D8717ABA3F79B49E40EBE067859A71A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17122.jpg" />
 </div>
 
 
@@ -548,79 +620,6 @@ magnet:?xt=urn:btih:10ACAE454D8717ABA3F79B49E40EBE067859A71A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C42EA5FCE07C6EC821EE19D5C1C4936B93D3700
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797549   (17151) от 24.05.2025
-
-Душа (1981) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17151.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни талантливой и популярней эстрадной звезды наступает «черная» полоса: она в творческом кризисе, её покидают друзья-музыканты, а главное - ей грозит потеря голоса, если она на время не прекратит петь. Однако, приняв решение покинуть сцену, певица не в силах его осуществить.Производство: СССР, МосфильмЖанр: мюзиклРежиссер: Александр СтефановичАктеры: София Ротару, Михаил Боярский, Ролан Быков, Андрей Макаревич, Валерий Ефремов, Александр Кутиков, Ованес Мелик-Пашаев, Пётр Подгородецкий, Вячеслав Спесивцев, Ивар Калныньш, Леонид Оболенский, Татьяна Аксюта, Вадим Вилски, Олег Измайлов, Андрей КарташовСубтитры: отсутствуютПродолжительность: 01:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F54F552402D990D02B99B5F4DB1BB32528E21C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798966   (17164) от 24.05.2025
-
-Зеркало (1974) WEBRip [VP9/2160p] [Реставрация МФ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей мучительно боится потерять любовь и понимание близких людей: матери, любимой женщины, сына. И чувствует, что жизнь с каждым днем все дальше уводит их друг от друга. Пытаясь сохранить семью, он обращается к самым сильным впечатлениям детства, стараясь в том, детском, мировосприятии найти опору и оправдание своим сегодняшним переживаниям.Производство: СССР / МосфильмЖанр: драма, биографияРежиссер: Андрей ТарковскийАктеры: Маргарита Терехова, Олег Янковский, Иннокентий Смоктуновский, Филипп Янковский, Игнат Данильцев, Николай Гринько, Алла Демидова, Юрий Назаров, Анатолий Солоницын, Лариса ТарковскаяПродолжительность: 01:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A727F19DAA10FCA8B3C70FB2B7FA6CDC79C7B29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798939   (17167) от 24.05.2025
-
-Праздник на автобусах / Holiday on the Buses (1973) WEB-DLRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заключительная часть приключений на автобусах, в которой Стен и Джек, уволенные из автобусного парка за то, что разбили два автобуса и автомобиль начальника не выезжая из депо, находят новую работу в доме отдыха. Прибыв на новое место службы, друзья с удивлением узнаю, что инспектор Блейк теперь тоже работает там.
-Первый фильм - На автобусах (1971), второй фильм (   Читать дальше...   )Производство: Великобритания / Anglo-EMI, Hammer FilmsЖанр: КомедияРежиссер: Брайан ИззардАктеры: Рег Вэрни, Стивен Льюис, Дорис Хэа, Майкл Роббинс, Анна Карен, Боб Грант, Уилфрид Брэмбелл, Кейт Уильямс, Артур Муллар, Куеени УоттсПеревод: Двуголосый любительский, SNK-TVЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF344595C78DE969550681F91BC60047B704BACB
 ```
 
 

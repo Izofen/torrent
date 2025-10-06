@@ -1,3 +1,51 @@
+###  Публикация: 1814173   (6293) от 23.08.2025
+
+Пьянь / Barfly (1987) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет собой полуавтобиографию поэта и писателя Чарльза Буковски в период, когда он сильно пил в Лос-Анджелесе... Генри Чинаски писатель и алкоголик. Свою жизнь он проводит в барах Лос-Анджелеса, но на выпивку и гамбургер он предпочитает зарабатывать «нетрадиционными» способами: принимает участие в уличных драках, где на него делают ставки. Однажды на (   Читать дальше...   )Производство: США / Golan / Globus Production, Zoetrope StudiosЖанр: драма, мелодрама, комедияРежиссер: Барбет ШредерАктеры: Микки Рурк, Фэй Данауэй, Элис Крайдж, Джек Нэнс, Фрэнк Сталлоне, Сэнди Мартин, Роберта Бэссин, Глория ЛеРой, Джо Ангер, Гарри Кон, Прюитт Тейлор Винс, Джо Райс, Дональд Л. Норден, Уил Альберт, Хэл ШаферПеревод: профессиональный многоголосый (MVO R5 Н-Кино; Paramount Channel), профессиональный двухголосый (НТВ+; СВ-Кадр; Лазер Видео), авторский (Алексей Михалёв; Витя-Говорун; Михаил Чадов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2332615CBFD6CB43C0DC842DD01561007364C959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814195   (6296) от 23.08.2025
+
+Джефф / Jeff (1969) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6296.jpg" />
+</div>
+
+
+###  Подробнее
+
+После успешной кражи драгоценностей, главарь банды, Джефф едет в Нидерланды, чтобы обменять там бриллианты на наличные деньги. Но на оговоренную встречу в Париже он не приходит, и все, кроме его близкого друга, Лорана, и его возлюбленной, Евы, подозревают Джеффа в предательстве. Лоран и Ева отправляются, преследуемые оставшимися в живых гангстерами, по заснеженной (   Читать дальше...   )Производство: Франция, Италия / Adel Productions, PECF, PIC (Produzione Intercontinentale Cinematografica)Жанр: драма, криминалРежиссер: Жан ЭрманАктеры: Ален Делон, Мирей Дарк, Жорж Рукье, Габриэль Жаббур, Натали Нерваль, Робер Ломбар, Жорж Джеймин, Анри Черняк, Жан Содрэ, Альбер МединаПеревод: Многоголосый профессиональный (Велес), авторский (Роман Янкелевич)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2945E44D76743FE71C26054C07DA4175F489D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814127   (6315) от 23.08.2025
 
 Пьянь / Barfly (1987) BDRip [H.264]
@@ -6,7 +54,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6315.jpg" />
 </div>
 
 
@@ -55,7 +103,7 @@ magnet:?xt=urn:btih:E93C7CE537BAB098F2BEC0168DA777C87495F959
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6342.jpg" />
 </div>
 
 
@@ -103,7 +151,7 @@ magnet:?xt=urn:btih:51109CB77EFBFA7C471160EA768354FB4F861645
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6395.jpg" />
 </div>
 
 
@@ -128,7 +176,7 @@ magnet:?xt=urn:btih:4B9F24F1962F4EEE26B5F94E8FE1F6875A588BA0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6442.jpg" />
 </div>
 
 
@@ -178,7 +226,7 @@ magnet:?xt=urn:btih:52DC41C30AC7336D252F6A40474A280854E38426
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6476.jpg" />
 </div>
 
 
@@ -348,7 +396,7 @@ magnet:?xt=urn:btih:8FFEC06BA8173F4716DD695EEFD343A5D50E5867
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6622.jpg" />
 </div>
 
 
@@ -373,7 +421,7 @@ magnet:?xt=urn:btih:8C8B5804CCD9AB7CD294AB0811D65AB727489C48
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6662.jpg" />
 </div>
 
 
@@ -398,7 +446,7 @@ magnet:?xt=urn:btih:08C98622AD4DC18480915C24B324258042C9FC98
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6667.jpg" />
 </div>
 
 
@@ -422,7 +470,7 @@ magnet:?xt=urn:btih:A061D2A5650AB41A16020C4A9B96248BDC4B3249
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6710.jpg" />
 </div>
 
 
@@ -470,7 +518,7 @@ magnet:?xt=urn:btih:623FEB9DD800F37CAC2907E577FAE535D0DCE5E3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6745.jpg" />
 </div>
 
 
@@ -577,56 +625,6 @@ magnet:?xt=urn:btih:3238D7E1CDBD3DF5F7FBF018182C977D9CE406AC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF5527F2B44689E0937D4A46A58712CBB5DD878
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735387   (7013) от 19.08.2025
-
-Спасите Конкорд / Concorde Affaire '79 (1979) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конкуренты готовы на все, чтобы не допустить «Конкорд» на мировой рынок. Во время первого испытательного полета белоснежный лайнер по неизвестным причинам падает в воды Карибского моря. Чудом выжившую стюардессу спасают рыбаки.
-Как только весть доходит до скандально-известного журналиста Мозеса Броди, он вылетает на Антильские острова, чтобы расследовать трагедию. (   Читать дальше...   )Производство: Италия / Dania Film, National CinematograficaЖанр: боевик, триллер, криминалРежиссер: Руджеро ДеодатоАктеры: Джеймс Франсискус, Мимзи Фармер, Венантино Венантини, Фьямма Мальоне, Эдмунд Пурдом, Франсиско Шарль, Франческо Карнелутти, Оттавиано Дэлль’Акква, Альдо Барберито, Роберто СантиПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: 01:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D705CEE75D0A344D88C7FB8ABB61F5CB7CBF87ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339519   (7015) от 19.08.2025
-
-Забриски Пойнт / Zabriskie Point (1969) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eдинственный американский фильм знаменитого и выдающегося итальянского режиссера Mикеланджелo Aнтониони. Это своего рода взгляд иностранца на Aмерику времен молодежного бунта. Но взгляд не на благополучную сверхдержаву, а страну простых, одиноких и по своему несчастных людей.
-Зaбpиски Пoйнт (Zаbriskie Pоint) - жаркая пустыня в Долине Смерти, в самом центре Аризоны. (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM), Trianon ProductionsЖанр: Драма, МелодрамаРежиссер: Микеланджело АнтониониАктеры: Марк Фрешетт, Дэрия Хэлприн, Пол Фикс, Г.Д. Спрэдлин, Билл Гэрауэй, Кэтлин Кливер, Род Тейлор, Ли Дункан, Харрисон Форд, Джим Голдрап ...Перевод: Двухголосый закадровый, ПрофессиональныйПродолжительность: 01:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DD200CF21270956912D20E331BA038CABEADFC
 ```
 
 

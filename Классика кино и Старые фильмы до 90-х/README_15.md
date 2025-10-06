@@ -1,3 +1,51 @@
+###  Публикация: 1808779   (10289) от 26.07.2025
+
+Единственный выживший / Sole Survivor (1983) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Денис Уотсон непостижимым образом остаётся единственной уцелевшей в страшной авиакатастрофе, не получив при этом каких-либо тяжёлых повреждений. Вначале Денис относится к своему чудесному спасению не слишком серьёзно, но затем с удивлением начинает встречать странных людей, при появлении которых, она порой чудом избегает гибели. Удивление постепенно перерастает в (   Читать дальше...   )Производство: США / Grand National Pictures (II), Moviestore EntertainmentЖанр: ужасы, мистика, триллерРежиссер: Том ЭберхардтАктеры: Анита Скиннер, Курт Джонсон, Робин Дэвидсон, Карен Л. Ларки, Эндрю Бойер, Дениэл Браян Картвелл, Ведни Дэйк, Стефен В. Исбелл, Уильям Снар, Пегги МакКлюр, Роберта Кэй, Кэтлин Блит, Стив Краузе, Доминик Манано, Рэнди СтриплингПеревод: профессиональный одноголосый (Пётр Тобилевич)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE52CA0E27D91914172AE5CF4458CCA9FDAE2F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808697   (10302) от 26.07.2025
+
+К нам, маленькие англичанки! / A nous les petites Anglaises! (1976) BDRip [H.264/720p] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10302.jpg" />
+</div>
+
+
+###  Подробнее
+
+50-е годы XX века. Два молодых француза решают отправиться на каникулы в Англию. В итоге - вечный спор между Англией и Францией. Два менталитета, два образа жизни, два отношения к любви и сексу. И на этом фоне первый любовный опыт, первая разлука и сердце, разбитое впервые под рокот прибоя на мокром песке...Производство: Франция / Irene Silberman, Les Films GalaxieЖанр: комедия, мелодрамаРежиссер: Мишель ЛангАктеры: Реми Лоран, Стефани Ийель, Вероник Дельбур, Софи Баржак, Жюли Нёбер, Райна О’Грейди, Айна Валле, Брижит Беллак, Мишель Мелки, Беатрис Сен-МаркПеревод: профессиональный двухголосый (ФильмЭкспорт)Язык озвучки: русский, французскийСубтитры: русские (на места без перевода, надписи и полные), английскиеПродолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9B4381E237A956EF869E37E81968F708742A35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808587   (10325) от 26.07.2025
 
 К нам, маленькие англичанки! / A nous les petites Anglaises! (1976) BDRip [H.264] [DVO]
@@ -6,7 +54,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10325.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:B1DF84A06FD65B2540C5C8B85F50DFAF7E0C2CAF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10374.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ magnet:?xt=urn:btih:F774ABD8969216BC627854E28F03C8D6F36027C9
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10396.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ magnet:?xt=urn:btih:D4ECBD0F673311DFCA8825A3580B5AFB8C9EE3D9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10397.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ magnet:?xt=urn:btih:0C69E7B105F1390ECA432644CFDDE56AC43E6EEC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10410.jpg" />
 </div>
 
 
@@ -127,7 +175,7 @@ magnet:?xt=urn:btih:ECC282278EE81B484329E784B0467E424FFB6EFC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10454.jpg" />
 </div>
 
 
@@ -151,7 +199,7 @@ magnet:?xt=urn:btih:434559F4321D35033BE87EF860084E0A2818BCE0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10473.jpg" />
 </div>
 
 
@@ -176,7 +224,7 @@ magnet:?xt=urn:btih:753AA7396355AB3C20B04F7B845A8BCA06B0600B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10491.jpg" />
 </div>
 
 
@@ -200,7 +248,7 @@ magnet:?xt=urn:btih:8E34E8A4D84FECB06E9C49C87E30948011E1FA97
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10507.jpg" />
 </div>
 
 
@@ -224,7 +272,7 @@ magnet:?xt=urn:btih:7F063495E649A31D41A6E56202AD8976A68CFECB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10563.jpg" />
 </div>
 
 
@@ -248,7 +296,7 @@ magnet:?xt=urn:btih:EE2E5FEBC21EBF4489694F07ED7C2B7D1C626D5C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10565.jpg" />
 </div>
 
 
@@ -272,7 +320,7 @@ magnet:?xt=urn:btih:5E6EC1A1ADC777694AB4470928A74007829B0EBE
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10592.jpg" />
 </div>
 
 
@@ -296,7 +344,7 @@ magnet:?xt=urn:btih:C1D2C9CAD1C20C9C0168BABB167966CB009CC57A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10601.jpg" />
 </div>
 
 
@@ -320,7 +368,7 @@ magnet:?xt=urn:btih:BC96FD1BD8830DFD100CB798D380BD509F9D3A36
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10614.jpg" />
 </div>
 
 
@@ -344,7 +392,7 @@ magnet:?xt=urn:btih:D2AD6C8F1E655EC9E2E388FAAAE0ADA0A8007DB9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10649.jpg" />
 </div>
 
 
@@ -368,7 +416,7 @@ magnet:?xt=urn:btih:3C2D4F3D6228644FE7613D315F0BCACA1CE26ADD
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10666.jpg" />
 </div>
 
 
@@ -392,7 +440,7 @@ magnet:?xt=urn:btih:08113CD3A08F01B330C30EDA3DE048F17DBDE016
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10672.jpg" />
 </div>
 
 
@@ -416,7 +464,7 @@ magnet:?xt=urn:btih:1427445F209F90CDD80F859EAF4EDF7F9C9156F7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10678.jpg" />
 </div>
 
 
@@ -440,7 +488,7 @@ magnet:?xt=urn:btih:4D444819660FE6DB366995FBC0EBC1F2843EF29D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10767.jpg" />
 </div>
 
 
@@ -464,7 +512,7 @@ magnet:?xt=urn:btih:CDBE1B1F94E75B8BCE10210B284EB07777EBF76A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10769.jpg" />
 </div>
 
 
@@ -488,7 +536,7 @@ magnet:?xt=urn:btih:3DD210C5C61341E115EEBEC3868F01D28EE34609
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10782.jpg" />
 </div>
 
 
@@ -512,7 +560,7 @@ magnet:?xt=urn:btih:8F480332465BB0289B7684AA02C2A8B46B85C144
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10785.jpg" />
 </div>
 
 
@@ -536,7 +584,7 @@ magnet:?xt=urn:btih:3FADD9D951A04D364A9EF68CD45C920D0CBB1823
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10805.jpg" />
 </div>
 
 
@@ -560,7 +608,7 @@ magnet:?xt=urn:btih:9507424600E8E8423C75C587A0E0655628A2A8DA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10817.jpg" />
 </div>
 
 
@@ -571,55 +619,6 @@ magnet:?xt=urn:btih:9507424600E8E8423C75C587A0E0655628A2A8DA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:398B721CC9504DE2C40DCB6C3A9BF9E1D0074CD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803656   (10823) от 21.07.2025
-
-Невероятные приключения итальянцев в России (1973) WEBRip [VP9/2160p] [Реставрация МФ]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10823.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одной из римских больниц скончалась русская эмигрантка. Старая дама, некогда эмигрировавшая из России, поведала своей внучке Ольге, что все ее огромное состояние спрятано в Ленинграде «под львом». Это обстоятельство явилось причиной срочного отлета в Ленинград всех тех, кто случайно или специально был посвящен в эту тайну.
-В СССР прибыли солидный врач, итальянский (   Читать дальше...   )Производство: СССР, Италия / Мосфильм, Dino de Laurentiis Cinematografica, Produzioni Cinematografiche Inter. Ma. Co.Жанр: комедия, приключения, криминалРежиссер: Эльдар РязановАктеры: Андрей Миронов, Нинетто Даволи, Антония Сантилли, Алигьеро Носкезе, Тано Чимароза, Джиджи Баллиста, Евгений Евстигнеев, Ольга Аросева, Лариса Виккел, Александр ЛукьяновСубтитры: отсутствуютПродолжительность: 01:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122954F5B2489C70B75B6FD92CD188A03D63FB51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807933   (10831) от 21.07.2025
-
-Откровения сексуального маньяка главе криминальной полиции / Rivelazioni di un maniaco sessuale al capo della (1972) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский инспектор Капуана расследует убийство супруги известного военного, которая была обнаружена обнажённой в номере шикарного отеля. Никто из ближайшего окружения жертвы не хочет ничего рассказывать. Инспектору Капуана не остается ничего другого, как искать убийцу среди традиционно неблагополучного криминально-ориентированного контингента. Вскоре обнаруживают (   Читать дальше...   )Производство: Италия / Produzioni Cinematografiche Romane (P.C.R.)Жанр: ужасы, драма, мелодрама, криминал, детектив, триллерРежиссер: Роберто Бьянки МонтероВ ролях: Фарли Грейнджер, Сильва Кошина, Сильвано Транквилли, Аннабелла Инконтрера, Крис Аврам, Феми Бенусси, Криста Нелл, Анджела Ковелло, Фабрицио Мореско, Андреа СкоттиПеревод: любительский одноголосый (Erretik)Язык озвучки: русский, итальянскийСубтитры: нетПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4FFB1146A4AA4EB4C61BA5181D593132A91B3A
 ```
 
 

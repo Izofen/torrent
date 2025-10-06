@@ -1,3 +1,52 @@
+###  Публикация: 1805930   (12067) от 09.07.2025
+
+Река смерти / River of Death (1989) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Хемилтон и его спутники пробираются через амазонские джунгли в поисках таинственного «Затерянного города». Именно там, в диких джунглях, герои наталкиваются на колонию, основанную нацистскими преступниками.
+Бывшие доктора-садисты перенесли свои чудовищные опыты из концлагерей на маленькое индейское племя, которому теперь грозит вымирание...Производство: США / Breton Film Productions, Cannon International, Pathe CommunicationsЖанр: боевик, драма, приключенияРежиссер: Стив КарверАктеры: Майкл Дудикофф, Роберт Вон, Дональд Плезенс, Герберт Лом, Л. К. Джонс, Сара Маур Торп, Синтия Эрланд, Фозия Дэвидсон, Виктор Меллени, Руфус СвартПеревод: Многоголосый профессиональный, авторскийЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2559BA3C3002DD066B71596B63B4AC01E90126E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805781   (12068) от 09.07.2025
+
+Сфинкс / Sphinx (1981) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий основан на одноимённом романе 1979 года Робина Кука... Путешествие в Долину фараонов оборачивается для египтолога Эрики гораздо большим, чем она предполагала: убийством, предательством, любовью и древним проклятием мумии...Производство: Великобритания / Orion Pictures, S & L FilmsЖанр: детектив, приключения, триллерРежиссер: Франклин Дж. ШаффнерАктеры: Лесли-Энн Даун, Фрэнк Ланджелла, Морис Роне, Джон Гилгуд, Вик Тэблиэн, Мартин Бенсон, Джон Рис-Дэвис, Нэдим Соуолха, Татти Лемков, Сайид Джеффри, Айлин Уэй, Уильям Хуткинс, Марк Кингстон, Джеймс Коссинс, Виктория ТеннантПеревод: профессиональный многоголосый (OPT; Мост-Видео)Язык озвучки: русский, английскийСубтитры: английские хардсабы на неанглийскую речьПродолжительность: 01:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA44B0D0F20A4C8D321272A4E401621E50046C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802241   (12083) от 09.07.2025
 
 Комета (1983) DVDRemux
@@ -6,7 +55,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12083.jpg" />
 </div>
 
 
@@ -30,7 +79,7 @@ magnet:?xt=urn:btih:ED91246F42E64B5E355A5FF064D1E2D5D210B286
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12121.jpg" />
 </div>
 
 
@@ -54,7 +103,7 @@ magnet:?xt=urn:btih:BD190BC06FD2EB9BD44BFE44051563B8C3F2A646
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12165.jpg" />
 </div>
 
 
@@ -78,7 +127,7 @@ magnet:?xt=urn:btih:5426132E38644B4697957228ADAF8DA1FFD59F0E
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12166.jpg" />
 </div>
 
 
@@ -102,7 +151,7 @@ magnet:?xt=urn:btih:0611FBA0AD804132A91EEED261DBE6D6C3639F06
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12168.jpg" />
 </div>
 
 
@@ -126,7 +175,7 @@ magnet:?xt=urn:btih:26BD5E7389DBA58A0185EDD8E0F57F4F5324A3F3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12173.jpg" />
 </div>
 
 
@@ -150,7 +199,7 @@ magnet:?xt=urn:btih:C46CC28F82279F4BAEDBAFC88CE1631CFDFAB701
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12233.jpg" />
 </div>
 
 
@@ -174,7 +223,7 @@ magnet:?xt=urn:btih:BC20A6AFC92DE6E65283177B650C6C097E68BAEE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12241.jpg" />
 </div>
 
 
@@ -198,7 +247,7 @@ magnet:?xt=urn:btih:5E2D35456DDBFF129F8F2AF9E80359CBDBA3A210
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12245.jpg" />
 </div>
 
 
@@ -222,7 +271,7 @@ magnet:?xt=urn:btih:A05C1FA0C94BD8D45E95A1C910F7D0630F651CDA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12247.jpg" />
 </div>
 
 
@@ -246,7 +295,7 @@ magnet:?xt=urn:btih:9E19359E04FA6C07B8C9EBCE337061E14321A74F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12271.jpg" />
 </div>
 
 
@@ -270,7 +319,7 @@ magnet:?xt=urn:btih:ED8E5090E12F9AF71B693B6F5EE77A232420DFFC
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12318.jpg" />
 </div>
 
 
@@ -296,7 +345,7 @@ magnet:?xt=urn:btih:13D5EACD4341B6B07F84F746E211632EFCEFA675
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12329.jpg" />
 </div>
 
 
@@ -320,7 +369,7 @@ magnet:?xt=urn:btih:97DC1EADEEE3AE4E42E8DA00303472493AB944F7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12349.jpg" />
 </div>
 
 
@@ -344,7 +393,7 @@ magnet:?xt=urn:btih:A2E64AA0018D48BF07E6CDF0A3ABD883A6725298
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12360.jpg" />
 </div>
 
 
@@ -368,7 +417,7 @@ magnet:?xt=urn:btih:E36A4673894BE3CFAD41638CFF3244502CE4E299
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12368.jpg" />
 </div>
 
 
@@ -418,7 +467,7 @@ magnet:?xt=urn:btih:D0482684941E9A7BDE5296DF34776EA245B4C471
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12419.jpg" />
 </div>
 
 
@@ -442,7 +491,7 @@ magnet:?xt=urn:btih:2912199DE301F011A0D79FCC99A6D1D7A3172AEB
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12423.jpg" />
 </div>
 
 
@@ -466,7 +515,7 @@ magnet:?xt=urn:btih:069EF9D30B6EB10397B2FD1971D2CFD553B0A5EA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12425.jpg" />
 </div>
 
 
@@ -490,7 +539,7 @@ magnet:?xt=urn:btih:A79002CA89993671A9B090EFFCB2F045FBAB8390
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12432.jpg" />
 </div>
 
 
@@ -514,7 +563,7 @@ magnet:?xt=urn:btih:401A3A6DF32251F214AB17DF1EC0234D0907FEEB
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12439.jpg" />
 </div>
 
 
@@ -562,7 +611,7 @@ magnet:?xt=urn:btih:E28CFD4F1D539C65C0DFD2F9E382BA2D38DEB86A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12563.jpg" />
 </div>
 
 
@@ -573,54 +622,6 @@ magnet:?xt=urn:btih:E28CFD4F1D539C65C0DFD2F9E382BA2D38DEB86A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68EF09E25F8F1480F069965EFFF0CE24EDB7700
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805212   (12577) от 04.07.2025
-
-Жить и умереть в Лос-Анджелесе / To Live and Die in L.A. (1985) BDRip [H.265/1080p] [10-bit] [Arrow Films]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напарник сотрудника секретной службы США Ричарда Ченса погибает от руки неуловимого фальшивомонетчика Мастерса. Ричард клянётся засадить убийцу за решетку, даже если ради этого ему самому придётся пойти на преступление.Производство: США / New Century Productions, SLM Production Group, United ArtistsЖанр: боевик, триллер, драма, криминалРежиссер: Уильям ФридкинАктеры: Уильям Петерсен, Уиллем Дефо, Джон Пэнкоу, Дебра Фойер, Джон Туртурро, Дин Стокуэлл, Стив Джеймс, Роберт Дауни ст., Майкл Грин, Джек ХорПеревод: профессиональный двухголосый (SDI Media, ОРТ, НТВ+), авторский (Алексей Михалёв, Андрей Гаврилов, Леонид Володарский, Юрий Товбин), любительский одноголосый (Неизвестный)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070AB0117937859B8EA096FE902168208EF81356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805205   (12599) от 04.07.2025
-
-Племянница / La nipote (1974) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_12599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый отпуск инженер Луиджи Фаваретто со своей женой Зорайде и приятелем Пьеро приезжает в загородный дом, чтобы полностью отдаться своему увлечению - охоте. Только охотится он больше на аппетитную служанку Дорис. В то же время Пьеро, ненавидящий охоту на зверей, с большим удовольствием охотится на Зорайде. Охотничьи планы Луиджи нарушает Адель - 18-летняя племянница (   Читать дальше...   )Производство: Италия / Lido, Rewind FilmЖанр: КомедияРежиссер: Нелло РоссатиАктеры: Даниэле Варгас, Франческа Муцио, Энни Кэрол Эдель, Джордж Ардиссон, Орхидея Де Сантис, Роберто Пройетти, Эцио Марано, Отелло Каззола, Карла Манчини, Сьюзи КастерПеревод: Одноголосый любительский, В. БеловЯзык озвучки: Русский, итальянскийСубтитры: ИтальянскиеПродолжительность: 01:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE78EE68BA9BBD257896AF63488E749E1A43936E
 ```
 
 

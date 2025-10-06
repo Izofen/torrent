@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17871.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D0C3218DDD116E4F3F8A5BF8DA7FD3CF0619E1A3
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17903.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:72A09D8D0187BA6B941850520A60BACA1B41E97C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18124.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:C79A3E367B4AF29DBD6400B138087BFD67BBFE53
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18137.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:867FEF373BD926F0C26606387854CC30D06731A4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18233.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3B9C173991F0FDF131450742B9D7277872C62CF9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18327.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:2E6167EC55ADB4BF17F4BE96D30560A0523001ED
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18329.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:3E6BA815E6322C35D25DEE5A4E013985780D2E34
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18342.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:736E10F8F8DE20017E7140B7D0179270370C4C75
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18434.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:F54AB44AB8A920C5CD0A68E1B46B6C799A06967F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18518.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:694DE91EF5CF120AF044786FB552BFE089850BE1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18523.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:1097BCBA0A9011FB45B4537662B9F038BAC1FC0D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18533.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:576C0BBB8F2E7CE676B8FBE988E61634688F7605
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18546.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:9C2CEE33635BE8D548106DBC3EB13FEED976D498
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18964.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:C804996A06B5E6E01F2101C24686D590D3B2DFB7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18968.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:ACD32C3019643CF51499FEF6FD2A3FF19B17B1CD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19044.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:2BB320DACADD3428A4DD2A097DEB34E9ABFB8B6F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19255.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:C1E23612EFECFC69BBA7F9278F68ECAAF989ADBE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19277.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:39595FA6E7C677274ADA32D4CF73CFFBA1915594
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19366.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:77D8C6089DC32835EB56260AD821C6F4F96B4919
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19475.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:CDDF62CAC2637864EA255359CB726D531441CF07
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19543.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:70692BF7EA2F00FCAB1056F7FE6F825542DE29BD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19609.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ F.J. Rivas | Process Control with MatLAB/Simulink: A Guide for Beginners (2025) 
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19667.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:CCC01B5A2F0AF5A4AF15301E9B9E39B18687F443
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19674.jpg" />
 </div>
 
 
@@ -609,6 +609,31 @@ magnet:?xt=urn:btih:CCC01B5A2F0AF5A4AF15301E9B9E39B18687F443
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E3114255A181C3F31CC290F815D6D048E1CDC7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809007   (64848) от 27.07.2025
+
+Юрий Фролов | Отступники от власти [2 книги] (1999) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разведчиков-предателей, оказывается, не только на много лет сажают в тюрьмы, расстреливают, но и... сжигают живьем, как бывшего офицера Главного разведуправления СССР Пеньковского... Неужели член знаменитой семьи банкиров Виктор Ротшильд, имевший миллионное состояние и «отец» первой атомной бомбы Оппенгеймер, работали на советскую разведку?
+Почему и как золото разгромленных (   Читать дальше...   )Жанр: ИсторияИздательство: ДонеччинаФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9318679336178DAFC3C08859B15F3AFDA6E571C0
 ```
 
 

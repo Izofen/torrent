@@ -1,3 +1,52 @@
+###  Публикация: 1803656   (10823) от 21.07.2025
+
+Невероятные приключения итальянцев в России (1973) WEBRip [VP9/2160p] [Реставрация МФ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10823.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одной из римских больниц скончалась русская эмигрантка. Старая дама, некогда эмигрировавшая из России, поведала своей внучке Ольге, что все ее огромное состояние спрятано в Ленинграде «под львом». Это обстоятельство явилось причиной срочного отлета в Ленинград всех тех, кто случайно или специально был посвящен в эту тайну.
+В СССР прибыли солидный врач, итальянский (   Читать дальше...   )Производство: СССР, Италия / Мосфильм, Dino de Laurentiis Cinematografica, Produzioni Cinematografiche Inter. Ma. Co.Жанр: комедия, приключения, криминалРежиссер: Эльдар РязановАктеры: Андрей Миронов, Нинетто Даволи, Антония Сантилли, Алигьеро Носкезе, Тано Чимароза, Джиджи Баллиста, Евгений Евстигнеев, Ольга Аросева, Лариса Виккел, Александр ЛукьяновСубтитры: отсутствуютПродолжительность: 01:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122954F5B2489C70B75B6FD92CD188A03D63FB51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807933   (10831) от 21.07.2025
+
+Откровения сексуального маньяка главе криминальной полиции / Rivelazioni di un maniaco sessuale al capo della (1972) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский инспектор Капуана расследует убийство супруги известного военного, которая была обнаружена обнажённой в номере шикарного отеля. Никто из ближайшего окружения жертвы не хочет ничего рассказывать. Инспектору Капуана не остается ничего другого, как искать убийцу среди традиционно неблагополучного криминально-ориентированного контингента. Вскоре обнаруживают (   Читать дальше...   )Производство: Италия / Produzioni Cinematografiche Romane (P.C.R.)Жанр: ужасы, драма, мелодрама, криминал, детектив, триллерРежиссер: Роберто Бьянки МонтероВ ролях: Фарли Грейнджер, Сильва Кошина, Сильвано Транквилли, Аннабелла Инконтрера, Крис Аврам, Феми Бенусси, Криста Нелл, Анджела Ковелло, Фабрицио Мореско, Андреа СкоттиПеревод: любительский одноголосый (Erretik)Язык озвучки: русский, итальянскийСубтитры: нетПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4FFB1146A4AA4EB4C61BA5181D593132A91B3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417402   (10851) от 21.07.2025
 
 Кобра / Cobra (1986) UHD BDRip [H.265/1080p] [10-bit] [Arrow Films]
@@ -30,7 +79,7 @@ magnet:?xt=urn:btih:C2DB30348A2702B1DE1EDD4FB6758F458C5C2350
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10893.jpg" />
 </div>
 
 
@@ -78,7 +127,7 @@ magnet:?xt=urn:btih:0404A13EF559A98E7CA558348445BE2EB30BD77E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10978.jpg" />
 </div>
 
 
@@ -104,7 +153,7 @@ magnet:?xt=urn:btih:01C91F1263D798DB0CE1E7A77129869CED823D56
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_10998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10998.jpg" />
 </div>
 
 
@@ -153,7 +202,7 @@ magnet:?xt=urn:btih:716234B1FD2BE7EA452BA0278A83A64988A3A683
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11074.jpg" />
 </div>
 
 
@@ -177,7 +226,7 @@ magnet:?xt=urn:btih:DB5A38C960B512C994406C3060C60CD012024B87
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11081.jpg" />
 </div>
 
 
@@ -201,7 +250,7 @@ magnet:?xt=urn:btih:7354FA70A36236379CC24075D5C93F84AE6A530B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11085.jpg" />
 </div>
 
 
@@ -225,7 +274,7 @@ magnet:?xt=urn:btih:79C79CA9111CE6503F62E15D0D1C5AA2EDE2C8CD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11092.jpg" />
 </div>
 
 
@@ -249,7 +298,7 @@ magnet:?xt=urn:btih:552CC3567AED315FEE94D0BA774175562DD22AC9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11099.jpg" />
 </div>
 
 
@@ -273,7 +322,7 @@ magnet:?xt=urn:btih:178DE255E4779BB5F3D9CC9E812212C3960B536F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11103.jpg" />
 </div>
 
 
@@ -297,7 +346,7 @@ magnet:?xt=urn:btih:1CEA3324EC3B21721DD5A94BFD9E9AA7E7BE6188
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11106.jpg" />
 </div>
 
 
@@ -321,7 +370,7 @@ magnet:?xt=urn:btih:5DFD0C0EEC68EA86814B8223DD0FCDA44FFB0741
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11107.jpg" />
 </div>
 
 
@@ -345,7 +394,7 @@ magnet:?xt=urn:btih:8E5B5DFA052B289B6F6C7C242C733FA00716E733
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11109.jpg" />
 </div>
 
 
@@ -369,7 +418,7 @@ magnet:?xt=urn:btih:889408558D9C39D52022EEEDA54A74F4BA894B66
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11118.jpg" />
 </div>
 
 
@@ -441,7 +490,7 @@ magnet:?xt=urn:btih:44140C8E7CDA4C0B0218234F9D494A3C67E87B81
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11170.jpg" />
 </div>
 
 
@@ -465,7 +514,7 @@ magnet:?xt=urn:btih:9F244456497E3560569A73EB8E43CF0A85A98B9C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11171.jpg" />
 </div>
 
 
@@ -489,7 +538,7 @@ magnet:?xt=urn:btih:4E09DDE29771C928F7A60C2592FDDD1F86931672
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11189.jpg" />
 </div>
 
 
@@ -513,7 +562,7 @@ magnet:?xt=urn:btih:5CC680E053799AC6B4C652FB3D2321C7176E98B9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11194.jpg" />
 </div>
 
 
@@ -537,7 +586,7 @@ magnet:?xt=urn:btih:E8522EE45D4E128184B8BAB5F3A25742C2B3677D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11197.jpg" />
 </div>
 
 
@@ -561,7 +610,7 @@ magnet:?xt=urn:btih:F9DBB2BE868A1DD58278E0544BD9E2CD778AA6F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11203.jpg" />
 </div>
 
 
@@ -572,56 +621,6 @@ magnet:?xt=urn:btih:F9DBB2BE868A1DD58278E0544BD9E2CD778AA6F9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C817AE8BDDDA272EB9DE0BCC4181B066F89708A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807215   (11204) от 17.07.2025
-
-Катерина из России / Caterina di Russia (1963) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11204.jpg" />
-</div>
-
-
-###  Подробнее
-
-На одной из площадей Петербурга толпа окружает карету Их Императорских Высочеств Петра и Екатерины. Испугавшись, Пётр приказывает капитану казаков графу Орлову открыть огонь по толпе, но граф отказывается выполнять приказ Великого князя. За невыполнение приказа Орлов депортирован в Сибирь.
-Вскоре императрицы Елизаветы Петровны не стало, и началось короткое правление (   Читать дальше...   )Производство: Италия, Франция, Югославия / Roma Film, SNC, ЗагребфильмЖанр: драма, историяРежиссер: Умберто ЛенциАктеры: Хильдегард Кнеф, Серджо Фантони, Джакомо Росси Стюарт, Анджела Каво, Эннио Бальбо, Леонардо Ботта, Vera Besusso, Джанни Соларо, Энцо Фьермонте, Тина ЛаттанциПеревод: Одноголосый любительский (shachter58)Язык озвучки: Русский, ИтальянскийСубтитры: ОтсутствуютПродолжительность: 01:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A80244E80CFF5AA38092919A22811372AF65DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807206   (11223) от 17.07.2025
-
-Пьяный рассвет / Tequila Sunrise (1988) BDRip [H.265/1080p] [10-bit] [US Transfer]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_11223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающий криминальный триллер рассказывает историю двух давних друзей, чьи пути расходятся из-за преступного прошлого и роковой любви.
-В центре сюжета — Дейл МакКьюсик, опытный наркодилер, решивший завязать с криминалом, и его друг Ник Фриша, полицейский из управления по борьбе с наркоторговлей. Их крепкая дружба проходит серьёзное испытание, когда ФБР пытается (   Читать дальше...   )Производство: США / Cinema City Films, The Mount Company, Warner Bros.Жанр: триллер, драма, мелодрама, криминалРежиссер: Роберт ТаунАктеры: Мэл Гибсон, Курт Рассел, Мишель Пфайффер, Рауль Хулиа, Дж.Т. Уолш, Арлисс Ховард, Ари Гросс, Гэбриел Дэймон, Даниэль Сакапа, Эрик ТилеПеревод: дублированный неофициальный (Мост Видео, Варус Видео), профессиональный многоголосый (НТВ+), профессиональный двухголосый (Universal Channel), авторский (Василий Горчаков, Алексей Михалёв, Андрей Гаврилов, Леонид Володарский, Михаил Иванов)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7ADF40F1EAB9F5425B1B87B87EB768C285A450
 ```
 
 

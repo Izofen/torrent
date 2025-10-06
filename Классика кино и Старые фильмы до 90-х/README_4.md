@@ -1,3 +1,28 @@
+###  Публикация: 1818166   (2739) от 14.09.2025
+
+Яков Протазанов. Уход великого старца (1912) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немой художественный фильм Якова Протазанова и Елизаветы Тиман по мотивам свидетельств о последнем периоде жизни Льва Николаевича Толстого.
+Лев Толстой (Владимир Шатерников) в последний период своей жизни разрывается между своими убеждениями, согласно которым он и его семья должны отказаться от собственности, и любовью к жене Софье Андреевне (Ольга Петрова), которая (   Читать дальше...   )Производство: Российская империя / Торговый дом "П. Тиман и Ф. Рейнгардт"Жанр: драма, короткометражка, немое киноРежиссер: Яков Протазанов, Елизавета ТиманАктеры: Владимир Шатерников, Ольга Петрова, Михаил Тамаров, Елизавета ТиманСубтитры: русские (интертитры)Продолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AA28BD5C05A9DE30ED22BF9567E4C9245AB1C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818141   (2783) от 14.09.2025
 
 Маркиза фон О / Die Marquise von O... (1976) BDRip [H.264/720p] [DVO]
@@ -6,7 +31,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2783.jpg" />
 </div>
 
 
@@ -30,7 +55,7 @@ magnet:?xt=urn:btih:86CDCFB224A383B89C0F4AB833E18BB29583984B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2793.jpg" />
 </div>
 
 
@@ -54,7 +79,7 @@ magnet:?xt=urn:btih:FE7BA56E7A741D6589A5A2B8069F221B4A65DBA6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2798.jpg" />
 </div>
 
 
@@ -78,7 +103,7 @@ magnet:?xt=urn:btih:EEAB7B6825227FBE629CB69F923830D315B01411
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2846.jpg" />
 </div>
 
 
@@ -102,7 +127,7 @@ magnet:?xt=urn:btih:46FBD4A442E70A9A3E891689C5744D799442DA1D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2856.jpg" />
 </div>
 
 
@@ -126,7 +151,7 @@ magnet:?xt=urn:btih:363D6AAC3538D807A7B679B2F6049E8712C69242
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2909.jpg" />
 </div>
 
 
@@ -150,7 +175,7 @@ magnet:?xt=urn:btih:1E9DF13B633DDCD8BC636ABBA64A4D0185A44744
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_2981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2981.jpg" />
 </div>
 
 
@@ -174,7 +199,7 @@ magnet:?xt=urn:btih:515B546C1D50972275148B3CEDC2794FD3E566FE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3005.jpg" />
 </div>
 
 
@@ -198,7 +223,7 @@ magnet:?xt=urn:btih:F828BAE7CC2AE24D7A4D88394CA89D8D697DC1EF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3033.jpg" />
 </div>
 
 
@@ -272,7 +297,7 @@ magnet:?xt=urn:btih:700FC806C020DE4E441B38B9D8A911F30B9BF23B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3061.jpg" />
 </div>
 
 
@@ -296,7 +321,7 @@ magnet:?xt=urn:btih:E769599DA90A0E48FF39846FB491329002BE6061
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3141.jpg" />
 </div>
 
 
@@ -321,7 +346,7 @@ magnet:?xt=urn:btih:0AAAC1EAFCCB81BD5E71636D244CBDCE0B7FABE3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3164.jpg" />
 </div>
 
 
@@ -345,7 +370,7 @@ magnet:?xt=urn:btih:F45D3B91349A90E3B6DAA55D2C0843CDC1A9C6CD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3175.jpg" />
 </div>
 
 
@@ -369,7 +394,7 @@ magnet:?xt=urn:btih:B1F2610123671526F454D2F16B2F61BD9BDF59C0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3177.jpg" />
 </div>
 
 
@@ -393,7 +418,7 @@ magnet:?xt=urn:btih:2CD087C50B414BFC00978948EAE2E3E275673984
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3181.jpg" />
 </div>
 
 
@@ -418,7 +443,7 @@ magnet:?xt=urn:btih:0A16455C6B9598E08B628DE3F2751E95D4FA5EF4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3182.jpg" />
 </div>
 
 
@@ -442,7 +467,7 @@ magnet:?xt=urn:btih:4BBED679F987BFFF5AD7C4C819793E78EE0F3629
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3186.jpg" />
 </div>
 
 
@@ -469,7 +494,7 @@ magnet:?xt=urn:btih:EE21DDCA4DD757C1E4160A243C63D53BC9438442
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3208.jpg" />
 </div>
 
 
@@ -493,7 +518,7 @@ magnet:?xt=urn:btih:761DD392CC34978C7A81A955466C4B5B15D53005
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3215.jpg" />
 </div>
 
 
@@ -541,7 +566,7 @@ magnet:?xt=urn:btih:CF338EE3ED12D5D4604F99BC908A144996B5894C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3297.jpg" />
 </div>
 
 
@@ -565,7 +590,7 @@ magnet:?xt=urn:btih:DCB10DD4E27F7FEF1418BAE2EE91A9D9DF3761FB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3354.jpg" />
 </div>
 
 
@@ -589,7 +614,7 @@ magnet:?xt=urn:btih:06454818907C5DC1D4F4FC6DE8EB129DFE4B4D0F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3358.jpg" />
 </div>
 
 
@@ -600,30 +625,6 @@ magnet:?xt=urn:btih:06454818907C5DC1D4F4FC6DE8EB129DFE4B4D0F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86289D0DC6FF75DBE033D843DDB969A1947019FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816447   (3368) от 11.09.2025
-
-Оставшийся в тени / The Magic Box (1951) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_3368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм посвящен трагической судьбе изобретателя первой в мире кинокамеры Уильяма Фриз-Грина. Свою деятельность Фриз-Грин начал в одной из фотостудий Бристоля и вскоре завоевал признание своими талантливыми снимками. Но ему хочется воспроизвести жизнь в движении. После долгих усилий ему удалось создать необходимый аппарат, но им никто не заинтересовался и бедность (   Читать дальше...   )Производство: Великобритания / Festival Film ProductionsЖанр: драма, биографияРежиссер: Джон БоултингАктеры: Роберт Донат, Мария Шелл, Маргарет Джонстон, Рене Эшерсон, Ричард Аттенборо, Роберт Битти, Мартин Бодди, Эдвард Чэпман, Джон Чарльзуорт, Морис КолборнПеревод: Дублированный (киностудия имени Горького)Язык озвучки: русский, английскийСубтитры: русские (forced), английские, французские, испанскиеПродолжительность: 01:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6514C54CC2189840B059F8163E693C14B60C28
 ```
 
 

@@ -1,3 +1,52 @@
+###  Публикация: 1801017   (13069) от 29.06.2025
+
+Битва за Москву (1985) WEBRip [VP9/2160p] (Фильм 1-2 из 2) [Реставрация МФ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13069.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 июня 1941 года в 3 часа 30 минут фашистская Германия вероломно напала на Советский Союз. Суровым было начало Великой Отечественной войны. Красная Армия с жестокими боями отходила вглубь страны. Однако в самые трудные времена советский народ не покидала вера в победу. Уже в сорок первом году план молниеносной войны, разработанный германским командованием, был перечеркнут (   Читать дальше...   )Производство: СССР, Чехословакия, Германия (ГДР), Вьетнам / Мосфильм, Deutsche Film (DEFA), Filmové studio Barrandov, Defa, Favim VRЖанр: Драма, военный, историяРежиссер: Юрий ОзеровАктеры: Яков Трипольский, Михаил Ульянов, Александр Голобородько, Бруно Фрейндлих, Николай Засухин, Анатолий Никитин, Владимир Трошин, Степан Микоян, Вячеслав Езепов, Юозас Будрайтис и др.Продолжительность: 01:21:33 + 01:32:22 + 01:26:58+ 01:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBA4FF5143298640F0FF58AD82FCCC8B821C11E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800945   (13096) от 29.06.2025
+
+Следопыт (1987) DVDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13096.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романа Фенимора Купера «Следопыт».
+Действие фильма происходит в середине 18 века — во времена семилетней англо-французской войны за колониальное господство в Северной Америке. Юная Мэйбл Дунгам держит путь в английский форт. Навстречу дочери сержант Дунгам посылает юного офицера Джаспера и охотника Следопыта…Производство: СССР, Киностудия им. М. ГорькогоЖанр: приключенияРежиссер: Павел ЛюбимовАктеры: Юрий Авшаров, Андрейс Жагарс, Анастасия Немоляева, Эммануил Виторган, Андрей Миронов, Александр Глазун, Игорь Рогачев, Георгий Юматов, Татьяна Аугшкап, Евгений ЕвстигнеевСубтитры: отсутствуютПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A6613D13A0083B35BA752195B2CFC094F3E9DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800797   (13140) от 28.06.2025
 
 Жестокий романс (1984) WEB-DLRip [H.264] (серии 1-2 из 2)
@@ -6,7 +55,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13140.jpg" />
 </div>
 
 
@@ -30,7 +79,7 @@ magnet:?xt=urn:btih:E73EF04859B274F1F1F69E4D01D0EBED9BC87B4C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13144.jpg" />
 </div>
 
 
@@ -54,7 +103,7 @@ magnet:?xt=urn:btih:616824143F196C23B3E81583CF33E81A72C20591
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13181.jpg" />
 </div>
 
 
@@ -78,7 +127,7 @@ magnet:?xt=urn:btih:77DF38B46F6BD24EF10F48C01EB7B082246860A9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13270.jpg" />
 </div>
 
 
@@ -103,7 +152,7 @@ magnet:?xt=urn:btih:A2A146675457235576B014B2775BD7D6EE5D1D0E
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13305.jpg" />
 </div>
 
 
@@ -128,7 +177,7 @@ magnet:?xt=urn:btih:C65D58C2C05ED4729C82435534763FA29C5654F7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13355.jpg" />
 </div>
 
 
@@ -152,7 +201,7 @@ magnet:?xt=urn:btih:D427BA6A923E872567DCD1EE7E95CC2523B3C887
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13381.jpg" />
 </div>
 
 
@@ -176,7 +225,7 @@ magnet:?xt=urn:btih:EE2DC887BEA5DCDD3E2B50294AE1B13D82939A62
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13385.jpg" />
 </div>
 
 
@@ -200,7 +249,7 @@ magnet:?xt=urn:btih:8054D466C630529F98D034B08F010DE0C82E70FF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13390.jpg" />
 </div>
 
 
@@ -249,7 +298,7 @@ magnet:?xt=urn:btih:6DC28B7793B3667B70B2D4CE4D1888F32E1779FB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13460.jpg" />
 </div>
 
 
@@ -273,7 +322,7 @@ magnet:?xt=urn:btih:EF7B517072C5225984AF03EDB2C207D0DEE60490
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13473.jpg" />
 </div>
 
 
@@ -297,7 +346,7 @@ magnet:?xt=urn:btih:EE51124C6796709BD87390D95A217CD7C50E1C7D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13479.jpg" />
 </div>
 
 
@@ -322,7 +371,7 @@ magnet:?xt=urn:btih:AA1FF5AA23FD47F1C5B0453C51B760E13EA26512
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13489.jpg" />
 </div>
 
 
@@ -346,7 +395,7 @@ magnet:?xt=urn:btih:097856D5D32F3A6E6BEFC83632DB7B8CC9C2F49D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13609.jpg" />
 </div>
 
 
@@ -370,7 +419,7 @@ magnet:?xt=urn:btih:AEB4A3756BDA1F01D02EAC72DA4ECDBAB359ABAC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13620.jpg" />
 </div>
 
 
@@ -443,7 +492,7 @@ magnet:?xt=urn:btih:003E9BC9FB4CB0AD9C13F37AA2BBA9EF1153A207
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13689.jpg" />
 </div>
 
 
@@ -467,7 +516,7 @@ magnet:?xt=urn:btih:320180D47FF01247129995069ED3EA97EABF9117
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13691.jpg" />
 </div>
 
 
@@ -492,7 +541,7 @@ magnet:?xt=urn:btih:17786E7BF1BD9C509F0A24E877CDB73F401F3A7A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13700.jpg" />
 </div>
 
 
@@ -518,7 +567,7 @@ magnet:?xt=urn:btih:D9AB2BB82256251C72EE1A571039BC9DBB550B79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13708.jpg" />
 </div>
 
 
@@ -542,7 +591,7 @@ magnet:?xt=urn:btih:25A34D7B0CBFC51E821413D1D075C7896FBE9DE7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13722.jpg" />
 </div>
 
 
@@ -566,7 +615,7 @@ magnet:?xt=urn:btih:2A099CE1C8B4093750E8AC44B7F8EFF087A46BFD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13739.jpg" />
 </div>
 
 
@@ -577,54 +626,6 @@ magnet:?xt=urn:btih:2A099CE1C8B4093750E8AC44B7F8EFF087A46BFD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ECD9530C08C0CA4E9CE368FE67602A7801CAB78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803283   (13769) от 22.06.2025
-
-Самоа – королева джунглей / Samoa, regina della giungla (1968) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа охотников за сокровищами отправляется в непроходимые джунгли на поиски алмазов. Там они сталкиваются с племенем аборигенов, в котором встречают девушку по имени Самоа, которая попала в это племя ещё ребенком. Дикари сначала нападают на путешественников, но потом оказывают им радушный прием. Один из гостей Клинт влюбляется в неё, а ещё один молодой человек (   Читать дальше...   )Производство: Италия / Roma FilmЖанр: триллер, мелодрама, криминал, приключенияРежиссер: Гуидо МалатестаАктеры: Роджер Браун, Эдвиж Фенек, Айви Хольцер, Ивано Стацциоли, Андреа Аурели, Умберто Чериани, Туллио Альтамура, Клаудио Руффини, Уилберт Брэдли, Иван Баста, Феми Бенусси, Джанни ПулонеПеревод: Одноголосый любительскийЯзык озвучки: Русский, итальянскийСубтитры: ОтсутствуютПродолжительность: 01:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F6589E8B2C36300D9DEFC2D6E3F7240E42AA40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803364   (13772) от 22.06.2025
-
-Вторжение (1980) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они полюбили друг друга и сыграли свадьбу — пограничник Павел и студентка медучилища Лиза. И теперь он должен возвращаться к месту службы. Они уверены, что разлука будет недолгой. А утром началась война...Производство: СССР / Одесская киностудияЖанр: драма, военныйРежиссер: Виллен НовакАктеры: Наталья Вавилова, Виктор Фокин, Светлана Немоляева, Наталья Хорохорина, Марина Трошина, Раушан Тулегенова, Виктор Бутов, Евгений Иванычев, Андрей Давыдов, Дмитрий Орловский и др.Субтитры: отсутствуютПродолжительность: 01:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1F55C3DE86CD834393030B10FE7DAE6309BD36
 ```
 
 

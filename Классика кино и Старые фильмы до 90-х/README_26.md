@@ -1,3 +1,75 @@
+###  Публикация: 1800036   (15966) от 01.06.2025
+
+Виз / The Wiz (1978) BDRip [H.264/720p] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по сказке Лаймена Фрэнка Баума «Удивительный волшебник из страны Оз» (1900)... Дороти, воспитательница детского сада из Нью-Йорка, попадает в волшебную страну. Вместе с новыми друзьями Страшилой, Железным Дровосеком и Трусливым Львом она отправляется в Изумрудный Город к Великому и Ужасному Визу, чтобы тот помог ей вернуться домой и исполнить самые заветные (   Читать дальше...   )Производство: США / Motown Productions, Universal PicturesЖанр: мюзикл, фэнтези, приключения, семейныйРежиссер: Сидни ЛюметАктеры: Дайана Росс, Ричард Прайор, Майкл Джексон, Нипси Расселл, Тед Росс, Мейбл Кинг, Тереза Меррит, Телма Карпентер, Лена ХорнПеревод: профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские (на песни и полныеSam Raven), английскиеПродолжительность: 02:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1255CE59FC8F942BED1025D489F603306AA27846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796799   (16012) от 01.06.2025
+
+Город Зеро (1988) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправившись в командировку, герой фильма неожиданно попадет в фантастический город. Он очень похож на наш мир, только скрытая абсурдность повседневной жизни здесь стала явной. Город Зеро открывает герою одну тайну за другой, и вернуться в привычную реальность становится все трудней...Производство: СССР / МосфильмЖанр: фантастика, драма, комедия, детективРежиссер: Карен ШахназаровАктеры: Леонид Филатов, Олег Басилашвили, Владимир Меньшов, Армен Джигарханян, Евгений Евстигнеев, Алексей Жарков, Петр Щербаков, Юрий Шерстнев, Елена Аржаник, Татьяна Хвостикова и др.Субтитры: английскиеПродолжительность: 01:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEE03876E5424FC8E66ED7C77F482A0BD83AE2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800034   (16068) от 31.05.2025
+
+Меткий Ястреб / The Gun Hawk (1963) WEB-DLRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16068.jpg" />
+</div>
+
+
+###  Подробнее
+
+После долгого отсутствия в родной город возвращается Блейм Мэдден, известный своей способностью создавать неприятности. Тем же вечером, защищая местного пьяницу, он вступил в конфликт с парой подонков. В результате погиб пьяница, а затем и сами подонки, убитые Блеймом. Местный шериф решил призвать к ответу лихого стрелка. Особое рвение при этом проявил помощник шерифа, (   Читать дальше...   )Производство: США / Bern-Field ProductionsЖанр: драма, вестернРежиссер: Эдвард ЛюдвигАктеры: Рори Кэлхун, Род Камерон, Рута Ли, Род Лорен, Морган Вудворд, Роберт Дж. Уилки, Джон Лител, Джоди Дэниелс, Рон Вилан, Родольфо Ойос мл.Перевод: Одноголосый любительский, Андрей КуликовЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04E90933A2CE3D7984A33836DFED94508B8A670
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800030   (16077) от 31.05.2025
 
 Виз / The Wiz (1978) BDRip [H.264] [DVO]
@@ -6,7 +78,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16077.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:2A883ACCB4794D3CEDB6863B36AD378375F75D2F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16081.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:BDD6867645F73EB8500F2C59AACE8AB1D3342F6C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16083.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:D4A5ECD16A0609423ADD1E5177D2CEAE0F814072
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16102.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:CA3999580D376CE78369E9EF749A059AD62154F1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16109.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:E0687FEB61102A56F13329017744D6D5A7D952ED
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16132.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:4F17CC96352DCFD59E3AE294C2CD6501F6ED8042
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16136.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:34FF1EE06D0E1B8B8C71CA5F340658EC426B2357
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16164.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:DD7AC2E0847D765B0AA9B17B78584B38925BA193
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16206.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:DE038DDB9791E2F08F44F96AE8755D2124216071
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16207.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:CC74E7E7CFDDDFD47CCBB655870099CED888A500
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16226.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:2C699301E0312999B99CE1BAD4DF2B658A7A32E9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16227.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:1C1E4E732FFAB1FFAA1A8418126D34B2E80030AB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16246.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:633C32467349F256DF1F9B124F2C6D79D8D08C5B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16249.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:95A070920CAB44FD8C43761120B90099C51A4E90
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16250.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:06DC2ADB774E6F3865D0DEF912FF679304C510BE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16287.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:851D4649AC50FEF00A9E997D2A368AED3094FAE5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16290.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ magnet:?xt=urn:btih:7F5BC9F77B06E2E8F8696DF8C1CAF53DDE8583E8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16372.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ magnet:?xt=urn:btih:84282614BF8ED6BC23BB65B322C83336E95F5784
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16424.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ magnet:?xt=urn:btih:A31AC84DF04982AD96ADB0B69696220B41C6AD03
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16524.jpg" />
 </div>
 
 
@@ -536,7 +608,7 @@ magnet:?xt=urn:btih:E16A880F65A1E5C9EBEC365ED2A73B411324B234
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16547.jpg" />
 </div>
 
 
@@ -547,78 +619,6 @@ magnet:?xt=urn:btih:E16A880F65A1E5C9EBEC365ED2A73B411324B234
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE9454DC0978D001C669B16671EC1BBBDC05AE78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799325   (16580) от 28.05.2025
-
-Молот ведьм / Kladivo na carodejnice (1970) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе «Молоток для ведьм» Вацлава Каплицкого (1963)... XVII век. Инквизиция держит в страхе всю Европу. И простой люд и знать верят, что повсюду обитают ведьмы. Для скорого суда и расправы над колдуньями по городам и сёлам разъезжают жестокие мракобесы-инквизиторы. Не гнушаясь изощренными пытками и обманом, они повсюду устраивают азартную охоту (   Читать дальше...   )Производство: Чехословакия / Filmové Studio BarrandovЖанр: драма, историяРежиссер: Отакар ВавраАктеры: Владимир Шмерал, Эло Романчик, Йозеф Кемр, Соня Валентова, Бланка Валеска, Лола Скрбкова, Иржина Штепничкова, Мари Надемлейнска, Мириам Канторкова, Эдуард ЦупакПеревод: авторский (Юрий Сербин), любительский одноголосый (Алексей Яковлев)Язык озвучки: русский, чешскийСубтитры: нетПродолжительность: 01:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3757F8BED27789C9BB4A595AF66A1B0C30B9D4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799528   (16590) от 28.05.2025
-
-Иди отсюда, не смеши меня / Vai avanti tu che mi vien da ridere (1982) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комиссар Паскуале Беллакьома имел в управлении репутацию недотепы, из-за чего ему никогда не поручали серьезных дел. Но однажды он случайно услышал ориентировку на опасного убийцу-трансвестита Андреа Марию Риттера, который был нанят для устранения арабского шейха Абаджана, планировавшего посетить Италию. Решив действовать на свой страх и риск, Паскуале отправляется (   Читать дальше...   )Производство: Италия / Cinemaster S.r.l.Жанр: комедия, триллерРежиссер: Джорджо КапитаниАктеры: Лино Банфи, Агостина Белли, Нандо Паоне, Крис Аврам, Альдо Массассо, Гордон Митчелл, Фабриция Кастаньоли, Люка Бьяджини, Пино Колицци, Анна Тереза РоссиниПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, итальянскийСубтитры: Русские, итальянскиеПродолжительность: 01:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE862498C6D0A9AAA72263626BD3EB9BB46D9408
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796550   (16614) от 28.05.2025
-
-Капитан / Le capitan / Captain Blood (1960) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16614.jpg" />
-</div>
-
-
-###  Подробнее
-
-1616 год. Сыну убитого Генриха IV Людовику XIII пятнадцать лет. Он еще мал, чтобы управлять страной. И королева-мать Мария Медичи назначает на пост регента Кончини, который жаждет сам получить трон и титул короля Франции. Молодой дворянин Франсуа, втянутый в эту интригу, искренне предан законному наследнику престола Людовику. Он прилагает все усилия, чтобы встретиться (   Читать дальше...   )Производство: Франция, Италия / Production Artistique et Cinematographique (PAC), Pathe Consortium Cinema, Da.Ma. CinematograficaЖанр: боевик, приключенияРежиссер: Андре ЮнебельАктеры: Жан Маре, Бурвиль, Эльза Мартинелли, Пьеретт Бруно, Лизе Деламар, Анни Андерсон, Ги Делорм, Жаклин Порель, Жан-Поль Коклен, Рафаэль ПаторниПеревод: Дублированный (Мосфильм), профессиональный многоголосый (CP Digital, РенТВ, DVD Magic), профессиональный одноголосый (Всеволод Абдулов)Язык озвучки: русский, французскийСубтитры: русские, английские, французскиеПродолжительность: 01:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCA13785795950A411A338BA1D7462BA2F55367
 ```
 
 

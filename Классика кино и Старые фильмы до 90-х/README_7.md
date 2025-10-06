@@ -1,3 +1,53 @@
+###  Публикация: 1814910   (4562) от 03.09.2025
+
+Мятежный «Орионъ» (1978) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина поставлена по роману Сергей Жемайтиса «Клипер «Орион».
+В 1917 году русский корабль «Орионъ» отправляется из английского порта в Россию, где уже началась революция. За время пути власть на «Орионе» поменяется три раза. Сначала корабль захватят немцы, потом анархисты, затем - монархисты...Производство: СССР / Киевская киностудия им. А. П. ДовженкоЖанр: приключения, историяРежиссер: Евгений ШерстобитовАктеры: Юрий Пузырёв, Леонид Яновский, Юрий Мочалов, Алексей Золотницкий, Анатолий Юрченко, Алексей Сафонов, Виктор Степаненко, Максим Данков, Владимир Бродский, Валерий ПанаринПродолжительность: 01:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8AD0275ACE8E402BA44CECECFDA76AF7685DA55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815877   (4567) от 03.09.2025
+
+Лучшие годы нашей жизни / The Best Years of Our Lives (1946) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа Маккинли Кантора «Прославление меня» (Glory for Me)...
+Фильм рассказывает о трёх офицерах американской армии, которые с войны вернулись домой. у Эла дома жена и двое уже подросших детей, которые как раз вступают во взрослую жизнь, он пытается наверстать упущенное, узнать их заваново и вновь завоевать семейную любовь и доверие, по возвращению его (   Читать дальше...   )Производство: США / Samuel Goldwyn CompanyЖанр: драма, мелодрама, военныйРежиссер: Уильям УайлерАктеры: Мирна Лой, Фредрик Марч, Дэна Эндрюс, Тереза Райт, Вирджиния Майо, Кэти О`Доннелл, Хоаги Кармайкл, Харольд Расселл, Глэдис Джордж, Роман Бонен, Рэй Коллинз, Минна Гомбелл, Уолтер Болдуин, Стив Кокран, Дороти Адамс (I)Перевод: дублированный (Мосфильм), профессиональный двухголосый ( HTB+), авторский (Алексей Медведев)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D68051F9877DFE83FE1200309FB1A2D353F6BB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816150   (4588) от 03.09.2025
 
 Я, ты, он, она / Je tu il elle (1975) BDRip [H.264/720p] [FR / RU Sub]
@@ -6,7 +56,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4588.jpg" />
 </div>
 
 
@@ -30,7 +80,7 @@ magnet:?xt=urn:btih:4F3A76E608C04A452B591EB643DCCAFDF01904A8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4650.jpg" />
 </div>
 
 
@@ -55,7 +105,7 @@ magnet:?xt=urn:btih:80C6029247861D5F4B3C33EE4AFBAC2B9BB49685
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4718.jpg" />
 </div>
 
 
@@ -105,7 +155,7 @@ magnet:?xt=urn:btih:2F66BFDFFEBDBA25828F4B23093FDEA9CE6AD9CF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4786.jpg" />
 </div>
 
 
@@ -129,7 +179,7 @@ magnet:?xt=urn:btih:A551AA29383080DD652EFFE5D6E976B0324DE7BB
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4798.jpg" />
 </div>
 
 
@@ -154,7 +204,7 @@ magnet:?xt=urn:btih:F4776EB8069887786101A365E5747FEBE8F3F135
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4810.jpg" />
 </div>
 
 
@@ -178,7 +228,7 @@ magnet:?xt=urn:btih:9A2D30AFE2A576E170B8C0A7C83B81581F7FDFC4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4819.jpg" />
 </div>
 
 
@@ -202,7 +252,7 @@ magnet:?xt=urn:btih:671A870E0E3361CC104A65FBFE82FD725A51E054
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4821.jpg" />
 </div>
 
 
@@ -226,7 +276,7 @@ magnet:?xt=urn:btih:F564A31B977DB850C6433858BB222949E753ECB4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4859.jpg" />
 </div>
 
 
@@ -322,7 +372,7 @@ magnet:?xt=urn:btih:1E409EE8CFD58A01AC20BA4DBBB1D87926EB8AF1
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4920.jpg" />
 </div>
 
 
@@ -347,7 +397,7 @@ magnet:?xt=urn:btih:FEE27511182AF48D12E06928F1B0637B0CB20820
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4934.jpg" />
 </div>
 
 
@@ -371,7 +421,7 @@ magnet:?xt=urn:btih:610A21B864223835543B0D38EE20EAC143ACE16D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4938.jpg" />
 </div>
 
 
@@ -395,7 +445,7 @@ magnet:?xt=urn:btih:6866E18A07D24C8600E7AB9CA1A100A711D58BCC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_4939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4939.jpg" />
 </div>
 
 
@@ -419,7 +469,7 @@ magnet:?xt=urn:btih:A882E7F3C9630C3393966C79BB52560E002CB791
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5016.jpg" />
 </div>
 
 
@@ -443,7 +493,7 @@ magnet:?xt=urn:btih:D5F66593412748BFA9B6FA92306AEB9B4E616240
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5023.jpg" />
 </div>
 
 
@@ -467,7 +517,7 @@ magnet:?xt=urn:btih:4A6FBEC8D7A502E7DC65246F5263372B2D094703
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5124.jpg" />
 </div>
 
 
@@ -540,7 +590,7 @@ magnet:?xt=urn:btih:8E3E779EBD41636F8E20DEA8A9C4E57673505B4A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5484.jpg" />
 </div>
 
 
@@ -564,7 +614,7 @@ magnet:?xt=urn:btih:961ED192A23A923F4119F29916304F375DA49065
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5492.jpg" />
 </div>
 
 
@@ -575,54 +625,6 @@ magnet:?xt=urn:btih:961ED192A23A923F4119F29916304F375DA49065
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0B37D83489C11DB26A27C189576E891E9E801B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815111   (5499) от 28.08.2025
-
-Внезапный страх / Sudden fear (1952) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноимённой повести Эдны Шерри... На сцене бродвейского театра идёт репетиция новой пьесы Майры Хадсон. Игрой Лестера Блэйка довольны все кроме автора. Она требует снять его с роли, мотивируя тем, что он недостаточно харизматичен и внешне не похож на романтического героя. Возвращаясь после успешной премьеры в свой родной Сан-Франциско, Майра неожиданно (   Читать дальше...   )Производство: США / Joseph Kaufmann ProductionsЖанр: нуар, триллерРежиссер: Дэвид МиллерАктеры: Джоан Кроуфорд, Джек Пэланс, Глория Грэм, Брюс Беннетт, Вирджиния Хьюстон, Майк Коннорс, Джордж Чан, Эстель Эттерр, Бесс Флауэрс, Тейлор ХолмсПеревод: профессиональный многоголосый (DVD Classic)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F052ECCAF062A1349873FC7830E30EDAF81F8E46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815068   (5564) от 28.08.2025
-
-Смертельная ловушка / Deathtrap (1982) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный драматург Сидни Брул переживает не лучшие времена: вдохновение его покинуло, а новая пьеса получила прохладный приём публики и разгромные отзывы критиков, став очередным провалом, который грозит ему финансовыми трудностями. Однажды студент Клиффорд Андерсон, ранее посещавший семинар Сидни, присылает ему свою первую пьесу. Поражённый качеством материала, (   Читать дальше...   )Производство: США / Warner Bros.Жанр: детектив, триллер, комедия, криминалРежиссер: Сидни ЛюметАктеры: Майкл Кейн, Кристофер Рив, Дайан Кэннон, Айрин Уорт, Генри Джонс, Джо Силвер, Тони ДиБенедетто, Аль Лебретон, Френсис Б. Кример мл., Стюарт КлейнПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C665481B8C2A912D5CE9D5673890B4E7D70854
 ```
 
 

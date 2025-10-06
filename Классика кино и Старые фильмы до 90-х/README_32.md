@@ -1,3 +1,75 @@
+###  Публикация: 1562319   (18770) от 10.05.2025
+
+Живые и мертвые (1963) WEBRip [H.264/1080p] (2 серии)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналиста Ивана Синцова известие о вероломном нападении нацистской Германии застает во время южного отпуска. Как фронтовой корреспондент он становится свидетелем тяжелых событий первых месяцев войны - многочисленных отступлений 1941 года.Производство: СССР / МосфильмЖанр: Военный, драмаРежиссер: Александр СтолперАктеры: Кирилл Лавров, Анатолий Папанов, Олег Ефремов, Михаил Ульянов, Олег Табаков, Евгений Самойлов, Борис Чирков, Виктор Авдюшко, Алексей Глазырин, Людмила Крылова и др.Субтитры: РусскиеПродолжительность: 03:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF74D98C6C8FFAA5BDD8A897DC2A193959115AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417821   (18784) от 10.05.2025
+
+Отец солдата (1964) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Противоестественность войны для человека — труженика, созидателя — показана на примере судьбы старого крестьянина-виноградаря из Грузии. Георгий Махарашвили едет повидаться с сыном, который ранен и находится в госпитале. Но пока отец добирается до места назначения, сын снова отправляется на фронт. Однако Георгий уже не может вернуться в родную деревню. Он вместе (   Читать дальше...   )Производство: СССР, Грузия-фильмЖанр: Драма, ВоенныйРежиссер: Резо ЧхеидзеАктеры: Серго Закариадзе, Владимир Привальцев, Александр Назаров, Александр Лебедев, Юрий Дроздов, Владимир Колокольцев, Виктор Уральский, Кето Бочорашвили, Владимир Пицек, Петр ЛюбешкинСубтитры: русские, английские, французские, испанские, португальские, японские, шведские, немецкие, датские, итальянские, иврит, арабские, китайскиеПродолжительность: 01:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAA414AAFF9F3720B44239743A807185F3D9BEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796158   (18821) от 09.05.2025
+
+Белоснежка / Snow White (1916) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из первых экранизация знаменитой немецкой сказки братьев Гримм о Белоснежке, жившей в замке со злой мачехой-королевой, которая очень гордилась своей красотой. Узнав от волшебного зеркальца, что Белоснежка стала самой прекрасной девушкой на свете, завистница решила погубить прелестную падчерицу. Но бедная девушка не погибла в лесу, а наоборот, встретила там настоящих (   Читать дальше...   )Производство: США / Famous Players Film CoЖанр: фэнтези, сказка, мелодрама, немое киноРежиссер: Дж. Сирл ДоулиАктеры: Дороти Камминг, Крейтон Хейл, Лайонел Брэхам, Элис Уошберн, Маргарит Кларк, Ричард Бартелмесс, Артур Дональдсон, Ирвин Эммер, Эдди Е. Фрэнк, Билли ПлаттПеревод: немой с интертитрами (SHCH)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968029802ECB2F65EFC7724F7B6DA0EEEC5DC187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796311   (18823) от 09.05.2025
 
 Великое зарево (1938) DVDRip
@@ -6,7 +78,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18823.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:54BCB2B9B0D265512F19B46F904F6261244549AB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18912.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:9173E1E5D0CDBC7E5006B85F2640C41EAD278D51
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18914.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:BBC254B9A942CDC693B6C7EFA831C3811F0B88BA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18953.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:DA0FFCED4AF523594B5F5130AF424F4D72756DF3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18989.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ magnet:?xt=urn:btih:E924270779C9B34427C7B9DB2E69CDB7D16FD044
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18992.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:A373647455ECC665FB449EE27BB7FECF787837D6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19030.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ magnet:?xt=urn:btih:E9BA70144E056AEE6D1C7E92E1FD41325F63B538
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19059.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:52E8A91F21BD8E97C8BCFC2B86BFAB31875B04B5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19152.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:27C84B114C47E0D120D2023F77816B647B80BE01
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19153.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:F48038046907714AA84A3236CEBFF968DF88597A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19165.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:8C1689A5BB24A5ACBEF933E1657EC38CCBC4CC00
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19178.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:97740AC5F272454A3A9A60EDF02B418D0E283041
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19193.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:E0F250CB417F0E4C684F5406B312C867B6F76DB5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19194.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:F0BBA71969A5EA4ABB6A9643E7F67D1F65E587CA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19197.jpg" />
 </div>
 
 
@@ -551,78 +623,6 @@ magnet:?xt=urn:btih:3A966F68A115D083E75F7D9B238F5B5FB40F5BA8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A557373287CBB44BB7E6DDA711F0B0CF5800F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795624   (19237) от 05.05.2025
-
-Под десятью флагами / Sotto dieci bandiere (1960) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальная история, развернувшаяся на фоне Второй мировой войны. Британские военно-морские силы ведут охоту за немецким кораблем-рейдером «Атлантис», чтобы не позволить ему нарушать британские коммуникации, топить транспорт и торговые суда.Производство: Италия, США / Dino de Laurentiis CinematograficaЖанр: драма, военныйРежиссер: Дуилио КолеттиАктеры: Ван Хефлин, Чарльз Лотон, Милен Демонжо, Джон Эриксон, Сесил Паркер, Фолько Люлли, Алекс Николь, Лайам Редмонд, Элеонора Росси Драго, Джон ЛиПеревод: Одноголосый любительский (iDimo)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336ADD5523F4FD1F471CE83949734F4E70243706
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795582   (19238) от 05.05.2025
-
-Отель «Захер» / Hotel Sacher (1939) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19238.jpg" />
-</div>
-
-
-###  Подробнее
-
-На кануне нового, 1914 года, венский отель "Захер" принимает именитых гостей. По обыкновению, в его отдельных кабинетах собираются представители высших австрийских кругов для обсуждения важных, но не публичных вопросов. В новогоднюю ночь сюда стекаются высшие сановники, представители посольств дружественных государств - России, Франции, Германии, Великобритании, (   Читать дальше...   )Производство: Германия / Deutsche Mondial Film, Universum Film (UFA)Жанр: драма, мелодрамаРежиссер: Эрих ЭнгельАктеры: Сибилла Шмиц, Вилли Биргель, Вольф Альбах-Ретти, Эльфрида Датциг, Хедвига Бляйбтрой, Херберт Хюбнер, Лео Пойкерт, Карл Гюнтер, Эльфи Майерхофер, Роза Альбах-РеттиПеревод: Одноголосый любительский (porcellus)Язык озвучки: Русский, НемецкийСубтитры: русскиеПродолжительность: 01:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C01BB7495486C9B5D367C04EF84A0CC70B665AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795544   (19240) от 05.05.2025
-
-Мужчина, женщина и ребенок / Man, Woman and Child (1983) WEB-DLRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоятельная супружеская пара из Калифорнии столкнулась с серьезной проблемой. Их семейное счастье поставлено под угрозу, когда неожиданно приезжает ребенок мужа от случайной, молодой девчушки, о существовании которого законная жена ничего не знала.Производство: США / Gaylord Productions Inc.Жанр: драмаРежиссер: Дик РичардсАктеры: Мартин Шин, Блайт Даннер, Крэйг Т. Нельсон, Дэвид Хеммингс, Натали Нель, Морин Андерман, Себастьян Дунган, Арлин Макинтайр, Мелисса Френсис, Билли ДжейнПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18D49FDF2233FD26823A846AD7B6ACAA7BA0B73
 ```
 
 

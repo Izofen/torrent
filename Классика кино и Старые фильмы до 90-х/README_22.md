@@ -1,3 +1,51 @@
+###  Публикация: 1803283   (13769) от 22.06.2025
+
+Самоа – королева джунглей / Samoa, regina della giungla (1968) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа охотников за сокровищами отправляется в непроходимые джунгли на поиски алмазов. Там они сталкиваются с племенем аборигенов, в котором встречают девушку по имени Самоа, которая попала в это племя ещё ребенком. Дикари сначала нападают на путешественников, но потом оказывают им радушный прием. Один из гостей Клинт влюбляется в неё, а ещё один молодой человек (   Читать дальше...   )Производство: Италия / Roma FilmЖанр: триллер, мелодрама, криминал, приключенияРежиссер: Гуидо МалатестаАктеры: Роджер Браун, Эдвиж Фенек, Айви Хольцер, Ивано Стацциоли, Андреа Аурели, Умберто Чериани, Туллио Альтамура, Клаудио Руффини, Уилберт Брэдли, Иван Баста, Феми Бенусси, Джанни ПулонеПеревод: Одноголосый любительскийЯзык озвучки: Русский, итальянскийСубтитры: ОтсутствуютПродолжительность: 01:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F6589E8B2C36300D9DEFC2D6E3F7240E42AA40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803364   (13772) от 22.06.2025
+
+Вторжение (1980) HDTV [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они полюбили друг друга и сыграли свадьбу — пограничник Павел и студентка медучилища Лиза. И теперь он должен возвращаться к месту службы. Они уверены, что разлука будет недолгой. А утром началась война...Производство: СССР / Одесская киностудияЖанр: драма, военныйРежиссер: Виллен НовакАктеры: Наталья Вавилова, Виктор Фокин, Светлана Немоляева, Наталья Хорохорина, Марина Трошина, Раушан Тулегенова, Виктор Бутов, Евгений Иванычев, Андрей Давыдов, Дмитрий Орловский и др.Субтитры: отсутствуютПродолжительность: 01:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1F55C3DE86CD834393030B10FE7DAE6309BD36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440160   (13840) от 22.06.2025
 
 Пламя (1974) WEBRip [H.264/1080p]
@@ -55,7 +103,7 @@ magnet:?xt=urn:btih:839D3F80F90951946E6F486ECA67D3921C0AA131
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13869.jpg" />
 </div>
 
 
@@ -79,7 +127,7 @@ magnet:?xt=urn:btih:BEAFFA432E125033D0E66E62F31750D2CBF7813B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13879.jpg" />
 </div>
 
 
@@ -103,7 +151,7 @@ magnet:?xt=urn:btih:5359CD2363E32E1A0D3AF7A9E3B6E0955434F5EA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13883.jpg" />
 </div>
 
 
@@ -127,7 +175,7 @@ magnet:?xt=urn:btih:76E452C69E8238667851E69EDCE060DA8A8ED07A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13912.jpg" />
 </div>
 
 
@@ -151,7 +199,7 @@ magnet:?xt=urn:btih:61A56A3F4EC8E1862568DFB80839628C0A9972C6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13919.jpg" />
 </div>
 
 
@@ -223,7 +271,7 @@ magnet:?xt=urn:btih:560850E3C5C5DD784416A03450C82812909207A0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13947.jpg" />
 </div>
 
 
@@ -296,7 +344,7 @@ magnet:?xt=urn:btih:D6DB5A9BC77AF46A3A1198BD818C5A964FEA9485
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13983.jpg" />
 </div>
 
 
@@ -320,7 +368,7 @@ magnet:?xt=urn:btih:CD358FDE528C8B3CB06F488A8F5846F76F295B13
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_13984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13984.jpg" />
 </div>
 
 
@@ -344,7 +392,7 @@ magnet:?xt=urn:btih:FF37B2E708E2295C78AC2612F9001E397E7CE065
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14000.jpg" />
 </div>
 
 
@@ -369,7 +417,7 @@ magnet:?xt=urn:btih:5D49D9070831588C1E3FAC068FF7F0F8C8B01401
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14013.jpg" />
 </div>
 
 
@@ -393,7 +441,7 @@ magnet:?xt=urn:btih:8CB4224C57A3CB1FE5706AC515B1A05946F58E75
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14016.jpg" />
 </div>
 
 
@@ -417,7 +465,7 @@ magnet:?xt=urn:btih:B6402734478E5D11719FAE25B8F2FE00B78A3595
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14020.jpg" />
 </div>
 
 
@@ -441,7 +489,7 @@ magnet:?xt=urn:btih:D7118CD51895CBF7FEB8F75129D87DAD01F28F2D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14029.jpg" />
 </div>
 
 
@@ -465,7 +513,7 @@ magnet:?xt=urn:btih:D57772FE445C3DD2C10DE86DF489D613CDDED340
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14086.jpg" />
 </div>
 
 
@@ -489,7 +537,7 @@ magnet:?xt=urn:btih:8E3675042B35CB0E5CFE908A1FD64ED916FB5EAC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14089.jpg" />
 </div>
 
 
@@ -513,7 +561,7 @@ magnet:?xt=urn:btih:656756FBA1A5AB9090AD979291C51740997D2122
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14093.jpg" />
 </div>
 
 
@@ -537,7 +585,7 @@ magnet:?xt=urn:btih:6D83CBDF3E1CCB1F25FA23F381FD55D9CAA8DD93
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14119.jpg" />
 </div>
 
 
@@ -561,7 +609,7 @@ magnet:?xt=urn:btih:5C6496D3F337571BA1FD4236DDA8A71FCD791B1D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14140.jpg" />
 </div>
 
 
@@ -572,55 +620,6 @@ magnet:?xt=urn:btih:5C6496D3F337571BA1FD4236DDA8A71FCD791B1D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A20DEDCA139C9ED304E53AF05DB5D777A889C147
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801104   (14157) от 19.06.2025
-
-В джазе только девушки / Some Like It Hot (1959) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда чикагские музыканты Джо и Джерри случайно становятся свидетелями бандитской перестрелки, они в срочном порядке смываются на поезде во Флориду, прикинувшись женщинами. Теперь они — Джозефина и Дафна, новенькие и хорошенькие инструменталистки женского джаз-бэнда.
-До поры до времени их маскировка срабатывает. Но вскоре любвеобильная солистка влюбляется в «переодетого» (   Читать дальше...   )Производство: США / MGM, The Mirisch Corporation, Ashton ProductionsЖанр: мелодрама, комедия, криминал, музыкаРежиссер: Билли УайлдерАктеры: Мэрилин Монро, Тони Кертис, Джек Леммон, Джордж Рафт, Пэт О’Брайен, Джо Э. Браун, Нехемия Персофф, Джоан Шоули, Билли Грэй, Джордж Э. Стоун и другиеПеревод: Дублированный (к/с им. Горького со вставками дубляжа ОРТ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78EF974F2C160AAB40FFE3BD0CCDF7603EF6F84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802662   (14201) от 18.06.2025
-
-Инициация: Тихая ночь, смертельная ночь 4 / Initiation: Silent Night, Deadly Night 4 (1990) BDRip [H.265/1080p] [10-bit] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_14201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина, объятая пламенем, падает с крыши книжного магазина. Ким хочет найти сенсационную историю, чтобы стать репортером, видит сюжет об этом происшествии в телевизионных новостях и начинает расследование.Производство: США / Silent Films Inc.Жанр: ужасыРежиссер: Брайан ЮзнаАктеры: Клинт Ховард, Нейт Хантер, Томми Хинкли, Хью Финк, Ричард Н. Гладштейн, Рэджи Бэннистер, Эллис Бисли, Глен Чин, Мод Эдамс, Джинн БейтсПеревод: авторский (Юрий Живов, Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106369F28B51FE39E0AA49FB15D704D1CE35B4C6
 ```
 
 

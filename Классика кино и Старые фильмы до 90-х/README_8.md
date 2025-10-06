@@ -1,3 +1,51 @@
+###  Публикация: 1815111   (5499) от 28.08.2025
+
+Внезапный страх / Sudden fear (1952) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённой повести Эдны Шерри... На сцене бродвейского театра идёт репетиция новой пьесы Майры Хадсон. Игрой Лестера Блэйка довольны все кроме автора. Она требует снять его с роли, мотивируя тем, что он недостаточно харизматичен и внешне не похож на романтического героя. Возвращаясь после успешной премьеры в свой родной Сан-Франциско, Майра неожиданно (   Читать дальше...   )Производство: США / Joseph Kaufmann ProductionsЖанр: нуар, триллерРежиссер: Дэвид МиллерАктеры: Джоан Кроуфорд, Джек Пэланс, Глория Грэм, Брюс Беннетт, Вирджиния Хьюстон, Майк Коннорс, Джордж Чан, Эстель Эттерр, Бесс Флауэрс, Тейлор ХолмсПеревод: профессиональный многоголосый (DVD Classic)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F052ECCAF062A1349873FC7830E30EDAF81F8E46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815068   (5564) от 28.08.2025
+
+Смертельная ловушка / Deathtrap (1982) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный драматург Сидни Брул переживает не лучшие времена: вдохновение его покинуло, а новая пьеса получила прохладный приём публики и разгромные отзывы критиков, став очередным провалом, который грозит ему финансовыми трудностями. Однажды студент Клиффорд Андерсон, ранее посещавший семинар Сидни, присылает ему свою первую пьесу. Поражённый качеством материала, (   Читать дальше...   )Производство: США / Warner Bros.Жанр: детектив, триллер, комедия, криминалРежиссер: Сидни ЛюметАктеры: Майкл Кейн, Кристофер Рив, Дайан Кэннон, Айрин Уорт, Генри Джонс, Джо Силвер, Тони ДиБенедетто, Аль Лебретон, Френсис Б. Кример мл., Стюарт КлейнПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C665481B8C2A912D5CE9D5673890B4E7D70854
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815066   (5603) от 28.08.2025
 
 Сказки / Fairy Tales (1978) BDRip [H.264] [EN / RU Sub]
@@ -6,7 +54,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5603.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:DFFD76E1AC32A0968F6F4373115018CDFF482E84
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5604.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ magnet:?xt=urn:btih:CA5F37BC8CF15318EC62FF1C608E1644317BD86F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5607.jpg" />
 </div>
 
 
@@ -103,7 +151,7 @@ magnet:?xt=urn:btih:BA9290F353834A940FA96E0B33A2E0E30D621808
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5665.jpg" />
 </div>
 
 
@@ -128,7 +176,7 @@ magnet:?xt=urn:btih:17EC42EECC5907F4F137859D5807ABF236A2D3AF
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5684.jpg" />
 </div>
 
 
@@ -152,7 +200,7 @@ magnet:?xt=urn:btih:D23205B2E21801FDB3C82FE42FA740FA0352A6A0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5687.jpg" />
 </div>
 
 
@@ -176,7 +224,7 @@ magnet:?xt=urn:btih:DB8131EA83BA16CC2A3E84D4B3251B7D6B79302F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5711.jpg" />
 </div>
 
 
@@ -201,7 +249,7 @@ magnet:?xt=urn:btih:305B3B40C7BCE0688F0FC43204928F9F0AD6EEC9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5713.jpg" />
 </div>
 
 
@@ -225,7 +273,7 @@ magnet:?xt=urn:btih:9829C0DD19D81488BE7FA847B3E662CCE01CAEF8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5721.jpg" />
 </div>
 
 
@@ -249,7 +297,7 @@ magnet:?xt=urn:btih:8E7720BC972D0896B2E1351123680640E7A73555
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5788.jpg" />
 </div>
 
 
@@ -273,7 +321,7 @@ magnet:?xt=urn:btih:2B4156B782AE6958F279686DF44FD67EAF841EAC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5882.jpg" />
 </div>
 
 
@@ -297,7 +345,7 @@ magnet:?xt=urn:btih:742693B68517B549509862807FE526B5429C4B1F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5898.jpg" />
 </div>
 
 
@@ -345,7 +393,7 @@ magnet:?xt=urn:btih:960A11F08684D4F19F5847F61027EB0DD3289FA0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5926.jpg" />
 </div>
 
 
@@ -369,7 +417,7 @@ magnet:?xt=urn:btih:C0B4178717BD4984EAF430E60620E800D0B65290
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5976.jpg" />
 </div>
 
 
@@ -393,7 +441,7 @@ magnet:?xt=urn:btih:836B63FE9683269C1CF8CF829EAAADF2F877DB63
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5980.jpg" />
 </div>
 
 
@@ -417,7 +465,7 @@ magnet:?xt=urn:btih:4F92466C791274CEA56C5AA0379530F174881A63
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_5986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5986.jpg" />
 </div>
 
 
@@ -441,7 +489,7 @@ magnet:?xt=urn:btih:0B793F78023E8C8361C2D6DCAC356451F6758458
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6034.jpg" />
 </div>
 
 
@@ -490,7 +538,7 @@ magnet:?xt=urn:btih:6C6E99F0FE60855D71A9F3B6D6A09C24E3C85C47
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6095.jpg" />
 </div>
 
 
@@ -515,7 +563,7 @@ magnet:?xt=urn:btih:D9D85A1A25D3675AB1093DA6946DD86DBF76253B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6120.jpg" />
 </div>
 
 
@@ -563,7 +611,7 @@ magnet:?xt=urn:btih:91E2675D296938289AAAE42F91CA56B1C6F02ABE
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6149.jpg" />
 </div>
 
 
@@ -574,54 +622,6 @@ magnet:?xt=urn:btih:91E2675D296938289AAAE42F91CA56B1C6F02ABE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89785E7A699EEF325C1140BC4CE9869ADB700FF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814173   (6293) от 23.08.2025
-
-Пьянь / Barfly (1987) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм представляет собой полуавтобиографию поэта и писателя Чарльза Буковски в период, когда он сильно пил в Лос-Анджелесе... Генри Чинаски писатель и алкоголик. Свою жизнь он проводит в барах Лос-Анджелеса, но на выпивку и гамбургер он предпочитает зарабатывать «нетрадиционными» способами: принимает участие в уличных драках, где на него делают ставки. Однажды на (   Читать дальше...   )Производство: США / Golan / Globus Production, Zoetrope StudiosЖанр: драма, мелодрама, комедияРежиссер: Барбет ШредерАктеры: Микки Рурк, Фэй Данауэй, Элис Крайдж, Джек Нэнс, Фрэнк Сталлоне, Сэнди Мартин, Роберта Бэссин, Глория ЛеРой, Джо Ангер, Гарри Кон, Прюитт Тейлор Винс, Джо Райс, Дональд Л. Норден, Уил Альберт, Хэл ШаферПеревод: профессиональный многоголосый (MVO R5 Н-Кино; Paramount Channel), профессиональный двухголосый (НТВ+; СВ-Кадр; Лазер Видео), авторский (Алексей Михалёв; Витя-Говорун; Михаил Чадов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2332615CBFD6CB43C0DC842DD01561007364C959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814195   (6296) от 23.08.2025
-
-Джефф / Jeff (1969) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_6296.jpg" />
-</div>
-
-
-###  Подробнее
-
-После успешной кражи драгоценностей, главарь банды, Джефф едет в Нидерланды, чтобы обменять там бриллианты на наличные деньги. Но на оговоренную встречу в Париже он не приходит, и все, кроме его близкого друга, Лорана, и его возлюбленной, Евы, подозревают Джеффа в предательстве. Лоран и Ева отправляются, преследуемые оставшимися в живых гангстерами, по заснеженной (   Читать дальше...   )Производство: Франция, Италия / Adel Productions, PECF, PIC (Produzione Intercontinentale Cinematografica)Жанр: драма, криминалРежиссер: Жан ЭрманАктеры: Ален Делон, Мирей Дарк, Жорж Рукье, Габриэль Жаббур, Натали Нерваль, Робер Ломбар, Жорж Джеймин, Анри Черняк, Жан Содрэ, Альбер МединаПеревод: Многоголосый профессиональный (Велес), авторский (Роман Янкелевич)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2945E44D76743FE71C26054C07DA4175F489D3
 ```
 
 

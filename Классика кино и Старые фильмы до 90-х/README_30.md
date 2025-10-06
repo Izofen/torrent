@@ -1,3 +1,76 @@
+###  Публикация: 1797654   (18027) от 17.05.2025
+
+Плоть и пули / Flesh and Bullets (1985) BDRemux [H.264/1080p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое мужчин встречаются в баре в Лас-Вегасе и обнаруживают, что у них есть одна общая большая проблема - их жены. Они решают сделать что-то радикальное.Производство: США / T&A ProductionsЖанр: криминалРежиссер: Карлос ТобалинаАктеры: Гленн МакКэй, Гэйл Стерлинг, Мик Морроу, Сидни Хилл, Gina Tobalina, Ивонн Де Карло, Альдо Рэй, Сесар Ромеро, Корнел Уайлд, Шэрон КеллиПеревод: Авторский (Андрей Дольский)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5FB689AB8F69ED0C4B37340304381A7B0470DA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797631   (18039) от 17.05.2025
+
+Дух студента / School Spirit (1985) BDRemux [H.264/1080p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень Билли Бэтсон едет на свидание со своей девушкой. Он надеется на секс с ней, но у него нет ни одного презерватива. Тогда он едет за презервативами и находит их в придорожной закусочной. Теперь он спешит обратно и на большой скорости врезается своей машиной в большой грузовик и погибает.
+На небесах его воскрешают, но уже в виде духа, чтобы он смог встретиться (   Читать дальше...   )Производство: США / Chroma III Productions, New Horizons, T&A ProductionsЖанр: комедия, фэнтезиРежиссер: Алан ХоллебАктеры: Том Нолан, Элизабет Фокс, Ларри Линвилл, Роберта Коллинз, Майкл Миллер, Брайан Фришмен, Лесли Бреммер, Лоуренс Хэддон, Бич Дикерсон, Синтия ХаррисонПеревод: Авторский (Л. Володарский)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1CB98413A0B2A83E817E180E8B423A101A047E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797210   (18073) от 16.05.2025
+
+По улицам комод водили... (1978) HDTVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киноальманах состоит из новелл-шуток: "Грабеж среди бела дня" - о покупателе, доверившем обкатку своего новенького велосипеда ребенку; "С новинкой!" - о новом директоре большого гастронома, выясняющем у следователя меру наказаний за предполагаемое воровство; "На волоске" - о пожилом пассажире пригородного поезда, размечтавшемся о встречах (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: комедияРежиссер: Марк Генин, Николай КовальскийАктеры: Игорь Ясулович, Валерий Носик, Владимир Ивашов, Евгений Весник, Игорь Дмитриев, Наталья Вавилова, Семен Морозов, Савелий Крамаров, Наталья Селезнёва, Александр Демьяненко и др.Субтитры: отсутствуютПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8209BE1E3D3AC31E55DB4093D170140177AD94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797437   (18077) от 16.05.2025
 
 Сумасшедший дом / Madhouse (1990) BDRip [H.264]
@@ -6,7 +79,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18077.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:8CE0E206E6C1022E7FD9DEDEAB871CA6C18A1735
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18084.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:0CF0D1C7ED4A47C7804C9A9DE1F31473EF0A821C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18089.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:417B7C62B67E5ACB2CFF5FEBFB1B486EF8D0E590
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18096.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:D2818B8C83F509DFD526925A6209B194A19EE406
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18097.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ magnet:?xt=urn:btih:ADE86222E24E08FFA18298DB76BB63539E63F17B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18109.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ magnet:?xt=urn:btih:A52CDBDD78DC97AC2169CFCBFBCCDB95F4827368
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18116.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:09377BF183684D2E15AED9DE835C91125A883D2E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18129.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ magnet:?xt=urn:btih:D88ACD2C38DBAA1373F0FFC0016F540B300AF8F9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18178.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ magnet:?xt=urn:btih:35672F40EDA3D8CD1384349A50D9DE871848B8DA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18190.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ magnet:?xt=urn:btih:F705950D90F2EFAC17BA47CDCEA132AD8FCC5C63
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18212.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ magnet:?xt=urn:btih:A2CB739BB08A11B7E7A81B90BA9F26AE1937A6B7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18235.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ magnet:?xt=urn:btih:CA109ADBF58431FF8620F9F5FC7EB93694CD4237
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18256.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ magnet:?xt=urn:btih:06279A3B1103B8A8D6205CEBFB108023B27B79FF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18259.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ magnet:?xt=urn:btih:8F506323DFDFAA8D2E04FD6175630877A98DC032
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18302.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ magnet:?xt=urn:btih:29880FAFA440B222A3756627A1CAE21CC71F2922
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18316.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ magnet:?xt=urn:btih:2940CA8E8384F6EA4EB4B7EC9E99548D85CA1853
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18339.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ magnet:?xt=urn:btih:E526DDE65DD0542134A627BB110CB481538CC233
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18422.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ magnet:?xt=urn:btih:AEB16D93C951D51F5BE5CDB3485E040DB75652F4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18430.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ magnet:?xt=urn:btih:9CB008C0374ABDDD5B599039C8F22D84D62C2DAB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18432.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ magnet:?xt=urn:btih:615FA3FDBB6589001FF191F3DE9D511D9D912300
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18446.jpg" />
 </div>
 
 
@@ -549,78 +622,6 @@ magnet:?xt=urn:btih:615FA3FDBB6589001FF191F3DE9D511D9D912300
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B4E10A35C3569DD80D79381224B81C9B951CDC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796734   (18448) от 13.05.2025
-
-Цепная реакция / The Chain Reaction (1980) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Землетрясение в Австралии вызывает в одном из сельских районов опасную утечку ядерных отходов. Инженер Генрих Шмидт, получивший серьезные повреждения во время этого происшествия, понимает, что последствия выхода ядовитых веществ наружу будут ужасны. Грунтовые воды на сотни миль вокруг станут отравленными. Генрих обязан предупредить население. Его босс, однако, против (   Читать дальше...   )Производство: Австралия / Film Victoria, Palm Beach Pictures, The Australian Film CommissionЖанр: фантастика, боевик, драмаРежиссер: Йен БэрриАктеры: Стив Бисли, Арна-Мария Винчестер, Росс Томпсон, Ральф Коттерилл, Хью Кияс-Бёрн, Лорна Лесли, Ричард Мойр, Патрик Уорд, Лори Моран, Майкл ЛонгПеревод: Многоголосый профессиональный (ТК Россия), авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA3BEADFD288C6863B09F250553BF6A5F8EC9B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795152   (18449) от 13.05.2025
-
-Пеночка и Зонтик / Пеничка и Зонтик / Penicka a Paraplicko (1971) HDTV [H.264/1080p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из цикла "Грешные люди города Праги". Обнаружен труп грабителя Тоуфара. Советник Вацатко посылает инспекторов Боуша и Бружека к его любовнице по кличке "Зонтик". Выясняется, что к ней вернулся бывший сожитель, недавно вышедший из тюрьмы взломщик Пеничка. Начавшееся расследование приводит к распутыванию драматического клубка любви и зависти в пражских (   Читать дальше...   )Производство: Чехословакия / Filmové Studio BarrandovЖанр: криминалРежиссер: Иржи СеквенсАктеры: Ярослав Марван, Йозеф Винкларж, Йозеф Блага, Йиржина Богдалова, Радослав Брзобогаты, Богумил Шмида, Мартин Ружек, Иржина Штепничкова, Богуслав Чап, Ота СкленчкаПеревод: Одноголосый любительский (Дмитрий Пестриков)Язык озвучки: Русский, ЧешскийСубтитры: русские (forced, full)Продолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0631C0BD5281AF7AF2798B605B379A69CEE1BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793766   (18451) от 13.05.2025
-
-Безбилетная пассажирка (1978) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_18451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Случайная встреча круто изменила жизнь Нины. Вместе со своим новым знакомым, Антоном, она отправляется на великую стройку — БАМ. Разумеется, за трудовыми подвигами. Вот только билет на поезд купить забыла!..Производство: СССР, Киностудия им. М. ГорькогоЖанр: мелодрама, комедия, приключенияРежиссер: Юрий ПобедоносцевАктеры: Татьяна Догилева, Константин Кравинский, Амурбек Гобашиев, Тигран Давыдов, Ольга Торбан, Наталья Хорохорина, Марина Шигарева, Михаил Бычков, Юрий Чигров, Вячеслав ГостинскийПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477B4FE94A037C8732268BE528BE75B65C22D2AE
 ```
 
 
